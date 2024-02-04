@@ -1,0 +1,21 @@
+INFO: latexindent version 3.7.1, 2019-09-07, a script to indent .tex files
+      latexindent lives here: /usr/share/texlive/texmf-dist/scripts/latexindent/
+      Sun Feb  4 20:49:13 2024
+      Filename: /home/shane/source/git/semiosis/thoughts-on-theology/faith-and-judgement.tex
+INFO: Processing switches:
+INFO: Directory for backup files and indent.log: /home/shane/source/git/semiosis/thoughts-on-theology
+INFO: YAML settings read: defaultSettings.yaml
+      Reading defaultSettings.yaml from /usr/share/texlive/texmf-dist/scripts/latexindent/defaultSettings.yaml
+INFO: YAML settings read: indentconfig.yaml or .indentconfig.yaml
+      Home directory is /home/shane (didn't find either indentconfig.yaml or .indentconfig.yaml)
+      To specify user settings you would put indentconfig.yaml here: /home/shane/indentconfig.yaml
+      Alternatively, you can use the hidden file .indentconfig.yaml as: /home/shane/.indentconfig.yaml
+INFO: Phase 1: searching for objects
+INFO: Phase 2: finding surrounding indentation
+INFO: Phase 3: indenting objects
+INFO: Phase 4: final indentation check
+INFO: Output routine:
+      Not outputting to file; see -w and -o switches for more options.
+      --------------
+INFO: Please direct all communication/issues to:
+      https://github.com/cmhughes/latexindent.pl
