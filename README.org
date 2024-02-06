@@ -472,20 +472,7 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
 *I Corinthians 6:2* - Or do you not know that the saints will judge the world? And if the world is to be judged by you, are you incompetent to try trivial cases?
 
 *** Saints inherit the Kingdom with Jesus
-#+BEGIN_SRC bash -n :i bash :async :results verbatim code :lang text
-  Daniel 7:18
-#+END_SRC
-
-#+RESULTS:
-#+begin_src text
-Daniel 7:18
-‾‾‾‾‾‾‾‾‾‾‾
-But the saints of the Most High shall receive
-the kingdom and possess the kingdom forever,
-forever and ever.
-
-(ESV)
-#+end_src
+*Daniel 7:18* -  But the saints of the Most High shall receive the kingdom and possess the kingdom forever, forever and ever.  (ESV)
 
 *** Entering the kingdom of heaven
 Jesus has to be your Lord in reality, i.e. doing Father God's will.
