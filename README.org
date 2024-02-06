@@ -39,6 +39,11 @@ This looks like an interesting resource about that - http://www.abideinchrist.co
 *** But we must submit to the righteousness from God through faith in Jesus - this is more important
 *Romans 10:3-5* - For, being ignorant of the righteousness that comes from God, and seeking to establish their own, they did not submit to God's righteousness.  For Christ is the end of the law for righteousness to everyone who believes.  For Moses writes about the righteousness that is based on the law, that the person who does the commandments shall live by them.
 
+*** The honour is for those who believe
+Have faith in Jesus and do good.
+
+I Peter 2:6-25: For it stands in Scripture: Behold, I am laying in Zion a stone, a cornerstone chosen and precious, and whoever believes in him will not be put to shame.  So the honor is for you who believe, but for those who do not believe, The stone that the builders rejected has become the cornerstone, and A stone of stumbling, and a rock of offense. They stumble because they disobey the word, as they were destined to do.  But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession, that you may proclaim the excellencies of him who called you out of darkness into his marvelous light.  Once you were not a people, but now you are God's people; once you had not received mercy, but now you have received mercy.  Beloved, I urge you as sojourners and exiles to abstain from the passions of the flesh, which wage war against your soul.  Keep your conduct among the Gentiles honorable, so that when they speak against you as evildoers, they may see your good deeds and glorify God on the day of visitation.  Be subject for the Lord's sake to every human institution, whether it be to the emperor as supreme, or to governors as sent by him to punish those who do evil and to praise those who do good.  For this is the will of God, that by doing good you should put to silence the ignorance of foolish people.  Live as people who are free, not using your freedom as a cover-up for evil, but living as servants of God.  Honor everyone. Love the brotherhood. Fear God. Honor the emperor.  Servants, be subject to your masters with all respect, not only to the good and gentle but also to the unjust.  For this is a gracious thing, when, mindful of God, one endures sorrows while suffering unjustly.  For what credit is it if, when you sin and are beaten for it, you endure? But if when you do good and suffer for it you endure, this is a gracious thing in the sight of God.  For to this you have been called, because Christ also suffered for you, leaving you an example, so that you might follow in his steps.  He committed no sin, neither was deceit found in his mouth.  When he was reviled, he did not revile in return; when he suffered, he did not threaten, but continued entrusting himself to him who judges justly.  He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed.  For you were straying like sheep, but have now returned to the Shepherd and Overseer of your souls.
+
 * Faith
 One must have faith to receive the gift of salvation.
 
@@ -401,7 +406,7 @@ Also, the Kingdom stretches from heaven to earth, so gay 'marriage' may happen o
 
 But neither does marriage between man and woman even exist in heaven.
 
-But those who practice sexual impurity which includes homosexuality wont inherit the kingdom. But can they enter the kingdom on earth?
+But those who practice sexual impurity which includes homosexuality wont *inherit* the kingdom - that's for the saints (those who keep God's commandments AND have faith in Jesus). But can they *enter* the kingdom on earth?
 
 *Matthew 6:10* - Your kingdom come, your will be done, on earth as it is in heaven.
 
@@ -461,7 +466,12 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
 
 *Revelation of John 14:12* - Here is a call for the endurance of the saints, those who keep the commandments of God and their faith in Jesus.
 
-*** Saints inherit the Kingdom
+*** Followers of Jesus - the saints (people who keep God's commandments) judge the world
+*Matthew 19:16-30* - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal life?  And he said to him, Why do you ask me about what is good? There is only one who is good. If you would enter life, keep the commandments.  He said to him, Which ones? And Jesus said, You shall not murder, You shall not commit adultery, You shall not steal, You shall not bear false witness, Honor your father and mother, and, You shall love your neighbor as yourself.  The young man said to him, All these I have kept. What do I still lack?  Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me.  When the young man heard this he went away sorrowful, for he had great possessions.  And Jesus said to his disciples, Truly, I say to you, only with difficulty will a rich person enter the kingdom of heaven.  Again I tell you, it is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God.  When the disciples heard this, they were greatly astonished, saying, Who then can be saved?  But Jesus looked at them and said, With man this is impossible, but with God all things are possible.  Then Peter said in reply, See, we have left everything and followed you. What then will we have?  Jesus said to them, Truly, I say to you, in the new world, when the Son of Man will sit on his glorious throne, you who have followed me will also sit on twelve thrones, judging the twelve tribes of Israel.  And everyone who has left houses or brothers or sisters or father or mother or children or lands, for my name's sake, will receive a hundredfold and will inherit eternal life.  But many who are first will be last, and the last first.
+
+*I Corinthians 6:2* - Or do you not know that the saints will judge the world? And if the world is to be judged by you, are you incompetent to try trivial cases?
+
+*** Saints inherit the Kingdom with Jesus
 #+BEGIN_SRC bash -n :i bash :async :results verbatim code :lang text
   Daniel 7:18
 #+END_SRC
@@ -477,19 +487,16 @@ forever and ever.
 (ESV)
 #+end_src
 
-*** Followers of Jesus - the saints (people who keep God's commandments) judge the world
-*Matthew 19:16-30* - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal life?  And he said to him, Why do you ask me about what is good? There is only one who is good. If you would enter life, keep the commandments.  He said to him, Which ones? And Jesus said, You shall not murder, You shall not commit adultery, You shall not steal, You shall not bear false witness, Honor your father and mother, and, You shall love your neighbor as yourself.  The young man said to him, All these I have kept. What do I still lack?  Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me.  When the young man heard this he went away sorrowful, for he had great possessions.  And Jesus said to his disciples, Truly, I say to you, only with difficulty will a rich person enter the kingdom of heaven.  Again I tell you, it is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God.  When the disciples heard this, they were greatly astonished, saying, Who then can be saved?  But Jesus looked at them and said, With man this is impossible, but with God all things are possible.  Then Peter said in reply, See, we have left everything and followed you. What then will we have?  Jesus said to them, Truly, I say to you, in the new world, when the Son of Man will sit on his glorious throne, you who have followed me will also sit on twelve thrones, judging the twelve tribes of Israel.  And everyone who has left houses or brothers or sisters or father or mother or children or lands, for my name's sake, will receive a hundredfold and will inherit eternal life.  But many who are first will be last, and the last first.
-
-*I Corinthians 6:2* - Or do you not know that the saints will judge the world? And if the world is to be judged by you, are you incompetent to try trivial cases?
-
 *** Entering the kingdom of heaven
 Jesus has to be your Lord in reality, i.e. doing Father God's will.
 
 *Matthew 7:21* - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
 
+*1 Thessalonians 4:3* -  For this is the will of God, your sanctification: that you abstain from sexual immorality;  (ESV)
+
 *I Peter 2:15* - For this is the will of God, that by doing good you should put to silence the ignorance of foolish people.
 
-Obey the word:
+*Obey* the word:
 
 *I Peter 2:8* - and A stone of stumbling, and a rock of offense. They stumble because they disobey the word, as they were destined to do.
 
@@ -765,8 +772,9 @@ This isn't self-righteousness, but is a self-sacrificial obedience to continue w
 ** All the law is still used
 The law is good and it still exists, and God still uses the law. All of it. We are supposed to stand for truth and live righteously as the light of the world.
 
-That being said, we all fall short of the glory of God.
+That being said, we all fall short of the glory of God and require the God's righteousness imputed to us through faith in Jesus.
 Jesus Christ is the end of the law to all who believe, but grace isn't an excuse to sin.
+God's commandments (especially the 10 Commandments; loving God and your neighbour) are still binding on us - written on our heart when we get born-again.
 
 *** Even the smallest of laws still come into effect in certain circumstances
 
