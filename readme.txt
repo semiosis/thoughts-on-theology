@@ -311,6 +311,9 @@ We need both of these:
 - Belief in Jesus and His atoning sacrifice
 - Obedience to Jesus' commandments
 
+  II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
+  turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
+
 Repentance:
 
 - Someone who has only belief in the gift of grace and no obedience to Jesus (which is effectively hating Jesus)
@@ -339,6 +342,16 @@ I think the person who has arrived at this point has repented from dead work and
   is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. If
   you abide in me, and my words abide in you, ask whatever you wish, and it will be done for you. By this my
   Father is glorified, that you bear much fruit and so prove to be my disciples.
+
+  John 12:20-26 - Now among those who went up to worship at the feast were some Greeks. So these came to Philip,
+  who was from Bethsaida in Galilee, and asked him, Sir, we wish to see Jesus. Philip went and told Andrew; Andrew
+  and Philip went and told Jesus. And Jesus answered them, The hour has come for the Son of Man to be glorified.
+  Truly, truly, I say to you, unless a grain of wheat falls into the earth and dies, it remains alone; but if it
+  dies, it bears much fruit. Whoever loves his life loses it, and whoever hates his life in this world will keep
+  it for eternal life. If anyone serves me, he must follow me; and where I am, there will my servant be also. If
+  anyone serves me, the Father will honor him. (ESV)
+
+AMEN!!
 
 2.5. Gospel
 
@@ -564,6 +577,9 @@ with those who serve Him.
   obedience is known to all, so that I rejoice over you, but I want you to be wise as to what is good and innocent
   as to what is evil. The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus Christ
   be with you.
+
+  II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
+  turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
 
 2.6.4. Disobedience
 
@@ -8652,6 +8668,14 @@ https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/ast
 
 Being born-again of the Spirit gave me insight, and I believed God was real.
 
+God did it and it was a surprise:
+
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become
+  children of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of
+  God. (ESV)
+
+It gave me insight:
+
   Proverbs 9:10 - The fear of the Lord is the beginning of wisdom, and the knowledge of the Holy One is
   insight.
 
@@ -13997,7 +14021,7 @@ Date: 2024-03-08 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-08 Fri 16:36
+Created: 2024-03-08 Fri 17:53
 
 Validate
 
