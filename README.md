@@ -5160,9 +5160,20 @@ The kingdom of heaven may be inherited.
 > **Matthew 5:11-13**  Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet.
 
 
+# The Kingdom of God
+
+After I got born-again I started getting dreams with themes of the 'Kingdom of God', and also through interactions I began having with people, while I was pursuing following Jesus' commandments, etc. So my 'evidence' is a personal conviction that comes through faith in Jesus which has been working.
+
+That's how I interpret how the following passage says that the Kingdom of God is not coming with signs to be observed:
+
+> **Luke 17:20-21** - Being asked by the Pharisees when the kingdom of God would come, he answered them, The kingdom of God is not coming with signs to be observed, nor will they say, Look, here it is! or There! for behold, the <ins>kingdom of God is in the midst of you.</ins>
+
+
 # Entering and inheriting the kingdom
 
 There's so much stuff to do to enter the kingdom&#x2026; I feel entirely unworthy.
+
+Firstly, it has been by grace because I asked God to save me, even when I was very much stuck in sin. And I still <ins>feel</ins> as though I am approaching it and haven't quite entered it (just being honest here).
 
 Those who hunger and thirst for righteousness will be satisfied.
 
