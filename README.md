@@ -980,7 +980,7 @@ We receive reconciliation through Jesus Christ who is our Lord.
 
 Jesus is God revealed in the flesh.
 
-I think, that means that if a person truly has loves and has faith in Him, they are most likely saved.
+I think, that means that if a person loves and has faith in Him, they are most likely saved.
 
 
 ## We must **live** by faith
@@ -1037,7 +1037,7 @@ I think, that means that if a person truly has loves and has faith in Him, they 
 
 ## Justified by grace
 
-**Titus 3:7** - so that being justified by his grace we might become heirs according to the hope of eternal life. (ESV)
+> **Titus 3:7** - so that being justified by his grace we might become heirs according to the hope of eternal life. (ESV)
 
 
 ### Justified by faith
