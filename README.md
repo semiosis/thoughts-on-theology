@@ -280,6 +280,10 @@ Clearly believe means also to be obedient to because the ones that <ins>follow J
 
 > **John 10:26-38** - but you do not believe (G4100 **pisteuo**) because you are not part of my flock. My sheep <ins>hear my voice,</ins> and <ins>I know them, and they follow me.</ins> I give them eternal life, and they will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of the Father's hand. I and the Father are one.
 
+Jesus is asking of us to believe that He is the resurrection and the life; Coming to a belief which [in John's terminology] involves personally <ins>committing oneself to Jesus and Son of God, Saviour, Lord, Lamb of God and King</ins>:
+
+-   [Alistair Begg: The Hour Has Come - Part One](https://www.youtube.com/watch?v=DgcN1Qc2kJg)
+
 Jesus has to know us:
 
 > **Matthew 25:1-13** - Then the kingdom of heaven will be like ten virgins who took their lamps and went to meet the bridegroom. Five of them were foolish, and five were wise. For when the foolish took their lamps, they took no oil with them, but the wise took flasks of oil with their lamps. As the bridegroom was delayed, they all became drowsy and slept. But at midnight there was a cry, Here is the bridegroom! Come out to meet him. Then all those virgins rose and trimmed their lamps. And the foolish said to the wise, Give us some of your oil, for our lamps are going out. But the wise answered, saying, Since there will not be enough for us and for you, go rather to the dealers and buy for yourselves. And while they were going to buy, the bridegroom came, and those who were ready went in with him to the marriage feast, and the door was shut. Afterward the other virgins came also, saying, Lord, lord, open to us. But he answered, <ins>Truly, I say to you, I do not know you.</ins> Watch therefore, for you know neither the day nor the hour.
