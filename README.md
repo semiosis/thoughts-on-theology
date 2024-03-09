@@ -363,6 +363,16 @@ Repentance:
 -   Someone who has <ins>only belief in the gift of grace and no obedience to Jesus</ins> (which is effectively hating Jesus) <ins>must repent</ins> and come to have an obedient heart.
 -   Someone who has <ins>only obedience to Jesus' precepts but unbelieving and unsubmissive</ins> to the righteousness of God <ins>must repent</ins> and come to have a believing heart.
 
+If people from either category do not repent, they God has the ability and jurisdiction to <ins>cast that person out - graft them out of Christ.</ins> Also, let's not become proud, but stand in awe.
+
+You **must** believe:
+
+> **Romans 11:20-23** - That is true. <ins>They were broken off because of their unbelief, but you stand fast through faith.</ins> So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he spare you. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again.
+
+You **must** obey:
+
+> **John 15:1-6** - I am the true vine, and my Father is the vinedresser.  Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit.  Already you are clean because of the word that I have spoken to you.  Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me.  I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. <ins>If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned.</ins>
+
 Walking in obedient faith is walking in forgiveness and love towards other people, forgiveness and love that flows out from <ins>having been</ins> loved and having been forgiven.
 
 The faith working through love towards God and other people flows out of believing in and accepting Jesus and His atoning sacrifice and from being freely forgiven by Jesus.
