@@ -623,12 +623,30 @@ atoning sacrifice and from being freely forgiven by Jesus.
 
 I think the person who has arrived at this point has repented from dead work and is now living for Jesus.
 
-2.4.2. Work may be burned up, and the person who has a believing and obedient heart is still saved
+2.4.2. We must have a changed life, serving the living God, being a bondservant of Jesus. AMEN!!
+
+Being a Christian means keeping Jesus' commandments, as we are under Christ's law. It means putting a stop to
+lying, adultery, idolatry, and covetousness, and honouring Jesus Christ, and honouring your mother and father.
+It's going from disobedience to God (as Adam was disobedient) to obedience to God (as Christ is obedient):
+
+  I Corinthians 7:19 - For neither circumcision counts for anything nor uncircumcision, but keeping the
+  commandments of God. (ESV)
+
+Faith works through love; we must be like Jesus - exercising sacrificial, merciful love:
+
+  Galatians 5:6 - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith
+  working through love. (ESV)
+
+  Galatians 6:15 - For neither circumcision counts for anything, nor uncircumcision, but a new creation. (ESV)
+
+No changed life salvation? Refuting Free Grace and @jacksmack77 - YouTube
+
+2.4.3. Work may be burned up, and the person who has a believing and obedient heart is still saved
 
   1 Corinthians 3:15 - If anyone's work is burned up, he will suffer loss, though he himself will be saved, but
   only as through fire. (ESV)
 
-2.4.3. Forever abiding is believing and being a disciple
+2.4.4. Forever abiding is believing and being a disciple
 
   John 15:4-8 - Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the
   vine, neither can you, unless you abide in me. I am the vine; you are the branches. Whoever abides in me and I
@@ -14545,7 +14563,7 @@ Date: 2024-03-11 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-11 Mon 08:45
+Created: 2024-03-11 Mon 09:13
 
 Validate
 
