@@ -492,6 +492,35 @@ The faith working through love towards God and other people flows out of believi
 I think the person who has arrived at this point has repented from dead work and is now living for Jesus.
 
 
+### We must have a changed heart, which longs to serve the living God, to be a bondservant of Jesus. AMEN!!
+
+God gives us the new heart when we seek to have that new heart.
+
+To be saved we need to have an obedient heart to God.
+
+<ins>Will to do God's will</ins> - will to be obedient, and God will give you the heart to obey Him.
+
+When you trust Jesus, you will to do His will.
+
+Living as a new Creation in Christ means God has given you the heart to desire to obey Jesus' commandments. We are under Christ's law.
+
+It means, through the power of the Holy Spirit, to no longer practice lying, adultery, idolatry, and covetousness, and to no longer dishonour our parents, and to now honour Jesus Christ in our lives and bodies.
+
+It's going from disobedience to God (as Adam was disobedient) to obedience to God (as Christ is obedient):
+
+> **I Corinthians 7:19** - For neither circumcision counts for anything nor uncircumcision, but <ins>keeping the commandments of God.</ins> (ESV)
+
+Faith works through love; we must be like Jesus - exercising sacrificial, merciful love:
+
+> **Galatians 5:6** - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only <ins>faith working through love.</ins> (ESV)
+
+> **Galatians 6:15** - For neither circumcision counts for anything, nor uncircumcision, but <ins>a new creation.</ins> (ESV)
+
+[No changed life salvation? Refuting Free Grace and @jacksmack77 - YouTube](https://www.youtube.com/watch?v=_eek1ezwp_A&t=14s)
+
+Grace is free, but a person **must** become obedient - God gives the heart to obey, but a person must desire to do God's will to receive it.
+
+
 ### Work may be burned up, and the person who has a believing and obedient heart is still saved
 
 > **1 Corinthians 3:15** - If anyone's work is burned up, he will suffer loss, though he himself will be saved, but only as through fire. (ESV)
