@@ -325,7 +325,7 @@ Clearly believe means also to be obedient to because the ones that <ins>follow J
 
 > **John 10:26-38** - but you do not believe (G4100 **pisteuo**) because you are not part of my flock. My sheep <ins>hear my voice,</ins> and <ins>I know them, and they follow me.</ins> I give them eternal life, and they will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of the Father's hand. I and the Father are one.
 
-Jesus is asking of us to believe that He is the resurrection and the life; Coming to a belief which [in John's terminology] involves personally <ins>committing oneself to Jesus and Son of God, Saviour, Lord, Lamb of God and King</ins>:
+Jesus is asking of us to believe that He is the resurrection and the life; Coming to a belief which [in John's terminology] involves personally <ins>committing oneself to Jesus as Son of God, Saviour, Lord, Lamb of God and King</ins>:
 
 -   [Alistair Begg: The Hour Has Come - Part One](https://www.youtube.com/watch?v=DgcN1Qc2kJg)
 
@@ -363,7 +363,10 @@ Repentance:
 -   Someone who has <ins>only belief in the gift of grace and no obedience to Jesus</ins> (which is effectively hating Jesus) <ins>must repent</ins> and come to have an obedient heart.
 -   Someone who has <ins>only obedience to Jesus' precepts but unbelieving and unsubmissive</ins> to the righteousness of God <ins>must repent</ins> and come to have a believing heart.
 
-If people from either category do not repent, they God has the ability and jurisdiction to <ins>cast that person out - graft them out of Christ.</ins> Also, let's not become proud, but stand in awe.
+If people from either category do not repent, then beware because God has the ability and jurisdiction to <ins>cast that person out - graft them out of Christ.</ins> Also, let's not become proud, but stand in awe.
+Jesus said He will not cast people out.
+
+> **John 6:37** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
 
 You **must** believe:
 
@@ -7104,7 +7107,8 @@ All that the Father gives me will come to me, and whoever comes to me I will
 never cast out.
 
 I think that salvation is a totally free gift and the baseline salvation is trusting in Jesus, because of His
-finished work done on the cross. But the people that oppose obeying the full gospel of Jesus saying that works oppose grace and very deluded.
+finished work done on the cross.
+But the people that oppose obeying the full gospel of Jesus saying that works oppose grace are very deluded.
 
 But salvation is a gift and God is sovereign to save.
 That's why it's grace.
@@ -7119,9 +7123,25 @@ I think a person needs **some** faith to be saved, and faith works.
 
 A person would have to reject Jesus to be grafted out, I think.
 
+We must be perpetually <ins>approaching Jesus:</ins>
+
+**John 6:37** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
+
 So most importantly, believe in Jesus, and that he has paid the price for your sin with His blood, and continue in relationship with Jesus.
 
+Have in your heart faith in Jesus Christ as your Lord and Saviour:
+
 > **Hebrews 3:12** - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to fall away from the living God.
+
+Bear fruit for Jesus (be obedient):
+
+> **John 15:2** - Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. (ESV)
+
+Those who do not abide in Jesus are grafted out:
+
+> **John 15:6** - If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. (ESV)
+
+Yet they can be grafted back in:
 
 > **Romans 11:23** - And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again.
 
