@@ -98,9 +98,13 @@ To anyone who receives Jesus, even those who believe on His name, Jesus has give
 
 > **John 1:11-13** - He came to His own, and those who were His own did not receive Him. But <ins>as many as received Him, to them He gave the right to become children of God, even to those who believe (G4100 **pisteuo**) in His name</ins>, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God.
 
-Yes, I believe that Jesus can save a person who believes in His name. But He is the judge.
+Yes, I believe that Jesus can save a person who believes in His name. But He is the judge, and it is written in John's gospel that no person who is disobedient to Jesus Christ will be see life, and I believe that.
 
 > **Revelation of John 3:8** - I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that <ins>you have but little power, and yet you have kept my word and have not denied my name.</ins>
+
+Whoever truly believes Jesus is obedient to Jesus:
+
+> **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 
 ### Faith is not mere belief, but faith is walking as Abraham did
@@ -323,13 +327,16 @@ The righteousness of faith:
 </tbody>
 </table>
 
-Abraham was justified because of belief:
+Abraham had <ins>righteousness attributed to him when he believed God, while he had an obedient and faithful heart towards God:</ins>
 
 > **Genesis 15:5-6** - And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed the Lord, and he counted it to him as righteousness.
 
-The blessing was <ins>assured by God because of obedience</ins> (the obedient works of faith brought <ins>assurance</ins> for God's blessing):
+The blessing was <ins>assured to him by God because of obedience</ins> (the obedient works of faith brought him <ins>assurance</ins> for God's blessing):
 
 > **Genesis 22:17-18** - I will surely bless you, and I will surely multiply your offspring as the stars of heaven and as the sand that is on the seashore. And your offspring shall possess the gate of his enemies, and in your offspring shall all the nations of the earth be blessed, because you have obeyed my voice.
+
+Therefore, we should believe with an obedient heart, and obey to receive God's assurance.
+I personally believe that it's God's role to justify, not ours, and if we want assurance for that, we should obey God.
 
 Abraham was obedient the entire time, even when God counted Abraham's belief as righteousness.
 We should, likewise <ins>be obedient when we believe.</ins>
