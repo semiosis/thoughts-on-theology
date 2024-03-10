@@ -623,10 +623,22 @@ atoning sacrifice and from being freely forgiven by Jesus.
 
 I think the person who has arrived at this point has repented from dead work and is now living for Jesus.
 
-2.4.2. We must have a changed life, serving the living God, being a bondservant of Jesus. AMEN!!
+2.4.2. We must have a changed heart, which longs to serve the living God, to be a bondservant of Jesus. AMEN!!
 
-Being a Christian means keeping Jesus' commandments, as we are under Christ's law. It means putting a stop to
-lying, adultery, idolatry, and covetousness, and honouring Jesus Christ, and honouring your mother and father.
+God gives us the new heart when we seek to have that new heart.
+
+To be saved we need to have an obedient heart to God.
+
+Will to do God's will - will to be obedient, and God will give you the heart to obey Him.
+
+When you trust Jesus, you will to do His will.
+
+Living as a new Creation in Christ means God has given you the heart to desire to obey Jesus' commandments. We are
+under Christ's law.
+
+It means, through the power of the Holy Spirit, to no longer practice lying, adultery, idolatry, and covetousness,
+and to no longer dishonour our parents, and to now honour Jesus Christ in our lives and bodies.
+
 It's going from disobedience to God (as Adam was disobedient) to obedience to God (as Christ is obedient):
 
   I Corinthians 7:19 - For neither circumcision counts for anything nor uncircumcision, but keeping the
@@ -14563,7 +14575,7 @@ Date: 2024-03-11 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-11 Mon 09:13
+Created: 2024-03-11 Mon 09:25
 
 Validate
 
