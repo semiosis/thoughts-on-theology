@@ -5340,13 +5340,32 @@ Doing the will of God is what it means to be led by the Spirit of God:
   Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
   (ESV)
 
+We must have obedient faith in Jesus, as God keeps His covenant with those who put their faith in Him:
+
+  Nehemiah 1:5 - And I said, O Lord God of heaven, the great and awesome God who keeps covenant and steadfast love
+  with those who love him and keep his commandments,
+
+We are under the law of Christ:
+
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law.
 
+We must bear one another's burdens:
+
   Galatians 6:2 - Bear one another's burdens, and so fulfill the law of Christ.
 
-  Luke 17:4 - and if he sins against you seven times in the day, and turns to you seven times, saying, I repent,
-  you must forgive him.
+Otherwise, the Son of Man will send his angels, and gather out of his kingdom all causes of sin and all
+law-breakers, and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth:
+
+  Matthew 13:41-42 - The Son of Man will send his angels, and they will gather out of his kingdom all causes of
+  sin and all law-breakers, and throw them into the fiery furnace. In that place there will be weeping and
+  gnashing of teeth.
+
+We must forgive our family in Christ:
+
+  Luke 17:3-4 - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and
+  if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive
+  him.
 
   Colossians 3:13 - bearing with one another and, if one has a complaint against another, forgiving each other; as
   the Lord has forgiven you, so you also must forgive. (ESV)
@@ -15271,7 +15290,7 @@ Date: 2024-03-12 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-12 Tue 21:48
+Created: 2024-03-12 Tue 21:58
 
 Validate
 
