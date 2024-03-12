@@ -102,6 +102,27 @@ Yes, I believe that Jesus can save a person who believes in His name. But He is 
 
 > **Revelation of John 3:8** - I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that <ins>you have but little power, and yet you have kept my word and have not denied my name.</ins>
 
+I think Jesus calls us to pursue perfection through following Him, and we should definitely give it a go:
+
+> **John 17:23** - I in them and you in me, that <ins>they may become perfectly one,</ins> so that the world may know that you sent me and loved them even as you loved me.
+
+Paul presses on to try to achieve a high level of Christlikeness, and his rational is that Jesus made him (Paul) his own (i.e. Jesus loved him),
+and Paul loves Jesus back, so he wants to be obedient out of love for Jesus (I'm convinced that's the motivation). He wants to be with Jesus.
+
+> **Philippians 3:9-12** - and be found in him, not having a righteousness of my own that comes from the law, but <ins>that which comes through faith in Christ, the righteousness from God that depends on faith</ins> — that <ins>I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death,</ins> <ins>that by any means possible I may attain the resurrection from the dead.</ins> <ins>Not that I have already obtained this or am already perfect, but I press on to make it my own,</ins> because Christ Jesus has made me his own.
+
+> **John 12:26** - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone serves me, the Father will honor him. (ESV)
+
+I'm pretty convinced that what Jesus means by the following is that by giving up worldly treasure in the pursuit
+of Jesus, heavenly treasure is acquired. I'd say it's likely that the heavenly treasure is simply helping those people.
+Selling what a person possesses and giving to the poor is actually serving Jesus, so doing that is already starting to obediently follow Jesus.
+
+> **Matthew 19:21** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me.
+
+Jesus' perfect example of patience is for us to follow in patient [endurance], trusting in Him:
+
+> **I Timothy 1:16** - But I received mercy for this reason, that in me, as the foremost, Jesus Christ might display his perfect patience as an example to those who were to believe in him for eternal life. (ESV)
+
 Whoever truly believes Jesus is obedient to Jesus:
 
 > **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
@@ -529,7 +550,15 @@ Jesus has to know us:
 
 > **Matthew 25:1-13** - Then the kingdom of heaven will be like ten virgins who took their lamps and went to meet the bridegroom. Five of them were foolish, and five were wise. For when the foolish took their lamps, they took no oil with them, but the wise took flasks of oil with their lamps. As the bridegroom was delayed, they all became drowsy and slept. But at midnight there was a cry, Here is the bridegroom! Come out to meet him. Then all those virgins rose and trimmed their lamps. And the foolish said to the wise, Give us some of your oil, for our lamps are going out. But the wise answered, saying, Since there will not be enough for us and for you, go rather to the dealers and buy for yourselves. And while they were going to buy, the bridegroom came, and those who were ready went in with him to the marriage feast, and the door was shut. Afterward the other virgins came also, saying, Lord, lord, open to us. But he answered, <ins>Truly, I say to you, I do not know you.</ins> Watch therefore, for you know neither the day nor the hour.
 
-Good work is rewarded. Lazy belief is punished, and the servant is counted worthless. Jesus must be our Master:
+I believe that Jesus has a lot of grace for the weak and the powerless, the children and the humble:
+
+> **Revelation of John 3:8** - I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that <ins>you have but little power, and yet you have kept my word and have not denied my name.</ins>
+
+And it's about the heart:
+
+> **Mark 12:41-44** - And he sat down opposite the treasury and watched the people putting money into the offering box. Many rich people put in large sums. And a poor widow came and put in two small copper coins, which make a penny. And he called his disciples to him and said to them, Truly, I say to you, <ins>this poor widow has put in more than all those who are contributing to the offering box. For they all contributed out of their abundance, but she out of her poverty has put in everything she had, all she had to live on.</ins> (ESV)
+
+Good work is rewarded. Lazy belief is punished, and the worthless servant who was entrusted with much is cast away. Jesus isn't a hard taskmaster but wants our whole heart. Jesus must be our Master:
 
 > **Matthew 25:14-30** - For it will be like a man going on a journey, who called his servants and entrusted to them his property. To one he gave five talents, to another two, to another one, to each according to his ability. Then he went away. He who had received the five talents went at once and traded with them, and he made five talents more. So also he who had the two talents made two talents more. But he who had received the one talent went and dug in the ground and hid his master's money. Now after a long time the master of those servants came and settled accounts with them. And he who had received the five talents came forward, bringing five talents more, saying, Master, you delivered to me five talents; here I have made five talents more. <ins>His master said to him, Well done, good and faithful servant.</ins> You have been faithful over a little; I will set you over much. Enter into the joy of your master. And he also who had the two talents came forward, saying, Master, you delivered to me two talents; here I have made two talents more. His master said to him, Well done, good and faithful servant. You have been faithful over a little; I will set you over much. Enter into the joy of your master. He also who had received the one talent came forward, saying, Master, I knew you to be a hard man, reaping where you did not sow, and gathering where you scattered no seed, so I was afraid, and I went and hid your talent in the ground. Here you have what is yours. But his master answered him, You wicked and slothful servant! You knew that I reap where I have not sowed and gather where I scattered no seed? Then you ought to have invested my money with the bankers, and at my coming I should have received what was my own with interest. So take the talent from him and give it to him who has the ten talents. For to everyone who has will more be given, and he will have an abundance. But from the one who has not, even what he has will be taken away. And cast the <ins>worthless servant</ins> into the outer darkness. In that place there will be weeping and gnashing of teeth.
 
@@ -894,6 +923,10 @@ All of these I believe belong under the umbrella of faith, not works:
 -   Taking communion is not 'dead works'. It's obedience.
 -   Getting baptised is not 'dead works'. It's obedience.
 -   Obeying Jesus Christ's commandments are not 'dead works'. It's obedience.
+
+Faith presses on to be like Jesus:
+
+> **Philippians 3:9-12** - and be found in him, not having a righteousness of my own that comes from the law, but <ins>that which comes through faith in Christ, the righteousness from God that depends on faith</ins> — that <ins>I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death,</ins> <ins>that by any means possible I may attain the resurrection from the dead.</ins> <ins>Not that I have already obtained this or am already perfect, but I press on to make it my own,</ins> because Christ Jesus has made me his own.
 
 God will be the judge of who has had faith in Jesus; who has obeyed Him and who has trusted in Him and who has made Him their Lord and who has accepted Him as their Saviour.
 
