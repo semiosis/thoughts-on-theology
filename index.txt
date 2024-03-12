@@ -1859,8 +1859,8 @@ in sin, and not go back to the vomit:
   alive together with him, having forgiven us all our trespasses, by canceling the record of debt that stood
   against us with its legal demands. This he set aside, nailing it to the cross.
 
-We should do what is valuable in stopping the indulgence of the flesh, and that is not human precepts, but
-insntead following Christ and His teachings:
+We should do what is valuable in stopping the indulgence of the flesh, and not what is invaluable from human
+precepts, but instead we should following Christ and His teachings, and His example of what love looks like:
 
   Colossians 2:21-23 - Do not handle, Do not taste, Do not touch (referring to things that all perish as they are
   used)-according to human precepts and teachings? These have indeed an appearance of wisdom in promoting
@@ -15193,7 +15193,7 @@ Date: 2024-03-12 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-12 Tue 18:44
+Created: 2024-03-12 Tue 18:59
 
 Validate
 
