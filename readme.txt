@@ -14,6 +14,13 @@ Standard Bible), KJV (King James Version), and BSB (Berean Study Bible) used her
 By default I will use the ESV and where it is not from the ESV, I have almost certainly marked it with the
 alternative version used.
 
+  Romans 8:1-2 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
+  Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
+
+I consider all who are trusting in the Lord Jesus Christ, who is God, for their salvation to be in Christ Jesus.
+No matter what else I say in this document. I have been just trying to figure out my theology. One God, three
+persons, Father, Son and Holy Spirit. AMEN!!
+
   Isaiah 30:20-21 - And though the Lord give you the bread of adversity and the water of affliction, yet your
   Teacher will not hide himself anymore, but your eyes shall see your Teacher. And your ears shall hear a word
   behind you, saying, This is the way, walk in it, when you turn to the right or when you turn to the left.
@@ -15191,7 +15198,27 @@ Jesus. Also, that means deepening my relationship with Jesus.
 
   Matthew 24:35 - Heaven and earth will pass away, but my words will not pass away.
 
-60. Praising and thanking God in Heaven:
+60. Jesus Christ is God become flesh!
+
+Jesus Christ is the Word of God become flesh - this is what I believe - not just God in the flesh but God become
+flesh:
+
+John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+from the Father, full of grace and truth. (ESV)
+
+I trust the ESV and NASB translations that say the word became flesh.
+
+Also, I've been born of God, so I have Christ in me:
+
+John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
+God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+I have the Spirit of God in me:
+
+Romans 8:9 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you.
+Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
+
+61. Praising and thanking God in Heaven:
 
 We should start now.
 
@@ -15203,7 +15230,7 @@ We should start now.
   Amen! Blessing and glory and wisdom and thanksgiving and honor and power and might be to our God forever and
   ever! Amen. (ESV)
 
-61. I don't want to think too hard about theology, but it is important - writing this was worthwhile in arriving at a
+62. I don't want to think too hard about theology, but it is important - writing this was worthwhile in arriving at a
 sound understanding
 
 By God's grace I've been set free from sin, and brought into a relationship with God, and have hope for the future
@@ -15228,7 +15255,7 @@ now.
   Matthew 5:16 - In the same way, let your light shine before others, so that they may see your good works and
   give glory to your Father who is in heaven. (ESV)
 
-62. Jesus Christ is Lord! :)
+63. Jesus Christ is Lord! :)
 
 The Only True God is the God and Father of Jesus Christ, and Jesus Christ who He Sent.
 
@@ -15259,13 +15286,13 @@ The Only True God is the God and Father of Jesus Christ, and Jesus Christ who He
   I Timothy 1:17 - To the King of ages, immortal, invisible, the only God, be honor and glory forever and ever.
   Amen.
 
-63. AMEN!!
+64. AMEN!!
 
 Therea??s Only One Acceptable Motive To Serve God - YouTube
 
 The motivation for everything must be to glorify God.
 
-63.1. Do the will of the Father - obey Jesus - AMEN!!
+64.1. Do the will of the Father - obey Jesus - AMEN!!
 
 The most terrifying passage in the Bible | Matthew 7:21-23 - YouTube
 
@@ -15282,12 +15309,12 @@ It's obedience which leads to righteousness, even the righteousness of faith.
   and his offspring that he would be heir of the world did not come through the law but through the righteousness
   of faith.
 
-63.1.1. A heart of obedience is the start of faith
+64.1.1. A heart of obedience is the start of faith
 
   John 7:17 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am
   speaking on my own authority. (ESV)
 
-63.2. For one's work to stand the test of fire
+64.2. For one's work to stand the test of fire
 
 - For God's Glory
 - Obedience to the Word of God
@@ -15308,7 +15335,7 @@ Psalms 100:4 - Enter his gates with thanksgiving, and his courts with praise! Gi
 name! (ESV)
 
 
-63.3. Prayer of thanks
+64.3. Prayer of thanks
 
 |  Dear Heavenly Father, Almighty Jehovah God!
 |  Your will be done.
@@ -15349,7 +15376,7 @@ Date: 2024-03-13 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-13 Wed 10:41
+Created: 2024-03-13 Wed 17:41
 
 Validate
 

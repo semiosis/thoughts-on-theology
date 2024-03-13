@@ -13,6 +13,12 @@ James Version), and BSB (Berean Study Bible) used here and there.
 By default I will use the ESV and where it is
 not from the ESV, I have almost certainly marked it with the alternative version used.
 
+> **Romans 8:1-2** - There is therefore now no condemnation for those <ins>who are in Christ Jesus.</ins> For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
+
+I consider all who are trusting in the Lord Jesus Christ, who is God, for their salvation to be <ins>in Christ Jesus.</ins>
+No matter what else I say in this document.
+I have been just trying to figure out my theology. One God, three persons, Father, Son and Holy Spirit. AMEN!!
+
 > **Isaiah 30:20-21** - And <ins>though the Lord give you the bread of adversity and the water of affliction, yet your Teacher will not hide himself anymore</ins>, but your eyes shall see your Teacher. And your ears shall hear a word behind you, saying, **This is the way, walk in it**, when you turn to the right or when you turn to the left.
 
 I believe the above prophetically talks about Jesus. We must obey Jesus. God doesn't guarantee that following Jesus will be easy.
@@ -11096,6 +11102,23 @@ So, for example, that means making disciples of Jesus.
 Also, that means deepening my relationship with Jesus.
 
 > **Matthew 24:35** - Heaven and earth will pass away, but my words will not pass away.
+
+
+# Jesus Christ is God become flesh!
+
+Jesus Christ is the Word of God become flesh - this is what I believe - not just God **in** the flesh but God **become** flesh:
+
+**John 1:14** - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (ESV)
+
+I trust the ESV and NASB translations that say the word became flesh.
+
+Also, I've been born of God, so I have Christ in me:
+
+**John 1:12-13** - But to all who did receive him, who believed in his name, he gave the right to become children of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+I have the Spirit of God in me:
+
+**Romans 8:9** - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
 
 # Praising and thanking God in Heaven:
