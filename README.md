@@ -1400,9 +1400,9 @@ I know I can testify to this fiery trial being a real thing:
 
 > **Luke 6:46-49** - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. But the one who hears and does not do them is like a man who built a house on the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that house was great. (ESV)
 
-> **I John 2:4** - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+You can't have an abundant life without knowing Jesus, so we must have faith in God and follow Jesus' commandments to get to know Him:
 
-> **Matthew 7:21-27** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven.  On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many mighty works in your name?  And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.  Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock.  And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock.  And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand.  And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it. (ESV)
+> **I John 2:4** - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
 
 You must obey Jesus:
 

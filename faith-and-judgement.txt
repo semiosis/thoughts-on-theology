@@ -21,6 +21,21 @@ I consider all who are trusting in the Lord Jesus Christ, who is God, for their 
 No matter what else I say in this document. I have been just trying to figure out my theology. One God, three
 persons, Father, Son and Holy Spirit. AMEN!!
 
+No matter what I have said. I believe that anyone who trusts in the Lord Jesus Christ, even they have no works,
+but only a trusting heart, believing what Jesus said, and putting their hope in Jesus, to be saved, and to be in
+Christ.
+
+-
+
+I believe that a person is justified when they trust and believe on God in their heart, believing that they need
+saving and that Jesus Christ is their Lord and that Jesus Christ died for their transgressions and was raised for
+their justification - that they have a hearing heart and a heart that follows Him. At that stage they may have no
+work but I believe at that stage they are justified, when it's in their heart. But I'm not the one to justify, God
+is. And I assume that Jesus knows who those people are - He knows that they are His sheep, and that Father God
+draws those people to Him.
+
+-
+
   Isaiah 30:20-21 - And though the Lord give you the bread of adversity and the water of affliction, yet your
   Teacher will not hide himself anymore, but your eyes shall see your Teacher. And your ears shall hear a word
   behind you, saying, This is the way, walk in it, when you turn to the right or when you turn to the left.
@@ -1746,6 +1761,12 @@ It is a gift to be obedient to Jesus:
   Revelation of John 22:3 - No longer will there be anything accursed, but the throne of God and of the Lamb
   will be in it, and his servants will worship him. (ESV)
 
+  John 12:23-26 - And Jesus answered them, The hour has come for the Son of Man to be glorified. Truly, truly,
+  I say to you, unless a grain of wheat falls into the earth and dies, it remains alone; but if it dies, it
+  bears much fruit. Whoever loves his life loses it, and whoever hates his life in this world will keep it for
+  eternal life. If anyone serves me, he must follow me; and where I am, there will my servant be also. If
+  anyone serves me, the Father will honor him.
+
  4. We must remain faithful to Jesus Christ
 
   Jude 1:4 - For certain persons have crept in unnoticed, those who were long beforehand marked out for this
@@ -1903,17 +1924,10 @@ etc.
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+You can't have an abundant life without knowing Jesus, so we must have faith in God and follow Jesus' commandments
+to get to know Him:
 
-  Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
-  does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
-  your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to
-  them, I never knew you; depart from me, you workers of lawlessness. Everyone then who hears these words of mine
-  and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came,
-  and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock. And
-  everyone who hears these words of mine and does not do them will be like a foolish man who built his house on
-  the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell,
-  and great was the fall of it. (ESV)
+  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
 
 You must obey Jesus:
 
@@ -9191,6 +9205,15 @@ Jesus' sheep:
 I believe that what this says is that at the point Jesus knows you listen to His voice and obey His voice, He
 counts you as one of His sheep and He will not let you go.
 
+A Psalm of David:
+
+  Psalms 23:1-6 - The Lord is my shepherd; I shall not want. He makes me lie down in green pastures. He leads me
+  beside still waters. He restores my soul. He leads me in paths of righteousness for his name's sake. Even though
+  I walk through the valley of the shadow of death, I will fear no evil, for you are with me; your rod and your
+  staff, they comfort me. You prepare a table before me in the presence of my enemies; you anoint my head with
+  oil; my cup overflows. Surely goodness and mercy shall follow me all the days of my life, and I shall dwell in
+  the house of the Lord forever.
+
 42. Marriage
 
 42.1.
@@ -15203,20 +15226,20 @@ Jesus. Also, that means deepening my relationship with Jesus.
 Jesus Christ is the Word of God become flesh - this is what I believe - not just God in the flesh but God become
 flesh:
 
-John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
-from the Father, full of grace and truth. (ESV)
+  John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+  from the Father, full of grace and truth. (ESV)
 
 I trust the ESV and NASB translations that say the word became flesh.
 
 Also, I've been born of God, so I have Christ in me:
 
-John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
-God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
 
 I have the Spirit of God in me:
 
-Romans 8:9 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you.
-Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
+  Romans 8:9 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you.
+  Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
 61. Praising and thanking God in Heaven:
 
@@ -15376,7 +15399,7 @@ Date: 2024-03-13 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-13 Wed 17:41
+Created: 2024-03-13 Wed 22:16
 
 Validate
 
