@@ -25,6 +25,8 @@ No matter what I have said, I believe that anyone who trusts in the Lord Jesus C
 but only a trusting heart, believing what Jesus said, and putting their hope in Jesus to be saved, willing to
 obey, are to be in Christ.
 
+Eternal Security - Charles Spurgeon Sermon - YouTube
+
 -
 
 I believe that a person is justified when they trust and believe on God in their heart, believing that they need
@@ -1507,10 +1509,14 @@ By posing the question, Jesus doesn't deny that he is good:
 
   Mark 10:18 - And Jesus said to him, Why do you call me good? No one is good except God alone. (ESV)
 
-I believe there is only one good shepherd, and that is Jesus Christ, Immanuel (God with us, God incarnate):
+I believe there is only one good shepherd, and that is Jesus Christ, Immanuel (God with us, God incarnate, and not
+merely in the flesh, but the Word became flesh):
 
   John 10:14-15 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
   the Father; and I lay down my life for the sheep. (ESV)
+
+  John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+  from the Father, full of grace and truth. (ESV)
 
 Jesus makes intercession for those who draw near to God through Him:
 
@@ -1527,7 +1533,7 @@ I affirm the Nicene creed wholeheartedly:
 |        of all things visible and invisible.
 | 
 |  And in one Lord Jesus Christ,
-|        the only Son of God,
+|        the only-begotten Son of God,
 |        begotten from the Father before all ages,
 |             God from God,
 |              Light from Light,
@@ -1636,7 +1642,7 @@ Jesus speaks of what He has seen with His Father:
 
 We need to love Jesus because He came from God, to show us the Way as the Light of the world.
 
-Jesus is the Truth and the Life:
+Jesus is the Way, the Truth and the Life:
 
   John 8:39-42 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you
   would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from
@@ -2434,16 +2440,6 @@ Repentance from sin, obeying Jesus Christ, making Jesus your Lord and Saviour:
 
   I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
 
-  Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
-  does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
-  your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to
-  them, I never knew you; depart from me, you workers of lawlessness. Everyone then who hears these words of mine
-  and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came,
-  and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock. And
-  everyone who hears these words of mine and does not do them will be like a foolish man who built his house on
-  the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell,
-  and great was the fall of it. (ESV)
-
 You must obey Jesus:
 
   John 3:36 - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall
@@ -2924,7 +2920,20 @@ Sanctification is personal righteousness that is fruit that comes from being in 
 righteousness - we're grafted into Jesus like branches on a tree and become healthier. We must and should stop
 sinning.
 
-4.8.6. Make the tree good and the fruit good
+4.8.6. We must have attention to Jesus Christ our Lord
+
+We are saved from his sins, and from his evil practices. We are made a new man in Christ Jesus by the power of the
+Holy Spirit.
+
+  Matthew 12:33 - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the
+  tree is known by its fruit. (ESV)
+
+  John 10:27 - My sheep hear my voice, and I know them, and they follow me. (ESV)
+
+- Holiness Demanded - Charles Spurgeon Sermon - YouTube
+- Eternal Security - Charles Spurgeon Sermon - YouTube
+
+4.8.7. Make the tree good and the fruit good
 
 We must simultaneously make the tree good (abide in Jesus) and make the fruit good (be sanctified and glorify God
 and Jesus in our hearts, minds, bodies and actions).
@@ -2947,7 +2956,7 @@ I still think the 10 commandments are special, and following them in truth is re
   requirements: that you abstain from what has been sacrificed to idols, and from blood, and from what has been
   strangled, and from sexual immorality. If you keep yourselves from these, you will do well. Farewell.
 
-4.8.7. Judgement
+4.8.8. Judgement
 
   Luke 18:8 - I tell you, he will give justice to them speedily. Nevertheless, when the Son of Man comes, will he
   find faith on earth?
@@ -9636,7 +9645,7 @@ reality:
   because she was taken out of Man. Therefore a man shall leave his father and his mother and hold fast to his
   wife, and they shall become one flesh. (ESV)
 
-42.10. God's law is still used. It's part of the gospel, and can certainly be used to judge the sinners, in clouding
+42.10. God's law is still used. It's part of the gospel, and can certainly be used to judge the sinners, including
 those who are unrepentant from sexual immorality
 
   1 Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
@@ -15457,11 +15466,11 @@ name! (ESV)
       discernment, so that you may approve what is excellent, and so be pure and blameless for the day of Christ,
       filled with the fruit of righteousness that comes through Jesus Christ, to the glory and praise of God.
 
-Date: 2024-03-14 Thu 00:00
+Date: 2024-03-15 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-03-14 Thu 00:10
+Created: 2024-03-15 Fri 11:03
 
 Validate
 
