@@ -215,6 +215,10 @@ It's <ins>faith in Jesus' name</ins> that is powerful, and it's with **faith** i
 
 AMEN!!
 
+Something like this:
+
+> **I Thessalonians 1:3** - remembering before our God and Father your work of faith and labor of love and steadfastness of hope in our Lord Jesus Christ. (ESV)
+
 > **Acts 3:2-9** - And a man lame from birth was being carried, whom they laid daily at the gate of the temple that is called the Beautiful Gate to ask alms of those entering the temple. Seeing Peter and John about to go into the temple, he asked to receive alms. And Peter directed his gaze at him, as did John, and said, Look at us. And he fixed his attention on them, <ins>expecting to receive something from them.</ins> But Peter said, I have no silver and gold, but what I do have I give to you. <ins>In the name of Jesus Christ of Nazareth, rise up and walk!</ins> And <ins>he took him by the right hand and raised him up, and immediately his feet and ankles were made strong. And leaping up he stood and began to walk</ins>, and entered the temple with them, walking and leaping and <ins>praising God.</ins> And all the people saw him walking and praising God,
 
 > **Acts 3:16** - And his name—by faith in his name—has made this man strong whom you see and know, and the faith that is through Jesus has given the man this perfect health in the presence of you all.
@@ -740,7 +744,9 @@ It's going from disobedience to God (as Adam was disobedient) to obedience to Go
 
 > **I Corinthians 7:19** - For neither circumcision counts for anything nor uncircumcision, but <ins>keeping the commandments of God.</ins> (ESV)
 
-Faith works through love; we must be like Jesus - exercising sacrificial, merciful love:
+Faith works through love; we must be like Jesus - exercising sacrificial, merciful love. The term 'new creature' is used in Galatians 6 after saying we must 'put sin to death and do good', sowing to the spirit and not to the flesh:
+
+> **Galatians 6:7-8** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. (ESV)
 
 > **Galatians 5:6** - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only <ins>faith working through love.</ins> (ESV)
 
@@ -3161,6 +3167,10 @@ You can't have faith without obedience.
     22  Faith-in-God when tested by God is found to be true Faith in God.
     23  Faith-in-God must submit to the Righteousness of God through faith in Jesus Christ,
     24  Jesus Christ having paid the price of sin, enabling a relationship with God.
+
+Something like this:
+
+> **I Thessalonians 1:3** - remembering before our God and Father your work of faith and labor of love and steadfastness of hope in our Lord Jesus Christ. (ESV)
 
 Even after arriving at the true knowledge through obedience, faith is further supplemented/nourished/aided by virtue, knowledge, self-control, steadfastness, godliness, brotherly affection and love:
 
