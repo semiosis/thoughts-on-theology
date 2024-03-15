@@ -1471,9 +1471,15 @@ Instead, let's follow Jesus Christ's teachings:
 
 > **Colossians 3:1-4** - If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory.
 
-If people including free-grace Christians do not repent from sin, they will still receive the wrath of God:
+If people including free-grace Christians do not repent from sin, they will still be repaid impartially, and on account of sinful things the wrath of God comes. We have to put to death sin:
 
 > **Colossians 3:5-10** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. <ins>On account of these the wrath of God is coming.</ins> In these you too once walked, when you were living in them. But now you **must** put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator.
+
+> **Matthew 5:21-22** - You have heard that it was said to those of old, You shall not murder; and whoever murders will be liable to judgment. But I say to you that everyone who is angry with his brother will be liable to judgment; whoever insults his brother will be liable to the council; and whoever says, You fool! will be liable to the hell of fire. (ESV)
+
+> **Ephesians 5:5-7** - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them;
+
+> **John 3:36** - Whoever believes (G4100 **pisteuo**) in the Son has eternal life; whoever does not **obey** the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 > **Colossians 3:23-25** - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are serving the Lord Christ. For **the wrongdoer will be paid back for the wrong he has done, and there is no partiality.**
 
@@ -3525,7 +3531,9 @@ It's impossible to please God without faith, but with faith all things are possi
 > **Hebrews 11:6** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him.
 
 
-### The Mosaic law doesn't help people to keep the law. It doesn't save - it only condemns or justifies. Only Jesus saves, clean us up and helps us to fulfill the requirement of the law
+### The Mosaic law doesn't help people to keep the law. It doesn't save - it only condemns or justifies. Only grace through faith in God who raised Jesus from the dead saves
+
+And we are also cleaned up through faith in Jesus, being led by His Spirit, following His commandments, helping us to meet the requirement of the law, not by following the Mosaic law but by following Christ's law.
 
 > **Acts 13:38-39** - Therefore let it be known to you, brethren, that through (G1223 **dia**) Him forgiveness (G859 aphesis) of sins is proclaimed to you, and through (G1722 en) Him everyone who believes (G4100 **pisteuo**) is freed (G1344 dikaioo) from all things, from which you could not be freed through the Law of Moses. (NASB)
 
@@ -3593,6 +3601,8 @@ God saves us from sin by giving us immediate justification through faith to be i
 > **II Peter 2:19-20** - They promise them freedom, but they themselves are slaves of corruption. For <ins>whatever overcomes a person, to that he is enslaved</ins>. For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first.
 
 Therefore, the way of truth involves following Jesus and putting a stop to sin.
+
+[The Hidden Parable of Moses that Few Christians Understand - YouTube](https://www.youtube.com/watch?v=O-aZV-3oBK8)
 
 
 ### With God, following the 10 commandments and to love God and our neighbour is possible
