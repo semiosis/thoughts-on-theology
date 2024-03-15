@@ -26,6 +26,10 @@ No matter what I have said, I believe that anyone who trusts in the Lord Jesus C
 
 I believe that a person is justified when they trust and believe on God in their heart, believing that they need saving and that Jesus Christ is their Lord and that Jesus Christ died for their transgressions and was raised for their justification - that they have a hearing heart and a heart that follows Him.
 
+Christian love:
+
+-   [Believing Loving and Obeying and abiding in the presence of the Holy Spirit - YouTube](https://www.youtube.com/watch?v=ZHhVXgvVSks)
+
 We endeavour to be justified through faithful obedience to Jesus, and if we fall short, we still believe Christ has us covered. But we do endeavour, we do try:
 
 > **Galatians 2:17** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
@@ -6481,64 +6485,82 @@ We must have faith in Jesus, we must hope in Jesus, and we must love like Jesus:
 
 > **I Corinthians 13:13** - So now faith, hope, and love abide, these three; but the greatest of these is love. (ESV)
 
-1.  Communion is spiritual, and helps us to abide in Him
 
-    > **John 6:53-58** - So Jesus said to them, Truly, truly, I say to you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you.  Whoever feeds on my flesh and drinks my blood has eternal life, and I will raise him up on the last day.  For my flesh is true food, and my blood is true drink.  Whoever feeds on my flesh and drinks my blood abides in me, and I in him.  As the living Father sent me, and I live because of the Father, so whoever feeds on me, he also will live because of me.  This is the bread that came down from heaven, not as the fathers ate and died. Whoever feeds on this bread will live forever.
-    
-    We remember Jesus as we take communion:
-    
-    -   We give thanks to God
-    -   We proclaim the Lord Jesus' death until He comes
-    -   We examine ourselves and compare our hearts to the heart of the Lord Jesus
-    -   We consider what our Lord Jesus has done for us on the cross
-    -   Before we take communion, we want to examine our own heart to see how we could be more like Jesus
-        -   How we can be more selfless
-        -   How we can be more loving
-        -   How we can be more like disciples of Jesus
-        -   How we can be more trusting of Jesus
-            -   How we can be more believing of who He is and believing of His atoning sacrifice
-            -   How we can be more obedient to His commandments
-    -   We believe that Jesus will return
-    
-    > **I Corinthians 11:24-29** - and when he had given thanks, he broke it, and said, This is my body which is for you. Do this in remembrance of me.  In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.  For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes.  Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord.  Let a person examine himself, then, and so eat of the bread and drink of the cup.  For anyone who eats and drinks without discerning the body eats and drinks judgment on himself.
-    
-    I believe that taking the Eucharist absolutely has spiritual and physical effects, and the body and blood of Jesus are received through faith.
-    
-    > **I Corinthians 11:30** - That is why many of you are weak and ill, and some have died.  But if we judged ourselves truly, we would not be judged.  But when we are judged by the Lord, we are disciplined so that we may not be condemned along with the world.
-    
-    > **I Corinthians 10:16-18** - The cup of blessing that we bless, is it not a participation in the blood of Christ? The bread that we break, is it not a participation in the body of Christ? Because there is one bread, we who are many are one body, for we all partake of the one bread. Consider the people of Israel: are not those who eat the sacrifices participants in the altar?
-    
-    > **Hebrews 10:19** - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus, by the new and living way that he opened for us through the curtain, that is, through his flesh,
-    
-    > **Didache 10:6** - Let grace come, and let this world pass away. Hosanna to the Son of David. If any one is holy let him come (to the Eucharist); if any one is not, let him repent. Maranatha. Amen.
-    
-    Proclaim the Lord's death until He comes:
-    
-    > **I Corinthians 11:25-26** - In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes.
+### We must love - we must obey Jesus
 
-2.  Getting Jesus' words in us helps us to abide in Him
+Loving the way Jesus loves is a **requirement**!
 
-    If a person believes Jesus' words their faith will grow.
-    
-    Father God authorizes people to come to Jesus, but that person must come to Jesus (of their own volition, I think).
-    
-    > **John 6:61-65** - But Jesus, knowing in himself that his disciples were grumbling about this, said to them, Do you take offense at this?  Then what if you were to see the Son of Man ascending to where he was before?  It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life.  But there are some of you who do not believe. (For Jesus knew from the beginning who those were who did not believe, and who it was who would betray him. ) And he said, This is why I told you that no one can come to me unless it is granted him by the Father.
-    
-    > **John 8:31-32** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
-    
-    > **John 15:3-4** - Already you are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me.
-    
-    > **John 15:7** - If you abide in me, and my words abide in you, ask whatever you wish, and it will be done for you. (ESV)
+Keeping Jesus' commandments is obeying Jesus. Obedience to Jesus is a requirement of a Christian - obedience in the heart, which translates into deeds.
 
-3.  Living the way Jesus commanded us helps us to abide in Him
+> **John 8:31** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, (ESV)
 
-    Living as Jesus instructed us to live. Living as Jesus also lived.
-    
-    > **I John 3:24** - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
-    
-    > **John 15:13** - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
-    
-    > **I John 4:16** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. (ESV)
+> **John 13:35** - By this all people will know that you are my disciples, if you have love for one another. (ESV)
+
+> **John 15:8** - By this my Father is glorified, that you bear much fruit and so prove to be my disciples. (ESV)
+
+> **I John 4:16** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. (ESV)
+
+
+### Communion is spiritual, and helps us to abide in Him
+
+> **John 6:53-58** - So Jesus said to them, Truly, truly, I say to you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you.  Whoever feeds on my flesh and drinks my blood has eternal life, and I will raise him up on the last day.  For my flesh is true food, and my blood is true drink.  Whoever feeds on my flesh and drinks my blood abides in me, and I in him.  As the living Father sent me, and I live because of the Father, so whoever feeds on me, he also will live because of me.  This is the bread that came down from heaven, not as the fathers ate and died. Whoever feeds on this bread will live forever.
+
+We remember Jesus as we take communion:
+
+-   We give thanks to God
+-   We proclaim the Lord Jesus' death until He comes
+-   We examine ourselves and compare our hearts to the heart of the Lord Jesus
+-   We consider what our Lord Jesus has done for us on the cross
+-   Before we take communion, we want to examine our own heart to see how we could be more like Jesus
+    -   How we can be more selfless
+    -   How we can be more loving
+    -   How we can be more like disciples of Jesus
+    -   How we can be more trusting of Jesus
+        -   How we can be more believing of who He is and believing of His atoning sacrifice
+        -   How we can be more obedient to His commandments
+-   We believe that Jesus will return
+
+> **I Corinthians 11:24-29** - and when he had given thanks, he broke it, and said, This is my body which is for you. Do this in remembrance of me.  In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me.  For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes.  Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord.  Let a person examine himself, then, and so eat of the bread and drink of the cup.  For anyone who eats and drinks without discerning the body eats and drinks judgment on himself.
+
+I believe that taking the Eucharist absolutely has spiritual and physical effects, and the body and blood of Jesus are received through faith.
+
+> **I Corinthians 11:30** - That is why many of you are weak and ill, and some have died.  But if we judged ourselves truly, we would not be judged.  But when we are judged by the Lord, we are disciplined so that we may not be condemned along with the world.
+
+> **I Corinthians 10:16-18** - The cup of blessing that we bless, is it not a participation in the blood of Christ? The bread that we break, is it not a participation in the body of Christ? Because there is one bread, we who are many are one body, for we all partake of the one bread. Consider the people of Israel: are not those who eat the sacrifices participants in the altar?
+
+> **Hebrews 10:19** - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus, by the new and living way that he opened for us through the curtain, that is, through his flesh,
+
+> **Didache 10:6** - Let grace come, and let this world pass away. Hosanna to the Son of David. If any one is holy let him come (to the Eucharist); if any one is not, let him repent. Maranatha. Amen.
+
+Proclaim the Lord's death until He comes:
+
+> **I Corinthians 11:25-26** - In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes.
+
+
+### Getting Jesus' words in us helps us to abide in Him
+
+If a person believes Jesus' words their faith will grow.
+
+Father God authorizes people to come to Jesus, but that person must come to Jesus (of their own volition, I think).
+
+> **John 6:61-65** - But Jesus, knowing in himself that his disciples were grumbling about this, said to them, Do you take offense at this?  Then what if you were to see the Son of Man ascending to where he was before?  It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life.  But there are some of you who do not believe. (For Jesus knew from the beginning who those were who did not believe, and who it was who would betray him. ) And he said, This is why I told you that no one can come to me unless it is granted him by the Father.
+
+> **John 8:31-32** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
+
+> **John 15:3-4** - Already you are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me.
+
+> **John 15:7** - If you abide in me, and my words abide in you, ask whatever you wish, and it will be done for you. (ESV)
+
+
+### Living the way Jesus commanded us helps us to abide in Him
+
+Living as Jesus instructed us to live. Living as Jesus also lived.
+
+> **I John 3:24** - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **John 15:13** - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
+
+> **I John 4:16** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. (ESV)
 
 
 # The day
@@ -7159,7 +7181,7 @@ I don't know if gay marriage can exist anywhere in the Kingdom of God.
 I don't think it should be generally endorsed, especially by Christians.
 
 
-### God still <ins>does not endorse</ins> homosexuality
+### God still <ins>does not endorse</ins> practicing homosexuality, nor lust
 
 > **1 Timothy 1:8-11** - Now we know that the law is good, if one uses it lawfully, understanding this, that the law is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice **homosexuality**, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
@@ -7174,7 +7196,7 @@ When applying the law, justice and mercy and faithfulness are the weightier matt
 However, the remainder of the law is not supposed to be neglected either.
 
 
-### Even though the law came later, homosexuality has always been sinful
+### Even though the law came later, practicing homosexuality has always been sinful
 
 > **Genesis 13:13** - Now the men of Sodom were wicked, great sinners against the Lord.
 
@@ -7225,7 +7247,7 @@ Repentance is **essential** for eternal life.
 > **John 8:34-35** - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever.
 
 
-### Homosexuality is very sinful and so locking it in with a covenant is very self-destructive
+### Practicing homosexuality is very sinful and so locking it in with a covenant is very self-destructive
 
 But justice, mercy and faithfulness are the weightier matters of the law.
 What I mean to say is that without the sinners themselves showing justice,
@@ -7266,7 +7288,7 @@ The new Jerusalem is the Bride of Christ:
 
 But can they **enter** the kingdom on earth? I'm not sure.
 God is the justifier.
-So long as they continue in homosexuality, they wouldn't stay.
+So long as they continue in practicing homosexuality, they wouldn't stay.
 
 They have to be practicing righteousness, through following Jesus Christ - and obeying Jesus' commandments:
 
@@ -8046,7 +8068,7 @@ self.
 
 > **I Thessalonians 3:13** - so that He may establish your hearts without blame in holiness before our God and Father at the coming of our Lord Jesus with all His saints.
 
-I consider homosexuality to be erroneous and sinful, and God's original design to be correct.
+I consider practicing homosexuality to be erroneous and sinful, and God's original design to be correct.
 
 > **Matthew 19:4-12** - He answered, Have you not read that he who created them **from the beginning made them male and female**, and said, Therefore a man shall leave his father and his mother and hold fast to his wife, and they shall become one flesh?  So they are no longer two but one flesh. What therefore God has joined together, let not man separate.  They said to him, Why then did Moses command one to give a certificate of divorce and to send her away?  He said to them, Because of your hardness of heart Moses allowed you to divorce your wives, but **from the beginning it was not so**.  And I say to you: whoever divorces his wife, except for sexual immorality, and marries another, commits adultery.  The disciples said to him, If such is the case of a man with his wife, it is better not to marry.  But he said to them, Not everyone can receive this saying, but only those to whom it is given.  For there are eunuchs who have been so from birth, and there are eunuchs who have been made eunuchs by men, and there are eunuchs who have made themselves eunuchs for the sake of the kingdom of heaven. Let the one who is able to receive this receive it.
 
