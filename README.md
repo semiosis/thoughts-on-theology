@@ -242,6 +242,16 @@ Something like this:
 
 > **Acts 4:12** - And there is salvation in no one else, for there is no other name under heaven given among men by which we must be saved.
 
+Keep God's word:
+
+> **John 17:6** - I have manifested your name to the people whom you gave me out of the world. Yours they were, and you gave them to me, and <ins>they have kept your word.</ins> (ESV)
+
+Be convinced and keep having and doing faith in Jesus Christ. John uses the verb for faith:
+
+> **John 20:31** - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that <ins>by believing you may have life in his name.</ins> (ESV)
+
+[His Voice in Yours: How Christ Wins the World](https://youtu.be/fYJ1oFqSgv4?t=772)
+
 
 ## By God's grace God has saved us and provided us with a means to be reconciled to Him through trusting faith in Him
 
@@ -11772,6 +11782,11 @@ By God's grace I've been set free from sin, and brought into a relationship with
 > **Ephesians 2:10** - For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
 > **Matthew 5:16** - In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven. (ESV)
+
+
+# Resources
+
+-   [His Voice in Yours: How Christ Wins the World - YouTube](https://www.youtube.com/watch?v=fYJ1oFqSgv4)
 
 
 # The close of the age
