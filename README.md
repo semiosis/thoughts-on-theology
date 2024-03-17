@@ -472,6 +472,13 @@ The righteousness that comes through having faith in Jesus Christ - faith (not m
 <td class="org-left">&#xa0;</td>
 <td class="org-left">this is love, that we walk according to his commandments</td>
 </tr>
+
+
+<tr>
+<td class="org-left">John 6:35</td>
+<td class="org-left">whoever believes in me shall never thirst</td>
+<td class="org-left">whoever comes to me shall not hunger</td>
+</tr>
 </tbody>
 </table>
 
