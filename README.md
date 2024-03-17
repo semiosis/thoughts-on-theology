@@ -17,9 +17,13 @@ not from the ESV, I have almost certainly marked it with the alternative version
 
 > **Romans 15:17-18** - In Christ Jesus, then, I have reason to be proud of my work for God. For I will not venture to speak of anything except what Christ has accomplished through me to bring the Gentiles to **obedience—by word and deed,**
 
-I consider all who are repentantly trusting in the Lord Jesus Christ, who is God, for their salvation, if they are willing <ins>turn to and obey Him</ins> to be <ins>in Christ Jesus,</ins> no matter what else I say in this document. I have been just trying to figure out my theology. One God, three persons, Father, Son and Holy Spirit. AMEN!!
+In my understanding, I consider all who are repentantly trusting in the Lord Jesus Christ, who is God, for their salvation, if they are willing <ins>turn to and obey Him</ins> to be probably <ins>in Christ Jesus,</ins> no matter what else I say in this document. I have been just trying to figure out my theology. One God, three persons, Father, Son and Holy Spirit. I don't have the say though. God puts a person in. AMEN!!
 
-No matter what I have said, I believe that anyone who trusts in the Lord Jesus Christ, even they have no works, but only a trusting heart, believing what Jesus said, and putting their hope in Jesus for their salvation, <ins>repentant and willing to obey,</ins> are to be in Christ.
+God puts a person in Christ Jesus:
+
+> **I Corinthians 1:30** - But **by His doing you are in Christ Jesus,** who became to us wisdom from God, and righteousness and sanctification, and redemption, (NASB)
+
+No matter what I have said, I believe that anyone who trusts in the Lord Jesus Christ, even they have no works, but only a trusting heart, believing what Jesus said, and putting their hope in Jesus for their salvation, <ins>repentant and willing to obey,</ins> theoretically are to be in Christ if God does it.
 
 [Eternal Security - Charles Spurgeon Sermon - YouTube](https://youtu.be/i27b4cE4xyo?t=1513)
 
@@ -685,6 +689,8 @@ But we must be in Christ Jesus:
 > **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
 
 > **Galatians 3:26** - for in Christ Jesus you are all sons of God, through faith. (ESV)
+
+[Free from Judgment, Fighting Sin, Full Assurance - YouTube](https://youtu.be/M9EbSw8O6uc?t=1846)
 
 Jesus is asking of us to believe that He is the resurrection and the life; Coming to a belief which [in John's terminology] involves personally <ins>committing oneself to Jesus as Son of God, Saviour, Lord, Lamb of God and King</ins>:
 
@@ -4232,10 +4238,27 @@ This is similar to how the Israelites trusted in Moses, and they actually were t
 
 # Mosaic Law, and progressing from having hope in Moses to having hope in Jesus
 
-I enjoyed this video, but I still am of the opinion that keeping the law is not necessary, (but not prohibited, so long as it is pursued by faith and submitting to God's righteousness):
+I enjoyed this video, but I still am of the opinion that <ins>keeping</ins> the Mosaic law is not necessary, placing oneself under it (to adhere strictly to it) is contrary to grace,
+but <ins>following it by faith</ins> (receiving our justification from Jesus by obedience to Jesus) is not prohibited, so long as it is pursued by faith and submitting to God's righteousness:
 
 -   [Public Debate - Should Christians Keep The Law? - YouTube](https://www.youtube.com/watch?v=CNHKqhwu6Bo)
 -   The law is good and just and Jesus both obeyed it flawlessly, but He also fulfilled it like a prophesy.
+
+Christians follow Jesus first and foremost:
+
+> **Matthew 12:3-8** - He said to them, Have you not read what David did when he was hungry, and those who were with him: how he entered the house of God and ate the bread of the Presence, which it was not lawful for him to eat nor for those who were with him, but only for the priests? Or have you not read in the Law how on the Sabbath the priests in the temple profane the Sabbath and are guiltless? I tell you, **something greater than the temple is here.** And if you had known what this means, I desire mercy, and not sacrifice, you would not have condemned the guiltless. For **the Son of Man is lord of the Sabbath.**
+
+Christians wish to comply with the law of God and do so in their mind, but know that the flesh is hostile to the law:
+
+> **Romans 7:25** - Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. (ESV)
+
+Christians comply with the law by faith, not works:
+
+> **Luke 6:9** - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save life or to destroy it? (ESV)
+
+Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism):
+
+> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye salted in Him, lest any one among you should be corrupted, since by your savour ye shall be convicted. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 I read the following as, as we have faith in Jesus, following Him, where we have fallen short, Jesus has covered us, but we still try to live righteously. We still live with faith in God.
 
@@ -6474,6 +6497,22 @@ It is the sovereign work of God to make someone born-again of the Spirit, but th
 ### We must turn from sin
 
 > **Mark 9:47** - And if your eye causes you to sin, tear it out. It is better for you to enter the kingdom of God with one eye than with two eyes to be thrown into hell,
+
+After being born-again we must reckon dead the 'old man', and put sin to death.
+
+Those in Christ Jesus have been set free from the law of sin and death, and we should not succumb to sin.
+
+> **Romans 7:20** - Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. (ESV)
+
+> **Romans 7:24-25** - Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. (ESV)
+
+> **Romans 8:5** - For those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit set their minds on the things of the Spirit. (ESV)
+
+> **Romans 8:10** - But if Christ is in you, although the body is dead because of sin, the Spirit is life because of righteousness. (ESV)
+
+> **Romans 8:13** - For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. (ESV)
+
+[Free from Judgment, Fighting Sin, Full Assurance - YouTube](https://www.youtube.com/watch?v=M9EbSw8O6uc) |
 
 
 ### We must endure to enter the kingdom of God
