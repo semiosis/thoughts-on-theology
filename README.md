@@ -205,6 +205,16 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 
 > **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
 
+I think believing in the Son is also obedience, but it is an act of obedience which is a gift to us.
+
+> **Ephesians 2:8** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, (ESV)
+
+> **John 6:68** - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, (ESV)
+
+> **Romans 10:17** - So faith comes from hearing, and hearing through the word of Christ. (ESV)
+
+> **John 4:14** - but whoever drinks of the water that I will give him will never be thirsty forever. The water that I will give him will become in him a spring of water welling up to eternal life. (ESV)
+
 The word for 'believe' which is used in the New Testament is the verb for faith and actually means to 'trust':
 
 -   [In John 3:16, 'Believe' Means More than Believe | by Eric Sentell | Koinonia | Medium](https://medium.com/koinonia/in-john-3-16-believe-means-more-than-believe-b62d350818bc)
@@ -533,8 +543,26 @@ The righteousness that comes through having faith in Jesus Christ - faith (not m
 <td class="org-left">whoever believes in me shall never thirst</td>
 <td class="org-left"><ins>whoever comes to me</ins> shall not hunger</td>
 </tr>
+
+
+<tr>
+<td class="org-left">John 4:10</td>
+<td class="org-left">would have asked him, and he would have given you living water.</td>
+<td class="org-left">&#xa0;</td>
+</tr>
+
+
+<tr>
+<td class="org-left">John 4:34</td>
+<td class="org-left">&#xa0;</td>
+<td class="org-left">My food is to do the will of him who sent me and to accomplish his work.</td>
+</tr>
 </tbody>
 </table>
+
+> **John 4:10-56** - Jesus answered her, If you knew the gift of God, and who it is that is saying to you, Give me a drink, you would have asked him, and he would have given you living water. Jesus said to her, Everyone who drinks of this water will be thirsty again, but whoever drinks of the water that I will give him will never be thirsty forever. The water that I will give him will become in him a spring of water welling up to eternal life. So Jesus said to them, Truly, truly, I say to you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you. Whoever feeds on my flesh and drinks my blood has eternal life, and I will raise him up on the last day. For my flesh is true food, and my blood is true drink. Whoever feeds on my flesh and drinks my blood abides in me, and I in him. (ESV)
+
+> **John 7:37** - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone thirsts, let him come to me and drink. (ESV)
 
 We must have believing, obedient faith in God regarding Jesus Christ His Son as Abraham had faith in God:
 
