@@ -29,32 +29,34 @@ We have to put sin away after we come to believe in Him:
 
 > **Colossians 3:5-10** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator.
 
-In my understanding, I consider all who are repentantly trusting in the Lord Jesus Christ, who is God, for their salvation, if they are willing <ins>turn to and obey Him</ins>, if God puts them in, to be <ins>in Christ Jesus,</ins> no matter what else I say in this document. I have been just trying to figure out my theology. One God, three persons, Father, Son and Holy Spirit. I don't have the say though. God puts a person in. AMEN!!
+In my understanding, I consider all who are repentantly trusting in the Lord Jesus Christ, who is God, for their salvation, if they are willing <ins>turn to and obey Him</ins>, **if God puts them in**, trusting in Jesus Christ who is their life, to be <ins>in Christ Jesus,</ins> no matter what else I say in this document. I have been just trying to figure out my theology. One God, three persons, Father, Son and Holy Spirit. I don't have the say though. God puts a person in. AMEN!!
 
-God puts a person in Christ Jesus:
-
-> **I Corinthians 1:30** - But **by His doing you are in Christ Jesus,** who became to us wisdom from God, and righteousness and sanctification, and redemption, (NASB)
-
-No matter what I have said, I believe that anyone who trusts in the Lord Jesus Christ, even they have no works, but only a trusting heart, believing what Jesus said, and putting their hope in Jesus for their salvation, <ins>repentant and willing to obey,</ins> theoretically are to be in Christ if God does it.
+I believe that anyone who trusts (is trusting) in the Lord Jesus Christ for their salvation, even they have no works, but only a trusting heart, believing what Jesus said, and putting their hope in Jesus for their salvation, <ins>repentant and willing to obey (obedient),</ins> theoretically are to be in Christ if God does it. I think that obedience to Jesus and turning away from sin is vital to being found in Him.
 
 [Eternal Security - Charles Spurgeon Sermon - YouTube](https://youtu.be/i27b4cE4xyo?t=1513)
-
-&#x2014;
-
-I believe that a person is justified when they trust and believe on God in their heart, believing that they need saving and that Jesus Christ is their Lord and that Jesus Christ died for their transgressions and was raised for their justification - that they have a hearing heart and a <ins>heart that follows Him.</ins>
-
-Christian love:
-
--   [Believing Loving and Obeying and abiding in the presence of the Holy Spirit - YouTube](https://www.youtube.com/watch?v=ZHhVXgvVSks)
-
-We endeavour to be justified through faithful obedience to Jesus, and if we fall short, we still believe Christ has us covered. But we do endeavour, we do try:
-
-> **Galatians 2:17** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
 
 At that stage they may have no work but I believe at that stage they are justified, when it's in their heart.
 But I'm not the one to justify, God is.
 And I assume that Jesus knows who those people are - He knows that they are His sheep, and that Father God draws those people to Him.
 And when they go through Jesus Christ, the door, they are saved.
+
+I believe that a person is <ins>justified</ins> when they trust and believe on God in their heart, believing that they need saving and that Jesus Christ is their Lord and that Jesus Christ died for their transgressions and was raised for their justification - that they have a hearing heart and a <ins>heart that follows Him.</ins>
+
+God puts a person in Christ Jesus:
+
+> **I Corinthians 1:30** - But **by His doing you are in Christ Jesus,** who became to us wisdom from God, and righteousness and sanctification, and redemption, (NASB)
+
+Christian love:
+
+-   [Believing Loving and Obeying and abiding in the presence of the Holy Spirit - YouTube](https://www.youtube.com/watch?v=ZHhVXgvVSks)
+
+It's really important to turn from sin:
+
+> **I John 3:5-6** - You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him.
+
+We endeavour to be justified through faithful obedience to Jesus, and if we fall short, we still believe Christ has us covered. But we do endeavour, we do try:
+
+> **Galatians 2:17** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
 
 &#x2014;
 
@@ -2751,6 +2753,7 @@ It's still really important to put a stop to sin! And we must walk according to 
 ### Holiness
 
 When we repent from sin we allow Jesus' holiness to shine through us increasingly.
+
 Therefore, it's really not our own holiness or power that is responsible for miracles that happen through us or in cooperation with us, but it is Jesus' power and holiness.
 
 Jesus is the True Vine. We are the branches. AMEN!! We can do nothing apart from Him. AMEN!!
@@ -11932,6 +11935,10 @@ Likewise, we must obey God, and obey God by obeying Jesus, and being sanctified 
 Glorification is the good works including forgiving others, relieving others' burdens, etc. suffering for the sake of righteousness and obedience to God.
 
 Imitating Jesus, forgiving others, walking righteously, and doing good works (bearing one-another's burdens) glorifies Jesus and glorifies God.
+
+> **I Corinthians 6:20** - for you were bought with a price. So glorify God in your body. (ESV)
+
+> **Romans 12:1** - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
 
 This should never replace Jesus, but glorifies Jesus because it's being a disciple of Jesus.
 
