@@ -103,7 +103,7 @@ We must also drop the old selfish self and allow Jesus to come in with the new o
 
 Selfish people killed Jesus. Jesus was selfless. Jesus was obedient to God unto death. We identify with Christ
 with a death like His, to be united with Him in a resurrection like His! This is why obedience to Jesus is so
-important.
+important. How can a person be resurrected if they don't die? We need to die a death to be resurrected:
 
   Romans 6:1 - What shall we say then? Are we to continue in sin that grace may abound? By no means! How can we
   who died to sin still live in it? Do you not know that all of us who have been baptized into Christ Jesus were
@@ -129,12 +129,55 @@ selfish nature, and believes in Him will never die:
 I like that way of thinking of it because it encapsulates both belief and obedience to Jesus - both which I think
 are important.
 
-I conjecture that Obedience = Selfless love. Nevertheless, where we fall short, Jesus has us covered. But if we
-are keeping Jesus' commandments then we're abiding in His love. So it's still extremely important for us to try to
-keep His commandments, and His commandments are to love God and one another as He loved us, selflessly.
+I conjecture that Obedience = Selfless love (no longer serving yourself but serving Christ). Nevertheless, where
+we fall short of obedience, Jesus has us covered. But if we are keeping Jesus' commandments then we're abiding in
+His love. Is it crucial to obey the gospel? Yes. Is that a 'works-based' gospel. So it's still extremely important
+for us to try to keep His commandments, and His commandments are to love God and one another as He loved us,
+selflessly.
+
+  Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
+  of God, not a result of works, so that no one may boast. (ESV)
+
+  Philippians 2:12 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much
+  more in my absence, work out your own salvation with fear and trembling, (ESV)
+
+Let's see what the word katergazomai (the word for 'work out') means:
+
+Philippians 2:12 (Interlinear)
+
+|  5620      27       1473     2531     3842     5219            3361     5613     1722     3588     3952     1473
+|  Hoste     agapetoi mou      kathos   pantote  hypekousate     me       hos      en       te       parousia mou
+|  ????  ,   ???????? u??  ,   ?????    ???????  ??????????  ,   u?       ??       ??       ??       ???????? u??
+|  Therefore beloved  of me    just as  always   you have obeyed not      as       in       the      presence of me
+|  Conj      Adj-VMP  PPro-G1S Adv      Adv      V-AIA-2P        Adv      Adv      Prep     Art-DFS  N-DFS    PPro-G1S
+
+|  3440     235     3568     4183     3123     1722     3588     666     1473     3326     5401     2532
+|  monon    alla    nyn      pollo    mallon   en       te       apousia mou      meta     phobou   kai
+|  u????  , ????    ???      ?????    u?????   ??       ??       ??????? u??  ,   u???     ?????    ???
+|  only     but     now      much     more     in       the      absence of me    with     fear     and
+|  Adv      Conj    Adv      Adj-DNS  Adv      Prep     Art-DFS  N-DFS   PPro-G1S Prep     N-GMS    Conj
+
+Work out (katergazomai) means here to perform your salvation by work (which has yet still been gifted to us, and
+the salvation which we are working is not the result of works):
+
+|  5156      3588     1438        4991      2716
+|  tromou    ten      heauton     soterian  katergazesthe
+|  ???u??    ???      ??????      ????????  ????????????  .
+|  trembling  -       your own    salvation work out
+|  N-GMS     Art-AFS  RefPro-GM3P N-AFS     V-PMM/P-2P
+
+|  :  2716  katergazomai  kat-er-gad'-zom-ahee
+| 
+|   from 2596 and 2038; to work fully, i.e. accomplish; by implication, to
+|   finish, fashion:--cause, to (deed), perform, work (out).
+|   see GREEK for 2596
+|   see GREEK for 2038
 
 So I think trusting Jesus, obeying Jesus and believing Jesus' words, and believing in Him should be true
 simultaneously, because people misconstrue Jesus' words to their own destruction.
+
+If a person serves Christ, this is not a dead works-based gospel, but is simply obeying the gospel. That person
+has been brought into obedience by the grace of God.
 
   II Peter 3:14-18 - Therefore, beloved, since you are waiting for these, be diligent to be found by him without
   spot or blemish, and at peace. And count the patience of our Lord as salvation, just as our beloved brother Paul
@@ -146,8 +189,9 @@ simultaneously, because people misconstrue Jesus' words to their own destruction
   eternity. Amen.
 
 Therefore, I assert that there's no eternal security for those who are not willing to obey Jesus, or to turn away
-from their sin. But I believe that even believing in Jesus is an act of obedience. If a person is trusting in Him
-when they die, they will live.
+from their sin. Also I conclude that obeying Jesus Christ is having faith in Him. Why then do people preach to
+stop 'working for God'? Even having faith in God through faith in Jesus is obedience according to Romans 16:26. If
+a person is trusting in Him when they die, they will live.
 
   Romans 16:26 - but has now been disclosed and through the prophetic writings has been made known to all nations,
   according to the command of the eternal God, to bring about the obedience of faith - (ESV)
@@ -168,6 +212,9 @@ Father God draws those people to Him. And when they go through Jesus Christ, the
 I believe that if a person trusts and believe on God in their heart, believing that they need saving and that
 Jesus Christ is their Lord and that Jesus Christ died for their transgressions and was raised for their
 justification - that they have a hearing heart and a heart that follows Him - that they will be saved.
+
+I simply see no enmity between trusting God for justification through the finished work of the cross by Jesus
+Christ and trusting God by obeying Jesus Christ. I believe that is a false dichotomy.
 
 Christian love:
 
@@ -3062,10 +3109,17 @@ I definitely believe that "believer's baptism" is the right way to perform bapti
 
 2.11. Obedience - A heart of obedience is the start of faith, and belief is the start of continued obedience
 
+2.11.1. Continued revelation comes from having a heart of obedience towards God
+
   John 7:17 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am
   speaking on my own authority. (ESV)
 
-2.11.1. Fear of the Lord
+2.11.2. God's commanded is for everyone to come to the obedience of having faith in Him through Jesus Christ
+
+  Romans 16:26 - but has now been disclosed and through the prophetic writings has been made known to all nations,
+  according to the command of the eternal God, to bring about the obedience of faith - (ESV)
+
+2.11.3. Fear of the Lord
 
   Isaiah 11:2 - And the Spirit of the Lord shall rest upon him, the Spirit of wisdom and understanding, the Spirit
   of counsel and might, the Spirit of knowledge and the fear of the Lord.
@@ -17560,7 +17614,7 @@ Date: 2024-04-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-04 Thu 11:39
+Created: 2024-04-04 Thu 12:22
 
 Validate
 
