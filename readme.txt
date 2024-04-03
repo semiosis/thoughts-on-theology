@@ -131,9 +131,9 @@ are important.
 
 I conjecture that Obedience = Selfless love (no longer serving yourself but serving Christ). Nevertheless, where
 we fall short of obedience, Jesus has us covered. But if we are keeping Jesus' commandments then we're abiding in
-His love. Is it crucial to obey the gospel? Yes. Is that a 'works-based' gospel? No, I think it's a
-'saved-to-live-for-Christ-based' gospel. So it's still extremely important for us to try to keep His commandments,
-and His commandments are to love God and one another as He loved us, selflessly.
+His love. Is it crucial to obey the gospel? Yes. Is that a 'works-based' gospel. So it's still extremely important
+for us to try to keep His commandments, and His commandments are to love God and one another as He loved us,
+selflessly.
 
   Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, not a result of works, so that no one may boast. (ESV)
@@ -214,9 +214,7 @@ Jesus Christ is their Lord and that Jesus Christ died for their transgressions a
 justification - that they have a hearing heart and a heart that follows Him - that they will be saved.
 
 I simply see no enmity between trusting God for justification through the finished work of the cross by Jesus
-Christ and trusting God by obeying Jesus Christ. I believe that it is a false dichotomy that says that trusting
-God for the finished work of Christ on the cross, and trusting God by obeying Jesus Christ are at odds with each
-other.
+Christ and trusting God by obeying Jesus Christ. I believe that is a false dichotomy.
 
 Christian love:
 
@@ -17616,7 +17614,7 @@ Date: 2024-04-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-04 Thu 12:29
+Created: 2024-04-04 Thu 12:31
 
 Validate
 
