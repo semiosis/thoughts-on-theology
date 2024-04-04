@@ -17767,13 +17767,13 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
       filled with the fruit of righteousness that comes through Jesus Christ, to the glory and praise of God.
 
 Download
-PDF
+PDF, TEXT, MARKDOWN, ORG
 
 Date: 2024-04-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-04 Thu 18:56
+Created: 2024-04-04 Thu 19:18
 
 Validate
 
