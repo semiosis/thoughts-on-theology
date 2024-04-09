@@ -430,7 +430,7 @@ Him when they die, they will live.
   according to the command of the eternal God, to bring about the obedience of faith - (ESV)
 
 Therefore, I assert that there's no eternal security for those who are not willing to obey Jesus, or to turn away
-from their sin.
+from their sin. Our obedience is penitent, not perfect.
 
   Hebrews 5:9 - And being made perfect, he became the source of eternal salvation to all who obey him,
 
@@ -795,7 +795,7 @@ The word for 'believe' which is used in the New Testament is the verb for faith 
   The Greek word pisteuo carries connotations of deep trust and confidence. It means to believe, to entrust, to
   have confidence in something.
 
-4.4. Obedient faith is penitent, not perfect
+4.4. Our obedience is penitent, not perfect
 
   John Piper - "Faith is the baking our hope on the mercy of God."
 
@@ -18459,7 +18459,7 @@ Date: 2024-04-09 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-09 Tue 23:37
+Created: 2024-04-09 Tue 23:54
 
 Validate
 

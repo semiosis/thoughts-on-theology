@@ -312,6 +312,7 @@ Even having faith in God through faith in Jesus is obedience according to `Roman
 > **Romans 16:26** - but has now been disclosed and through the prophetic writings has been made known to all nations, according to <ins>the command of the eternal God</ins>, to bring about the **obedience of faith** — (ESV)
 
 Therefore, I assert that there's no **eternal** security for those who are not willing to obey Jesus, or to turn away from their sin.
+Our obedience is penitent, not perfect.
 
 > **Hebrews 5:9** - And being made perfect, he became the source of eternal salvation to <ins>all who obey him,</ins>
 
@@ -576,7 +577,7 @@ The word for 'believe' which is used in the New Testament is the verb for faith 
 > something.
 
 
-## Obedient faith is penitent, not perfect
+## Our obedience is penitent, not perfect
 
 > John Piper - "Faith is the baking our **hope on the mercy of God**."
 
