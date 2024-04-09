@@ -198,7 +198,7 @@ Likewise, that's the type of selfless love we should have. Selfless love while t
 
 > **I Peter 4:19** - Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. (ESV)
 
-The purest selfless love loves while not breaking faith with God.
+The purest selfless love loves while not breaking faith with God. Jesus maintained faithfulness to God while maintaining selfless love. We should endeavour to have the same mind.
 
 > I conjecture that, effectively, `Obedience = Believing the gospel, and Selfless love` (no longer serving yourself but serving Christ. It's obeying Jesus.).
 > 
@@ -1310,7 +1310,17 @@ True sonship is required to remain forever:
 
 > **Galatians 4:4-9** - But when the fullness of time had come, God sent forth his Son, born of woman, born under the law, to redeem those who were under the law, so that we might receive adoption as sons. And because you are sons, God has <ins>sent the Spirit of his Son into our hearts, crying, Abba! Father!</ins> So you are no longer a slave, but a son, and if a son, then an heir through God. Formerly, when you did not know God, you were enslaved to those that by nature are not gods. But now that you have come to know God, or rather to be known by God, how can you turn back again to the weak and worthless elementary principles of the world, whose slaves you want to be once more? (ESV)
 
-But we must be in Christ Jesus:
+I guess that means we should become slaves of Christ! We should be overcome by Christ:
+
+> **Romans 6:22-23**- But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
+> **Romans 6:16** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
+
+Christ's Spirit is a spirit of adoption as sons, by whom we cry, "Abba! Father!" It's not a spirit of slavery. So with a spirit of adoption we are slaves to God:
+
+> **Romans 8:13-17** - For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of slavery to fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that we are children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
+
+We must be in Christ Jesus as a new creation:
 
 > **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
 
@@ -1528,6 +1538,8 @@ Jesus makes it clear that the ones who believe do the same works He does:
 We have **always obeyed**, participating in the Spirit, having one mind, that of a servant - God works through us:
 
 > **Philippians 2:1-13** - So if there is any encouragement in Christ, any comfort from love, any <ins>participation in the Spirit,</ins> any affection and sympathy, complete my joy by being of the same mind, having the same love, being in full accord and of one mind. Do nothing from rivalry or conceit, but in humility count others more significant than yourselves. Let each of you look not only to his own interests, but also to the interests of others. Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the form of God, did not count equality with God a thing to be grasped, but made himself nothing, **taking the form of a servant**, being born in the likeness of men. And being found in human form, he humbled himself by becoming obedient to the point of death, even death on a cross. Therefore God has highly exalted him and bestowed on him the name that is above every name, so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, **work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work** for his good pleasure. (ESV)
+
+[John Fischer - Naphtali - 09 Live in the Power - YouTube](https://www.youtube.com/watch?v=Mqk5mMvvih4&list=RDMqk5mMvvih4&start_radio=1)
 
 'Believing obedience' produces work.
 
