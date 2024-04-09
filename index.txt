@@ -2933,6 +2933,32 @@ I believe that Jesus Christ is Jehovah.
   law, the worship, and the promises. To them belong the patriarchs, and from their race, according to the flesh,
   is the Christ who is God over all, blessed forever. Amen. (ESV)
 
+To have the Spirit of Christ is to have the Spirit of God:
+
+  Romans 8:9-10 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in
+  you. Anyone who does not have the Spirit of Christ does not belong to him. But if Christ is in you, although the
+  body is dead because of sin, the Spirit is life because of righteousness. (ESV)
+
+God sends the Spirit of His Son into our heart, crying, "Abba! Father!" We experience this as our own cry. This is
+how we are given the assurance that we are the children of God:
+
+  Galatians 4:1-7 - I mean that the heir, as long as he is a child, is no different from a slave, though he is the
+  owner of everything, but he is under guardians and managers until the date set by his father. In the same way we
+  also, when we were children, were enslaved to the elementary principles of the world. But when the fullness of
+  time had come, God sent forth his Son, born of woman, born under the law, to redeem those who were under the
+  law, so that we might receive adoption as sons. And because you are sons, God has sent the Spirit of his Son
+  into our hearts, crying, Abba! Father! So you are no longer a slave, but a son, and if a son, then an heir
+  through God. (ESV)
+
+  Romans 8:13-17 - For if you live according to the flesh you will die, but if by the Spirit you put to death the
+  deeds of the body, you will live. For all who are led by the Spirit of God are sons of God. For you did not
+  receive the spirit of slavery to fall back into fear, but you have received the Spirit of adoption as sons, by
+  whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that we are children of God, and if
+  children, then heirs-heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may
+  also be glorified with him. (ESV)
+
+The Spirit in Us Cries 'Abba Father': Galatians 4:1-7, Part 5 - YouTube
+
 4.12.18. Jesus is the Lamb of God who sits with God on God's throne
 
 Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself.
@@ -18455,11 +18481,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 Download
 PDF, TEXT, MARKDOWN, ORG
 
-Date: 2024-04-09 Tue 00:00
+Date: 2024-04-10 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-09 Tue 23:54
+Created: 2024-04-10 Wed 00:19
 
 Validate
 
