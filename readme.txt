@@ -4366,7 +4366,7 @@ Sinners:
 - envy, strife, deceit, maliciousness. They are gossips, slanderers, haters of God, insolent, haughty,
 boastful, inventors of evil, disobedient to parents, foolish, faithless, heartless, ruthless.
 
-5.5.1. transgressing the 10 commandments
+5.5.1. Transgressing the 10 commandments
 
   James 2:11 - For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery
   but do murder, you have become a transgressor of the law. (ESV)
@@ -4384,7 +4384,7 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   Matthew 15:19 - For out of the heart come evil thoughts, murder, adultery, sexual immorality, theft, false
   witness, slander. (ESV)
 
-5.5.3. all manner of unrighteousness
+5.5.3. All manner of unrighteousness
 
   Romans 1:26-32 - For this reason God gave them up to dishonorable passions. For their women exchanged natural
   relations for those that are contrary to nature; and the men likewise gave up natural relations with women and
@@ -4396,7 +4396,7 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   faithless, heartless, ruthless. Though they know God's decree that those who practice such things deserve to
   die, they not only do them but give approval to those who practice them. (ESV)
 
-5.5.4. murder
+5.5.4. Murder
 
   I John 3:15 - Everyone who hates his brother is a murderer, and you know that no murderer has eternal life
   abiding in him. (ESV)
@@ -4407,7 +4407,7 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   Revelation of John 22:15 - Outside are the dogs and sorcerers and the sexually immoral and murderers and
   idolaters, and everyone who loves and practices falsehood. (ESV)
 
-5.5.5. theft
+5.5.5. Theft
 
   Revelation of John 9:21 - nor did they repent of their murders or their sorceries or their sexual immorality or
   their thefts. (ESV)
@@ -4439,13 +4439,13 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   did I command them or speak to them. They are prophesying to you a lying vision, worthless divination, and the
   deceit of their own minds. (ESV)
 
-5.5.9. ungodliness
+5.5.9. Ungodliness
 
   Isaiah 32:6 - For the fool speaks folly, and his heart is busy with iniquity, to practice ungodliness, to utter
   error concerning the LORD, to leave the craving of the hungry unsatisfied, and to deprive the thirsty of drink.
   (ESV)
 
-5.5.10. pride in self and lack of humility towards God
+5.5.10. Pride in self and lack of humility towards God
 
   Psalms 36:2 - For he flatters himself in his own eyes that his iniquity cannot be found out and hated. (ESV)
 
@@ -4463,7 +4463,7 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   Isaiah 31:2 - And yet he is wise and brings disaster; he does not call back his words, but will arise against
   the house of the evildoers and against the helpers of those who work iniquity. (ESV)
 
-5.5.12. dishonesty
+5.5.12. Dishonesty
 
   Isaiah 59:4-8 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak
   lies, they conceive mischief and give birth to iniquity. They hatch adders' eggs; they weave the spider's web;
@@ -4494,7 +4494,7 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   Leviticus 19:8 - and everyone who eats it shall bear his iniquity, because he has profaned what is holy to the
   LORD, and that person shall be cut off from his people. (ESV)
 
-5.5.16. Blsphemy
+5.5.16. Blasphemy
 
   I Samuel 3:13 - And I declare to him that I am about to punish his house forever, for the iniquity that he knew,
   because his sons were blaspheming God, and he did not restrain them. (ESV)
@@ -5878,7 +5878,66 @@ To know if Jesus' teaching comes from God, one must desire to do God's will.
 
 Therefore, to arrive at the knowledge of the truth, you've got to have an obedient heart.
 
-13. Put a stop to sin and practice personal righteousness
+13. Sanctification
+
+13.1. Allow myself to be corrected
+
+  Psalms 141:5 - Let a righteous man strike me-it is a kindness; let him rebuke me-it is oil for my head; let my
+  head not refuse it. Yet my prayer is continually against their evil deeds. (ESV)
+
+We are being prepared to be presented to Jesus:
+
+  Colossians 1:21-22 - And you, who once were alienated and hostile in mind, doing evil deeds, he has now
+  reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach
+  before him, (ESV)
+
+13.2. Repent of evil deeds, feelings and thoughts
+
+  Ephesians 4:30-32 - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
+  Let all bitterness and wrath and anger and clamor and slander be put away from you, along with all malice. Be
+  kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you. (ESV)
+
+13.3. Renew our minds
+
+  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+Believe in the power of God's Word, allow myself to be corrected, and sanctified by the washing of the Word.
+Actually read the Scriptures to see what God is acceptable:
+
+  Ephesians 5:26 - that he might sanctify her, having cleansed her by the washing of water with the word, (ESV)
+
+We are being prepared to be presented to Jesus:
+
+  I Peter 1:13 - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the
+  grace that will be brought to you at the revelation of Jesus Christ. (ESV)
+
+13.4. Be qualified regarding the faith - renewed in mind, not opposing the truth
+
+  II Timothy 3:8 - Just as Jannes and Jambres opposed Moses, so these men also oppose the truth, men corrupted in
+  mind and disqualified regarding the faith. (ESV)
+
+  Colossians 2:18 - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail
+  about visions, puffed up without reason by his sensuous mind, (ESV)
+
+  I Timothy 6:5 - and constant friction among people who are depraved in mind and deprived of the truth, imagining
+  that godliness is a means of gain. (ESV)
+
+  I Timothy 3:2 - Therefore an overseer must be above reproach, the husband of one wife, sober-minded,
+  self-controlled, respectable, hospitable, able to teach, (ESV)
+
+13.4.1. Set our mind on heavenly things, not earthly things
+
+  Colossians 3:2 - Set your minds on things that are above, not on things that are on earth. (ESV)
+
+  Philippians 3:19 - Their end is destruction, their god is their belly, and they glory in their shame, with minds
+  set on earthly things. (ESV)
+
+  II Thessalonians 2:1-2 - Now concerning the coming of our Lord Jesus Christ and our being gathered together to
+  him, we ask you, brothers, not to be quickly shaken in mind or alarmed, either by a spirit or a spoken word, or
+  a letter seeming to be from us, to the effect that the day of the Lord has come. (ESV)
+
+13.5. Put a stop to sin and practice personal righteousness
 
   I John 3:7 - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
   righteous.
@@ -19183,7 +19242,7 @@ Date: 2024-04-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-14 Sun 13:16
+Created: 2024-04-14 Sun 13:58
 
 Validate
 
