@@ -228,7 +228,8 @@ The Apostle John also commands us to:
   1 John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
 
-Whoever keeps commandments (plural) abides in Him in them. Yes, so I think we must believe Jesus and obey Him:
+Whoever keeps His commandments (plural) abides in Jesus, and Jesus in them. Yes, so I think we must believe Jesus
+and obey Him:
 
   I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
   in us, by the Spirit whom he has given us. (ESV)
@@ -20451,7 +20452,7 @@ Date: 2024-04-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-22 Mon 23:21
+Created: 2024-04-22 Mon 23:28
 
 Validate
 
