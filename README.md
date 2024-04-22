@@ -139,7 +139,11 @@ It's actually a faith-based gospel, and the works are a gift. So believing, obed
 
 > **Ephesians 2:8-10** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
-Therefore, we teach people to both believe and to obey the Gospel. Both belief and obedience are required of us, but the success of our work doesn't count for our righteousness, and believing is an initial act of obedience before continuing in teaching of Christ.
+Therefore, we teach people to both believe and to obey the Gospel. When we obey Jesus' commandments it's actually Jesus working in and through us. We want Jesus to be able to carry out work in us, so we obey Him - our will and God's will come into alignment when we obey Jesus' commandments.
+
+Both belief and obedience are required of us, but the success of our work doesn't count for our righteousness, and believing is an initial act of obedience before continuing in the teaching of Christ. And the obedience is not burdensome:
+
+> **I John 5:3** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
 As we go ahead, we **must** abide in the teaching of Christ, or we won't have God:
 
