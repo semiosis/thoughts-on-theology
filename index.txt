@@ -269,6 +269,8 @@ and obey Him:
   disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now
   receive mercy. For God has consigned all to disobedience, that he may have mercy on all. (ESV)
 
+King of Kings {Lyric Video} - Hillsong Worship - YouTube
+
 2.3. Obedience is absolutely within our ability
 
 God's commandments are not too difficult to follow.
@@ -372,7 +374,9 @@ salvation to all those who obey Him:
 The Heart of the Gospel - YouTube
 
 We believe on Jesus Christ and receive eternal life, and we are saved through Jesus Christ. We see that Jesus
-Christ obeyed God perfectly and He is the light. We have our hope on Jesus to save us when we believe on Him.
+Christ obeyed God perfectly and He is the light. We have our hope on Jesus to save us when we believe on Him. We
+should trust Jesus enough to obey His commandments when we are presented with opportunities to glorify God with
+our actions.
 
   John 3:16-19 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
   perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
@@ -20502,7 +20506,7 @@ Date: 2024-04-23 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-23 Tue 19:40
+Created: 2024-04-23 Tue 22:43
 
 Validate
 
