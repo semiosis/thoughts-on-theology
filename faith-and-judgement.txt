@@ -263,7 +263,7 @@ and obey Him:
 
 2.2. In God's mercy, we come to obedient faith and come into Christ Jesus
 
-"At one time disobedient, but now disobedient" means we are brought to obedience.
+"At one time disobedient..." means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
   Romans 11:30-32 - Just as you were at one time disobedient to God but now have received mercy because of their
   disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now
@@ -1674,6 +1674,13 @@ Christ, resulting in the will to obey Jesus, and God gives us the spirit to help
 4.7. I believe that a loving, trusting ( believing and obedient ) heart for Jesus Christ is essential for permanent
 abiding in Him
 
+After believing in Him we must go ahead in the teaching of Christ:
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+Jesus loved us before we loved Him:
+
   I John 4:19 - We love because he first loved us. (ESV)
 
 If someone obeys Jesus they should arrive at belief in Jesus and who He is and what He has accomplished; they
@@ -2079,10 +2086,31 @@ Jesus:
   opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you
   are not under the law.
 
+Jesus' disciples here were being led by Jesus:
+
+  Matthew 12:1-8 - At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry, and
+  they began to pluck heads of grain and to eat. But when the Pharisees saw it, they said to him, Look, your
+  disciples are doing what is not lawful to do on the Sabbath. He said to them, Have you not read what David did
+  when he was hungry, and those who were with him: how he entered the house of God and ate the bread of the
+  Presence, which it was not lawful for him to eat nor for those who were with him, but only for the priests? Or
+  have you not read in the Law how on the Sabbath the priests in the temple profane the Sabbath and are guiltless?
+  I tell you, something greater than the temple is here. And if you had known what this means, I desire mercy, and
+  not sacrifice, you would not have condemned the guiltless. For the Son of Man is lord of the Sabbath. (ESV)
+
 Those who love Him, obey Him:
+
+  John 14:15-16 - If you love me, you will keep my commandments. And I will ask the Father, and he will give you
+  another Helper, to be with you forever, (ESV)
 
   James 1:12 - Blessed is the man who remains steadfast under trial, for when he has stood the test he will
   receive the crown of life, which God has promised to those who love him. (ESV)
+
+We love God and our brothers and sisters in Christ by following God's commandments:
+
+  I John 5:1-3 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are
+  not burdensome. (ESV)
 
 The crown of life is gifted to those who are obedient, and have been tested:
 
@@ -3355,7 +3383,22 @@ Jesus is also extremely merciful to the woman who was brought before Jesus:
   John 8:10-11 - Jesus stood up and said to her, Woman, where are they? Has no one condemned you? She said, No
   one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more. (ESV)
 
-4.12.16. Simply tell the truth from God. We must not reject Jesus
+4.12.16. Jesus Christ is the word of life, Jesus Christ is the eternal life
+
+  I John 1:1-3 - That which was from the beginning, which we have heard, which we have seen with our eyes, which
+  we looked upon and have touched with our hands, concerning the word of life- the life was made manifest, and we
+  have seen it, and testify to it and proclaim to you the eternal life, which was with the Father and was made
+  manifest to us- that which we have seen and heard we proclaim also to you, so that you too may have fellowship
+  with us; and indeed our fellowship is with the Father and with his Son Jesus Christ. (ESV)
+
+That is why we must believe in Him and obey His commandments:
+
+  I John 5:3-5 - For this is the love of God, that we keep his commandments. And his commandments are not
+  burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome
+  the world-our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of
+  God? (ESV)
+
+4.12.17. Simply tell the truth from God. We must not reject Jesus
 
   John 8:21-24 - So he said to them again, I am going away, and you will seek me, and you will die in your sin.
   Where I am going, you cannot come. So the Jews said, Will he kill himself, since he says, Where I am going, you
@@ -3380,7 +3423,7 @@ obedient to Father God. We must be obedient to Jesus Christ:
   will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater
   than all, and no one is able to snatch them out of the Father's hand.
 
-4.12.17. Jesus is Almighty God's Son and is sitting in Power next to His Father
+4.12.18. Jesus is Almighty God's Son and is sitting in Power next to His Father
 
 Jesus is One with Almighty God and their will is in perfect alignment.
 
@@ -3643,7 +3686,7 @@ Therefore, I will continue to endeavour to keep Jesus' commandments:
 So it's really important that I remain faithful to Jesus and do my best to not compromise or be swayed by people
 who deter me from keeping Jesus' commandments.
 
-4.12.18. Jesus is the Lamb of God who sits with God on God's throne
+4.12.19. Jesus is the Lamb of God who sits with God on God's throne
 
 Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself.
 
@@ -3665,7 +3708,7 @@ Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself
   Revelation of John 22:3 - No longer will there be anything accursed, but the throne of God and of the Lamb will
   be in it, and his servants will worship him. (ESV)
 
-4.12.19. Follow Jesus for eternal life. Jesus is the Bread of Life
+4.12.20. Follow Jesus for eternal life. Jesus is the Bread of Life
 
   Luke 18:18-22 - And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to
   him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit
@@ -3673,7 +3716,7 @@ Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself
   these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that
   you have and distribute to the poor, and you will have treasure in heaven; and come, follow me.
 
-4.12.20. Believe Jesus and allow His word to abide in you
+4.12.21. Believe Jesus and allow His word to abide in you
 
   Proverbs 7:1-3 - My son, keep my words and treasure up my commandments with you; keep my commandments and live;
   keep my teaching as the apple of your eye; bind them on your fingers; write them on the tablet of your heart.
@@ -3713,7 +3756,7 @@ Jesus speaks of what He has seen with His Father:
 
   John 8:38 - I speak of what I have seen with my Father, and you do what you have heard from your father.
 
-4.12.21. We are implored to love Jesus and follow Him
+4.12.22. We are implored to love Jesus and follow Him
 
 We need to love Jesus because He came from God, to show us the Way as the Light of the world.
 
@@ -3733,7 +3776,7 @@ in the truth, which leads to eternal life:
   Hebrews 5:8-9 - Although he was a son, he learned obedience through what he suffered. And being made perfect, he
   became the source of eternal salvation to all who obey him, (ESV)
 
-4.12.22. We must listen to Jesus
+4.12.23. We must listen to Jesus
 
   Luke 9:35 - Then a voice came out of the cloud, saying, "This is My Son, My Chosen One; listen to Him!"
 
@@ -3743,7 +3786,7 @@ in the truth, which leads to eternal life:
   not believe me. Which one of you convicts me of sin? If I tell the truth, why do you not believe me? Whoever is
   of God hears the words of God. The reason why you do not hear them is that you are not of God.
 
-4.12.23. We are implored to honour Jesus
+4.12.24. We are implored to honour Jesus
 
   John 8:48-49 - The Jews answered him, Are we not right in saying that you are a Samaritan and have a demon?
   Jesus answered, I do not have a demon, but I honor my Father, and you dishonor me.
@@ -3754,12 +3797,12 @@ in the truth, which leads to eternal life:
   you, whoever hears my word and believes (G4100 pisteuo) him who sent me has eternal life. He does not come into
   judgment, but has passed from death to life.
 
-4.12.24. We are implored to keep Jesus' words
+4.12.25. We are implored to keep Jesus' words
 
   John 8:50-51 - Yet I do not seek my own glory; there is One who seeks it, and he is the judge. Truly, truly, I
   say to you, if anyone keeps my word, he will never see death.
 
-4.12.25. We must receive Jesus. Jesus is God's Only-Begotten Son
+4.12.26. We must receive Jesus. Jesus is God's Only-Begotten Son
 
   John 8:52-59 - The Jews said to him, Now we know that you have a demon! Abraham died, as did the prophets, yet
   you say, If anyone keeps my word, he will never taste death. Are you greater than our father Abraham, who died?
@@ -3770,7 +3813,7 @@ in the truth, which leads to eternal life:
   not yet fifty years old, and have you seen Abraham? Jesus said to them, Truly, truly, I say to you, before
   Abraham was, I am. So they picked up stones to throw at him, but Jesus hid himself and went out of the temple.
 
-4.12.26. Even those who have faith in Jesus Christ's name may have the right to be born of God and become children
+4.12.27. Even those who have faith in Jesus Christ's name may have the right to be born of God and become children
 of God
 
 The worldly people rejected Him. Neither did His own people receive Him.
@@ -3807,7 +3850,7 @@ The worldly people rejected Him. Neither did His own people receive Him.
 
 AMEN!!
 
-4.12.27. We must do the will of God, which is the food and drink which Jesus gives us
+4.12.28. We must do the will of God, which is the food and drink which Jesus gives us
 
   John 6:27 - Do not labor for the food that perishes, but for the food that endures to eternal life, which the
   Son of Man will give to you. For on him God the Father has set his seal. (ESV)
@@ -3848,7 +3891,7 @@ And in obeying Jesus we are performing good works which are works done in faith 
   all who are in the tombs will hear his voice and come out, those who have done good to the resurrection of life,
   and those who have done evil to the resurrection of judgment. (ESV)
 
-4.12.28. Having faith (living in accordance with the truth, and in relationship with God) is asked of us - faith
+4.12.29. Having faith (living in accordance with the truth, and in relationship with God) is asked of us - faith
 continues
 
 What I mean by relationship is:
@@ -4113,7 +4156,7 @@ And doing the will of God is what it means to be led by the Spirit of God:
 
   Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
-4.12.29. We must be wanting to be cleaned of sin
+4.12.30. We must be wanting to be cleaned of sin
 
 We must look upon Jesus and stop sexual immorality and stop idolatry. The stories mentioned here are examples for
 us to follow:
@@ -4171,7 +4214,7 @@ Jesus implies you must obey Him (Jesus) to be part of His family:
 
 Word for today - Do God's word - March 7th
 
-4.12.30. The obedient children are the ones who are not conformed to the passions of our former ignorance
+4.12.31. The obedient children are the ones who are not conformed to the passions of our former ignorance
 
   I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
   who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
@@ -4184,7 +4227,7 @@ I know I can testify to this fiery trial being a real thing:
   inherited from your forefathers, not with perishable things such as silver or gold, but with the precious blood
   of Christ, like that of a lamb without blemish or spot. (ESV)
 
-4.12.31. The sons of disobedience are the ones who are conformed to sexual immorality, impurity, or covetousness,
+4.12.32. The sons of disobedience are the ones who are conformed to sexual immorality, impurity, or covetousness,
 etc.
 
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
@@ -4192,7 +4235,7 @@ etc.
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
   not associate with them;
 
-4.12.32. Get to know Jesus by following His commandments
+4.12.33. Get to know Jesus by following His commandments
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
   does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
@@ -4236,7 +4279,7 @@ God:
   saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen Abraham? Jesus
   said to them, Truly, truly, I say to you, before Abraham was, I am.
 
-4.12.33. Atonement
+4.12.34. Atonement
 
 Jesus' sacrifice is the only atonement for our sin we need. It's comprehensive. It must be received through faith
 in Jesus Christ - and that is not mere belief but obedience:
@@ -4343,7 +4386,7 @@ Follow Jesus through the new and living Way:
   the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment,
   and a fury of fire that will consume the adversaries.
 
-4.12.34. Whoever makes an appeal to God, calls upon His name will be saved
+4.12.35. Whoever makes an appeal to God, calls upon His name will be saved
 
 |  :  1941  epikaleomai  ep-ee-kal-eh'-om-ahee
 | 
@@ -20455,11 +20498,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 Download
 PDF, TEXT, MARKDOWN, ORG
 
-Date: 2024-04-22 Mon 00:00
+Date: 2024-04-23 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-22 Mon 23:41
+Created: 2024-04-23 Tue 19:40
 
 Validate
 

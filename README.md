@@ -196,7 +196,7 @@ Whoever keeps His **commandments** (plural) abides in Jesus, and Jesus in them. 
 
 ## In God's mercy, we come to obedient faith and come into Christ Jesus
 
-"At one time disobedient, but now disobedient" means we are brought to obedience.
+"At one time disobedient&#x2026;" means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
 > **Romans 11:30-32** - Just as you were <ins>at one time disobedient</ins> to God but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For **God has consigned all to disobedience, that he may have mercy on all.** (ESV)
 
@@ -1198,6 +1198,12 @@ There is a transformation in the heart of a born-again Christian that involves c
 
 ## I believe that a loving, trusting ( <ins>believing</ins> and <ins>obedient</ins> ) heart for Jesus Christ is essential for permanent abiding in Him
 
+After believing in Him we must go ahead in the teaching of Christ:
+
+> **II John 1:9** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+Jesus loved us before we loved Him:
+
 > **I John 4:19** - We love because he first loved us. (ESV)
 
 If someone obeys Jesus they should arrive at belief in Jesus and who He is and what He has accomplished; they should accept Him:
@@ -1636,9 +1642,19 @@ Walk according to the will of God. Walk the way Jesus Christ has called us to wa
 
 > **Galatians 5:16-18** - But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But **if** you are led by the Spirit, you are not under the law.
 
+Jesus' disciples here were being led by Jesus:
+
+> **Matthew 12:1-8** - At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry, and they began to pluck heads of grain and to eat. But when the Pharisees saw it, they said to him, Look, your disciples are doing what is not lawful to do on the Sabbath. He said to them, Have you not read what David did when he was hungry, and those who were with him: how he entered the house of God and ate the bread of the Presence, which it was not lawful for him to eat nor for those who were with him, but only for the priests? Or have you not read in the Law how on the Sabbath the priests in the temple profane the Sabbath and are guiltless? I tell you, something greater than the temple is here. And if you had known what this means, I desire mercy, and not sacrifice, you would not have condemned the guiltless. For the Son of Man is lord of the Sabbath. (ESV)
+
 Those who love Him, obey Him:
 
-> **James 1:12** - Blessed is the man who remains steadfast under **trial,** for when he has stood the test he will receive the <ins>crown of life,</ins> which God has promised to those who love him. (ESV)
+> **John 14:15-16** - **If you love me, you will keep my commandments.** And I will ask the Father, and he will give you another Helper, to be with you forever, (ESV)
+
+> **James 1:12** - Blessed is the man who remains steadfast under **trial,** for when he has stood the test he will receive the <ins>crown of life,</ins> which God has promised to **those who love him.** (ESV)
+
+We love God and our brothers and sisters in Christ by following God's commandments:
+
+> **I John 5:1-3** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
 The crown of life is gifted to those who are obedient, and have been tested:
 
@@ -2464,6 +2480,15 @@ So the blood of Jesus covers us while we are following Him.
 Jesus is also extremely merciful to the woman who was brought before Jesus:
 
 > **John 8:10-11** - Jesus stood up and said to her, Woman, where are they? Has no one condemned you? She said, No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more. (ESV)
+
+
+### Jesus Christ **is** the word of life, Jesus Christ **is** the eternal life
+
+> **I John 1:1-3** - That which was from the beginning, which we have heard, which we have seen with our eyes, which we looked upon and have touched with our hands, concerning the word of life— the life was made manifest, and we have seen it, and testify to it and proclaim to you the eternal life, which was with the Father and was made manifest to us— that which we have seen and heard we proclaim also to you, so that you too may have fellowship with us; and indeed our fellowship is with the Father and with his Son Jesus Christ. (ESV)
+
+That is why we must believe in Him and obey His commandments:
+
+> **I John 5:3-5** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of God? (ESV)
 
 
 ### Simply tell the truth from God. We must not reject Jesus
