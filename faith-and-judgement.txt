@@ -74,9 +74,13 @@ As we go ahead, we must abide in the teaching of Christ, or we won't have God:
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
 
-To know Jesus, we must obey His commandments.
+To get to know Jesus, we must obey His commandments:
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+  John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
+  disciples, and you will know the truth, and the truth will set you free. (ESV)
 
 We have to put sin away after we come to believe in Him:
 
@@ -131,7 +135,14 @@ There is a change in our lives:
 And eventually His commandments become unburdensome, and we're keeping them, and we have confidence we have come
 to know Him:
 
-  I John 2:3 - And by this we know that we have come to know him, if we keep his commandments. (ESV)
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+If you want to really get to know someone then you would learn to walk in their footsteps. Belief must arrive in
+the heart, not merely the head. There's a confession, an admittance, and a belief in the heart:
+
+  Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
+  raised him from the dead, you will be saved. (ESV)
 
 2.0.1. That's because God gives us a new spirit to obey Him:
 
@@ -537,7 +548,7 @@ Keeping means, not only having them but also keeping, obeying them:
   not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
   I John 5:3 - For this is the love of God, that we keep his commandments. And his commandments are not
-  burdensome.
+  burdensome. (ESV)
 
   John 8:55 - But you have not known him. I know him. If I were to say that I do not know him, I would be a liar
   like you, but I do know him and I keep his word. (ESV)
@@ -1566,8 +1577,8 @@ The knowledge comes from having obeyed God's voice. Love becomes perfected in us
   and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
   judgment, because as he is so also are we in this world.
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
-  (ESV)
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
   John 8:55 - But you have not known him. I know him. If I were to say that I do not know him, I would be a liar
   like you, but I do know him and I keep his word. (ESV)
@@ -2270,7 +2281,7 @@ believing faith in Jesus Christ, and even then there is often a race and a journ
 The knowledge of the truth is for those who abide in Jesus' word and follow Him:
 
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
-  disciples, and you will know the truth, and the truth will set you free.
+  disciples, and you will know the truth, and the truth will set you free. (ESV)
 
 I believe that obedience is as intrinsic and necessary to faith as belief is.
 
@@ -3304,7 +3315,7 @@ We're under the law of Christ, and that shouldn't be a heavy burden:
   Galatians 6:2 - Bear one another's burdens, and so fulfill the law of Christ.
 
   I John 5:3 - For this is the love of God, that we keep his commandments. And his commandments are not
-  burdensome.
+  burdensome. (ESV)
 
 You must obey Jesus, and that is choosing light and choosing love:
 
@@ -3360,7 +3371,7 @@ Believe:
 Obey:
 
   I John 5:3 - For this is the love of God, that we keep his commandments. And his commandments are not
-  burdensome.
+  burdensome. (ESV)
 
 Believe and obey:
 
@@ -4035,6 +4046,7 @@ from the dead on the third day and has ascended to the Father and sits at His ri
 But I am still seeking hearing that acknowledgement by continuing in Jesus' word, endeavoring to keep Jesus'
 commandments. I certainly have heard many false and deceptive voices, even blasphemy. So I mean, if the devil or
 evil spirits can speak lies to me then I just have total confidence that at the right time I'll hear from God.
+
 Therefore, I will continue to endeavour to keep Jesus' commandments:
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
@@ -4042,6 +4054,12 @@ Therefore, I will continue to endeavour to keep Jesus' commandments:
 
 So it's really important that I remain faithful to Jesus and do my best to not compromise or be swayed by people
 who deter me from keeping Jesus' commandments.
+
+And eventually His commandments become unburdensome, and we're keeping them, and we have confidence we have come
+to know Him:
+
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 4.12.19. Jesus is the Lamb of God who sits with God on God's throne
 
@@ -4394,8 +4412,8 @@ The righteousness from God that depends on faith, faith in Christ:
 
 Jesus literally commanded us to behave in this way, so keep Jesus' commandments:
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in
-  him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says
+  I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 One example of a command from Jesus:
 
@@ -4628,7 +4646,8 @@ etc.
 You can't have an abundant life without knowing Jesus, so we must have faith in God and follow Jesus' commandments
 to get to know Him:
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 You must obey Jesus:
 
@@ -5122,7 +5141,8 @@ Repentance from sin, obeying Jesus Christ, making Jesus your Lord and Saviour:
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 You must obey Jesus:
 
@@ -6486,7 +6506,8 @@ Love Jesus (being obedient to Him) and believe that He came from God:
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
   does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
@@ -6602,7 +6623,7 @@ Faith:
 - Belief and obedience leads to true knowledge, and after true knowledge, fruit
 
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
-  disciples, and you will know the truth, and the truth will set you free.
+  disciples, and you will know the truth, and the truth will set you free. (ESV)
 
 Also, the Old Testament speaks a lot about how to walk in righteousness:
 
@@ -6914,8 +6935,8 @@ mind.
 
   Hebrews 5:9 - And being made perfect, he became the source of eternal salvation to all who obey him,
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in
-  him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says
+  I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness, and
 saved from sinning, and even start doing good works pleasing to God.
@@ -7789,7 +7810,8 @@ His will, and us wanting to obey Him
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 Even the demons are subject to the authority of Jesus Christ, but they certainly don't have a response of love for
 God.
@@ -15565,7 +15587,8 @@ follow them with the faith of Abraham.
   burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome
   the world-our faith.
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 Getting to know Jesus will come to result in you too abiding in the Son and in the Father.
 
@@ -19227,7 +19250,8 @@ So I was born-again of the Spirit and when that happened I was given some very s
 exists, but I still had to seek Jesus because the Bible says that anyone who claims to know Jesus but doesn't walk
 in His commandments is not telling the truth, and I want to come to know Jesus.
 
-  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 John the Baptist taught repentance and love for one's neighbour before receiving the baptisim of the Holy Spirit:
 
@@ -21080,11 +21104,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 Download
 PDF, TEXT, MARKDOWN, ORG
 
-Date: 2024-04-27 Sat 00:00
+Date: 2024-04-28 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-27 Sat 20:09
+Created: 2024-04-28 Sun 08:56
 
 Validate
 
