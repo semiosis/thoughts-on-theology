@@ -1884,12 +1884,15 @@ The ones who are slaves to righteousness, following Jesus Christ, go to eternal 
 
 ### My understanding of repentance
 
+We repent from dead works towards abiding in the love of God.
+
 We need <ins>all</ins> of these:
 
 -   Belief in Jesus and His atoning sacrifice
--   Obedience to Jesus' commandments
+-   Obedience to Jesus' commandments - to love Jesus and abide in God's love
     -   Obeying the law of Christ
--   Putting a stop to sin
+        -   **Galatians 6:2** - Bear one another's burdens, and so fulfill the law of Christ. (ESV)
+-   Putting a stop to sin (for our own good)
     -   [You CANNOT Keep Living Like a DEVIL| {The Cheap Gospel EXPOSED!!} - YouTube](https://www.youtube.com/watch?v=k_g1Z6q_f4M)
 
 > **II Chronicles 7:14** - if my people who are called by my name humble themselves, and pray and seek my face and turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
@@ -1908,6 +1911,20 @@ Jesus' sheep hear His voice and they follow Him:
 We love Jesus by keeping His commandments:
 
 > **John 14:21** - Whoever has my commandments and **keeps them**, **he it is who loves me**. And he who loves me <ins>will be loved by my Father,</ins> and I will love him and manifest myself to him. (ESV)
+
+We love God by loving Jesus, who He sent. And we love God that we may live:
+
+> **Deuteronomy 30:6** - And the LORD your God will circumcise your heart and the heart of your offspring, so that you will **love the LORD your God** <ins>with all your heart and with all your soul</ins>, **that you may live**. (ESV)
+
+> **John 15:23** - Whoever hates me hates my Father also. (ESV)
+
+We must recognise that God loved us and sent his Son to be the propitiation for our sins:
+
+> **I John 4:10** - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. (ESV)
+
+Our response of love for God is a response to His love for us:
+
+> **I John 4:19** - We love because he first loved us. (ESV)
 
 Nothing will be able to separate us from the love of God in Christ Jesus our Lord. He has to be our Lord:
 
