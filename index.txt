@@ -7732,9 +7732,8 @@ His will, and us wanting to obey Him
 
   I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
 
-Even the demons are subject to the authority of Jesus Christ.
-
-So are you are demon or are you one of Jesus' sheep?
+Even the demons are subject to the authority of Jesus Christ, but they certainly don't have a response of love for
+God.
 
   John 6:70 - Jesus answered them, Did I not choose you, the Twelve? And yet one of you is a devil. (ESV)
 
@@ -21025,7 +21024,7 @@ Date: 2024-04-27 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-04-27 Sat 13:58
+Created: 2024-04-27 Sat 14:02
 
 Validate
 
