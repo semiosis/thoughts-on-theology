@@ -101,6 +101,23 @@ Belief leads to obedience which leads to knowledge of the truth:
   you abide in my word, you are truly my disciples, and you will know
   the truth, and the truth will set you free. (ESV)
 
+Eternal life is knowing God and Jesus Christ who He has sent:
+
+  John 17:3 - And this is eternal life, that they know you the only true
+  God, and Jesus Christ whom you have sent. (ESV)
+
+We need to take hold of it:
+
+  I Timothy 6:12 - Fight the good fight of the faith. Take hold of the
+  eternal life to which you were called and about which you made the
+  good confession in the presence of many witnesses. (ESV)
+
+We should labor for the food that endures to eternal life:
+
+  John 6:27 - Do not labor for the food that perishes, but for the food
+  that endures to eternal life, which the Son of Man will give to you.
+  For on him God the Father has set his seal. (ESV)
+
 We have to put sin away after we come to believe in Him:
 
   Colossians 3:5-10 - Put to death therefore what is earthly in you:
@@ -329,6 +346,20 @@ us to obey God.
   into his mother's womb and be born? Jesus answered, Truly, truly, I
   say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. (ESV)
+
+2.1.3. The Holy Spirit may teach us even before He is in us, by helping us
+as He dwells with us
+
+  John 14:16-21 - And I will ask the Father, and he will give you
+  another Helper, to be with you forever, even the Spirit of truth, whom
+  the world cannot receive, because it neither sees him nor knows him.
+  You know him, for he dwells with you and will be in you. I will not
+  leave you as orphans; I will come to you. Yet a little while and the
+  world will see me no more, but you will see me. Because I live, you
+  also will live. In that day you will know that I am in my Father, and
+  you in me, and I in you. Whoever has my commandments and keeps them,
+  he it is who loves me. And he who loves me will be loved by my Father,
+  and I will love him and manifest myself to him. (ESV)
 
 2.2. Eventually our own will lines up with God's will
 
@@ -4897,7 +4928,35 @@ So to receive the Holy Spirit:
 - ask God for the Holy Spirit!
 - lay your life down for Jesus
 
-4.11. Becoming a servant, humbling oneself and following Jesus is what we
+4.11. The work of the Holy Spirit
+
+4.11.1. The Holy Spirit may teach us even before He is in us, by helping
+us as He dwells with us
+
+  John 14:16-21 - And I will ask the Father, and he will give you
+  another Helper, to be with you forever, even the Spirit of truth, whom
+  the world cannot receive, because it neither sees him nor knows him.
+  You know him, for he dwells with you and will be in you. I will not
+  leave you as orphans; I will come to you. Yet a little while and the
+  world will see me no more, but you will see me. Because I live, you
+  also will live. In that day you will know that I am in my Father, and
+  you in me, and I in you. Whoever has my commandments and keeps them,
+  he it is who loves me. And he who loves me will be loved by my Father,
+  and I will love him and manifest myself to him. (ESV)
+
+4.11.2. Teaching us, leading us into the Truth
+
+  John 16:13 - When the Spirit of truth comes, he will guide you into
+  all the truth, for he will not speak on his own authority, but
+  whatever he hears he will speak, and he will declare to you the things
+  that are to come. (ESV)
+
+  I John 2:27 - But the anointing that you received from him abides in
+  you, and you have no need that anyone should teach you. But as his
+  anointing teaches you about everything-and is true and is no lie, just
+  as it has taught you-abide in him. (ESV)
+
+4.12. Becoming a servant, humbling oneself and following Jesus is what we
 should do
 
 A religious spirit is:
@@ -4983,10 +5042,10 @@ You must obey Jesus, and that is choosing light and choosing love:
   fathers. You serpents, you brood of vipers, how are you to escape
   being sentenced to hell? (ESV)
 
-4.12. I believe that I should try as hard as I can to enter via the narrow
+4.13. I believe that I should try as hard as I can to enter via the narrow
 gate
 
-4.12.1. Narrow is the gate and hard is the way that leads to life
+4.13.1. Narrow is the gate and hard is the way that leads to life
 
   Matthew 7:13 - Enter by the narrow gate. For the gate is wide and the
   way is easy that leads to destruction, and those who enter by it are
@@ -5023,7 +5082,7 @@ Believe and obey:
   Jude 1:21 - keep yourselves in the love of God, waiting for the mercy
   of our Lord Jesus Christ that leads to eternal life.
 
-4.12.2. Wide gate
+4.13.2. Wide gate
 
 Either of:
 
@@ -5084,7 +5143,7 @@ These people just sat around watching Jesus but didn't obey Him:
   streets. But he will say, I tell you, I do not know where you come
   from. Depart from me, all you workers of evil!
 
-4.12.3. Obedience to Jesus has everything to do with receiving Him, and
+4.13.3. Obedience to Jesus has everything to do with receiving Him, and
 receiving Salvation
 
   Hebrews 3:18 - And to whom did he swear that they would not enter his
@@ -5142,7 +5201,7 @@ The gospel teaches us to serve the Lord Jesus.
   II Corinthians 13:14 - The grace of the Lord Jesus Christ and the love
   of God and the fellowship of the Holy Spirit be with you all. (ESV)
 
-4.12.4. Disobedience
+4.13.4. Disobedience
 
 Let us continue following and obeying Jesus, and not turn back:
 
@@ -5179,7 +5238,7 @@ John Piper - God's Delight in Obedience - YouTube
   as iniquity and idolatry. Because you have rejected the word of the
   LORD, he has also rejected you from being king. (ESV)
 
-4.12.5. The way is easy that leads to destruction
+4.13.5. The way is easy that leads to destruction
 
   Matthew 7:13 - Enter by the narrow gate. For the gate is wide and the
   way is easy that leads to destruction, and those who enter by it are
@@ -5187,7 +5246,7 @@ John Piper - God's Delight in Obedience - YouTube
 
 I'm not the judge. But Jesus's words which He left us will be the judge.
 
-4.12.6. Narrow gate
+4.13.6. Narrow gate
 
   II Peter 1:10 - Therefore, brothers, be all the more diligent to make
   your calling and election sure, for if you practice these qualities
@@ -5218,7 +5277,7 @@ Asking Jesus to save me:
 I can only say that salvation was a total gift for me, an unrighteous
 sinner. But I'm still working it out.
 
-4.12.7. The narrow gate vitally requires submitting to God's
+4.13.7. The narrow gate vitally requires submitting to God's
 righteousness. We need God's forgiveness and His justification that comes
 through faith
 
@@ -5263,7 +5322,7 @@ heart. The tax collector has faith. It's not our own righteousness which
 is sufficient, but Jesus Christ's righteousness imputed onto us when we
 are in Him. We must have faith in Jesus.
 
-4.12.8. We have to receive the Kingdom like a child. Don't resist Jesus or
+4.13.8. We have to receive the Kingdom like a child. Don't resist Jesus or
 His teachings - follow Jesus
 
 I accept that I need Jesus to have mercy on me. Because my own
@@ -5324,7 +5383,7 @@ His Spirit:
   he it is who loves me. And he who loves me will be loved by my Father,
   and I will love him and manifest myself to him. (ESV)
 
-4.12.9. We have to believe in and obey Jesus. We all fall short but we
+4.13.9. We have to believe in and obey Jesus. We all fall short but we
 still must have faith in Jesus
 
 He is the Light, and He wants to give us the light of life but we have
@@ -5396,7 +5455,7 @@ accepted Him as their Saviour.
   Hebrews 10:26 - For if we go on sinning willfully after receiving the
   knowledge of the truth, there no longer remains a sacrifice for sins,
 
-4.12.10. All judgement has been given to Jesus
+4.13.10. All judgement has been given to Jesus
 
 We must love Jesus and follow Him. Jesus is the judge. Our obedience to
 Jesus matters. Because the righteousness of God is received through
@@ -5427,7 +5486,7 @@ faith. We are implored to strive to follow Jesus to our best ability:
   good to the resurrection of life, and those who have done evil to the
   resurrection of judgment. (ESV)
 
-4.12.11. The gospel has to be obeyed
+4.13.11. The gospel has to be obeyed
 
   II Thessalonians 1:4-8 - Therefore we ourselves boast about you in the
   churches of God for your steadfastness and faith in all your
@@ -5455,7 +5514,7 @@ faith. We are implored to strive to follow Jesus to our best ability:
   sinner? Therefore let those who suffer according to God's will entrust
   their souls to a faithful Creator while doing good.
 
-4.12.12. God will be the judge of who has had faith in Jesus, and who has
+4.13.12. God will be the judge of who has had faith in Jesus, and who has
 obeyed Him. I wouldn't take obedience lightly
 
   Luke 20:13-18 - Then the owner of the vineyard said, What shall I do?
@@ -5485,7 +5544,7 @@ Also, Jesus didn't actually deny that He is good:
 
 Nevertheless, we should follow Jesus.
 
-4.12.13. Let us serve Jesus Christ in truth, and have confidence
+4.13.13. Let us serve Jesus Christ in truth, and have confidence
 
   I John 3:21 - Beloved, if our heart does not condemn us, we have
   confidence before God;
@@ -5497,7 +5556,7 @@ Nevertheless, we should follow Jesus.
   confidence for the day of judgment, because as he is so also are we in
   this world.
 
-4.12.14. We must recognise that where our efforts to obey falls short,
+4.13.14. We must recognise that where our efforts to obey falls short,
 Jesus's blood covers us. But we must still have the heart to make Jesus
 our Lord and King, and be following Him
 
@@ -5509,7 +5568,7 @@ But we must be walking in the light, just as He is in the light.
 
 So the blood of Jesus covers us while we are following Him.
 
-4.12.15. Do not condemn others. Speak the truth and leave judgement to the
+4.13.15. Do not condemn others. Speak the truth and leave judgement to the
 Judge
 
   John 8:16-18 - Yet even if I do judge, my judgment is true, for it is
@@ -5528,7 +5587,7 @@ Jesus:
   Has no one condemned you? She said, No one, Lord. And Jesus said,
   Neither do I condemn you; go, and from now on sin no more. (ESV)
 
-4.12.16. Jesus Christ is the word of life, Jesus Christ is the eternal
+4.13.16. Jesus Christ is the word of life, Jesus Christ is the eternal
 life
 
   I John 1:1-3 - That which was from the beginning, which we have heard,
@@ -5548,7 +5607,7 @@ That is why we must believe in Him and obey His commandments:
   that has overcome the world-our faith. Who is it that overcomes the
   world except the one who believes that Jesus is the Son of God? (ESV)
 
-4.12.17. Simply tell the truth from God. We must not reject Jesus
+4.13.17. Simply tell the truth from God. We must not reject Jesus
 
   John 8:21-24 - So he said to them again, I am going away, and you will
   seek me, and you will die in your sin. Where I am going, you cannot
@@ -5581,7 +5640,7 @@ be obedient to Jesus Christ:
   to me, is greater than all, and no one is able to snatch them out of
   the Father's hand.
 
-4.12.18. Jesus is Almighty God's Son and is sitting in Power next to His
+4.13.18. Jesus is Almighty God's Son and is sitting in Power next to His
 Father
 
 Jesus is One with Almighty God and their will is in perfect alignment.
@@ -5960,6 +6019,20 @@ them, and we have confidence we have come to know Him:
   we keep his commandments. Whoever says I know him but does not keep
   his commandments is a liar, and the truth is not in him, (ESV)
 
+Also, the Holy Spirit may teach us even before He is in us, by helping
+us as He dwells with us, and eventually will be in us:
+
+  John 14:16-21 - And I will ask the Father, and he will give you
+  another Helper, to be with you forever, even the Spirit of truth, whom
+  the world cannot receive, because it neither sees him nor knows him.
+  You know him, for he dwells with you and will be in you. I will not
+  leave you as orphans; I will come to you. Yet a little while and the
+  world will see me no more, but you will see me. Because I live, you
+  also will live. In that day you will know that I am in my Father, and
+  you in me, and I in you. Whoever has my commandments and keeps them,
+  he it is who loves me. And he who loves me will be loved by my Father,
+  and I will love him and manifest myself to him. (ESV)
+
 Also, it's important to purify ourselves, as we hope in Him:
 
   I John 3:1-3 - See what kind of love the Father has given to us, that
@@ -5970,7 +6043,7 @@ Also, it's important to purify ourselves, as we hope in Him:
   him as he is. And everyone who thus hopes in him purifies himself as
   he is pure. (ESV)
 
-4.12.19. Jesus has overcome the world
+4.13.19. Jesus has overcome the world
 
   John 16:33 - I have said these things to you, that in me you may have
   peace. In the world you will have tribulation. But take heart; I have
@@ -5999,7 +6072,7 @@ AMEN!!
 Song
 Darlene Zschech - In Jesus' Name | Official Live Video - YouTube
 
-4.12.20. Jesus is the Lamb of God who sits with God on God's throne
+4.13.20. Jesus is the Lamb of God who sits with God on God's throne
 
 Jesus Christ is our God. Forever, He is Father God's revelation to us of
 Himself.
@@ -6029,7 +6102,7 @@ Himself.
   but the throne of God and of the Lamb will be in it, and his servants
   will worship him. (ESV)
 
-4.12.21. Follow Jesus for eternal life. Jesus is the Bread of Life
+4.13.21. Follow Jesus for eternal life. Jesus is the Bread of Life
 
   Luke 18:18-22 - And a ruler asked him, Good Teacher, what must I do to
   inherit eternal life? And Jesus said to him, Why do you call me good?
@@ -6040,7 +6113,7 @@ Himself.
   you still lack. Sell all that you have and distribute to the poor, and
   you will have treasure in heaven; and come, follow me.
 
-4.12.22. Believe Jesus and allow His word to abide in you
+4.13.22. Believe Jesus and allow His word to abide in you
 
   John 5:46-47 - If you believed Moses, you would believe me; for he
   wrote of me. But if you do not believe his writings, how will you
@@ -6093,7 +6166,7 @@ Jesus speaks of what He has seen with His Father:
   John 8:38 - I speak of what I have seen with my Father, and you do
   what you have heard from your father.
 
-4.12.23. We are implored to love Jesus and follow Him
+4.13.23. We are implored to love Jesus and follow Him
 
 We need to love Jesus because He came from God, to show us the Way as
 the Light of the world.
@@ -6120,7 +6193,7 @@ eternal life:
   what he suffered. And being made perfect, he became the source of
   eternal salvation to all who obey him, (ESV)
 
-4.12.24. We must listen to Jesus
+4.13.24. We must listen to Jesus
 
   Luke 9:35 - Then a voice came out of the cloud, saying, "This is My
   Son, My Chosen One; listen to Him!"
@@ -6134,7 +6207,7 @@ eternal life:
   you not believe me? Whoever is of God hears the words of God. The
   reason why you do not hear them is that you are not of God.
 
-4.12.25. We are implored to honour Jesus
+4.13.25. We are implored to honour Jesus
 
   John 8:48-49 - The Jews answered him, Are we not right in saying that
   you are a Samaritan and have a demon? Jesus answered, I do not have a
@@ -6149,13 +6222,13 @@ eternal life:
   life. He does not come into judgment, but has passed from death to
   life.
 
-4.12.26. We are implored to keep Jesus' words
+4.13.26. We are implored to keep Jesus' words
 
   John 8:50-51 - Yet I do not seek my own glory; there is One who seeks
   it, and he is the judge. Truly, truly, I say to you, if anyone keeps
   my word, he will never see death.
 
-4.12.27. We must receive Jesus. Jesus is God's Only-Begotten Son
+4.13.27. We must receive Jesus. Jesus is God's Only-Begotten Son
 
   John 8:52-59 - The Jews said to him, Now we know that you have a
   demon! Abraham died, as did the prophets, yet you say, If anyone keeps
@@ -6171,7 +6244,7 @@ eternal life:
   say to you, before Abraham was, I am. So they picked up stones to
   throw at him, but Jesus hid himself and went out of the temple.
 
-4.12.28. Even those who have faith in Jesus Christ's name may have the
+4.13.28. Even those who have faith in Jesus Christ's name may have the
 right to be born of God and become children of God
 
 The worldly people rejected Him. Neither did His own people receive Him.
@@ -6220,7 +6293,7 @@ The worldly people rejected Him. Neither did His own people receive Him.
 
 AMEN!!
 
-4.12.29. We must do the will of God, which is the food and drink which
+4.13.29. We must do the will of God, which is the food and drink which
 Jesus gives us
 
   John 6:27 - Do not labor for the food that perishes, but for the food
@@ -6279,7 +6352,7 @@ in faith towards God.
   good to the resurrection of life, and those who have done evil to the
   resurrection of judgment. (ESV)
 
-4.12.30. Having faith (living in accordance with the truth, and in
+4.13.30. Having faith (living in accordance with the truth, and in
 relationship with God) is asked of us - faith continues
 
 What I mean by relationship is:
@@ -6659,7 +6732,7 @@ of God:
   Philippians 2:13 - for it is God who works in you, both to will
   and to work for his good pleasure. (ESV)
 
-4.12.31. We must be wanting to be cleaned of sin
+4.13.31. We must be wanting to be cleaned of sin
 
 We must look upon Jesus and stop sexual immorality and stop idolatry.
 The stories mentioned here are examples for us to follow:
@@ -6733,7 +6806,7 @@ Jesus implies you must obey Him (Jesus) to be part of His family:
 Devotional
 Word for today - Do God's word - March 7th
 
-4.12.32. The obedient children are the ones who are not conformed to the
+4.13.32. The obedient children are the ones who are not conformed to the
 passions of our former ignorance
 
   I Peter 1:14-16 - As obedient children, do not be conformed to the
@@ -6750,7 +6823,7 @@ I know I can testify to this fiery trial being a real thing:
   perishable things such as silver or gold, but with the precious blood
   of Christ, like that of a lamb without blemish or spot. (ESV)
 
-4.12.33. The sons of disobedience are the ones who are conformed to sexual
+4.13.33. The sons of disobedience are the ones who are conformed to sexual
 immorality, impurity, or covetousness, etc.
 
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is
@@ -6760,7 +6833,7 @@ immorality, impurity, or covetousness, etc.
   God comes upon the sons of disobedience. Therefore do not associate
   with them;
 
-4.12.34. If we trust in the name of the Son of God, Jesus Christ, we have
+4.13.34. If we trust in the name of the Son of God, Jesus Christ, we have
 eternal life
 
   I John 5:10-13 - Whoever believes in the Son of God has the testimony
@@ -6785,7 +6858,7 @@ You must obey Jesus, and that is choosing light and choosing love:
   not obey the Son shall not see life, but the wrath of God remains on
   him. (ESV)
 
-4.12.35. Get to know Jesus by following His commandments
+4.13.35. Get to know Jesus by following His commandments
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter
   the kingdom of heaven, but the one who does the will of my Father who
@@ -6856,7 +6929,7 @@ Father God's commandments, and knows Father God:
   not yet fifty years old, and have you seen Abraham? Jesus said to
   them, Truly, truly, I say to you, before Abraham was, I am.
 
-4.12.36. Atonement
+4.13.36. Atonement
 
 Jesus' sacrifice is the only atonement for our sin we need. It's
 comprehensive. It must be received through faith in Jesus Christ - and
@@ -6998,7 +7071,7 @@ Follow Jesus through the new and living Way:
   longer remains a sacrifice for sins, but a fearful expectation of
   judgment, and a fury of fire that will consume the adversaries.
 
-4.12.37. Whoever makes an appeal to God, calls upon His name will be saved
+4.13.37. Whoever makes an appeal to God, calls upon His name will be saved
 
 |  :  1941  epikaleomai  ep-ee-kal-eh'-om-ahee
 | 
@@ -7143,24 +7216,24 @@ perform baptism. Baptism does save.
 CHRIST IS ENOUGH - HILLSONG LIVE LYRIC VIDEO | GLORIOUS RUINS 2013 -
 YouTube
 
-4.13. Obedience - A heart of obedience is the start of faith, and belief is
+4.14. Obedience - A heart of obedience is the start of faith, and belief is
 the start of continued obedience
 
-4.13.1. Continued revelation comes from having a heart of obedience
+4.14.1. Continued revelation comes from having a heart of obedience
 towards God
 
   John 7:17 - If anyone's will is to do God's will, he will know whether
   the teaching is from God or whether I am speaking on my own authority.
   (ESV)
 
-4.13.2. God's commanded is for everyone to come to the obedience of having
+4.14.2. God's commanded is for everyone to come to the obedience of having
 faith in Him through Jesus Christ
 
   Romans 16:26 - but has now been disclosed and through the prophetic
   writings has been made known to all nations, according to the command
   of the eternal God, to bring about the obedience of faith - (ESV)
 
-4.13.3. Fear of the Lord
+4.14.3. Fear of the Lord
 
   Isaiah 11:2 - And the Spirit of the Lord shall rest upon him, the
   Spirit of wisdom and understanding, the Spirit of counsel and might,
@@ -7220,7 +7293,7 @@ We make it our aim to please him:
   Proverbs 19:23 - The fear of the Lord leads to life, and whoever has
   it rests satisfied; he will not be visited by harm.
 
-4.14. Repentance does involve turning from sin
+4.15. Repentance does involve turning from sin
 
   Luke 24:46-47 - and said to them, Thus it is written, that the Christ
   should suffer and on the third day rise from the dead, and that
@@ -7253,7 +7326,7 @@ We make it our aim to please him:
   it will be more bearable on the day of judgment for Tyre and Sidon
   than for you.
 
-4.14.1. Justification by having faith like Abraham in He who raised Jesus
+4.15.1. Justification by having faith like Abraham in He who raised Jesus
 Christ from the dead
 
 Paul the Apostle met James, brother of Jesus:
@@ -7424,7 +7497,7 @@ So obeying Jesus Christ is having faith in God:
   Lord, who was delivered up for our trespasses and raised for our
   justification. (ESV)
 
-4.15. The obedient children are the ones who are not conformed to the
+4.16. The obedient children are the ones who are not conformed to the
 passions of our former ignorance
 
   I Peter 1:14-16 - As obedient children, do not be conformed to the
@@ -7432,7 +7505,7 @@ passions of our former ignorance
   you also be holy in all your conduct, since it is written, You shall
   be holy, for I am holy.
 
-4.15.1. Jesus Christ has explained what the faith of Abraham looks like
+4.16.1. Jesus Christ has explained what the faith of Abraham looks like
 for someone who believes in Him
 
 Repentance from sin, obeying Jesus Christ, making Jesus your Lord and
@@ -7461,7 +7534,7 @@ Saviour:
   of the scribes and Pharisees, you will never enter the kingdom of
   heaven. (ESV)
 
-4.16. Get to know Jesus by following His commandments
+4.17. Get to know Jesus by following His commandments
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter
   the kingdom of heaven, but the one who does the will of my Father who
@@ -7513,7 +7586,7 @@ pisteuo is the faith verb.
 So the promise is for all who put their faith in God by obeying Jesus
 Christ with the faith of Abraham to a greater or lesser degree.
 
-4.17. The sons of disobedience are the ones who are conformed to sexual
+4.18. The sons of disobedience are the ones who are conformed to sexual
 immorality, impurity, or covetousness, etc.
 
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is
@@ -7523,7 +7596,7 @@ immorality, impurity, or covetousness, etc.
   God comes upon the sons of disobedience. Therefore do not associate
   with them;
 
-4.17.1. All sin is lawlessness
+4.18.1. All sin is lawlessness
 
 If we are led by the spirit then we are not under the Mosaic law. So we
 should stop sinning as it is described by such works of the flesh as
@@ -8514,6 +8587,8 @@ follow me. (ESV)
 - obedience
 - sacrifice
 - death
+- Lord, I Lift Your Name On High - Petra {Backtrack no guitar?} -
+YouTube
 
 We are sanctified by the Father in the way that Jesus was made perfect.
 We are made perfect the same way He was made perfect, by the sufferings
@@ -30801,7 +30876,7 @@ Date: 2024-05-06 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-06 Mon 16:52
+Created: 2024-05-06 Mon 17:17
 
 Validate
 
