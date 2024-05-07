@@ -5270,6 +5270,11 @@ You must obey Jesus, and that is choosing light and choosing love:
 
 4.13.35. Get to know Jesus by believing Him and following His commandments
 
+  John 10:14-15 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
+  the Father; and I lay down my life for the sheep. (ESV)
+
+  I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
   does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
   your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to
@@ -18498,7 +18503,33 @@ faith towards God, and serving God now.
   they were who did not believe, and who it was that would betray Him. And He was saying, "For this reason I have
   said to you, that no one can come to Me unless it has been granted him from the Father."
 
-52.5. Born of God
+52.5. Life is very different for me now after being born-again
+
+As you can see in this discussion, I've been born-again and I'm living to serve Jesus now:
+
+- https://github.com/semiosis/pen.el/issues
+
+  Colossians 3:3 - For you have died, and your life is hidden with Christ in God. (ESV)
+
+  I John 5:11 - And this is the testimony, that God gave us eternal life, and this life is in his Son. (ESV)
+
+  Luke 12:23 - For life is more than food, and the body more than clothing. (ESV)
+
+  Matthew 19:17 - And he said to him, Why do you ask me about what is good? There is only one who is good. If you
+  would enter life, keep the commandments. (ESV)
+
+  II Corinthians 5:17 - Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold,
+  the new has come.
+
+  Galatians 6:14 - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the world
+  has been crucified to me, and I to the world. (ESV)
+
+It's important to thank God, even though life can be challenging after being born-again:
+
+  I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for you.
+  (ESV)
+
+52.6. Born of God
 
 When a person is born-again of the Spirit, they receive the Spirit which helps them to stop sinning and it's
 really important to do so.
@@ -18558,7 +18589,7 @@ I feel like stopping sin is very important after being born again.
   John 5:14 - Afterward Jesus found him in the temple and said to him, See, you are well! Sin no more, that
   nothing worse may happen to you.
 
-52.6. Justification by faith for the both adherents of the law and the gentiles
+52.7. Justification by faith for the both adherents of the law and the gentiles
 
 Justification by faith is the correct teaching but the promise is for the gentiles AND the adherent of the law but
 they all must have faith, and pursuing the law as if by works is the problem, but pursuing the law by faith is ok.
@@ -18574,7 +18605,7 @@ they all must have faith, and pursuing the law as if by works is the problem, bu
   depends on faith, in order that the promise may rest on grace and be guaranteed to all his offspring-not only to
   the adherent of the law but also to the one who shares the faith of Abraham, who is the father of us all, (ESV)
 
-52.7. Paul used the law to judge back, but without hypocrisy
+52.8. Paul used the law to judge back, but without hypocrisy
 
   Matthew 23:27 - Woe to you, scribes and Pharisees, hypocrites! For you are like whitewashed tombs, which
   outwardly appear beautiful, but within are full of dead people's bones and all uncleanness.
@@ -18582,7 +18613,7 @@ they all must have faith, and pursuing the law as if by works is the problem, bu
   Acts 23:3 - Then Paul said to him, God is going to strike you, you whitewashed wall! Are you sitting to judge me
   according to the law, and yet contrary to the law you order me to be struck?
 
-52.8. Justified by God through faith [and works done in faith?]
+52.9. Justified by God through faith [and works done in faith?]
 
 All of these, for example, I believe belong under the umbrella of faith, not works:
 
@@ -18592,7 +18623,7 @@ All of these, for example, I believe belong under the umbrella of faith, not wor
 
 God will be the judge of who has had faith in Jesus, and who has obeyed Him.
 
-52.8.1. God is the one who justifies
+52.9.1. God is the one who justifies
 
   Romans 8:33 - Who shall bring any charge against God's elect? It is God who justifies.
 
@@ -18614,7 +18645,7 @@ think.
   Matthew 6:15 - but if you do not forgive others their trespasses, neither will your Father forgive your
   trespasses. (ESV)
 
-52.8.2. Justified by faith alone. But faith is substantiated by works
+52.9.2. Justified by faith alone. But faith is substantiated by works
 
   James 2:10 - For whoever keeps the whole law but fails in one point has become accountable for all of it. For he
   who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you
@@ -18808,7 +18839,7 @@ Faith is ongoing. Ongoing faith is patience endurance. Jesus says patience endur
   Revelation of John 2:19 - I know your works, your love and faith and service and patient endurance, and that
   your latter works exceed the first.
 
-52.8.3. Paul here mentions trust even for the one who trusts in Him who justifies the ungodly
+52.9.3. Paul here mentions trust even for the one who trusts in Him who justifies the ungodly
 
   Romans 4:2 - For if Abraham was justified by works, he has something to boast about, but not before God.
 
@@ -18823,7 +18854,7 @@ trusting faith is counted as righteousness.
 
 AMEN!! God is good for justifying people who are poor of spirit, and have fear of God.
 
-52.9. Conditional Promises In The New Testament
+52.10. Conditional Promises In The New Testament
 
 The Sermon on the Mount from Matthew 5 may better be understood as describing the transformation that happens when
 we are born-again.
@@ -19112,7 +19143,7 @@ Promise: Jesus will allow people to sit with Him on His throne
 Condition: Those that did not worship the beast, nor his image, nor received his mark (666)
 Promise: Some will live and reign with Christ for 1000 years.
 
-52.10. Body without spirit is dead. But I think the spirit without the body is still alive
+52.11. Body without spirit is dead. But I think the spirit without the body is still alive
 
   James 2:26 - For as the body apart from the spirit is dead, so also faith apart from works is dead.
 
@@ -19125,13 +19156,13 @@ Promise: Some will live and reign with Christ for 1000 years.
 
 Yet we await an imperishable body.
 
-52.11. Forgiveness and ongoing sin
+52.12. Forgiveness and ongoing sin
 
   I Corinthians 9:25-27 - Every athlete exercises self-control in all things. They do it to receive a perishable
   wreath, but we an imperishable. So I do not run aimlessly; I do not box as one beating the air. But I discipline
   my body and keep it under control, lest after preaching to others I myself should be disqualified.
 
-52.11.1. New covenant
+52.12.1. New covenant
 
   Jeremiah 31:31-34 - Behold, the days are coming, declares the LORD, when I will make a new covenant with the
   house of Israel and the house of Judah, not like the covenant that I made with their fathers on the day when I
@@ -19165,7 +19196,7 @@ Spirit.
 Jesus condemned sin in the flesh. Now we walk according to the spirit so that the righteous requirement of the law
 might be fulfilled in us. It's still really important to put a stop to sin!
 
-52.11.2. We must stop sinning after receiving the 'big forgiveness' for past sin
+52.12.2. We must stop sinning after receiving the 'big forgiveness' for past sin
 
   Matthew 12:33 - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the
   tree is known by its fruit.
@@ -19205,7 +19236,7 @@ We must stop sinning after the big forgiveness:
   happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the
   mire.
 
-52.11.3. We totally should stop sinning, since we await a place without sinning
+52.12.3. We totally should stop sinning, since we await a place without sinning
 
   II Peter 3:13-14 - But according to his promise we are waiting for new heavens and a new earth in which
   righteousness dwells. Therefore, beloved, since you are waiting for these, be diligent to be found by him
@@ -19244,7 +19275,7 @@ Circumcise your heart and do not be stubborn:
   your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and
   takes no bribe.
 
-52.11.4. The 'all time' means we can still approach Jesus for forgiveness for future sins
+52.12.4. The 'all time' means we can still approach Jesus for forgiveness for future sins
 
   Hebrews 10:12 - But when Christ had offered for all time a single sacrifice for sins, he sat down at the right
   hand of God,
@@ -19254,7 +19285,7 @@ Circumcise your heart and do not be stubborn:
   Hebrews 4:16 - Let us then with confidence draw near to the throne of grace, that we may receive mercy and find
   grace to help in time of need.
 
-52.11.5. If we sin
+52.12.5. If we sin
 
   1 John 1:9 - If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
   unrighteousness. (ESV)
@@ -24053,7 +24084,7 @@ Date: 2024-05-07 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-07 Tue 23:11
+Created: 2024-05-08 Wed 10:58
 
 Validate
 

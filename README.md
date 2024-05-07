@@ -101,7 +101,7 @@ A new creation lives for Christ:
 
 We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. We must be born-again. This is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
-> **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
+> **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The **old has passed away**; behold, the **new has come.**
 
 A **new creation** has <ins>faith working through love</ins> and <ins>keeps Jesus Christ's commandments</ins>:
 
@@ -1466,6 +1466,8 @@ We must also accept that Jesus Christ, God's Only-Begotten Son was raised from t
 
 > **I Corinthians 15:14-17** - And if Christ has not been raised, then our preaching is in vain and your faith is in vain. We are even found to be misrepresenting God, because we testified about God that he raised Christ, whom he did not raise if it is true that the dead are not raised. For if the dead are not raised, not even Christ has been raised. And if Christ has not been raised, your faith is futile and you are still in your sins. (ESV)
 
+> **Luke 24:24-27** - Some of those who were with us went to the tomb and found it just as the women had said, but him they did not see. And he said to them, O foolish ones, and slow of heart to believe all that the prophets have spoken! Was it not necessary that the Christ should suffer these things and enter into his glory? And beginning with Moses and all the Prophets, he interpreted to them in all the Scriptures the things concerning himself. (ESV)
+
 > **Romans 10:9** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
 
 I believe that trusting Jesus and obedience in the heart towards Jesus is required. Obedience to Jesus is love.
@@ -2193,7 +2195,7 @@ Abba, Father!
 
 We must be in Christ Jesus as a new creation:
 
-> **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
+> **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The **old has passed away**; behold, the **new has come.**
 
 A **new creation** has <ins>faith working through love</ins> and <ins>keeps Jesus Christ's commandments</ins>:
 
@@ -3723,6 +3725,10 @@ You **must** obey Jesus, and that is choosing **light** and choosing **love**:
 
 
 ### Get to know Jesus by believing Him and following His commandments
+
+> **John 10:14-15** - <ins>I am the good shepherd.</ins> I know my own and my own know me, just as the Father knows me and I know the Father; and I lay down my life for the sheep. (ESV)
+
+> **I Corinthians 8:3** - But if anyone loves God, he is known by God. (ESV)
 
 > **Matthew 7:21-27** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven.  On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many mighty works in your name?  And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.  <ins>Everyone then who hears these words of mine</ins> **and does them** <ins>will be like a wise man who built his house on the rock</ins>.  And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock.  And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand.  And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it. (ESV)
 
@@ -13207,6 +13213,29 @@ Covenants require faithfulness between both parties, but we are able to move on 
 > **John 6:63-65** - It is the Spirit who gives life; the flesh profits nothing; the words that I have spoken to you are spirit and are life. But there are some of you who do not believe.” For Jesus knew from the beginning who they were who did not believe, and who it was that would betray Him. And He was saying, “For this reason I have said to you, that no one can come to Me unless it has been granted him from the Father.”
 
 
+## Life is very different for me now after being born-again
+
+As you can see in this discussion, I've been born-again and I'm living to serve Jesus now:
+
+-   <https://github.com/semiosis/pen.el/issues>
+
+> **Colossians 3:3** - For you have died, and your life is hidden with Christ in God. (ESV)
+
+> **I John 5:11** - And this is the testimony, that God gave us eternal life, and this life is in his Son. (ESV)
+
+> **Luke 12:23** - For life is more than food, and the body more than clothing. (ESV)
+
+> **Matthew 19:17** - And he said to him, Why do you ask me about what is good? There is only one who is good. If you would enter life, keep the commandments. (ESV)
+
+> **II Corinthians 5:17** - Therefore, **if** anyone is in Christ, he is a new creation. The **old has passed away**; behold, the **new has come.**
+
+> **Galatians 6:14** - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which **the world has been crucified to me, and I to the world.** (ESV)
+
+It's important to thank God, even though life can be challenging after being born-again:
+
+> **I Thessalonians 5:18** - give thanks in all circumstances; for this is the will of God in Christ Jesus for you. (ESV)
+
+
 ## Born of God
 
 When a person is born-again of the Spirit, they receive the Spirit which helps them to stop sinning and it's really important to do so.
@@ -14065,10 +14094,16 @@ Jesus as a life-giving spirit proclaimed to the spirits in prison.
 
 Baptism is an appeal to God for a good conscience - It's an **appeal** to God but not strictly required to be saved.
 It is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
+
 I definitely believe that "believer's baptism" is the right way to perform baptism.
-Baptism does save.
+
+Baptism does save, but I believe it must be coupled with belief:
 
 > **I Peter 3:18-21** - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring us to God, being put to **death in the flesh but made alive in the spirit**, in which he went and proclaimed to the spirits in prison, because **they formerly did not obey**, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ,
+
+I believe a person **must** believe, and not just be baptised:
+
+> **Acts 19:1-6** - And it happened that while Apollos was at Corinth, Paul passed through the inland country and came to Ephesus. There he found some disciples. And he said to them, **Did you receive the Holy Spirit when you believed?** And they said, No, we have not even heard that there is a Holy Spirit. And he said, Into what then were you baptized? They said, Into John's baptism. And Paul said, John baptized with the baptism of repentance, telling the people to believe in the one who was to come after him, that is, Jesus. On hearing this, they were **baptized in the name of the Lord Jesus**. And when Paul had laid his hands on them, the Holy Spirit came on them, and they began speaking in tongues and prophesying. (ESV)
 
 This sounds interesting:
 
