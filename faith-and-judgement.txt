@@ -24091,11 +24091,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 Download
 PDF, TEXT, MARKDOWN, ORG
 
-Date: 2024-05-07 Tue 00:00
+Date: 2024-05-08 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-08 Wed 11:13
+Created: 2024-05-08 Wed 11:16
 
 Validate
 
