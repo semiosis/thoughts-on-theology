@@ -584,6 +584,12 @@ And as we know, no-one in Christ is condemned:
 
 > **Romans 8:1** - There is therefore now no condemnation for those who are in Christ Jesus.
 
+We must continue in our faith. We must continue to believe Jesus and trust in Jesus:
+
+> **Philippians 3:9-12** - and be found in him, not having a righteousness of my own that comes from the law, but <ins>that which comes through faith in Christ, the righteousness from God that depends on faith</ins> — that <ins>I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death,</ins> <ins>that by any means possible I may attain the resurrection from the dead.</ins> <ins>Not that I have already obtained this or am already perfect, but I press on to make it my own,</ins> because Christ Jesus has made me his own.
+
+> **John 8:31-32** - So Jesus said to the Jews <ins>who had believed in him</ins>, **If you abide in my word, you are truly my disciples, and you will know the truth**, <ins>and the truth will set you free.</ins> (ESV)
+
 
 ### We become obedient to Jesus
 
@@ -3320,6 +3326,10 @@ I still profess that Jesus Christ is the Only-Begotten Son of God who has procee
 But I am still seeking hearing that acknowledgement by continuing in Jesus' word, endeavoring to keep Jesus' commandments. I certainly have heard many false and deceptive voices, even blasphemy.
 So I mean, if the devil or evil spirits can speak lies to me then I just have total confidence that at the right time I'll hear from God.
 
+Not everything I have had in my dreams is against the truth. For example, recently I heard this in a dream:
+
+> **I John 4:19** - We love because he first loved us. (ESV)
+
 Therefore, I will continue to endeavour to keep Jesus' commandments:
 
 > **John 14:21** - Whoever has my commandments and **keeps them**, **he it is who loves me**. And he who loves me <ins>will be loved by my Father,</ins> and I will love him and manifest myself to him. (ESV)
@@ -3329,6 +3339,10 @@ So it's really important that I remain faithful to Jesus and do my best to not c
 And eventually His commandments become unburdensome, and we're keeping them, and we have confidence we have come to know Him:
 
 > **I John 2:3-4** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+As we abide in the Word of God and are sanctified in the Truth, our spiritual eyesight becomes clearer:
+
+> **Luke 6:41-42** - Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? How can you say to your brother, Brother, let me take out the speck that is in your eye, when you yourself do not see the log that is in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take out the speck that is in your brother's eye.
 
 Also, the Holy Spirit may teach us even before He is **in** us, by helping us as He dwells **with** us, and eventually will be **in** us:
 
@@ -7606,13 +7620,29 @@ This is similar to how the Israelites trusted in Moses, and they actually were t
 > **Proverbs 28:9** - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
 
-# Be a doer of good, not merely a hearer
+# Be compliant with the law, not merely a hearer
 
 > **James 1:22-23** -  But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. (ESV)
 
-Doing the law is actually OK. There's nothing wrong with doing what the law requires:
+Doing the law is actually OK - it's compliance. There's nothing wrong with doing what the law requires (God can see):
 
 > **Romans 2:13-16** - For it is not the hearers of the law who are righteous before God, but the doers of the law who will be justified.  For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law.  They show that the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
+
+There is a lawful way of using the law, and that's to actually comply with it ourself. But using it to judge others is not being compliant with the law, it's being a judge of it:
+
+> **I Timothy 1:8** - Now we know that the law is good, if one uses it lawfully, (ESV)
+
+> **James 4:12** - There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
+
+But endeavoring to comply with the law doesn't
+save a person, only having faith in Jesus
+saves, because through faith in Jesus, we
+have His blood as atonement for our sin, and
+through obedience to Jesus, He helps us to
+escape sinful thoughts and practices, and to
+behave in a way that approaches God's will for
+us to love Him with all our heart, soul, mind
+and strength, and our neighbour as ourself.
 
 
 # Mosaic Law, and progressing from having hope in Moses to having hope in Jesus
@@ -10605,8 +10635,8 @@ names of the Father, Son and Holy Spirit.
 I've got my reasons why this has happened.
 
 The summary of it is that while I was water
-baptised at 15, nothing much appeared to
-happen.
+baptised at 15-17 years old, nothing much
+appeared to happen.
 
 But at 35 I was spontaneously born-again of
 the Spirit after a little repentance and
