@@ -322,13 +322,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
   (ESV)
 
-2.2. We should avoid speaking
-
-  John 7:17-18 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I
-  am speaking on my own authority. The one who speaks on his own authority seeks his own glory, but the one who
-  seeks the glory of him who sent him is true, and in him there is no falsehood. (ESV)
-
-2.3. Eventually our own will lines up with God's will - but His will is that we will to do His will - so we must will
+2.2. Eventually our own will lines up with God's will - but His will is that we will to do His will - so we must will
 to do His will, not our will
 
 Song
@@ -534,7 +528,7 @@ and obey Him:
   speak of anything except what Christ has accomplished through me to bring the Gentiles to obedience-by word and
   deed,
 
-2.4. In God's mercy, we come to obedient faith and come into Christ Jesus
+2.3. In God's mercy, we come to obedient faith and come into Christ Jesus
 
 "At one time disobedient..." means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
@@ -545,7 +539,7 @@ and obey Him:
 Song
 King of Kings {Lyric Video} - Hillsong Worship - YouTube
 
-2.4.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
+2.3.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
 
 We trust that our sin is covered by Jesus Christ's blood, as we abide in Him through belief and obedience:
 
@@ -611,7 +605,7 @@ The eternal redemption is in Christ Jesus:
   Hebrews 5:9-10 - And being made perfect, he became the source of eternal salvation to all who obey him, being
   designated by God a high priest after the order of Melchizedek. (ESV)
 
-2.5. Obedience is absolutely within our ability
+2.4. Obedience is absolutely within our ability
 
 God's commandments are not too difficult to follow.
 
@@ -706,7 +700,7 @@ salvation to all those who obey Him:
   John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
   sin of the world! (ESV)
 
-2.5.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
+2.4.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
 forever
 
 We should be led into the knowledge of the Truth:
@@ -801,7 +795,7 @@ heart:
   John 7:38 - Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of living
   water. (ESV)
 
-2.5.2. We are saved by grace through faith in Jesus Christ
+2.4.2. We are saved by grace through faith in Jesus Christ
 
   Ephesians 2:8 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, (ESV)
@@ -894,7 +888,7 @@ We must continue in our faith. We must continue to believe Jesus and trust in Je
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
   disciples, and you will know the truth, and the truth will set you free. (ESV)
 
-2.5.3. We become obedient to Jesus
+2.4.3. We become obedient to Jesus
 
   John Piper - "Mercy means that our obedience doesn't have to be perfect, it has to be penitent."
 
@@ -931,7 +925,7 @@ Jesus loved us selflessly. We should love one another selflessly:
 
   John 15:13 - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
 
-2.5.4. There's some bonuses to suffering for Christ's sake and for endurance
+2.4.4. There's some bonuses to suffering for Christ's sake and for endurance
 
   II Timothy 2:12-13 - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are
   faithless, he remains faithful- for he cannot deny himself. (ESV)
@@ -941,7 +935,7 @@ Jesus loved us selflessly. We should love one another selflessly:
 
 But suffering for Christ's sake should be for giving glory to Jesus:
 
-2.5.5. Eternal life and salvation is a gift received through faith
+2.4.5. Eternal life and salvation is a gift received through faith
 
 We put our hope on Him to be our High Priest and Advocate, we obey Him as He saves us.
 
@@ -1030,7 +1024,7 @@ If you hear Jesus' words which came from God and trust God then you have eternal
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-2.6. Disobedience is sin
+2.5. Disobedience is sin
 
 Sermon
 God is very happy about obedience, and listening to His word. Disobedience is sin, and disobedience is rejecting
@@ -1062,7 +1056,7 @@ God's commandments through Jesus is within the Law of God:
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law. (ESV)
 
-2.7. God makes us born-again, so we can love Him, obediently
+2.6. God makes us born-again, so we can love Him, obediently
 
   John 3:7 - Do not marvel that I said to you, You must be born again. (ESV)
 
@@ -1408,7 +1402,7 @@ isn't work (even work relating to salvation) but the problem is work that is not
   consider that obedience to Jesus and turning away from sin is essential to be found in Him. If someone dies
   while trusting in Him they will live. If someone trusts in Him while they live they will never die.
 
-2.8. Eternal security for those who follow Jesus
+2.7. Eternal security for those who follow Jesus
 
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube
@@ -1433,7 +1427,7 @@ Believing Loving and Obeying and abiding in the presence of the Holy Spirit - Yo
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
 
-2.9. Some indicators to know for SURE you are saved
+2.8. Some indicators to know for SURE you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube
@@ -24300,7 +24294,7 @@ Date: 2024-05-08 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-08 Wed 19:42
+Created: 2024-05-08 Wed 20:04
 
 Validate
 
