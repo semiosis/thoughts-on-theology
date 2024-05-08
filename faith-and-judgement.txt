@@ -282,7 +282,13 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
   (ESV)
 
-2.2. Eventually our own will lines up with God's will
+2.2. Eventually our own will lines up with God's will - but His will is that we will to do His will - so we must will
+to do His will, not our will
+
+  Matthew 6:10 - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
+
+  Matthew 26:42 - Again, for the second time, he went away and prayed, My Father, if this cannot pass unless I
+  drink it, your will be done. (ESV)
 
 What God does by way of initiative and what we do as a response is inextricably woven together [to the point where
 our obedience and God's work may be indistinguishable]. God turns our enmity to love and our disbelief to faith:
@@ -24146,7 +24152,7 @@ Date: 2024-05-08 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-08 Wed 14:13
+Created: 2024-05-08 Wed 14:29
 
 Validate
 
