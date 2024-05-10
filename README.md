@@ -3083,7 +3083,13 @@ The redemption in Christ Jesus is a gift, and is a substitutionary atonement tha
 
 > **II Corinthians 5:21** - For our sake he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
 
+We're not being saved by our works - we've already been redeemed, and we are justified by faith in Jesus. God is the one who justifies:
+
 > **Romans 3:21-26** - But now the righteousness of God has been manifested apart from the law, although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show <ins>his righteousness</ins> at the present time, so that he might be just and **the justifier of the one who has faith in Jesus**. (ESV)
+
+We must be obedient to God, we must be obedient to Jesus, repenting and following His commandments to share His holiness:
+
+> **Hebrews 12:9-11** - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not much more be subject to the Father of spirits and live? For they disciplined us for a short time as it seemed best to them, but <ins>he disciplines us for our good, that we may share his holiness</ins>. For the moment all discipline seems painful rather than pleasant, but later it **yields the peaceful fruit of righteousness** to those who have been **trained** by it. (ESV)
 
 We're not being saved by our works - we've already been redeemed, but we do works out of love for Jesus, and out of ongoing faith, ongoing obedience:
 
@@ -7453,7 +7459,7 @@ Self-righteous forgiveness:
             -   **I John 1:7** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
             -   **Acts 13:38-39** - Let it be known to you therefore, brothers, that through this man forgiveness of sins is proclaimed to you, and by him everyone who believes is freed from everything from which you could not be freed by the law of Moses. (ESV)
 
-OK, so being led by the Spirit, under the law of Christ, we still actually comply with the Law of God, but and the law of Moses cannot condemn us.
+OK, so being led by the Spirit, under the law of Christ, we still actually comply with the Law of God, and the law of Moses cannot condemn us.
 
 > **Psalms 119:160** - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
 
@@ -10766,7 +10772,13 @@ spiritual attack.
 
 I wanted to get baptised the last time to
 really show God I was all in with Jesus, with
-nothing else, and to repent of sin. Repentance after being born-again of the Spirit is biblical:
+nothing else, and to repent of sin,
+to repent of declaring any public endorsement of gay marriage,
+to fall out of agreement with Valentinianism,
+to repent towards holiness and a more sound
+understanding of the Christian faith.
+
+Repentance after being born-again of the Spirit is biblical:
 
 > **Romans 8:13** - For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. (ESV)
 
