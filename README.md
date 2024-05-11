@@ -96,6 +96,10 @@ I confess that Jesus is the Son of God, and I believe that God loved us first an
 
 > **I John 4:15** - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
+Someone who has just put their faith in Jesus for the first time and is believing that Jesus is the Christ is a newborn Christian:
+
+> **I John 5:1** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. (ESV)
+
 It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God:
 
 > **II John 1:9** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
@@ -2089,7 +2093,7 @@ Abraham was obedient the entire time, even when God counted Abraham's belief as 
 We should, likewise <ins>be obedient when we believe.</ins>
 Abraham was <ins>justified when He believed with an obedient heart</ins> but faith was <ins>completed by the works of faith</ins> and Abraham was given assurance of the blessing:
 
-> **James 2:21-23** - Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness—and he was called a friend of God. (ESV)
+> **James 2:21-23** - Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness—and he was called a friend of God. (ESV)
 
 Where previously I said "I'm going out on a limb when I say that without an obedient heart the so-called belief <ins>doesn't qualify as belief:</ins>",
 my best interpretation of this now is that, believing in Jesus Christ, a person has obeyed Jesus and has eternal life which is to know Jesus and Father God, but this belief must be true belief, incorporating a sense of 'trust' towards Jesus, the type of trust that elicits obedience.
@@ -3126,7 +3130,7 @@ The redemption in Christ Jesus is a gift, and
 is a substitutionary atonement that is
 received through faith in Jesus.
 
-As far as glory goes, or sharing in Jesus' holiness, I think of this like a blood transfusion, that
+As far as glory goes, or sharing in Jesus' holiness, I think in part this works like a blood transfusion, that
 should be received by faith, faith which
 includes the belief of faith and the obedience
 of faith, such as obedience to the discipline of Christ, that should yield the peaceful fruit of righteousness:
@@ -3408,7 +3412,7 @@ Jehovah is God Almighty:
 
 -   **Sermon:** [John Piper - God's Own Name - YouTube](https://www.youtube.com/watch?v=kPHOZSZW584)
 
-> **II Timothy 2:19** - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and, Let everyone who names the name of the Lord depart from iniquity. (ESV)
+> **II Timothy 2:19** - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and, <ins>Let everyone who names the name of the Lord depart from iniquity.</ins> (ESV)
 
 Jehovah God gave Jesus His name, Jesus Christ, Son of God:
 
@@ -5813,7 +5817,7 @@ Cleaned up (stop sinning) by having faith in the truth.
 > **Leviticus 19:18** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the Lord.
 
 
-# Clearing up justifying faith vs justifying works - It's faith in **Jesus Himself** that matters
+# Clearing up justifying faith vs justifying works - It's faith in **Jesus Himself** that matters. Also, it's God who justifies us, not we who justify ourselves. We have faith in God to justify us, as we place our faith in Him
 
 I believe that when a person **actually** obeys Jesus' commandments out of love for Jesus, this isn't working for justification, but is as if Jesus is working through them.
 
@@ -5833,7 +5837,7 @@ Jesus makes it clear that the ones who truly believe in Him **will do** the **wo
 
 James believes that people can see the evidence of faith by works:
 
-> **James 2:22-26** - You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
+> **James 2:22-26** - You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
 But works by us done in righteousness are **not** the reason God showed mercy on us to save us. God in His mercy simply gave us His Holy Spirit in abundance to wash us, to regenerate us and to renew us, and He did this so that being justified by His grace, we might become heirs according to the hope of eternal life. We were once really disobedient, but by God's grace through faith in Jesus we are now obedient. The faith was **becoming obedient** to Jesus, and out of it flows good works and obedience:
 
@@ -5889,6 +5893,145 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 > **Luke 9:23-24** - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will save it. (ESV)
 
 
+### Salvation by obedience
+
+> **Ephesians 6:6** - not by the way of eye-service, as people-pleasers, but as servants of Christ, doing the will of God from the heart, (ESV)
+
+We are slaves to Christ Jesus:
+
+> **Romans 6:16-18** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+-   **Bible study:** [You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 - YouTube](https://youtu.be/mUnh98bcLek?t=126)
+
+So John Piper is taking the Apostle John's writing in **II John 9:2** and saying that Apostle John is warning against people talking about justification through works, but I don't think that's what the Apostle John is talking about.
+
+> **II John 9:2** - And I looked, and behold, a white horse! And its rider had a bow, and a crown was given to him, and he came out conquering, and to conquer. (ESV)
+
+I think the Apostle John means that new believers need to go on to abide in Jesus' teachings, and I suspect that John Piper is interpreting the verse the same way, but rather John Piper is interpretting the Apostle John's verse to be against justification by works - but I don't think that's in any way what the Apostle John is alluding to. I actually think the Apostle John is saying we must be obedient to Jesus and the Apostle John is warning about people who oppose Jesus' teachings to love one another, and oppose the truth which is that Jesus has come in the flesh. I think believing Jesus and trusting Jesus and being obedient to Him should all be true at the same time.
+
+But it sounds to me that John Piper may be saying that loving obedience to Jesus is not a requirement for justifying faith, but I feel like it should all be simultaneous:
+
+> **John 10:27-28** - My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out of my hand. (ESV)
+
+I feel like having love for Jesus is inseparable with believing Him and believing in Him for one of Jesus' sheep:
+
+> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+
+> **II John 1:5-10** - And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we have had from the beginning—that we love one another. And this is love, that we walk according to his commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it. For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
+
+Noah's obedience, or Abraham's obedience, I think are just living by faith, and that's how I reconcile **James 2:14-26**.
+
+> **Hebrews 11:7** - By faith Noah, being warned by God concerning events as yet unseen, in reverent fear constructed an ark for the saving of his household. By this he condemned the world and became an heir of the righteousness that comes by faith. (ESV)
+
+Obedience / living by faith is just working faith / walking by faith:
+
+> **James 2:14-26** - What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, Go in peace, be warmed and filled, without giving them the things needed for the body, what good is that? So also faith by itself, if it does not have works, is dead. But someone will say, You have faith and I have works. Show me your faith apart from your works, and I will show you my faith by my works. You believe that God is one; you do well. Even the demons believe—and shudder! Do you want to be shown, you foolish person, that faith apart from works is useless? Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
+
+Notes for **James 2:14-26**:
+
+-   **Can that faith save him?** - Good question.
+-   **If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, Go in peace, be warmed and filled, without giving them the things needed for the body, what good is that? So also faith by itself, if it does not have works, is dead.** - True. I believe a person receives God's work in us by being obedient to Him.
+-   **Do you want to be shown, you foolish person, faith apart from works is useless?** - I agree. That's why I think God saves us by working in us while we are obedient to Him.
+-   **faith was active along with his works, and faith was completed by his works** - AMEN. In Abraham's case, his faith was completed by his works.
+-   **You see that a person is justified by works and not by faith alone.** - I believe that Jesus has done the work that we may be justified by faith alone with His works, and that Jesus, having first been perfectly obedient Himself, works in us to save us, sanctify us as we are obedient to Him, following Him.
+
+> **Romans 4:2** - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
+
+See even the Apostle Paul from my perspective has entertained the idea that a person could be justified by works but that they cannot boast before God, and I would say because they were saved by their work because they were obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
+
+> **James 2:24** - You see that a person is justified by works and not by faith alone. (ESV)
+
+Also, Jesus' own work on the cross is sufficient work for us to be justified by faith alone without our own work, but that does not mean we should not work for God through obedience which is characteristic of faith, even for our salvation, or be sanctified in the Truth through trusting obedience to God, and arrive at the knowledge of the Truth, even that Jesus Christ is the propitiation of our sin and works in us to save us.
+
+> **Philippians 2:12** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+
+Jesus bore our sins in His body on the tree so that we **might** die to sin and live to righteousness.
+
+> **I Peter 2:22-24** - He committed no sin, neither was deceit found in his mouth. When he was reviled, he did not revile in return; when he suffered, he did not threaten, but continued entrusting himself to him who judges justly. He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed. (ESV)
+
+You'll be able to see who has been healed by their fruits.
+
+We absolutely must have a response of love for God - we must abide in love to abide in God.
+
+The redemption in Christ Jesus is a gift, and
+is a substitutionary atonement that is
+received through faith in Jesus.
+
+As far as glory goes, or sharing in Jesus' holiness, I think in part this works like a blood transfusion, or a like Jesus' car battery recharging our car battery, that should be received by faith, faith which includes the belief of faith and the obedience
+of faith, such as obedience to the discipline of Christ, that should yield the peaceful fruit of righteousness. I believe we should have a noticable change of heart and behaviour as a result of faith in Jesus:
+
+> **II Corinthians 5:21** - For our sake he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
+
+I don't think James contradicts Paul because I think faith alone is sufficient but that working faith is fine "You'll know them by their fruits.". Also it's God, not us, who justifies:
+
+> **Matthew 7:15-20** - Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles? So, every healthy tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the fire. Thus you will recognize them by their fruits. (ESV)
+
+But I think that when we obey Jesus it's Jesus working.
+
+Jesus worked:
+
+> **John 5:17** - But Jesus answered them, My Father is working until now, and I am working. (ESV)
+
+> **John 19:30** - When Jesus had received the sour wine, he said, It is finished, and he bowed his head and gave up his spirit. (ESV)
+
+Jesus is still working through us:
+
+> **Philippians 2:13** - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
+
+So when we obey Jesus' words and commandments, Jesus works in us:
+
+> **John 6:63** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
+
+So we are saved by obeying Jesus:
+
+> **Acts 5:32** - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey him. (ESV)
+
+> **Hebrews 5:9** - And being made perfect, he became the source of eternal salvation to all who obey him, (ESV)
+
+But I feel like a lot of people have a problem with salvation by obedience, but it's totally Scriptural. Noah and the Israelites through the Red Sea and the Apostle Thomas after following Jesus around for ages and finally arrived at belief. And I think this is the correct teaching.
+
+> **Romans 10:17** - So faith comes from hearing, and hearing through the word of Christ. (ESV)
+
+Faith comes from hearing Jesus' words and we can hear a commandment of Jesus such as 'love your enemies' and that faith can come from that, and it's Jesus working through them when they hear Jesus' words and obey them, and I think a person can be saved this way if they continue in Jesus' word.
+
+> **Luke 6:35** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+A person is justified when God justifies the person, not just because a person says they are justified. So I think God's the justifier of a person's faith and that both obedience and belief are parts of faith, and like Abraham we should keep the faith until and beyond when we receive personal assurance of justification from God.
+
+-   **Interlinear Bible:** [Romans 3:28](https://biblehub.com/interlinear/romans/3-28.htm)
+
+     1  3049 [e]    1063 [e]  1344 [e]        4102 [e]
+     2  logizometha gar       dikaiousthai    pistei
+     3  λογιζόμεθα  γὰρ       δικαιοῦσθαι     πίστει
+     4  We reckon   therefore to be justified by faith
+     5  V-PIM/P-1P  Conj      V-PNM/P         N-DFS
+     6  
+     7  444 [e]     5565 [e]   2041 [e] 3551 [e]
+     8  anthrōpon   chōris     ergōn    nomou
+     9  ἄνθρωπον  , χωρὶς      ἔργων    νόμου  .
+    10  a man       apart from works    of the Law
+    11  N-AMS       Prep       N-GNP    N-GMS
+
+But works of the law is different from works:
+
+> **Romans 3:28** - For we maintain that a man is justified by faith (G4102 pistis) apart from works of the Law. (NASB)
+
+    1  :  4102  pistis  pis'-tis
+    2  
+    3   from 3982; persuasion, i.e. credence; moral conviction (of religious
+    4   truth, or the truthfulness of God or a religious teacher), especially
+    5   reliance upon Christ for salvation; abstractly, constancy in such
+    6   profession; by extension, the system of religious (Gospel) truth
+    7   itself:--assurance, belief, believe, faith, fidelity.
+    8   see GREEK for 3982
+
+And I do not believe the following verse necessarily is talking about justification, and also my definition of faith includes obedience:
+
+> **Ephesians 2:8-9** - For by grace you have been saved (sesōsmenoi) through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
+
+-   **sesōsmenoi (saved):** <https://biblehub.com/greek/seso_smenoi_4982.htm>
+
+
 ## You can't work for justification. We must have faith on God justifying us even though we are ungodly
 
 My best understanding of **Romans 4:4** is: "The person who works receives wages, but the wages are not a gift, but the person receives reward which is due for his work."
@@ -5902,7 +6045,7 @@ God justifies the person who has faith in Jesus:
 > **Romans 3:21-26** - But now the righteousness of God has been manifested apart from the law, although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show <ins>his righteousness</ins> at the present time, so that he might be just and **the justifier of the one who has faith in Jesus**. (ESV)
 
 Before accepting God's forgiveness yourself, submitting to the righteousness of God, believing that you were in need of God's forgiveness and accepting that Jesus' blood has atoned for our sin and placing our faith in Jesus so that God may justify us, anything we try to give God is simply giving God what is due to Him, and that you will never be able to return enough stolen goods to God to ever be justified. Nor would you ever be able to forgive enough other people to attain that justification.
-<ins>We ultimately need God's forgiveness through faith in Jesus</ins>. 
+<ins>We ultimately need God's forgiveness through faith in Jesus</ins>.
 
 > **Romans 4:5-7** - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; (ESV)
 
@@ -5979,7 +6122,7 @@ For example, Noah's works of building the ark was given to Him by God. God even 
         -   If God commands you to wait 5 days before going into battle but you think 8 days would be better, thinking God needs the extra time so you can be more prepared so you wait 8 days then that is no longer faith because it's disobedience.
         -   Abraham was commanded to offer Isaac as a sacrifice, and Abraham did offer Isaac out of faithful obedience.
             -   **Genesis 22:2** - He said, Take your son, your only son Isaac, whom you love, and go to the land of Moriah, and offer him there as a burnt offering on one of the mountains of which I shall tell you.
-            -   **James 2:22** - You see that faith was active along with his works, and faith was completed by his works;
+            -   **James 2:22** - You see that **faith was active along with his works, and faith was completed by his works**;
         -   But if Abraham thought he could get even more rewards from God by trying the same thing again and putting Isaac on the altar again without God even commanding it, then that is like trying to justify yourself by doing dead works (i.e. deeds without faith).
     
     -   Choosing to obey God's commandments even when no-one is watching (aside from God) is having faith in God.
@@ -6713,7 +6856,7 @@ Because, having **arrived** at the true knowledge of Jesus, we are partakers of 
     
     `pisteuo` is obedient faith as it is the verb for faith (pistis).
     
-    > **James 2:22-26** - You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
+    > **James 2:22-26** - You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
     
     Without faith, work is dead. Whatever actions we make outside of faith is sin:
     
@@ -8631,7 +8774,7 @@ A response of love for Jesus **is** justifying work.
 
 > **Luke 7:47-50** - Therefore I tell you, her sins, which are many, are forgiven-for she loved much. But he who is forgiven little, loves little. And he said to her, Your sins are forgiven. Then those who were at table with him began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has saved you; go in peace. (ESV)
 
-> **James 2:22-25** - You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way?
+> **James 2:22-25** - You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way?
 
 ONLY **working faith** counts for anything. Even Paul agrees. However, it says 'in Christ Jesus', and I believe that those who trust in Jesus without work still abide, but by the skin of their teeth.
 
@@ -9208,7 +9351,7 @@ God noticed and gave Abram a vision and made a promise to Abram, and Abram belie
 
 ### Faith and works - they overlap and are **not** mutually exclusive!
 
-> **James 2:22-25** - You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way?
+> **James 2:22-25** - You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way?
 
 A person, I think, can be justified by faith that includes obedient action.
 
@@ -10042,7 +10185,7 @@ word and in believing they obey then that is
 If a person actually believes then they will
 walk by that belief.
 
-> **James 2:22-26** - You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
+> **James 2:22-26** - You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
 This is not a work of the law, but it is a work of faith: "*when she received the messengers and sent them out by another way*"
 
@@ -10889,7 +11032,7 @@ So therefore, I don't see the big problem with
 wanting to rededicate myself to Jesus.
 
 I don't have all the answers guys to how it
-works! But Jesus did say in 
+works! But Jesus did say in
 
 > **John 3:8** - The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is born of the Spirit. (ESV)
 
@@ -13644,9 +13787,9 @@ But I believe we are forgiven to forgive others. That must be part of the act of
 > **Matthew 6:15** - but if you do not forgive others their trespasses, neither will your Father forgive your trespasses. (ESV)
 
 
-### Justified by faith alone. But faith is substantiated by works
+### Justified by faith alone. But faith is substantiated by works, Jesus' works which is entirely sufficient and Jesus working in us even by our obedience
 
-> **James 2:10** - For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, Go in peace, be warmed and filled, without giving them the things needed for the body, what good is that? So also faith by itself, if it does not have works, is dead. But someone will say, You have faith and I have works. Show me your faith apart from your works, and I will show you my faith by my works. You believe that God is one; you do well. Even the demons believe-and shudder! Do you want to be shown, you foolish person, that faith apart from works is useless? Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone.
+> **James 2:10** - For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, Go in peace, be warmed and filled, without giving them the things needed for the body, what good is that? So also faith by itself, if it does not have works, is dead. But someone will say, You have faith and I have works. Show me your faith apart from your works, and I will show you my faith by my works. You believe that God is one; you do well. Even the demons believe-and shudder! Do you want to be shown, you foolish person, that faith apart from works is useless? Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone.
 
 I tend to agree with James on this.
 Eliminating works from faith is not good.
@@ -13666,9 +13809,27 @@ Works:
     -   keeping God's commandments
 -   patient endurance (time)
 
-If a person believes that Jesus Christ is the Son of the Living God then they abide in Christ.
-But do they **really** believe? Because if they don't **really** believe it deep down then but are lying to themself they may not abide in Christ at all.
-How can a person believe without having a relationship with God? A relationship involves more than belief.
+If a person is believing (verb) that Jesus Christ is the Son of the Living God then they abide in Christ:
+
+> **I John 4:16** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. (ESV)
+
+If a person hates their brother they don't have eternal life:
+
+> **I John 4:21** - And this commandment we have from him: whoever loves God **must also** love his brother. (ESV)
+
+> **I John 3:15** - Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. (ESV)
+
+If a person loves one another, they have been born of God:
+
+> **I John 4:7** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+
+How can anyone the having faith in Jesus from His words and teachings? We need to have love for one another to be saved as we believe in Jesus to be saved.
+
+How can a person believe without having a heart that trusts Jesus? How can a person have life without a relationship with God?
+
+A relationship involves more than belief.
+
+> **II Timothy 2:19** - But God's firm foundation stands, bearing this seal: **The Lord knows those who are his**, and, <ins>Let everyone who names the name of the Lord depart from iniquity.</ins> (ESV)
 
 If a person does not have obedience, trust and
 repentance from sin, but their faith has belief, then they only
