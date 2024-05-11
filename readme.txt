@@ -294,8 +294,8 @@ obedient faith and God's commandments are no longer burdensome to them":
   overcome the world-our faith. Who is it that overcomes the world except the one who believes that Jesus is the
   Son of God? (ESV)
 
-They their heart is purified through faith, believing in and obeying Jesus, and now they love God and they love
-the children of God:
+Their heart is purified through faith, believing in and obeying Jesus, and now they love God and they love the
+children of God:
 
   I John 4:7-17 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God
   and knows God. Anyone who does not love does not know God, because God is love. In this the love of God was made
@@ -24586,7 +24586,7 @@ Date: 2024-05-11 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-11 Sat 17:55
+Created: 2024-05-11 Sat 19:28
 
 Validate
 
