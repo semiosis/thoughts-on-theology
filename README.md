@@ -53,7 +53,7 @@ I believe we are set free from being condemned by / under the Mosaic Law to beco
 
 > **Romans 15:17-18** - In Christ Jesus, then, I have reason to be proud of my work for God. For I will not venture to speak of anything except what Christ has accomplished through me to bring the Gentiles to **obedience—by word and deed,**
 
-In Christ Jesus there is freedom from things which were bad for us, including selfishness, sin and death:
+In Christ Jesus there is freedom from things which were bad for us, including selfishness, condemnation, slavery to sin and death. We are freed from making the worries of the world our first thought in the day, and thinking always in terms of "will I have enough money, for example", to instead thinking correctly, having joy in being able to live out the great commandments which felt so difficult before - to be able to love God with our whole heart, soul, mind and strength and love our neighbour as ourselves, and as we abide in Jesus Christ, focused on Jesus in word and deed, the blood of Jesus cleanses us from all sin:
 
 > **II Corinthians 3:17** - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
 
@@ -2755,7 +2755,9 @@ See:
 
 -   <https://rickhowerton.wordpress.com/2015/05/06/you-are-my-disciple-if-the-five-ifs-of-a-disciple/>
 
-> **Romans 6:22-23** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
+> **Romans 6:22-23** - But now having been freed from sin and enslaved to God, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+
+> **Romans 6:22-23** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
 > **Romans 6:7** - For one who has died has been set free from sin. (ESV)
 
@@ -5901,6 +5903,10 @@ We are slaves to Christ Jesus:
 
 > **Romans 6:16-18** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
 
+> **Romans 6:22-23** - But now having been freed from sin and enslaved to God, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+
+> **Romans 6:22-23** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
 -   **Bible study:** [You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 - YouTube](https://youtu.be/mUnh98bcLek?t=126)
 
 So John Piper is taking the Apostle John's writing in **II John 9:2** and saying that Apostle John is warning against people talking about justification through works, but I don't think that's what the Apostle John is talking about.
@@ -5950,6 +5956,10 @@ Jesus bore our sins in His body on the tree so that we **might** die to sin and 
 > **I Peter 2:22-24** - He committed no sin, neither was deceit found in his mouth. When he was reviled, he did not revile in return; when he suffered, he did not threaten, but continued entrusting himself to him who judges justly. He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed. (ESV)
 
 You'll be able to see who has been healed by their fruits.
+
+We are God's workmanship:
+
+> **Ephesians 2:7-10** - so that in the coming ages he might show the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
 We absolutely must have a response of love for God - we must abide in love to abide in God.
 
@@ -6031,28 +6041,83 @@ And I do not believe the following verse necessarily is talking about justificat
 
 -   **sesōsmenoi (saved):** <https://biblehub.com/greek/seso_smenoi_4982.htm>
 
-So this morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-05-12 Sun&gt; </span></span> I got a picture of John Piper in my mind with this Bible verse, and so I googled it and found this tweet a few days ago:
+
+### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
+
+-   <https://pastortomhicks.com/2020/03/10/what-does-it-mean-to-be-under-the-law/>
+
+> To be "under the law" is to "rely" on **[your own perfect obedience to]** the law
+> for justification, life and salvation.
+> 
+> To be "under the law" is to be condemned in
+> Adam, rather than justified in Christ.
+> 
+> All unbelievers, both Jews and Gentiles, are
+> "under the law," but all believers in both
+> Testaments are "under grace" (Rom 6:14) in
+> Christ, who came to "redeem those who were
+> under the law" (Gal 4:
+
+> True believers keep the good law of God in
+> faith, under grace, as an expression of love
+> to God and others because of so great a
+> salvation.
+> 
+> They don't rely on the law to save them, but
+> neither do they reject its authority or
+> goodness.
+> 
+> Though they can never keep the law perfectly,
+> they try to follow the law as an expression of
+> faith in God and love to Him.
+
+
+### I affirm we are free in Christ Jesus, enslaved to God, and have victory over death
+
+> **Romans 8:2** - For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
+
+> **Romans 6:22-23** - But now having been freed from sin and enslaved to God, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+
+So this morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-05-12 Sun&gt; </span></span> I got a picture of John Piper in my mind with this Bible verse, and so I googled it and found this tweet a few days ago. Also, this morning I had two other dreams:
 
 Awesome:
 
 -   <https://twitter.com/JohnPiper/status/1784160580569375072>
 
-> **I Corinthians 15:57-58** - But thanks be to God, who gives us the victory through our Lord Jesus Christ. Therefore, my beloved brothers, be steadfast, immovable, always abounding in the work of the Lord, knowing that in the Lord your labor is not in vain. (ESV)
-
-John Piper
-@JohnPiper
-God gives us the victory over death through our Lord Jesus Christ.
+    1  John Piper
+    2  @JohnPiper
+    3  God gives us the victory over death through our Lord Jesus Christ.
 
 > **I Corinthians 15:57-58** - But thanks be to God, who gives us the victory through our Lord Jesus Christ. Therefore, my beloved brothers, be steadfast, immovable, always abounding in the work of the Lord, knowing that in the Lord your labor is not in vain. (ESV)
 
-No labor in vain in the Lord.
-10:00 PM · Apr 27, 2024
+    1  No labor in vain in the Lord.
+    2  10:00 PM · Apr 27, 2024
 
 AMEN!!
 
 Also, it looks like John Piper has another talk on this:
 
 -   [The Jerusalem Above Is Free: Galatians 4:21-31, Part 5 - YouTube](https://www.youtube.com/watch?v=nRvTnpnNI_k)
+
+> **Galatians 4:22-23** - For it is written that Abraham had two sons, one by a slave woman and one by a free woman. But the son of the slave was born according to the flesh, while the son of the free woman was born through promise. (ESV)
+
+> **Galatians 4:30-31** - But what does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
+
+In Christ Jesus there is freedom from things which were bad for us, including selfishness, condemnation, slavery to sin and death. We are freed from making the worries of the world our first thought in the day, and thinking always in terms of "will I have enough money, for example", to instead thinking correctly, having joy in being able to live out the great commandments which felt so difficult before - to be able to love God with our whole heart, soul, mind and strength and love our neighbour as ourselves, and as we abide in Jesus Christ, focused on Jesus in word and deed, the blood of Jesus cleanses us from all sin:
+
+> **II Corinthians 3:17** - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
+
+We **have been** ransomed from our futile ways, so that our ways may change, and we love God because He loved us first. Therefore, be holy! Obey God:
+
+> **I Peter 1:16-22** - since it is written, **You shall be holy, for I am holy**. And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves with fear throughout the time of your exile, knowing that **you were ransomed from the futile ways** inherited from your forefathers, not with perishable things such as silver or gold, but **with the precious blood of Christ, like that of a lamb without blemish or spot**. He was foreknown before the foundation of the world but was made manifest in the last times for your sake, who through him are believers in God, who raised him from the dead and gave him glory, so that your faith and hope are in God. **Having purified your souls by your obedience to the truth** for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
+
+Believing in Jesus and obeying Jesus go hand in hand:
+
+> **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+
+Jesus' commandments are all about selfless love. We must abide in Jesus' teaching and believe. It's imperative that as we go ahead, we **must** abide in the teaching of Christ. Confessing the coming of Jesus Christ in the flesh, and walking according to Jesus' commandments go hand in hand:
+
+> **II John 1:6-9** - And this is love, that we walk according to his commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it. For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
 
 ## You can't work for justification. We must have faith on God justifying us even though we are ungodly
