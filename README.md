@@ -300,6 +300,8 @@ I believe that eventually our own will lines up with God's will for us, and I be
 
 > **I Peter 4:19** - Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. (ESV)
 
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
+
 What God does by way of initiative and what we do as a response is inextricably woven together [to the point where our obedience and God's work may be indistinguishable]. God turns our enmity to love and our disbelief to faith:
 
 -   **Sermon:** [Born Again - Alistair Begg, Parkside Church - YouTube](https://youtu.be/D70xSncZBDI?t=2052)
@@ -892,7 +894,7 @@ We are commanded to be innocent, and to bear witness of Jesus before men who per
 > 
 > Is it crucial to obey the gospel? Yes. Is that a 'works-based' gospel? If we must put a label on it, I'd describe it more of a **my-willingness-to-work-serving-Christ-based-on-Jesus'-finished-works-and-God-working-in-me-based** gospel.
 
-God works in us to save us. Since obedience to God is faith, God works in us through faith:
+God works in us to save us. Since trusting obedience to God is walking in faith, God works in us through faith:
 
 > **Philippians 1:6** - And I am sure of this, that he who began a good work in you will bring it to completion at the day of Jesus Christ. (ESV)
 
@@ -912,6 +914,8 @@ That rest looks like living for the will of God:
 
 > **I Peter 4:1-2** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. (ESV)
 
+> **I John 5:3** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
+
 So it's still extremely important for us to try to keep His commandments, and His commandments are to love God and one another as He loved us, selflessly.
 
 > **Ephesians 2:8-9** - For **by grace you have been saved through faith.** And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
@@ -919,6 +923,8 @@ So it's still extremely important for us to try to keep His commandments, and Hi
 And I wont stop following Jesus Christ until I know Him as personally as possible - I want His thoughts running through my mind like Father God's thoughts ran through His. Anything less than that and I am unsatisfied.
 
 > **I Corinthians 2:11-16** - For who knows a person's thoughts except the spirit of that person, which is in him? So also no one comprehends the thoughts of God except the Spirit of God. Now we have received not the spirit of the world, but the Spirit who is from God, that we might understand the things freely given us by God. And we impart this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual truths to those who are spiritual. The natural person does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned. The spiritual person judges all things, but is himself to be judged by no one. For who has understood the mind of the Lord so as to instruct him? But we have the mind of Christ. (ESV)
+
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
 
 Jesus knows us and we know Jesus:
 
@@ -5704,7 +5710,7 @@ We are healed, corrected, sanctified by God's word.
 
 ## Renew our minds
 
-> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
 
 Believe in the power of God's Word, allow myself to be corrected, and sanctified by the washing of the Word. Actually read the Scriptures to see what God is acceptable:
 
@@ -6026,6 +6032,12 @@ So when we obey Jesus' words and commandments, Jesus works in us:
 
 > **John 6:63** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
 
+God works in us to save us. Since trusting obedience to God is walking in faith, God works in us through faith:
+
+> **Philippians 1:6** - And I am sure of this, that he who began a good work in you will bring it to completion at the day of Jesus Christ. (ESV)
+
+> **Jude 1:21** - keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
 So we are saved by obeying Jesus:
 
 > **Acts 5:32** - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey him. (ESV)
@@ -6265,7 +6277,7 @@ Salvation is the gift, and faith implies an obedient heart. Works can be dead wo
 
 With an obedient heart, a person will receive revelation as they hear the teaching of Jesus.
 
-A person must be at least willing to do His will - obedience is the essence of faith:
+A person must be at least willing to do His will - obedience is at the essence of faith:
 
 > **John 7:17** - If anyone is willing to do His will, he will know of the teaching, whether it is of God or whether I speak from Myself.
 
@@ -6706,7 +6718,7 @@ Accept God's plans:
 
 Desire to do the will of God, and allow God's word to teach you what that is:
 
-> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
 
 Actually practice faith, and don't over-intellectualise God:
 
@@ -6808,7 +6820,7 @@ Salvation is the gift, and faith implies an obedient heart. Works can be dead wo
 
 1.  The obedience of faith
 
-    A person must be at least willing to do His will - obedience is the essence of faith:
+    A person must be at least willing to do His will - obedience is at the essence of faith:
     
     > **John 7:17** - If anyone is willing to do His will, he will know of the teaching, whether it is of God or whether I speak from Myself.
     
@@ -6861,7 +6873,84 @@ Salvation is the gift, and faith implies an obedient heart. Works can be dead wo
     > **1 Timothy 1:5** -  The aim of our charge is love that issues from a pure heart and a good conscience and a sincere faith.  (ESV)
 
 
-### Faith requires obedience
+# Faith in God
+
+> **Hebrews 11:1** - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
+
+
+## Only with God are all things possible for one who believes. Our faith must be faith 'with God', and our faith should in accordance with His will
+
+> **Romans 8:31** - What then shall we say to these things? <ins>If God is for us, who can be against us?</ins> (ESV)
+
+With faith the impossible is possible, but <ins>not without God making it happen:</ins>
+
+> **Matthew 17:20** - He said to them, Because of your little faith. For truly, I say to you, **if you have faith** like a grain of mustard seed, you will say to this mountain, Move from here to there, and it will move, and **nothing will be impossible for you.** (ESV)
+
+**With God**, the impossible is possible. I think this is saying that <ins>**to be in accordance with God's will is an intrinsic quality of faith**</ins>:
+
+> **Mark 10:27** - Jesus looked at them and said, **With man it is impossible, but not with God. For all things are possible with God.** (ESV)
+
+> **Matthew 19:26** - But Jesus looked at them and said, With man this is impossible, but **with God all things are possible.** (ESV)
+
+> **Mark 9:23** - And Jesus said to him, If you can! **All things are possible for one who believes.** (ESV)
+
+But our faith, as Christians, should be while willing God's will. We can ask God for things, but we should desire His will be done:
+
+> **Mark 14:36** - And he said, Abba, Father, **all things are possible for you.** Remove this cup from me. **Yet not what I will, but what you will.** (ESV)
+
+
+## This guy supplicated to Jesus. Did he pray to Jesus? Maybe that's what Jesus meant by prayer
+
+> **Mark 9:23-29** - And Jesus said to him, If you can! All things are possible for one who believes. Immediately the father of the child cried out and said, **I believe; help my unbelief!** And when Jesus saw that a crowd came running together, he rebuked the unclean spirit, saying to it, You mute and deaf spirit, <ins>I command you, come out of him and never enter him again.</ins> And after crying out and convulsing him terribly, it came out, and the boy was like a corpse, so that most of them said, He is dead. But Jesus took him by the hand and lifted him up, and he arose. And when he had entered the house, his disciples asked him privately, Why could we not cast it out? And he said to them, This kind cannot be driven out by anything but **prayer.** (ESV)
+
+Also, one other interesting note is Jesus commanded the demon to come out and to never reenter again.
+
+Also, when we pray, we will for God's will to be done:
+
+> **Matthew 6:9-12** - Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, <ins>your will be done,</ins> on earth as it is in heaven. Give us this day our daily bread, and forgive us our debts, as we also have forgiven our debtors. (ESV)
+
+
+## Faith should be built up on trusting the Word of God
+
+> **II Chronicles 20:20** - And they rose early in the morning and went out into the wilderness of Tekoa. And when they went out, Jehoshaphat stood and said, Hear me, Judah and inhabitants of Jerusalem! Believe in the LORD your God, and you will be established; believe his prophets, and you will succeed. (ESV)
+
+
+## We should have minds that, by testing, we can discern the will of God, and act in faith according to God's will as far as we can discern
+
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
+
+
+## Faith (which is intrinsically in accordance with God's will) being built up, miracles result
+
+> **Mark 11:23** - Truly, I say to you, whoever says to this mountain, Be taken up and thrown into the sea, and does not doubt in his heart, but believes that what he says will come to pass, **it will be done for him.** (ESV)
+
+> **Matthew 17:20** - He said to them, Because of your little faith. For truly, I say to you, **if you have faith** like a grain of mustard seed, you will say to this mountain, Move from here to there, and it will move, and **nothing will be impossible for you.** (ESV)
+
+> **Matthew 21:21-22** - And Jesus answered them, Truly, I say to you, if you have faith and do not doubt, you will not only do what has been done to the fig tree, but even if you say to this mountain, Be taken up and thrown into the sea, it will happen. And whatever you ask in prayer, you will receive, if you have faith. (ESV)
+
+> **Luke 17:6** - And the Lord said, If you had faith like a grain of mustard seed, you could say to this mulberry tree, Be uprooted and planted in the sea, and it would obey you. (ESV)
+
+
+## This man trusted Jesus' word - He had faith in Jesus. Jesus was acting in faith
+
+> **John 4:48-50** - So Jesus said to him, Unless you see signs and wonders you will not believe. The official said to him, Sir, come down before my child dies. Jesus said to him, Go; your son will live. The man believed the word that Jesus spoke to him and went on his way. (ESV)
+
+
+## This man had faith to be made well. Paul the Apostle was also acting in faith
+
+> **Acts 14:8-10** - Now at Lystra there was a man sitting who could not use his feet. He was crippled from birth and had never walked. He listened to Paul speaking. And Paul, looking intently at him and seeing that he had faith to be made well, said in a loud voice, Stand upright on your feet. And he sprang up and began walking. (ESV)
+
+
+## Jesus, with faith, commanded the unclean spirit to leave
+
+> **Mark 9:19** - And he answered them, O faithless generation, how long am I to be with you? How long am I to bear with you? Bring him to me. (ESV)
+
+> **Mark 9:23** - And Jesus said to him, If you can! **All things are possible for one who believes.** (ESV)
+
+> **Mark 9:25** - And when Jesus saw that a crowd came running together, he rebuked the unclean spirit, saying to it, You mute and deaf spirit, I command you, come out of him and never enter him again. (ESV)
+
+
+### Faith requires obedience - i.e. acting in faith / living by faith
 
 > **Luke 8:21** - But He answered and said to them, “My mother and My brothers are these who hear the word of God and do it.”
 
@@ -6881,6 +6970,10 @@ You can't have faith without obedience.
 Our hope should not be on our own lustful or idolatrous desires, but our hope should be on God's promises:
 
 > **Proverbs 4:23** - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
+
+Actually, our faith and hope and heart's desire and our walking in faith should really be in line with God's will, and God's plan:
+
+> **Matthew 6:9-12** - Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, <ins>your will be done,</ins> on earth as it is in heaven. Give us this day our daily bread, and forgive us our debts, as we also have forgiven our debtors. (ESV)
 
      1  Faith-in-God = Hope-from/in-God * Work/Love/Walking-By-Faith
      2  
@@ -8367,7 +8460,7 @@ And I follow pursue the commandments by faith and not works.
 
 > **Ephesians 2:8-9** - For **by grace you have been saved through faith.** And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
-A person must be at least willing to do His will - obedience is the essence of faith:
+A person must be at least willing to do His will - obedience is at the essence of faith:
 
 > **John 7:17** - If anyone is willing to do His will, he will know of the teaching, whether it is of God or whether I speak from Myself.
 
@@ -8854,7 +8947,7 @@ reason to discourage people from obeying the gospel by the false (in my opinion)
 
 > **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall <ins>live by</ins> faith.
 
-A person must be at least willing to do His will - obedience is the essence of faith:
+A person must be at least willing to do His will - obedience is at the essence of faith:
 
 > **John 7:17** - If anyone is willing to do His will, he will know of the teaching, whether it is of God or whether I speak from Myself.
 
@@ -10312,7 +10405,7 @@ A person with true faith in God walks into the truth because true faith has eyes
 
 > **Hebrews 11:1** - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
 
-> **Matthew 17:20** - He said to them, Because of your little faith. For truly, I say to you, if you have faith like a grain of mustard seed, you will say to this mountain, Move from here to there, and it will move, and nothing will be impossible for you. (ESV)
+> **Matthew 17:20** - He said to them, Because of your little faith. For truly, I say to you, **if you have faith** like a grain of mustard seed, you will say to this mountain, Move from here to there, and it will move, and **nothing will be impossible for you.** (ESV)
 
 > **Revelation of John 3:8** - I know your **works**. Behold, I have set before you an open door, which no one is able to shut. I know that you have but little power, and yet you have **kept my word and have not denied my name**. Behold, I will make those of the synagogue of Satan who say that they are Jews and are not, but lie-behold, I will make them come and bow down before your feet and they will learn that I have loved you. Because you have kept my word about **patient endurance**, I will keep you from the hour of trial that is coming on the whole world, to try those who dwell on the earth.
 
@@ -10360,7 +10453,7 @@ Salvation is the gift. Works can be dead works when they're not done in faith. T
 
 > **Ephesians 2:8-9** - For **by grace you have been saved through faith.** And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
-A person must be at least willing to do His will - obedience is the essence of faith:
+A person must be at least willing to do His will - obedience is at the essence of faith:
 
 > **John 7:17** - If anyone is willing to do His will, he will know of the teaching, whether it is of God or whether I speak from Myself.
 
@@ -12293,7 +12386,7 @@ Jesus says we must do the will of God:
 
 The will of God must be discerned through testing with a renewed mind:
 
-> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
 
 Loving one another is the will of God:
 
@@ -14301,7 +14394,7 @@ Stress: Trust in God.
 
 &#x2014;
 
-> **Romans 8:31** - What then shall we say to these things? If God is for us, who can be against us? (ESV)
+> **Romans 8:31** - What then shall we say to these things? <ins>If God is for us, who can be against us?</ins> (ESV)
 
 -   **<ins>Condition:</ins> When God is for you.:** <ins>Promise:</ins> No one can be against you.
 
@@ -15034,7 +15127,7 @@ Even our bodies will be raised imperishable:
 
 > **James 4:4** - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
 
-> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
 
 > **I Corinthians 5:10** - not at all meaning the sexually immoral of this world, or the greedy and swindlers, or idolaters, since then you would need to go out of the world. (ESV)
 
@@ -15832,7 +15925,7 @@ Repentance in the heart:
 
 ### 
 
-> **Mark 9:23** - And Jesus said to him, If you can! All things are possible for one who believes. (ESV)
+> **Mark 9:23** - And Jesus said to him, If you can! **All things are possible for one who believes.** (ESV)
 
 
 ### 
