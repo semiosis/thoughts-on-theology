@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,504 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Egyptian gods and goddesses of the ten plagues and their judgment and defeat
+by the God of gods
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Each of the ten plagues brought upon Egypt by God showed God's power
+over one or more Egyptian gods and/or goddesses. He was showing the
+Egyptians that their gods and goddesses were no match for the true God who
+is the Creator of the universe including their false gods which all have a
+devil behind them. God is the God of gods. We are told this six times in
+scripture. (Deuteronomy 10:17 For the LORD your God is God of gods, and
+Lord of lords, a great God, a mighty, and a terrible, which regardeth not
+persons, nor taketh reward:) God showed he is more powerful than all of
+Egypt's false gods. (Note that many of the plagues had additional minor
+gods. Some are mentioned, but not all of them. The gods are called by
+various names and have various spellings depending on the source.) Pharaoh
+was warned by God speaking through Moses that Israel was God's firstborn
+and if he did not let Israel go, God would kill all of the firstborn of
+Egypt. Pharaoh did not believe God and hardened his heart after each
+plague. This led to his eternal death in the lake of fire along with his
+son. Let us not make the same mistake. (Exodus 4:22-23 And thou shalt say
+unto Pharaoh, Thus saith the LORD, Israel is my son, even my firstborn:
+23 And I say unto thee, Let my son go, that he may serve me: and if thou
+refuse to let him go, behold, I will slay thy son, even thy firstborn.)
+(Exodus 12:12 For I will pass through the land of Egypt this night, and
+will smite all the firstborn in the land of Egypt, both man and beast; and
+against all the gods of Egypt I will execute judgment: I am the LORD.) God
+showed his power by controlling how some of the plagues only affected the
+Egyptians and not the Israelites. The gods and goddesses had no control
+over the Goshen part of Egypt. These plagues would be remembered by all
+generations throughout the world continuing to be a reminder of the one
+true God and his power over the false gods. God had the plagues so his
+name may be declared throughout all the earth. (Exodus 9:16 And in very
+deed for this cause have I raised thee up, for to shew in thee my power;
+and that my name may be declared throughout all the earth.)
 
-Username or email _____________________
+In some of the plagues we will look at, we will see how Pharaoh's
+magicians were able to duplicate some of the plagues. The difference is
+that they were never able to get rid of the plague and were not able to
+duplicate all of them. They were only able to do this because God allowed
+them to do this. It was not by their false gods and goddesses. God will
+let Satan do certain things to give people a choice on who is the true
+living God. This will be very apparent in the tribulation when Satan is
+allowed much freedom. Satan only can do what God allows him to do. Satan
+is not God. Jesus is God.
 
-Reset password
+The first plague was the plague of blood and lasted a week. (Exodus
+7:14-25) All of the water in Egypt was turned to blood from the life
+giving Nile river to all their streams, rivers, ponds, and pools of water.
+(Exodus 7:19 ¶ And the LORD spake unto Moses, Say unto Aaron, Take thy
+rod, and stretch out thine hand upon the waters of Egypt, upon their
+streams, upon their rivers, and upon their ponds, and upon all their pools
+of water, that they may become blood; and that there may be blood
+throughout all the land of Egypt, both in vessels of wood, and in vessels
+of stone.) (Exodus 7:25 And seven days were fulfilled, after that the LORD
+had smitten the river.) The people had to dig around for water and all of
+the fish died leaving a stink upon the land. We all know we need water to
+live. The Egyptians rejected the living water of Jesus. This plaque was
+judgment against the Egyptian god Hapi who was the god of the Nile, Khnum
+the guardian god of river's source, and Osiris. The Nile was the
+bloodstream of Osiris, so his bloodstream became polluted in this plague.
+Hapi had no control over his river. Hapi was a water bearer who could not
+provide water or the life it brings. Pharaoh's magicians were able to
+duplicate turning water into blood, but only Moses through the power of
+God was able to change it back.
+
+The second plague was the plague of frogs. (Exodus 8:1-15) The frogs
+covered all thy borders of Egypt. They were even in their houses, beds,
+and ovens. (Exodus 8:2-4 And if thou refuse to let them go, behold, I will
+smite all thy borders with frogs:
+3 And the river shall bring forth frogs abundantly, which shall go up and
+come into thine house, and into thy bedchamber, and upon thy bed, and into
+the house of thy servants, and upon thy people, and into thine ovens, and
+into thy kneadingtroughs:
+4 And the frogs shall come up both on thee, and upon thy people, and upon
+all thy servants.) Moses gave Pharaoh the choice when this plague would
+end. He chose the next day. (Exodus 8:10 And he said, To morrow. And he
+said, Be it according to thy word: that thou mayest know that there is
+none like unto the LORD our God.) All of the dead frogs were gathered into
+heaps and once again the land of Egypt stank. Sin always stinks. (Exodus
+8:14 And they gathered them together upon heaps: and the land stank.) This
+plague was judgment again against the Egyptian god Hapi the god of the
+Nile as this is where the frogs came from and he was unable to contain
+them to the river, but mostly against the Egyptian goddess Heket (Heqt
+[Heqet]) who was the goddess of fertility, water, and renewal. The head of
+Heket was a frog. Heket had no control over her frogs. Pharaoh's magicians
+duplicated the feat of bringing frogs upon the land of Egypt, but only
+Moses through the power of God was able to remove the frogs. Frogs will be
+seen again in Revelation during the tribulation connected with evil
+spirits. (Revelation 16:13 And I saw three unclean spirits like frogs come
+out of the mouth of the dragon, and out of the mouth of the beast, and out
+of the mouth of the false prophet.)
+
+The third plague was the plague of lice. This covered all of the dust
+of the land throughout Egypt. The magicians could not duplicate this
+plague. They said it had to be the finger of God, recognizing God was more
+powerful than their god. Scripture does not say, but most likely the lice
+was removed the next day prior to the plague of flies. (Exodus 8:16-19 ¶
+And the LORD said unto Moses, Say unto Aaron, Stretch out thy rod, and
+smite the dust of the land, that it may become lice throughout all the
+land of Egypt.
+17 And they did so; for Aaron stretched out his hand with his rod, and
+smote the dust of the earth, and it became lice in man, and in beast; all
+the dust of the land became lice throughout all the land of Egypt.
+18 And the magicians did so with their enchantments to bring forth lice,
+but they could not: so there were lice upon man, and upon beast.
+19 Then the magicians said unto Pharaoh, This is the finger of God: and
+Pharaoh's heart was hardened, and he hearkened not unto them; as the LORD
+had said.) The same dust that was used to create man was now used to
+plague man and remind him of his sin and death. This plague was judgment
+against the Egyptian god Geb (Seb) who was the god of the earth.
+
+The fourth plague was the plague of flies. (Exodus 8:20-32) This
+plague only affected the Egyptians. It did not affect Goshen where the
+Israelites lived. The flies were in the houses of the Egyptians and upon
+the ground. The land was corrupted by reason of the flies. The flies were
+removed the next day. (Exodus 8:24 And the LORD did so; and there came a
+grievous swarm of flies into the house of Pharaoh, and into his servants'
+houses, and into all the land of Egypt: the land was corrupted by reason
+of the swarm of flies.) This plague was judgment against the Egyptian god
+Khepri (Uatchit) who was the god of creation, movement of the sun, and
+rebirth. The head of Khepri was a fly.
+
+The fifth plague was the plague of murrain against the cattle.
+(Exodus 9:1-7) This murrain (infectious fatal disease that affects cattle)
+did not affect the Israelite's cattle, only the Egyptians. (Exodus 9:3-4
+Behold, the hand of the LORD is upon thy cattle which is in the field,
+upon the horses, upon the asses, upon the camels, upon the oxen, and upon
+the sheep: there shall be a very grievous murrain.
+4 And the LORD shall sever between the cattle of Israel and the cattle of
+Egypt: and there shall nothing die of all that is the children's of
+Israel.) With the death of these animals it would affect horses used by
+the military, animals for work and to eat. Only animals in the field were
+affected. That is why the Egyptians still had some horses, et cetera after
+this plague. This plague was judgment against the Egyptian goddess Hathor
+who was the goddess of love and protection. She failed to protect the
+cattle. The head of Hathor was a cow. Judgment was also against Ptah, the
+god of creation.
+
+The sixth plague was the plague of boils. (Exodus 9:8-12) Moses
+sprinkled ashes of the furnace toward heaven and boils breaking forth with
+blains (blisters) broke out upon both man and beast. This plague affected
+the Egyptians directly and even the magicians were unable to come before
+Pharaoh. This plague did not affect the Israelites. (Exodus 9:10 And they
+took ashes of the furnace, and stood before Pharaoh; and Moses sprinkled
+it up toward heaven; and it became a boil breaking forth with blains upon
+man, and upon beast.) This plague was judgment against the Egyptian
+goddess Isis who was the goddess of medicine and peace [some say she was
+the goddess of agriculture]. Isis was unable to cure the Egyptians. Only
+Moses and Aaron were able to stand before Pharaoh, as they served the true
+God. Cleanliness was very important to the Egyptians. This plague made
+them unclean and even the magicians were unclean and unable to perform
+their ceremonial duties before their gods and goddesses. Judgment was also
+against Sekhmet, the Egyptian goddess of healing. She was unable to heal.
+
+The seventh plague was the plague of hail. (Exodus 9:13-35) The
+Egyptians were given a choice whether they were affected by this plague or
+not. If the people kept themselves and their cattle inside, they would be
+unharmed. Those who willingly disobeyed God and remained outside, both
+they and any cattle outside would die. God gives people the same choice
+today. They can obey God by admitting they are a sinner and call upon his
+Son Jesus and be saved or reject his Son Jesus and die a second death and
+spend eternity in the lake of fire. Christians today should make their
+houses a refuge from the sinful world. (Exodus 9:19 Send therefore now,
+and gather thy cattle, and all that thou hast in the field; for upon every
+man and beast which shall be found in the field, and shall not be brought
+home, the hail shall come down upon them, and they shall die.) The cattle
+mentioned in this plague were not killed in the earlier plague of the
+murrain since they had not been in the field. This plague did not affect
+the Israelites. This plague of hail had fire mixed in with it, similar to
+what would be seen later in Sodom. The hail was the worst ever seen in
+Egypt. (Exodus 9:23 And Moses stretched forth his rod toward heaven: and
+the LORD sent thunder and hail, and the fire ran along upon the ground;
+and the LORD rained hail upon the land of Egypt.) The hail not only
+affected people and beast in the field, but also the herbs of the field
+and brake every tree of the field. (Exodus 9:25 And the hail smote
+throughout all the land of Egypt all that was in the field, both man and
+beast; and the hail smote every herb of the field, and brake every tree of
+the field.) The Egyptians would lose much great lumber and crops (flax and
+barley) used for clothing and some food. Their main food of wheat and rie
+was preserved by God, again giving them another chance to choose the real
+God of the universe. Hail will be used again in the tribulation weighing
+up to about 90 pounds. (Revelation 16:21 And there fell upon men a great
+hail out of heaven, every stone about the weight of a talent: and men
+blasphemed God because of the plague of the hail; for the plague thereof
+was exceeding great.) This plague was judgment against the Egyptian
+goddess Nut who was the goddess of the sky. Nut had no control over the
+heaven and the hail that came from it.
+
+The eighth plague was the plague of locusts. (Exodus 10:1-20) This
+plague was meant so that the Israelites could tell in his son and son's
+son's ears what things God had wrought in Egypt and that "I am the LORD.
+(Exodus 10:2 And that thou mayest tell in the ears of thy son, and of thy
+son's son, what things I have wrought in Egypt, and my signs which I have
+done among them; that ye may know how that I am the LORD.) An east wind
+blew all day and all night and brought in the locusts the next day.
+(Exodus 10:13 And Moses stretched forth his rod over the land of Egypt,
+and the LORD brought an east wind upon the land all that day, and all that
+night; and when it was morning, the east wind brought the locusts.) This
+plague would eat all herbs of the field that the hail did not eat. (Exodus
+10:12 ¶ And the LORD said unto Moses, Stretch out thine hand over the land
+of Egypt for the locusts, that they may come up upon the land of Egypt,
+and eat every herb of the land, even all that the hail hath left.) (Exodus
+10:14-15 And the locusts went up over all the land of Egypt, and rested in
+all the coasts of Egypt: very grievous were they; before them there were
+no such locusts as they, neither after them shall be such.
+15 For they covered the face of the whole earth, so that the land was
+darkened; and they did eat every herb of the land, and all the fruit of
+the trees which the hail had left: and there remained not any green thing
+in the trees, or in the herbs of the field, through all the land of
+Egypt.) The locusts most likely now ate the wheat and rie destroying the
+food source of the Egyptians and putting them in danger of starving to
+death. Yet Pharaoh would not repent and cared not for his people. Even his
+servants said to let them go as Egypt was destroyed. (Exodus 10:7 And
+Pharaoh's servants said unto him, How long shall this man be a snare unto
+us? let the men go, that they may serve the LORD their God: knowest thou
+not yet that Egypt is destroyed?) This plague was judgment against the
+Egyptian god Seth who was the god of storms and disorder. Seth maintained
+no order.
+
+The ninth plague was the plague of darkness. (Exodus 10:21-29) The
+land was so dark, it could be felt. (Darkness represents evil as it is the
+absence of light of which Jesus is light. Without Jesus, there is no
+light. Evil can be felt. This type of darkness will be seen again in the
+tribulation. (Revelation 16:10 And the fifth angel poured out his vial
+upon the seat of the beast; and his kingdom was full of darkness; and they
+gnawed their tongues for pain,) (Exodus 10:21 ¶ And the LORD said unto
+Moses, Stretch out thine hand toward heaven, that there may be darkness
+over the land of Egypt, even darkness which may be felt.) This darkness
+lasted three days. (Exodus 10:22 And Moses stretched forth his hand toward
+heaven; and there was a thick darkness in all the land of Egypt three
+days:) The Israelites were not affected by the darkness, but had light as
+they had the light of the true God Jehovah. Hell will be a place of outer
+darkness. May all choose the light of Jesus and never have darkness.
+Pharaoh told Moses never to come before him again or he would kill him.
+Pharaoh foretold his own son's death in the last plague without even
+realizing it. (Exodus 10:28 And Pharaoh said unto him, Get thee from me,
+take heed to thyself, see my face no more; for in that day thou seest my
+face thou shalt die.) He chose darkness. Most people do as well as they
+love darkness. (John 3:19 And this is the condemnation, that light is come
+into the world, and men loved darkness rather than light, because their
+deeds were evil.) This plague was judgment against the Egyptian god Ra
+[Re] the god of the sun. Obviously God showed that he alone has power over
+the sun, not Ra. God told man not to worship the sun. (Deuteronomy 17:3
+And hath gone and served other gods, and worshipped them, either the sun,
+or moon, or any of the host of heaven, which I have not commanded;)
+Judgment was also against the Egyptian god Thoth who was the god of the
+moon. He also could not reflect any light.
+
+The tenth and final plague was the plague of the death of the
+firstborn. (Exodus 11:1-12:36) This plague took the life of the firstborn
+of both man and beast including the son of Pharaoh. (Exodus 11:5 And all
+the firstborn in the land of Egypt shall die, from the firstborn of
+Pharaoh that sitteth upon his throne, even unto the firstborn of the
+maidservant that is behind the mill; and all the firstborn of beasts.) The
+Israelites were only exempt from this plague if they obeyed God by placing
+blood on their doorposts and eating the unblemished first year lamb. They
+had to actively choose to obey God in this plague in order to be exempt.
+They had to show sacrifice and the gospel in their ritual in order to
+live, the same that is done for spiritual life. This was the start of the
+feast of passover and the feast of unleavened bread as the destroyer would
+pass over the doorposts covered in blood. (Exodus 12:23 For the LORD will
+pass through to smite the Egyptians; and when he seeth the blood upon the
+lintel, and on the two side posts, the LORD will pass over the door, and
+will not suffer the destroyer to come in unto your houses to smite you.)
+This represented the blood of Jesus we as Christians have been covered in
+and all those who call upon his name. If we are covered in the blood of
+Jesus, we shall never see spiritual death or the second death. We will
+only have one death unless we go in the rapture. A Christian is born twice
+and dies once. The unsaved are born once and die twice. May we all be born
+twice. Jesus became our passover. (I Corinthians 5:7 Purge out therefore
+the old leaven, that ye may be a new lump, as ye are unleavened. For even
+Christ our passover is sacrificed for us:) The unleavened bread was
+because the Israelites had to leave in a hurry and did not have time to
+let the bread rise. (Leaven also represents sin.) This plague was judgment
+against the god of Pharaoh. Pharaoh was worshipped by the Egyptians as the
+greatest god of all. It was believed he was the son of Ra, manifest in the
+flesh. Satan always copies the real thing. God showed Pharaoh who was God.
+Pharaoh could not even save his own son. God warned Pharaoh prior to the
+start of the plagues to let his firstborn son Israel go or he would take
+his firstborn. Pharaoh like many of us did not listen. God always does
+what he says he will do. (See Exodus 4:22-23 above) This plague was
+judgment against not only the god Pharaoh, but all of the gods of Egypt.
+(Exodus 12:12 For I will pass through the land of Egypt this night, and
+will smite all the firstborn in the land of Egypt, both man and beast; and
+against all the gods of Egypt I will execute judgment: I am the LORD.)
+Many of these same plagues will be seen on a greater scale during the
+tribulation.
+
+As a result of these plagues, the Egyptians gave "such things as they
+required". This included jewels of silver, gold, and raiment. (Exodus
+12:35-36) God brought 600,000 men, not including women or children and
+their cattle out of Egypt on the selfsame day that the 430 years God said
+they would be in Egypt came to pass. (Exodus 12:37, 41) God would destroy
+Pharaoh and his army in the Red sea. (Exodus 14:28) (Psalm 136:15 But
+overthrew Pharaoh and his host in the Red sea: for his mercy endureth for
+ever.) God showed that he is the God of gods and that all of Egypt's gods
+were no match for the one true God who created them. The ten plagues
+showed the complete judgment of God on Egypt and on their gods and
+goddesses. (Numbers 33:4 For the Egyptians buried all their firstborn,
+which the LORD had smitten among them: upon their gods also the LORD
+executed judgments.) These plagues not only showed judgment against Egypt,
+but showed the power of God to the Israelites so that they might serve him
+and call upon him for salvation. May we all serve God and call upon him
+for salvation.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

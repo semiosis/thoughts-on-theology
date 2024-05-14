@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,533 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Was Jesus born on Christmas?
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+People often ask was Jesus born on Christmas? Everyone seems to agree
+that he was not. Scripture also agrees. Scripture says the shepherds were
+out in the field at the time of the birth of Jesus and angels appeared
+unto them. Notice angels were first sent to shepherds just as Jesus is the
+chief Shepherd. Shepherds were considered lowly in society and Jesus went
+to the lowliest first. Jesus always goes to what society thinks of as
+outcasts first. (Luke 2:7-20 And she brought forth her firstborn son, and
+wrapped him in swaddling clothes, and laid him in a manger; because there
+was no room for them in the inn.
+8 And there were in the same country shepherds abiding in the field,
+keeping watch over their flock by night.
+9 And, lo, the angel of the Lord came upon them, and the glory of the Lord
+shone round about them: and they were sore afraid.
+10 And the angel said unto them, Fear not: for, behold, I bring you good
+tidings of great joy, which shall be to all people.
+11 For unto you is born this day in the city of David a Saviour, which is
+Christ the Lord.
+12 And this shall be a sign unto you; Ye shall find the babe wrapped in
+swaddling clothes, lying in a manger.
+13 And suddenly there was with the angel a multitude of the heavenly host
+praising God, and saying,
+14 Glory to God in the highest, and on earth peace, good will toward men.
+15 And it came to pass, as the angels were gone away from them into
+heaven, the shepherds said one to another, Let us now go even unto
+Bethlehem, and see this thing which is come to pass, which the Lord hath
+made known unto us.
+16 And they came with haste, and found Mary, and Joseph, and the babe
+lying in a manger.
+17 And when they had seen it, they made known abroad the saying which was
+told them concerning this child.
+18 And all they that heard it wondered at those things which were told
+them by the shepherds.
+19 But Mary kept all these things, and pondered them in her heart.
+20 And the shepherds returned, glorifying and praising God for all the
+things that they had heard and seen, as it was told unto them.) Shepherds
+are not in the fields at night in December. It is too cold and the
+shepherds would find shelter for the sheep and themselves at night.
 
-Username or email _____________________
+Scripture tells us the Romans had ordered a census to be taken and
+this was the reason that Joseph and Mary were in Bethlehem at the time of
+the birth of Jesus. (Luke 2:1-7 And it came to pass in those days, that
+there went out a decree from Cæsar Augustus, that all the world should be
+taxed.
+2 (And this taxing was first made when Cyrenius was governor of Syria.)
+3 And all went to be taxed, every one into his own city.
+4 And Joseph also went up from Galilee, out of the city of Nazareth, into
+Judæa, unto the city of David, which is called Bethlehem; (because he was
+of the house and lineage of David:)
+5 To be taxed with Mary his espoused wife, being great with child.
+6 And so it was, that, while they were there, the days were accomplished
+that she should be delivered.
+7 And she brought forth her firstborn son, and wrapped him in swaddling
+clothes, and laid him in a manger; because there was no room for them in
+the inn.) The Romans never took a census in December because the weather
+could bring snow and other bad weather and it would defeat the purpose of
+the census if people could not travel and be counted especially since it
+was for tax purposes.  
 
-Reset password
+If Jesus was not born on December 25, does scripture tells us when he
+was born? Scripture gives us clues to point out his date of birth showing
+a fall birth. We are told that Jesus was conceived when Elisabeth was six
+months pregnant with John the Baptist. (Luke 1:24-27 And after those days
+his wife Elisabeth conceived, and hid herself five months, saying,
+25 Thus hath the Lord dealt with me in the days wherein he looked on me,
+to take away my reproach among men.
+26 And in the sixth month the angel Gabriel was sent from God unto a city
+of Galilee, named Nazareth,
+27 To a virgin espoused to a man whose name was Joseph, of the house of
+David; and the virgin's name was Mary.) (Luke 1:36 And, behold, thy cousin
+Elisabeth, she hath also conceived a son in her old age: and this is the
+sixth month with her, who was called barren.) We can determine when John
+the Baptist was born. Zacharias was the dad of John the Baptist and was a
+priest of the order of Abijah. (Luke 1:5 ¶ There was in the days of Herod,
+the king of Judæa, a certain priest named Zacharias, of the course of
+Abia: and his wife was of the daughters of Aaron, and her name was
+Elisabeth.) Zacharias was told while he was performing his priestly duties
+by the angel Gabriel that his wife Elisabeth would become pregnant after
+his duties were done. (Luke 1:13 But the angel said unto him, Fear not,
+Zacharias: for thy prayer is heard; and thy wife Elisabeth shall bear thee
+a son, and thou shalt call his name John.) (Luke 1:23-25 And it came to
+pass, that, as soon as the days of his ministration were accomplished, he
+departed to his own house.
+24 And after those days his wife Elisabeth conceived, and hid herself five
+months, saying,
+25 Thus hath the Lord dealt with me in the days wherein he looked on me,
+to take away my reproach among men.) David had the priests divided into 24
+orders that would serve at certain times at the tabernacle and later the
+temple. We are told the order of Abia was the eighth order of priests. (I
+Chronicles 24:10 The seventh to Hakkoz, the eighth to Abijah,) All of the
+priests would serve on the major feast days of Passover and unleavened
+bread, Pentecost, and Feast of Tabernacles since every male was required
+to bring a sacrifice and help would be needed and then each was assigned a
+week of eight days from sabbath to sabbath that they served with Zacharias
+being of the eighth order. (II Chronicles 23:8 So the Levites and all
+Judah did according to all things that Jehoiada the priest had commanded,
+and took every man his men that were to come in on the sabbath, with them
+that were to go out on the sabbath: for Jehoiada the priest dismissed not
+the courses.) Each priest would have two cycles of duty throughout the
+year plus the three main feasts for a total of roughly five weeks of duty
+a year. The Jewish religious year starts with Nisan which is in the spring
+around March or April depending on the year since the Jews have a calendar
+based off of the lunar year of 360 days rather than ours based off of the
+solar year of 365 days. (Esther 3:7 ¶ In the first month, that is, the
+month Nisan, in the twelfth year of king Ahasuerus, they cast Pur, that
+is, the lot, before Haman from day to day, and from month to month, to the
+twelfth month, that is, the month Adar.) The first two orders would serve
+and then the third week would be the week of unleavened bread with all
+orders serving and then the third order would continue for a week and then
+the orders would continue with the other two main feasts also included.
+Zacharias would have served the tenth week of the Jewish year with the
+feasts of unleavened bread and Pentecost having already occurred. This
+would be the third Jewish month of Sivan around May or June of our
+calendar. Zacharias would have finished his week on the third sabbath of
+the month and then returned home with Elisabeth conceiving John the
+Baptist shortly afterwards. Jesus was conceived six months after John the
+Baptist as we read earlier. Six months from late in the third month of
+Sivan brings us to late in the ninth month of Kislev which is November to
+December of our calendar. Hanukkah is on 25 Kislev and is the festival of
+lights. It is also known as the feast of dedication. (John 10:22 ¶ And it
+was at Jerusalem the feast of the dedication, and it was winter.) Jesus
+most likely was conceived on Hanukkah as Jesus is the light of the world
+and would have been dedicated to the world. (John 12:8 ¶ Then spake Jesus
+again unto them, saying, I am the light of the world: he that followeth me
+shall not walk in darkness, but shall have the light of life.) John the
+Baptist would have been born around the following Passover or 15 Nissan
+after 40 weeks gestation. Jesus compared John the Baptist with Elijah and
+even today the Jews put out a plate for Elijah at passover waiting for his
+return. (Malachi 4:5 ¶ Behold, I will send you Elijah the prophet before
+the coming of the great and dreadful day of the LORD:) (Matthew 17:12-13
+But I say unto you, That Elias is come already, and they knew him not, but
+have done unto him whatsoever they listed. Likewise shall also the Son of
+man suffer of them.
+13 Then the disciples understood that he spake unto them of John the
+Baptist.) The angel Gabriel also compared John the Baptist with Elijah
+when he spoke with Zacharias. (Luke 1:17 And he shall go before him in the
+spirit and power of Elias, to turn the hearts of the fathers to the
+children, and the disobedient to the wisdom of the just; to make ready a
+people prepared for the Lord.) If you go six months from 15 Nisan for the
+birth of Jesus it places the birth of Jesus on 15 Tishri which is the
+first day of the feast of tabernacles around September or October of our
+calendar. (Leviticus 23:34 Speak unto the children of Israel, saying, The
+fifteenth day of this seventh month shall be the feast of tabernacles for
+seven days unto the LORD.) Jesus would have been circumcised on the eight
+and last day of the feast. (Luke 2:21 And when eight days were
+accomplished for the circumcising of the child, his name was called JESUS,
+which was so named of the angel before he was conceived in the womb.) The
+feast of tabernacles occurs just after the fall harvest. Jesus was born in
+Bethlehem which means house of bread and he represents this harvest as the
+living bread. (John 6:51 I am the living bread which came down from
+heaven: if any man eat of this bread, he shall live for ever: and the
+bread that I will give is my flesh, which I will give for the life of the
+world.) God gives another clue that Jesus was born on the feast of
+tabernacles in John 1:14. [John 1:14 And the Word was made flesh, and
+dwelt among us, (and we beheld his glory, the glory as of the only
+begotten of the Father,) full of grace and truth.] The word dwelt in this
+verse is equivalent to tabernacle and God is saying Jesus tabernacled with
+us or that he was born on the feast of tabernacles. This would be as if
+someone was born on Christmas and we said they Christmased with us to let
+people know when the person was born. Jesus was put into a temporary body
+of a man just as the Israelites were in temporary booths or succoths on
+the feast of tabernacles. The feast of tabernacles is today known as
+Succoth to represent these temporary booths. There was no room at the inn
+for Joseph and Mary because of all of the people in Bethlehem for the
+Roman census and also because of all of the people there to celebrate the
+feast of tabernacles as all Jewish males were required to attend. There
+were most likely many temporary booths set up for the feast in the fields.
+Jacob made booths or stables for his cattle and called them succoths.
+(Genesis 33:17 And Jacob journeyed to Succoth, and built him an house, and
+made booths for his cattle: therefore the name of the place is called
+Succoth.) Jesus was born in a manger in a stable since there was no room
+in the inn. (See Luke 2:7 and 2:12 which I read.) This may be another clue
+pointing to Jesus being born in a temporary booth or stable for the feast
+of tabernacles. Jesus may have transfigured on his birthday as Peter asked
+Jesus if he should build a tabernacle for him, Moses and Elijah not
+understanding that Moses and Elijah were already in their temporary bodies
+waiting for their glorified bodies. (Matthew 17:4 Then answered Peter, and
+said unto Jesus, Lord, it is good for us to be here: if thou wilt, let us
+make here three tabernacles; one for thee, and one for Moses, and one for
+Elias.) Peter would have asked since it was most likely the feast of
+tabernacles. It was at this time just after they returned from the
+mountain where Jesus was transfigured that Jesus made the comparison
+between Elijah and John the Baptist also showing how the transfiguration
+was most likely during the feast of tabernacles.
+
+One more clue shows that Jesus was born on the feast of tabernacles.
+Daniel 9:25-26 says Jesus would be cut off or crucified 483 years after
+the order was given to rebuild Jerusalem. The people should have known
+when Jesus would be born. The wise men followed the star to find him just
+as scripture said Jesus a Star would come out of Jacob, but they were not
+at his birth. (Matthew 2:2 Saying, Where is he that is born King of the
+Jews? for we have seen his star in the east, and are come to worship him.)
+(Numbers 24:17 I shall see him, but not now: I shall behold him, but not
+nigh: there shall come a Star out of Jacob, and a Sceptre shall rise out
+of Israel, and shall smite the corners of Moab, and destroy all the
+children of Sheth.) They probably came to Jesus when he was closer to two
+years old as Herod had all of the children under two years old killed
+based on the timing of the wise men and they saw Jesus when he was a young
+child and living in a house. (Matthew 2:11 ¶ And when they were come into
+the house, they saw the young child with Mary his mother, and fell down,
+and worshipped him: and when they had opened their treasures, they
+presented unto him gifts; gold, and frankincense, and myrrh.) (Matthew
+2:16 ¶ Then Herod, when he saw that he was mocked of the wise men, was
+exceeding wroth, and sent forth, and slew all the children that were in
+Bethlehem, and in all the coasts thereof, from two years old and under,
+according to the time which he had diligently enquired of the wise men.)
+(Daniel 9:25-26 Know therefore and understand, that from the going forth
+of the commandment to restore and to build Jerusalem unto the Messiah the
+Prince shall be seven weeks, and threescore and two weeks: the street
+shall be built again, and the wall, even in troublous times.
+26 And after threescore and two weeks shall Messiah be cut off, but not
+for himself: and the people of the prince that shall come shall destroy
+the city and the sanctuary; and the end thereof shall be with a flood, and
+unto the end of the war desolations are determined.) Notice Daniel 9:26
+says the Messiah would be cut off, but not for himself. This shows that
+Jesus died for our sins not for his as he was sinless. Messiah means
+anointed one and Jesus was publicly anointed as the Messiah by the Holy
+Ghost at his baptism which started his ministry. (Matthew 3:16 And Jesus,
+when he was baptized, went up straightway out of the water: and, lo, the
+heavens were opened unto him, and he saw the Spirit of God descending like
+a dove, and lighting upon him:) (Luke 3:22 And the Holy Ghost descended in
+a bodily shape like a dove upon him, and a voice came from heaven, which
+said, Thou art my beloved Son; in thee I am well pleased.) Luke says Jesus
+was about 30 years old when he began his ministry. (Luke 3:23 And Jesus
+himself began to be about thirty years of age, being (as was supposed) the
+son of Joseph, which was the son of Heli,) A Levite male had to be thirty
+years old before he could become a priest and Jesus is our High Priest.
+(Numbers 4:3 From thirty years old and upward even until fifty years old,
+all that enter into the host, to do the work in the tabernacle of the
+congregation.) (Hebrews 3:1 Wherefore, holy brethren, partakers of the
+heavenly calling, consider the Apostle and High Priest of our profession,
+Christ Jesus;) Jesus died on passover 3 ½ years after he started his
+ministry just after his baptism. If you go back 3 ½ years to his baptism,
+then his baptism was on the feast of tabernacles and the thirty years
+before that his birth on the feast of tabernacles. Every major event in
+the life of Jesus in his first coming was on a Jewish feast so his
+conception and birth would have been as well rather than on Christmas.
+
+Since I have shown that Jesus was born in the fall on the feast of
+tabernacles and not on Christmas on December 25, many Christians ask
+should Christians celebrate Christmas. Some Christians have started
+celebrating the birth of Jesus on the feast of tabernacles rather than on
+Christmas. Scripture never tells us to celebrate the birth of Jesus and
+there is no evidence any of the apostles or disciples of Jesus did, so if
+a Christian chooses not to they are not required to do so.
+
+The origin of Christmas comes from pagan traditions. Christmas was
+made Christian by the Roman Catholic Church to attract the heathen. The
+Roman Catholic Church changed the pagan holiday Saturnia for the false
+Roman god Saturn to Christmas supposedly to celebrate his birth. Christmas
+means "Christ's Mass" with Mass meaning death not birth showing how the
+Roman Catholic Church really feels about Jesus. The Roman Catholic Church
+often took a heathen thing and renamed it for some Christian purpose in
+order to get the heathen to convert to Roman Catholicism. The Catholic
+Dictionary admits that December 25 was chosen to replace the pagan winter
+festival to the sun. Saturnia was in celebration of the supposed rebirth
+of the sun after the recent winter solstice, the shortest day of the year
+which was believed to be the death of the sun. It is also adapted from the
+Yule holiday celebrated on the winter solstice. The origin of Christmas
+really goes back even further to the Babylonians. The Christmas tree is
+also from Babylonian origins. The Babylonians believed an evergreen tree
+sprang out of a dead tree stump. The stump of the tree represented the
+dead Nimrod and the new evergreen tree symbolized that Nimrod came back to
+life as Tammuz. The Romans decorated fir trees with red berries for
+Saturnia. The Egyptians and others also had similar trees decorated with
+the Egyptians using the palm tree instead of evergreen trees and the
+Druids the oak tree. The Romans decorated their trees with metal fertility
+balls in honor of their fertility god Bacchus to represent male testicles
+and placed twelve candles on the tree for their sun god Sol. Jeremiah
+10:3-4 may speak of these heathen customs of the tree, especially the
+Egyptians which the Israelites would know as it mentions the palm tree.
+(Jeremiah 10:2-5 Thus saith the LORD, Learn not the way of the heathen,
+and be not dismayed at the signs of heaven; for the heathen are dismayed
+at them.
+3 For the customs of the people are vain: for one cutteth a tree out of
+the forest, the work of the hands of the workman, with the axe.
+4 They deck it with silver and with gold; they fasten it with nails and
+with hammers, that it move not.
+5 They are upright as the palm tree, but speak not: they must needs be
+borne, because they cannot go. Be not afraid of them; for they cannot do
+evil, neither also is it in them to do good.) Santa Claus and everything
+associated with Christmas is of pagan origin with Santa being Satan.
+
+An interesting side note is the history of the candy cane. There are
+many stories and no one knows for sure which is correct. One story says an
+Indiana candy maker wanted a candy to represent Jesus to children as a
+witness. He supposedly made the candy cane with white and red stripes, the
+traditional candy cane we have today. The white was to represent the
+virgin birth of Jesus as well as his perfect sinless life who became our
+Saviour. The red stripes represent the shed blood of Jesus from his
+beatings and for our sins on the cross. The hardness of the candy cane
+represents Jesus as the solid Rock that our foundation is based upon as
+well as security of the church and security of our salvation. (Deuteronomy
+32:4 He is the Rock, his work is perfect: for all his ways are judgment: a
+God of truth and without iniquity, just and right is he.) (Deuteronomy
+32:15 ¶ But Jeshurun waxed fat, and kicked: thou art waxen fat, thou art
+grown thick, thou art covered with fatness; then he forsook God which made
+him, and lightly esteemed the Rock of his salvation.) The shape represents
+the "J" of the name Jesus as well as being in the shape of a shepherd's
+hook representing Jesus as the chief Shepherd and Shepherd of our souls.
+(I Peter 5:4 And when the chief Shepherd shall appear, ye shall receive a
+crown of glory that fadeth not away.) (I Peter 2:25 For ye were as sheep
+going astray; but are now returned unto the Shepherd and Bishop of your
+souls.) This is why the angels appeared to the shepherds first. This story
+may not be true, but I do believe we can use the candy cane in its
+original colors and flavor of peppermint as a way to teach children about
+Jesus.   
+
+Christmas is not the physical birth of Jesus though it is possible he
+was conceived on Christmas. I mentioned how Jesus was conceived on
+Hanukkah, but sometimes on rare occasions Christmas will fall during the
+time of Hanukkah and it could be Jesus was conceived on that day. Jesus
+would know that people would later celebrate his birth and it is possible
+that on the year of his birth the days were shared so Jesus could take
+Christmas from the heathen. Christians can celebrate Christmas if they
+want or they can choose not to as some Christians do. We are never
+commanded to do so. It is nice to have a day to celebrate the birth of
+Jesus as the God-man. If a Christian does celebrate it, keep the secular
+part out including secular decorations and music and anything to do with
+the satanic Santa Claus. The wise men gave gifts to Jesus, not each other.
+If you want to give gifts give them to Jesus since it is supposed to be
+his birthday, not ours and do not get carried away in your spending. Let
+us remember Jesus in Christmas, but remember he was really conceived on
+Hanukkah and born on the feast of tabernacles and there true meanings.
+Maybe we Christians should really be celebrating the birth of Jesus on
+Hanukkah since life begins at conception not birth. If Christians are
+going to celebrate Christmas let us remember we celebrate it for Jesus, so
+let us use this time of year when people are more open to hear the gospel
+to witness for Jesus and tell others about Jesus and his birth in
+Bethlehem so that he could later die for our sins. Let us win the lost at
+Christmas and take Christmas from Satan.      
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

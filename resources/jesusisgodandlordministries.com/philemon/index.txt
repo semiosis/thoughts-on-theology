@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,423 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Philemon
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Philemon is the 18^th book of the new testament and the 57^th of the
+Holy Bible. Philemon is one of the shortest books in the new testament
+with only one chapter of twenty five verses and was written by Paul. This
+short book falls between Titus and Hebrews. Some say he wrote this letter
+about the same time he wrote Colossians. Philemon along with Ephesians,
+Philippians, and Colossians are known as Paul's prison epistles or letters
+and it is believed they were written during Paul's first imprisonment in
+Rome.  
 
-Username or email _____________________
+The book of Philemon is about a slave Onesimus who was Philemon's
+slave who had run away and eventually ran into Paul who led him to the
+Lord and he got saved. It is believed that Philemon and Onesimus lived in
+Colosse or maybe Laodicea. Onesimus was at least a Colossian. (Colossians
+4:9 With Onesimus, a faithful and beloved brother, who is one of you. They
+shall make known unto you all things which are done here.) Paul wrote this
+letter to Philemon who it seems Paul also led to the Lord in asking
+Philemon to forgive Onesimus and receive him back as a new brother in
+Christ rather than as a slave. Philemon had the authority under Roman law
+to punish Onesimus, but Paul was asking Philemon not to punish him as now
+he was worthy as a Christian brother. Paul reminded Philemon how much he
+owed Paul for leading him to the Lord and he asked for the same treatment
+for his former slave. The number twenty five means forgiveness of sins and
+as I said earlier Philemon only has twenty five verses and this book is
+all about forgiving sins of those who have wronged us. Eighteen means
+bondage and the book of Philemon is about the bondage of Onesimus and the
+bondage of sin of the unsaved.
 
-Reset password
+Philemon teaches us that all who are Christians are equal in Jesus
+Christ, no matter if we are rich or poor, Jew or Gentile, servant, or free
+or what color of skin we have or male or female. Jesus places us all on a
+level playing field. Onesimus had run away from his master in Philemon for
+whatever reason. God guided him to Rome where he met Paul and got saved.
+God will often supernaturally guide people to Christians that he knows
+will give them the gospel they need to hear. Paul was one of those
+Christians. As Christians we need to be ready for someone coming to us.
+Paul reminds Philemon that his servant was now saved and so they were
+equal in Jesus Christ.
+
+(Philemon 1 Paul, a prisoner of Jesus Christ, and Timothy our
+brother, unto Philemon our dearly beloved, and fellowlabourer,) The first
+verse shows us that Paul was a prisoner at the time he wrote this book.
+Paul was a prisoner in Rome at the time yet he does not say he was a
+prisoner of the Roman emperor, but rather of Jesus Christ as it was
+because of his preaching of Jesus Christ that Paul was in prison. It
+appears that Timothy was in prison with Paul though it is possible that he
+was just there for encouragement and comfort though we know Timothy was in
+prison at least once and Paul often mentions him with him in his prison
+epistles. (Hebrews 13:23 Know ye that our brother Timothy is set at
+liberty; with whom, if he come shortly, I will see you.) Philemon is shown
+as a fellow Christian when referred to as a fellwolabourer and Paul
+clearly loves him.
+
+(Philemon 2 And to our beloved Apphia, and Archippus our
+fellowsoldier, and to the church in thy house:) Paul also mentions a
+couple other believers with Archippus being a fellowsoldier so he must
+have been strong in spreading God's word. Philemon apparently had a church
+in his house. Most churches were house churches at this time due to
+persecution of believers. History says Apphia was Philemon's wife and
+Archippus his son. This may or may not be true.
+
+(Philemon 3 Grace to you, and peace, from God our Father and the Lord
+Jesus Christ.) Paul wishes grace to all of them and peace, but shows these
+things only come from God the Father and the Lord Jesus Christ.
+
+(Philemon 4 I thank my God, making mention of thee always in my
+prayers,) Paul says he thanks God and that he mentions Philemon always in
+his prayers. Paul was always remembering those he taught and ministered to
+even after he had long moved on to a new location. We should to. Paul also
+realizes that it is only by God that he can do this and he also thanks God
+for letting him having met Philemon.
+
+(Philemon 5 Hearing of thy love and faith, which thou hast toward the
+Lord Jesus, and toward all saints;) Paul said he has heard of Philemon's
+great love to the Lord Jesus as well as to the saints (all true
+Christians). Philemon also had great faith. These two things are necessary
+to make a strong Christian who is a soul winner. Philemon seems to have
+Jesus first in his life just as he and all of us should.
+
+(Philemon 6 That the communication of thy faith may become effectual
+by the acknowledging of every good thing which is in you in Christ Jesus.)
+Paul tells Philemon that his faith will remain strong if he understands
+that all he has is due to Jesus Christ. True faith will be seen in our
+communication.
+
+(Philemon 7 For we have great joy and consolation in thy love,
+because the bowels of the saints are refreshed by thee, brother.) Paul
+said that fellow believers have been refreshed by Philemon in the great
+joy he brings them. When a Christian is on fire for the Lord this will
+bring great joy to believers especially if it is someone you led to the
+Lord as Paul had with Philemon.
+
+(Philemon 8 Wherefore, though I might be much bold in Christ to
+enjoin thee that which is convenient,) Paul is saying he needs to talk to
+Philemon about a matter (Onesimus) and he could be bold about the matter
+as an apostle, but he will not use that authority, but rather seek out
+Philemon as a friend and brother in Christ.
+
+(Philemon 9 Yet for love's sake I rather beseech thee, being such an
+one as Paul the aged, and now also a prisoner of Jesus Christ.) Paul said
+that he would talk to Philemon not as an apostle, but in love's sake
+almost as a dad to Philemon as Paul was now getting old. Paul again says
+he is a prisoner of Jesus Christ and not of Nero who was probably the
+Roman emperor. Paul is proud to be in prison for serving Jesus and not the
+least bit ashamed. We should not be either.
+
+(Philemon 10 I beseech thee for my son Onesimus, whom I have begotten
+in my bonds:) Paul now says he is writing to Philemon on behalf of his son
+Onesimus. Onesimus was not a literal son of Paul, but a child in that Paul
+had led him to the Lord while in bonds (while still in prison). As an
+older Christian this would make Paul his dad as we are to treat older
+Christians as dads and younger as brothers. (I Timothy 5:1 Rebuke not an
+elder, but intreat him as a father; and the younger men as brethren;)
+
+(Philemon 11 Which in time past was to thee unprofitable, but now
+profitable to thee and to me:) Paul says he know Onesimus had been
+unprofitable to Philemon, but he says he is now profitable to him as a
+fellow believer. It is only Jesus who makes a person profitable. Onesimus
+had been an unbeliever and just a slave to Philemon, but now as a fellow
+believer he had become profitable as he worked for the Lord.
+
+(Philemon 12 Whom I have sent again: thou therefore receive him, that
+is, mine own bowels:) Paul says he has sent back Onesimus to Philemon as
+this was the right thing to do even though he was more profitable to Paul
+there in Rome with him. Paul says for Philemon to receive him back as if
+he was Paul's own son.
+
+(Philemon 13 Whom I would have retained with me, that in thy stead he
+might have ministered unto me in the bonds of the gospel:) Paul says he
+would have preferred to have kept Onesimus with him since he has
+ministered unto him while Paul was in bonds.
+
+(Philemon 14 But without thy mind would I do nothing; that thy
+benefit should not be as it were of necessity, but willingly.) Paul says
+he wants Philemon to receive Onesimus back as a believer, but he as an
+apostle will not force Philemon to do so, but wants Philemon's own
+conscience to do the right thing.
+
+(Philemon 15 For perhaps he therefore departed for a season, that
+thou shouldest receive him for ever;) Paul says that perhaps God had
+Onesimus to run away knowing that he had ordained a meeting with Paul so
+that Onesimus would get saved which he would not have if he had not run
+away. Paul says by Onesimus running away Philemon could receive him back
+forever as a brother in Christ rather than as a servant.
+
+(Philemon 16 Not now as a servant, but above a servant, a brother
+beloved, specially to me, but how much more unto thee, both in the flesh,
+and in the Lord?) Paul says to Philemon to no longer see Onesimus as a
+servant, but rather a brother in Jesus Christ. In the flesh Onesimus was a
+servant to Philemon, but in the Lord Philemon is a brother.
+
+(Philemon 17 If thou count me therefore a partner, receive him as
+myself.) Paul say if you see him as a partner in the service to the Lord
+then to receive Onesimus just as he would if Paul came. Paul was showing
+that all in Jesus Christ are equal including a former servant being equal
+with an apostle. 
+
+(Philemon 18 If he hath wronged thee, or oweth thee ought, put that
+on mine account;) Paul says to put on his account for any wrong that
+Onesimus had done to Philemon. Paul says you should forgive Onesimus's
+debt to you, but if you cannot then Paul will pay for it just as Jesus
+paid for our sin debts.
+
+(Philemon 19 I Paul have written it with mine own hand, I will repay
+it: albeit I do not say to thee how thou owest unto me even thine own self
+besides.) Paul says he has written with his own hand that he will repay
+any debt owed by Onesimus as in a signed written contract, but reminds
+Philemon that he owes Paul for Paul having led him to the Lord so that now
+Philemon has everlasting salvation which he probably would not have were
+it now for Paul's preaching to him of the gospel.
+
+(Philemon 20 Yea, brother, let me have joy of thee in the Lord:
+refresh my bowels in the Lord.) Paul says that for Philemon to honor his
+request would bring him great joy in the Lord not just for Paul, but also
+for Philemon as he believes this request is also from God. Doing the right
+thing would also bring joy to Philemon.
+
+(Philemon 21 Having confidence in thy obedience I wrote unto thee,
+knowing that thou wilt also do more than I say.) Paul says he has
+confidence that Philemon will listen to Paul's request and will receive
+Onesimus as a brother. He also believes that Philemon will also do the
+right thing in freeing Onesimus so that he may serve the Lord.
+
+(Philemon 22 But withal prepare me also a lodging: for I trust that
+through your prayers I shall be given unto you.) Paul also asks for
+Philemon's prayers for his own release and for Philemon to prepare lodging
+for him when he comes to visit as he trusts that through Philemon's
+prayers he will be released. By making this request, Paul seems to trust
+that his release will be soon.
+
+(Philemon 23 There salute thee Epaphras, my fellowprisoner in Christ
+Jesus;) Paul also asks for prayer for a fellow Colossian who is also in
+prison as a prisoner of Christ Jesus. (Colossians 4:12 Epaphras, who is
+one of you, a servant of Christ, saluteth you, always labouring fervently
+for you in prayers, that ye may stand perfect and complete in all the will
+of God.) These men are all prisoners for preaching Jesus and not from
+doing any sinful thing that landed them in prison.
+
+(Philemon 24 Marcus, Aristarchus, Demas, Lucas, my fellowlabourers.)
+Paul names some other fellowlabourers in the Lord that need to be prayed
+for as well. Notice that Mark and Luke are one of them to be prayed for.
+Remember at one time Paul did not trust Mark as he left him on the
+missionary field, but now he was profitable to Paul. (II Timothy 4:11 Only
+Luke is with me. Take Mark, and bring him with thee: for he is profitable
+to me for the ministry.)
+
+(Philemon 25 The grace of our Lord Jesus Christ be with your spirit.
+Amen.) Paul says may the grace of the Lord Jesus Christ be with Philemon's
+spirit as he reads this letter and makes his decision about Onesimus. We
+see again how grace comes from God. Scripture never says what Philemon
+ever did with Onesimus, but history seems to suggest that Philemon obeyed
+Paul's request and released Onesimus from servant hood. This short book
+teaches us all about forgiveness and how once a person is saved they
+become equal with us. This applies to even a person who was a longtime
+enemy who then gets saved. Onesimus' salvation was sincere as apparently
+he made a true change in his life to now serve the Lord and his people.
+His was not a fake conversion in an attempt to gain freedom. May we all as
+Christians grant Paul's request that is really the Lord's request to
+receive all true believers as our brothers and sisters in Christ
+regardless of their past, but especially those who truly love the Lord and
+serve him as Onesimus was doing.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

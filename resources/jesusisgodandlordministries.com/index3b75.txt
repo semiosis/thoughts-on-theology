@@ -1,2 +1,4 @@
+Refresh: beliefs/index.html
+
 Click here...
 

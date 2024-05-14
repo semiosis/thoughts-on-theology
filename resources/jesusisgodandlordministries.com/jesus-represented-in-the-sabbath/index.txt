@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,441 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus represented in the sabbath
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Jewish sabbath is the seventh day of the week. It starts at
+sunset on Friday and goes until sunset on Saturday and is every week. The
+word sabbath means rest. The sabbath points to Jesus just as other Jewish
+holy days do for the Jews. The sabbath was ordained by God for the
+Israelites and not Gentiles and was given to Moses. It was for a sign
+between God and Israel for ever. The sabbath was to be a perpetual
+[forever] covenant between God and the children of Israel and to be
+observed every Saturday. (Exodus 31:12-17 ¶ And the LORD spake unto Moses,
+saying,
+13 Speak thou also unto the children of Israel, saying, Verily my sabbaths
+ye shall keep: for it is a sign between me and you throughout your
+generations; that ye may know that I am the LORD that doth sanctify you.
+14 Ye shall keep the sabbath therefore; for it is holy unto you: every one
+that defileth it shall surely be put to death: for whosoever
+doeth any work therein, that soul shall be cut off from among his people.
+15 Six days may work be done; but in the seventh is the sabbath of rest,
+holy to the LORD: whosoever doeth any work in the sabbath day, he shall
+surely be put to death.
+16 Wherefore the children of Israel shall keep the sabbath, to observe the
+sabbath throughout their generations, for a perpetual covenant.
+17 It is a sign between me and the children of Israel for ever: for in six
+days the LORD made heaven and earth, and on the seventh day he rested, and
+was refreshed.) The Israelites were not to do any work on the sabbath and
+were to keep it holy and rest. The day was holy as all Jewish feasts since
+it pointed to Jesus. Anyone who desecrated the day to try and destroy the
+holiness was to be put to death. The soul that did work would be cut off
+from among the people. The words "cut off" are a source of disagreement.
+Some say it means they were killed, others say it means they would end up
+in hell, and others say they were removed from the camp and not allowed to
+associate with the Israelite people. I believe the last choice is the
+correct one in that the people were no longer allowed in the camp. Verses
+such as Zechariah 11:9 and 11:16 seem to support this view as God said he
+would not feed those who were cut off or send a shepherd to them. If they
+were already dead these verses would not make sense. The second view that
+they would end up in hell possibly fits as God will not send anyone to
+preach to people who are already sentenced to hell such as those who in
+the tribulation take the mark of the beast, but I still believe the third
+view is most likely the meaning of this phrase. (Zechariah 11:9 Then said
+I, I will not feed you: that that dieth, let it die; and that that is to
+be cut off, let it be cut off; and let the rest eat every one the flesh of
+another.) (Zechariah 11:16 For, lo, I will raise up a shepherd in the
+land, which shall not visit those that be cut off, neither shall seek the
+young one, nor heal that that is broken, nor feed that that standeth
+still: but he shall eat the flesh of the fat, and tear their claws in
+pieces.) It is possible that "cut off" means killed as Jesus was cut off
+according to Daniel 9:26 and this is in reference to his death on the
+cross by crucifixion or maybe has both meanings depending on the context.
+(Daniel 9:26 And after threescore and two weeks shall Messiah be cut off,
+but not for himself: and the people of the prince that shall come shall
+destroy the city and the sanctuary; and the end thereof shall be with a
+flood, and unto the end of the war desolations are determined.)
 
-Username or email _____________________
+The Israelite leaders over the years were so afraid to violate
+working on the sabbath that they started adding manmade laws to what God
+said. Man is good at that. By the time of Jesus the Pharisees had so many
+added rules that it was impossible to not break one. The sabbath had
+become a burden rather than a day of rest. Modern Jews who observe the
+sabbath such as the ultraorthodox have this same foolishness. They are not
+even allowed to turn on or off a light switch as that is considered work
+or carry a handkerchief in their pocket as that is considered a burden.
+Today there are 1521 laws for the sabbath. The law says that they were to
+make sacrifices on the sabbath so how can they make a sacrifice and it not
+be work, but they cannot even turn on a light switch? Foolishness. Jesus
+often times performed miracles on the sabbath on purpose so it would cause
+a discussion among the Pharisees. They accused Jesus of working, yet Jesus
+said do you not give water to your animals or the sabbath or would you not
+pull your child out of a hole on the sabbath? (Luke 13:14-15 And the ruler
+of the synagogue answered with indignation, because that Jesus had healed
+on the sabbath day, and said unto the people, There are six days in which
+men ought to work: in them therefore come and be healed, and not on the
+sabbath day.
+15 The Lord then answered him, and
+said, Thou hypocrite, doth not each one of you on the sabbath loose his ox or his ass from the stall, and lead him away to watering?)
+Jesus said he was Lord of the sabbath and that the sabbath was made for
+man and not man for the sabbath. (Matthew 12:8 For the Son of man is Lord
+even of the sabbath day.) (Mark 2:27-28 And he said unto them, The sabbath
+was made for man, and not man for the sabbath:
+28 Therefore the Son of man is Lord also of the sabbath.) Jesus was trying
+to point out to the Jews that the sabbath was a day of rest, not a day of
+burden as they made it and was meant as a day set aside to worship God.
+Jesus just meant that the Jews could not go about working on the sabbath
+as if it was business as usual such as those who traded on the sabbath.
+The law was never meant to keep people from doing the necessities of life
+such as eating or saving a life. (Mark 3:4 And he saith unto them, Is it
+lawful to do good on the sabbath days, or to do evil? to save life, or to
+kill? But they held their peace.) A person can cook or flip a light switch
+on the sabbath and not be in violation. The disciples of Jesus were
+accused of working on the sabbath when they plucked some ears of corn to
+eat. Jesus told them how David and his men ate of the shewbread which was
+only for the priests, but they were not punished as they were hungry.
+(Mark 2:23-26 And it came to pass, that he went through the corn fields on
+the sabbath day; and his disciples began, as they went, to pluck the ears
+of corn.
+24 And the Pharisees said unto him, Behold, why do they on the sabbath day
+that which is not lawful?
+25 And he said unto them, Have ye never read what David did, when he had
+need, and was an hungred, he, and they that were with him?
+26 How he went into the house of God in the days of Abiathar the high
+priest, and did eat the shewbread, which is not lawful to eat but for the
+priests, and gave also to them which were with him?)
 
-Reset password
+The Israelites were to make a sacrifice on the sabbath. (Numbers
+28:9-10 ¶ And on the sabbath day two lambs of the first year without spot,
+and two tenth deals of flour for a meat offering, mingled with oil, and
+the drink offering thereof:
+10 This is the burnt offering of every sabbath, beside the continual burnt
+offering, and his drink offering.) The lamb pointed to the future
+sacrifice of Jesus as the passover lamb for our sins and our redemption.
+(I Corinthians 5:7 Purge out therefore the old leaven, that ye may be a
+new lump, as ye are unleavened. For even Christ our passover is sacrificed
+for us:)
+
+The sabbath represents the rest God had on the seventh day of the
+creation week after creating or working on the first six days of the week.
+(Exodus 20:11 For in six days the LORD made heaven and earth, the sea, and
+all that in them is, and rested the seventh day: wherefore the LORD
+blessed the sabbath day, and hallowed it.) God also had other times of
+rest such as the land was to rest from farming every seventh year.
+(Leviticus 25:3-4 Six years thou shalt sow thy field, and six years thou
+shalt prune thy vineyard, and gather in the fruit thereof;
+4 But in the seventh year shall be a sabbath of rest unto the land, a
+sabbath for the LORD: thou shalt neither sow thy field, nor prune thy
+vineyard.) A Christian has rest in Jesus due to his work on the cross for
+us and his redemption for us. This was what the sabbath truly pointed out
+as the Israelites were to see Jesus was their true sabbath or rest.
+(Matthew 11:28-30 ¶ Come unto me, all ye that labour and are heavy laden,
+and I will give you rest.
+29 Take my yoke upon you, and learn of me; for I am meek and lowly in
+heart: and ye shall find rest unto your souls.
+30 For my yoke is easy, and my burden is light.) True rest can only come
+from Jesus as the sabbath was to have pointed out to the Israelites.
+Notice in verse 30 that Jesus said his burden is light. The sabbath was
+never meant to be a burden to the Israelites as it became and still is
+today. The day has become a day of dread I am sure for some instead of a
+day of rest. The reason people were not allowed to work on the sabbath was
+because it pointed to the rest of Jesus for all those who receive him.  
+
+Today there is dispute on whether Christians should worship on the
+sabbath (Saturday) or the Lord's Day (Sunday). They say the fourth
+commandment says to remember the sabbath. (Exodus 20:8 Remember the
+sabbath day, to keep it holy.) This is correct, but this is the only
+commandment never repeated in the new testament. This is because under
+Jesus we now remember his resurrection. The sabbath as I mentioned earlier
+remembers God resting on the seventh day of the creation week and
+completing the week. Jesus rose from the grave on the first day of the
+week so we remember his resurrection and his completion of redemption. The
+sabbath as we saw was for a covenant or sign between God and Israel, not
+Christians. The first day of the week signifies the fellowship between the
+church and Jesus. The sabbath was to be observed as a commandment from God
+whereas the Lord's day is voluntary worship done by Christians. The
+sabbath represented the old works and sacrifice whereas the Lord's day
+represents the grace we have received from Jesus. We are saved by grace.
+(II Timothy 1:9 Who hath saved us, and called us with an holy calling, not
+according to our works, but according to his own purpose and grace, which
+was given us in Christ Jesus before the world began,) Christians are under
+a new covenant and not under the covenant of the Jews. The sabbath
+provided the much needed rest the Israelites needed after working hard all
+week. The Lord's day emphasizes what Jesus has done for man. Jesus is the
+sabbath and therefore Christians do not observe the Biblical sabbath of
+Saturday. The apostles met on the first day of the week and set the
+example for us. (John 20:19 ¶ Then the same day at evening, being the
+first day of the week, when the doors were shut where the disciples were
+assembled for fear of the Jews, came Jesus and stood in the midst, and
+saith unto them, Peace be unto you.) Paul also preached on Sunday and
+taught Christians to meet on the Lord's day. (Acts 20:7 And upon the first
+day of the week, when the disciples came together to break bread, Paul
+preached unto them, ready to depart on the morrow; and continued his
+speech until midnight.) (I Corinthians 16:2 Upon the first day of the week
+let every one of you lay by him in store, as God hath prospered him, that
+there be no gatherings when I come.) The early Christians worshipped on
+either the sabbath or Sunday. It was the Roman Catholic Church that
+officially changed it to Sunday in A.D. 336 at the Council of Laodicea. I
+personally believe they did it more to honor the sun god and then change
+it to a Christian day and theme just as they did with most heathen things,
+but I do believe Sunday is the correct day to worship regardless. I
+believe that Christians should gather for worship on Sunday whenever
+possible so that we may remember the resurrection of Jesus and the
+redemption it brought us. Some Christians such as in Israel have to work
+since Saturday is the day off there so they normally worship on Saturday
+just as the Jews do, but for Christians who are not burdened that way I do
+not believe they should worship on Saturday. Many churches are now having
+Saturday night services so Christians can go out for pleasure on Sunday
+just like the unsaved and the backslidden Christians who do not attend
+church. I do not believe this honors God. Some denominations such as the
+Seventh Day Adventists and the Seventh Day Baptists say that worship must
+be done on Saturday to obey the sabbath, but as I have shown the sabbath
+was a sign between God and Israel not between God and Christians so it
+does not apply to us and I also have shown that is why the commandment is
+never repeated in the new testament since we are now in a new covenant
+with Jesus. I believe these denominations misinterpret scripture.
+Christians also pretend as if the Lord's day is the sabbath and say they
+cannot cook on it or do any kind of work. This is again wrong as those
+same Christians who will not cook will go out to eat and make those people
+work. Just as the Jews never truly observed the sabbath for most of their
+history neither do Christians who add this burden to the Lord's day. I do
+believe that Christians should not intentionally work on Sunday and should
+spend the day in worship to God, but some people do have to work such as
+policemen, firemen, EMS, physicians, nurses, prison workers and others as
+even Jesus said it was ok to save a life on the sabbath and Sunday is not
+the true sabbath. They need to bring back the old Blue Laws so that only
+essential businesses are opened on Sunday's. Christians need a day of rest
+and worship just as God commanded for the Israelites and our day is
+Sunday. God designed our bodies to rest every seventh day. Studies have
+shown that the heart rate decreases on the seventh day. For those
+Christians who go on Saturday night so they can have fun on Sunday shame
+on you. Put God first and have a day of rest. Do not squeeze God in on a
+Saturday night. Rest on Sunday, but do not become like the Pharisees and
+add all kinds of burdens. We should have physical rest on Sunday, but more
+importantly it is a day of spiritual rest as we worship Jesus and place
+our burdens from the week on him. This is also why it is important for a
+church to have a midweek service on Wednesday or another night so that
+Christians can have worship with Jesus and lift some of the burdens during
+the week so they are not so heavy on Sunday. Sadly most churches have done
+away with Sunday night services and the Wednesday night midweek service
+and Christians wonder why they are so stressed.
+
+The sabbath also points to the millennium to some of the everlasting
+rest we as Christians will have with the ultimate rest coming in eternity.
+
+In conclusion the sabbath was a reminder to Israel of God's rest on
+the seventh day to complete the creation week. It was also to point the
+Israelites to the future redemption of man by Jesus and the true rest that
+only he gives. This full rest will be seen in the millennium and eternity
+and that is why God said the sabbath was for a perpetual covenant as God
+keeps his promises. This also shows God is not done with Israel. The
+creation rest was just to set the example of the true rest of Jesus. Just
+as God redeem Israel from slavery in Egypt, he offered redemption for all,
+Jew and Gentile to those who call upon Jesus. (Deuteronomy 5:15 And
+remember that thou wast a servant in the land of Egypt, and that the LORD
+thy God brought thee out thence through a mighty hand and by a stretched
+out arm: therefore the LORD thy God commanded thee to keep the sabbath
+day.) The sabbath was a reminder that it was God who did the work both at
+creation and on the cross that we might be redeemed (saved) and to show
+that our works will not save us, only the work of God. We are to trust God
+for our salvation by placing our faith in Jesus. (Ephesians 2:8-9 For by
+grace are ye saved through faith; and that not of yourselves: it is the
+gift of God:
+9 Not of works, lest any man should boast.)
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

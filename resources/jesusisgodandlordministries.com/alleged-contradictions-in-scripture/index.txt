@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,431 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Alleged Contradictions in Scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Many people contend that there are contradictions in scripture. There
+are no contradictions in scripture if you have the true word of God in a
+King James Bible. What many people believe are contradictions are just
+misinterpretation and misunderstanding of the passages or verses. If one
+prays and asks the Holy Ghost to reveal the truth and if one looks
+carefully at the verses in question and compares them with other scripture
+and believes it is true what it says, it will be seen that often what we
+think is a contradiction is just not understanding the verses.
 
-Username or email _____________________
+One of the first alleged contradictions in scripture is the creation
+story as presented in Genesis 1 versus Genesis 2. It appears it is two
+different creation stories and that scripture is in error. One seems to
+have the plants and animals created before man and the other created after
+man. It also seems fowls (birds) where made of water in the first chapter
+and out of the ground in the second chapter. A closer look shows there are
+no contradictions. We see in Genesis 1 that the plants were made on day
+three and the fowls on day four from the water and the land animals on day
+six from the earth (ground) prior to the creation of man. (Genesis 1:11-13
+And God said, Let the earth bring forth grass, the herb yielding seed, and
+the fruit tree yielding fruit after his kind, whose seed is in itself,
+upon the earth: and it was so.
+12 And the earth brought forth grass, and herb yielding seed after his
+kind, and the tree yielding fruit, whose seed was in itself, after his
+kind: and God saw that it was good.
+13 And the evening and the morning were the third day.) (Genesis 1:20-23
+And God said, Let the waters bring forth abundantly the moving creature
+that hath life, and fowl that may fly above the earth in the open
+firmament of heaven.
+21 And God created great whales, and every living creature that moveth,
+which the waters brought forth abundantly, after their kind, and every
+winged fowl after his kind: and God saw that it was good.
+22 And God blessed them, saying, Be fruitful, and multiply, and fill the
+waters in the seas, and let fowl multiply in the earth.
+23 And the evening and the morning were the fifth day.) (Genesis 1:24-25 ¶
+And God said, Let the earth bring forth the living creature after his
+kind, cattle, and creeping thing, and beast of the earth after his kind:
+and it was so.
+25 And God made the beast of the earth after his kind, and cattle after
+their kind, and every thing that creepeth upon the earth after his kind:
+and God saw that it was good.) (Genesis 1:26-28 ¶ And God said, Let us
+make man in our image, after our likeness: and let them have dominion over
+the fish of the sea, and over the fowl of the air, and over the cattle,
+and over all the earth, and over every creeping thing that creepeth upon
+the earth.
+27 So God created man in his own image, in the image of God created he
+him; male and female created he them.
+28 And God blessed them, and God said unto them, Be fruitful, and
+multiply, and replenish the earth, and subdue it: and have dominion over
+the fish of the sea, and over the fowl of the air, and over every living
+thing that moveth upon the earth.) (Genesis 1:31 And God saw every thing
+that he had made, and, behold, it was very good. And the evening and the
+morning were the sixth day.) We now will look at the verses in chapter 2
+of Genesis. (Genesis 2:8-9 ¶ And the LORD God planted a garden eastward in
+Eden; and there he put the man whom he had formed.
+9 And out of the ground made the LORD God to grow every tree that is
+pleasant to the sight, and good for food; the tree of life also in the
+midst of the garden, and the tree of knowledge of good and evil.) (Genesis
+2:19 And out of the ground the LORD God formed every beast of the field,
+and every fowl of the air; and brought them unto Adam to see what he would
+call them: and whatsoever Adam called every living creature, that was the
+name thereof.) If you look carefully at these various verses from the
+first two chapters, we see it is not a contradiction. In Genesis 1, God
+created the plants on day three, the fowls from water on day five and the
+land animals from the earth on day six before man. This covered the whole
+earth. Genesis 2 speaks only of the creation in the garden of Eden where
+God placed Adam. God created more plants for Adam to see that where
+"pleasant to the sight, and good for food". Not every tree and plant was
+recreated. Only those needed for food and pleasant to the sight. God also
+created the tree of life and the tree of knowledge of good and evil at
+this time. The animals where only the beasts of the field, not all animals
+and the fowls where also made from out of the ground. These beasts and
+fowls were not all of them on the earth, but just the ones God placed in
+the garden of Eden so Adam could name each one. This is why these where
+created after man and only these fowls were made out of the ground. God
+also wanted Adam to see him create things so that he knew who the Creator
+was knowing Satan later would try to claim to be God.
 
-Reset password
+One alleged contradiction is if Noah was the eighth or tenth person
+from Adam. If you read the chronology in Genesis 5, it clearly shows Noah
+as the tenth person, but II Peter 2:5 seems to say the eighth. (II Peter
+2:5 And spared not the old world, but saved Noah the eighth person, a
+preacher of righteousness, bringing in the flood upon the world of the
+ungodly;) A closer look at this verse and those around it shows that this
+verse is not talking about Noah's genealogy from Adam, but the eight
+people saved on board the ark. Noah was the last person onboard the ark.
+This verse is just taken out of context and compared with the wrong
+scripture.
+
+Another alleged contradiction is if one of the thieves on the cross
+repented and was saved. Two gospels seem to say he did not and Luke seems
+to say he did. (Matthew 27:44 The thieves also, which were crucified with
+him, cast the same in his teeth.) (Mark 15:32 Let Christ the King of
+Israel descend now from the cross, that we may see and believe. And they
+that were crucified with him reviled him.) (Luke 23:39-40 ¶ And one of the
+malefactors which were hanged railed on him, saying, If thou be Christ,
+save thyself and us.
+40 But the other answering rebuked him, saying, Dost not thou fear God,
+seeing thou art in the same condemnation?) Matthew and Mark show both
+thieves railing against Jesus. Both thieves did originally do this, but
+later as seen in Luke, one of the thieves repented and called upon Jesus
+and was saved.
+
+How many Isrealites died at Baal-peor? Numbers says 24,000 and I
+Corinthians says 23,000. Which is it? (Numbers 25:9 And those that died in
+the plague were twenty and four thousand.) (I Corinthians 10:8 Neither let
+us commit fornication, as some of them committed, and fell in one day
+three and twenty thousand.) The answer is simple. 23,000 fell in one day
+and a total of 24,000 over the total time of the plague.
+
+What was the superscription above the cross of Jesus? Each gospel
+reads differently. (Matthew 27:37 And set up over his head his accusation
+written, THIS IS JESUS THE KING OF THE JEWS.) (Mark 15:26 And the
+superscription of his accusation was written over, THE KING OF THE JEWS.)
+(Luke 23:38 And a superscription also was written over him in letters of
+Greek, and Latin, and Hebrew, THIS IS THE KING OF THE JEWS.) (John 19:19 ¶
+And Pilate wrote a title, and put it on the cross. And the writing was,
+JESUS OF NAZARETH THE KING OF THE JEWS.) Each gospel writer only gave a
+part of the superscription. This is the same as witnesses do that see a
+crime. Each person relates what they think is important. I also believe
+the number of words in each gospel serves a purpose. The whole
+superscription read "This is Jesus of Nazareth King of the Jews."
+
+Acts 20:35 seems to quote an unrecorded quote from Jesus. (Acts 20:35
+I have shewed you all things, how that so labouring ye ought to support
+the weak, and to remember the words of the Lord Jesus, how he said, It is
+more blessed to give than to receive.) This is only a problem to those who
+are weak in the faith to think that everything Jesus said and did is in
+the gospels. John even tells us they are not. (John 21:25 And there are
+also many other things which Jesus did, the which, if they should be
+written every one, I suppose that even the world itself could not contain
+the books that should be written. Amen.)
+
+I Corinthians 11 seems to say Jesus body was broken, but we are told
+none of his bones were broken. (I Corinthians 11:23-24 For I have received
+of the Lord that which also I delivered unto you, That the Lord Jesus the
+same night in which he was betrayed took bread:
+24 And when he had given thanks, he brake it, and said, Take, eat: this is
+my body, which is broken for you: this do in remembrance of me.) Other
+verses say Jesus had no broken bones. (Psalm 34:20 He keepeth all his
+bones: not one of them is broken.) (John 19:33 But when they came to
+Jesus, and saw that he was dead already, they brake not his legs:) (John
+19:36 For these things were done, that the scripture should be fulfilled,
+A bone of him shall not be broken.) A closer look at I Corinthians 11:24
+shows it says the body of Jesus was broken, not his bones. The skin of
+Jesus was broken, torn and hanging and all of his bones were out of joint.
+This qualifies as a broken body, but still not having any broken bones.
+(Psalm 22:14-15 I am poured out like water, and all my bones are out of
+joint: my heart is like wax; it is melted in the midst of my bowels.
+15 My strength is dried up like a potsherd; and my tongue cleaveth to my
+jaws; and thou hast brought me into the dust of death.)
+
+How many baths did the molten sea hold? A bath is about 5.81 gallons
+or 22 liters. I have seen this as 9 gallons, but archeology seems to
+support about 6 gallons. We seem to have a contradiction between I Kings
+which says 2,000 baths and II Chronicles which says 3,000 baths. (I Kings
+7:26 And it was an hand breadth thick, and the brim thereof was wrought
+like the brim of a cup, with flowers of lilies: it contained two thousand
+baths.) (II Chronicles 4:5 And the thickness of it was an handbreadth, and
+the brim of it like the work of the brim of a cup, with flowers of lilies;
+and it received and held three thousand baths.) Again a closer look at
+these verses shows in II Chronicles the molten sea "held" 3,000 baths, but
+the priests only filled it 2/3 of its capacity with 2,000 baths as seen in
+I Kings, thus it contained an actual amount of 2,000 baths though it could
+hold 3,000 baths.
+
+When did Adam die? Many say he did not die as God said he would.
+Genesis 2 says he would die when he ate of the tree of knowledge of good
+and evil in that day, though in Genesis 5 it says Adam died at 930 years
+old. So is there an error? (Genesis 2:17 But of the tree of the knowledge
+of good and evil, thou shalt not eat of it: for in the day that thou
+eatest thereof thou shalt surely die.) (Genesis 5:5 And all the days that
+Adam lived were nine hundred and thirty years: and he died.) God was
+speaking of Adam's spiritual death in Genesis 2. Genesis 5 refers to his
+physical death. Adam did die spiritually on the day he ate of the tree of
+the knowledge of good and evil. He immediately knew he was naked. This was
+because his spirit was disconnected from God and he was a man of sin in
+need of a Saviour in Jesus. He was spiritually dead, though his physical
+body lived for 930 years. Many today live their whole physical lives
+spiritually dead. This is why we all need to be saved to reconnect our
+spirit with God. Adam also died in the day of his sin in God's eyes as a
+thousand years is a day with God. (II Peter 3:8 But, beloved, be not
+ignorant of this one thing, that one day is with the Lord as a thousand
+years, and a thousand years as one day.) Adam and all who have ever lived
+died less than a thousand years old. So in both ways, Adam died in the day
+of his sin of eating of the tree of knowledge of good and evil.
+
+There are many other alleged contradictions in scripture, but those
+are for other sermons. Now I want to mention just two of the alleged
+problems with the King James Bible. We will see the King James Bible is
+superior and is the word of God. The other bible versions are not.
+
+The first is from John 4:24. (John 4:24 God is a Spirit: and they
+that worship him must worship him in spirit and in truth.) Jesus who was
+speaking said God is a Spirit. Many false bibles say "God is Spirit" (NKJV
+[New King James Version], NLT [New Living Translation]) or "God is
+spirit". (NIV [New International Version], NASB [New American Standard
+Version], RSV [Revised Standard Version], HCSB [Holman Christian Standard
+Bible], et cetera) This is heretical. God is not the only Spirit. Angels
+both holy and unholy are also spirits. (Hebrews 1:13-14 But to which of
+the angels said he at any time, Sit on my right hand, until I make thine
+enemies thy footstool?
+14 Are they not all ministering spirits, sent forth to minister for them
+who shall be heirs of salvation?) Man also has a spirit though is never
+referred to in scripture as a spirit. John 4:24 shows God is a particular
+Spirit and is superior to the rest of the spirits. Most of the bible
+versions also spell Spirit with a lower case "s". This denies the deity of
+the Holy Ghost, who is the Spirit of God.
+
+Another issue with the King James Bible is its use of Easter instead
+of Passover in Acts 12. (Acts 12:4 And when he had apprehended him, he put
+him in prison, and delivered him to four quaternions of soldiers to keep
+him; intending after Easter to bring him forth to the people.) Even the
+New King James Version (NKJV) uses Passover. Easter is the correct
+translation. All English translations as well as foreign language
+translations prior to the King James Bible all used Easter. If we look
+back at verse three, we see it was the days of the feast of unleavened
+bread. [Acts 12:3 And because he saw it pleased the Jews, he proceeded
+further to take Peter also. (Then were the days of unleavened bread.)] The
+first day of the feast was passover. If that day had already passed, then
+how can Herod wait until after that day if it already happened. He would
+not have waited, but brought forth Peter immediately for his death. Easter
+was a non-Jewish holiday that sometimes occurred around the same time as
+passover.
+
+People need to just trust scripture and trust the King James Bible.
+They need to stop making it say what they want it to say or say there are
+contradictions in scripture, when all can be answered when scripture is
+closely looked at and compared and trusted.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

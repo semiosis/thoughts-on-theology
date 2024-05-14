@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,440 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Genealogies of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+As we prepare to celebrate Christmas and the birth of Jesus as a man,
+I want to look back at the genealogies of Jesus. This is not your usual
+Christmas story, but my preaching is not normal. I try and bring out the
+neglected things in scripture. Today people are often using DNA to try and
+find out their ancestry, but in the days of Jesus genealogies were well
+recorded for all to verify as who your dad was was very important in some
+cases such as we will see with Jesus. At the time of the birth of Jesus
+the genealogy of a person was very important to the Jews as well as many
+other countries. The genealogies of the Jews were well recorded and in the
+case of Jesus it was especially important because he claimed to be the son
+or descendant of king David. He told his disciples that one day he would
+reign as king from the throne of David. In order to do that he would have
+to prove that he was eligible to do so. The genealogy of Jesus could
+easily be verified as to whether his claim was legitimate. We are given
+three accounts of the genealogy of Jesus in the gospels. Most people only
+claim there are two accounts, but I will show you there are actually three
+as to who Jesus is. The accounts vary in details and we will see that this
+is important and is not an error in scripture or a contradiction.
 
-Username or email _____________________
+The Jews were looking for the Messiah to come and knew that the
+Messiah would be born in Bethlehem as the descendant of David or as a son
+of David as they referred to him. (Jeremiah 23:5 ¶ Behold, the days come,
+saith the LORD, that I will raise unto David a righteous Branch, and a
+King shall reign and prosper, and shall execute judgment and justice in
+the earth.) (Matthew 22:42 Saying, What think ye of Christ? whose son is
+he? They say unto him, The Son of David.) A son in scripture does not
+always necessarily mean a literal son, but in this case just a descendant.
+(Matthew 1:1 The book of the generation of Jesus Christ, the son of David,
+the son of Abraham.) To prove he was the Messiah, Jesus would have to
+proof that he had fulfilled all of the prophecies concerning the Messiah
+starting with the right to rule on the throne of David as his son. The
+genealogy of Jesus was never doubted that he was the son of David as he
+was referred to as that and the people wanted him to take the throne at
+that time and overthrow the Romans. I already said they could easily go to
+the temple and verify the genealogy of Jesus and the people did. The Jews
+of Jesus' day never questioned why there were two different accounts of
+Jesus' genealogy as they understood that both were legitimate. It was
+clear that Jesus was a son of David. Here are some verses showing they
+understood Jesus was a rightful heir of David's throne. Two blind men know
+Jesus is the son of David. (Matthew 9:27 ¶ And when Jesus departed thence,
+two blind men followed him, crying, and saying, Thou Son of David, have
+mercy on us.) The people knew Jesus was the son of David as he rode into
+Jerusalem on Palm Sunday as they were hoping he was coming as king.
+(Matthew 21:9 And the multitudes that went before, and that followed,
+cried, saying, Hosanna to the Son of David: Blessed is he that cometh in
+the name of the Lord; Hosanna in the highest.) Since the people understood
+that Jesus was a legitimate son of David and rightful heir to the throne
+then they wanted to make him king even if they had to force him to become
+king as they wanted to remove the authority of Rome. (John 6:15 ¶ When
+Jesus therefore perceived that they would come and take him by force, to
+make him a king, he departed again into a mountain himself alone.) Jesus
+will one day claim the throne of David, but that will not be until his
+second coming when he will reign from Jerusalem for one thousand years
+during the Millennium. Jesus came the first time, not to be king even
+though he had that right, but rather to be the Saviour of mankind.
 
-Reset password
+The first genealogy account that we will look at is found in Matthew
+1. There are differences in opinion about these genealogies. Matthew 1
+shows the genealogy of Jesus from David by his stepdad Joseph from David's
+son Solomon. (Matthew 1:6 And Jesse begat David the king; and David the
+king begat Solomon of her that had been the wife of Urias;) (Matthew 1:16
+And Jacob begat Joseph the husband of Mary, of whom was born Jesus, who is
+called Christ.) (Matthew 1:20
+But while he thought on these things, behold, the angel of the Lord
+appeared unto him in a dream, saying, Joseph, thou son of David, fear not
+to take unto thee Mary thy wife: for that which is conceived in her is of
+the Holy Ghost.) This genealogy will show Jesus is the legitimate son of
+David because Joseph has taken Jesus as his adopted son and therefore he
+gets all the rights of a natural son as Joseph was his legal dad. The only
+problem was Jesus was disqualified from the throne since there was a king
+in this line that was cursed by God who said he would never have a
+descendant to reign on the throne. This is where the second genealogy
+account will come into play later. The cursed king was Jeconiah who was
+also known as Coniah and Jehoiachin. (Jeremiah 22:30 Thus saith the LORD,
+Write ye this man childless, a man that shall not prosper in his days: for
+no man of his seed shall prosper, sitting upon the throne of David, and
+ruling any more in Judah.) Because of this curse Jesus would be
+disqualified from the throne except for his line through Mary. There are
+people who claim that Jesus was still not disqualified since he was not a
+blood descendant of Joseph and therefore was not a part of the curse.
+Since Joseph was the legal dad of Jesus it is said that he is thus still
+eligible. It is said that Jesus could claim the throne as the legal son of
+Joseph because of what is known as the levirate marriage rule where if a
+brother died without any children then the next brother was expected to
+marry his brother's widow and give her children. This first child would be
+considered as the offspring of the dead brother with any additional
+children as the children of the living brother. This was done to keep the
+family name alive. The first child would retain all rights of the dead
+brother. (Deuteronomy 25:6 And it shall be, that the firstborn which she
+beareth shall succeed in the name of his brother which is dead, that his
+name be not put out of Israel.) Others have claimed they believe that the
+curse only applied to the lifetime of Jeconiah or to his son and did not
+continue on. They say this can be seen in Zerubbabel who was the governor
+of Judah upon the Jews return following the end of the Babylonian
+captivity. It is believed that Zerubbabel was the grandson of Jeconiah as
+mentioned in my Zechariah study. (I Chronicles 3:16-17 16 And the sons of
+Jehoiakim: Jeconiah his son, Zedekiah his son.
+
+17 ¶ And the sons of Jeconiah; Assir, Salathiel his son,) (Haggai 1:1 In
+the second year of Darius the king, in the sixth month, in the first day
+of the month, came the word of the LORD by Haggai the prophet unto
+Zerubbabel the son of Shealtiel, governor of Judah, and to Joshua the son
+of Josedech, the high priest, saying,) It is true that Zerubbabel was made
+governor, but this is still not the same as king and there is no evidence
+that his governorship was passed down to his sons and on down the line.
+Others have said that Jeconiah repented during the Babylonian captivity
+and thus God ended the curse. They also use the example of Zerubbabel as
+governor as well as the fact that Jeconiah was elevated by the Babylonian
+king to no longer be in prison, but rather to eat at the king's table. (II
+Kings 25:27-30 27 ¶ And it came to pass in the seven and thirtieth year of
+the captivity of Jehoiachin king of Judah, in the twelfth month, on the
+seven and twentieth day of the month, that Evil-merodach king of Babylon
+in the year that he began to reign did lift up the head of Jehoiachin king
+of Judah out of prison;
+28 And he spake kindly to him, and set his throne above the throne of the
+kings that were with him in Babylon;
+29 And changed his prison garments: and he did eat bread continually
+before him all the days of his life.
+30 And his allowance was a continual allowance given him of the king, a
+daily rate for every day, all the days of his life.) It is possible I
+suppose that any of these possibilities about Jeconiah are true and that
+Jesus was still eligible for the throne by Joseph due to legal rights, but
+I believe that it is most likely from Mary that Jesus obtained those
+rights and that is why we have the second genealogy account in Luke.
+Luke's account may have just been to show that Jesus is well qualified as
+he is qualified by both his mom and stepdad, but I think it is by Mary
+which is why God told Moses the rule about women by Zelophehad's daughters
+which would come into play with Mary.
+
+The second genealogy of Jesus as a man can be found in Luke 3. This
+second genealogy shows Jesus as a blood descendent of David by his mom
+Mary by David's son Nathan rather than Solomon by his mom Mary. This
+genealogy leaves no doubt that Jesus has a rightful claim to the throne of
+David which he will assume during the Millennium. (Luke 3:23 And Jesus
+himself began to be about thirty years of age, being (as was supposed) the
+son of Joseph, which was the son of Heli,) (Luke 3:31 Which was the son of
+Melea, which was the son of Menan, which was the son of Mattatha, which
+was the son of Nathan, which was the son of David,) Verse 23 shows Jesus
+as the supposed son of Joseph since he was only the adopted son of Joseph
+and not his biological son. It says Joseph and not Mary since the man was
+the head of the house, not the wife and this is how genealogies were
+determined. There are some who say that Mary is not mentioned since this
+genealogy still applies to Joseph rather than Mary and this is seen by his
+name being mentioned. They say this genealogy shows the Levirate laws in
+effect as Heli may have been the father-in-law of Joseph and was
+considered the adopted son of Heli. These things may be true, but I tend
+to believe that Luke's genealogy shows the bloodline of Jesus by Mary. I
+believe the fact that Jesus is able to claim the throne of David by his
+mom Mary is the reason that God told Moses how to handle the situation
+with Zelophehad's daughters. Zelophehad had had five daughters, but no
+sons. He died in the wilderness and his daughters said to Moses that they
+should be entitled to their dad's property or else it would be removed
+from the family because there were no sons. God agreed and told Moses that
+they were to get their share of land, but that they had to marry men
+within their own tribe so that the land would stay in the tribe. (Numbers
+27:6-8 6 ¶ And the LORD spake unto Moses, saying,
+7 The daughters of Zelophehad speak right: thou shalt surely give them a
+possession of an inheritance among their father's brethren; and thou shalt
+cause the inheritance of their father to pass unto them.
+8 And thou shalt speak unto the children of Israel, saying, If a man die,
+and have no son, then ye shall cause his inheritance to pass unto his
+daughter.) By God allowing this exception this would then later allow
+Jesus to assume the throne by a woman Mary rather than through a man. I do
+believe that most likely Heli was the dad of Mary and that as I said
+Joseph was the adopted son of Heli who probably had no daughters and by
+adopting Joseph he could pass along the line of David by Nathan as well as
+Joseph's own line by Solomon. Joseph would have been the son in law of
+Heli, but he is referred to as son since this was how they believed unlike
+the way we do today. Also there was no specific word in Greek for son in
+law unlike in Hebrew so son would be used. Zelophehad's daughters were
+required to marry within the tribe so that the land stayed in the tribe
+and the same still applies here which it did. Mary and Joseph were both of
+the tribe of Judah so Mary obeyed by marrying within her tribe. Some try
+to say Mary was a Levite since her cousin Elisabeth was a Levite, but that
+is not true. (Luke 1:5 ¶ There was in the days of Herod, the king of
+Judæa, a certain priest named Zacharias, of the course of Abia: and his
+wife was of the daughters of Aaron, and her name was Elisabeth.) Most
+likely Mary's dad Heli married a Levite who was the sister of either the
+mom or dad of Elisabeth and thus Elisabeth was her cousin, but they were
+from different tribes. Those who claim that Mary was a Levite say this
+shows how Jesus is entitled to be both king by Joseph and priest by Mary,
+but Jesus gets his priesthood by God, not Mary. It was very unusual for
+the genealogy to be traced by the mom rather than the dad, but then again
+Jesus was not your ordinary son in having been born of a virgin. People
+often claim the Bible is sexist against women as it is a patriarchal
+society, yet Christianity gives more opportunities to females than any
+other religion and here we see how the important genealogy of Jesus to
+prove he has a right as the Messiah to the throne of David comes from a
+female and not a man so this claim is false. Jesus will one day soon rule
+and it will be by his bloodline through his mom and not by a man. The fact
+that God allowed Zelophehad's daughters the right of inheritance and then
+later continue on to other women including Mary shows God's grace and love
+for women as much as men.
+
+A third genealogy of Jesus is found in John. Most people miss this
+genealogy. The two genealogies in Matthew and Luke are relevant to
+Christmas as they show the birth of Jesus as a man and his earthly
+connection to man as a man. This shows Jesus was a man just like any man
+today and he had descendants and ancestry just like us. Jesus could
+clearly trace his ancestry back to David and beyond and he had every right
+to claim to be the Messiah and he will have every right to reign as King
+one day soon. John does not show the genealogy of Jesus as a man, but
+rather as God. Unlike the Matthew and Luke genealogies which show a
+beginning for Jesus as a man, John shows that as God Jesus has always
+existed. This genealogy does not show the creation of Jesus as God, but
+rather that he as God has always existed and created everything else.
+(John 1:1-3 1 In the beginning was the Word, and the Word was with God,
+and the Word was God.
+2 The same was in the beginning with God.
+3 All things were made by him; and without him was not any thing made that
+was made.) It is important to include this genealogy as Jesus was not a
+mere man when he was here on earth, but rather was the God-man who became
+a 100% man just like any man, yet he still retained his 100% being God.
+(John 1:14 And the Word was made flesh, and dwelt among us, (and we beheld
+his glory, the glory as of the only begotten of the Father,) full of grace
+and truth.) (Colossians 2:9 For in him dwelleth all the fulness of the
+Godhead bodily.) It is by the fact that Jesus as God was willing to become
+a man and die for our sins and rise again from the grave on that third day
+that we are able to be reconciled with God.
+
+There are two genealogies listed for Jesus as a man to clearly show
+that Jesus is the son of David which was never disputed and he does have
+the legal right to reign as king. This was also never disputed. We also
+see a third genealogy in John showing how Jesus has always been God and
+only became a man when he was born in a virgin birth by Mary. As we will
+soon celebrate Christmas, remember how Jesus will one day reign as king
+and remember his genealogical record bears proof that he is the Messiah
+and son of David. Remember that there are no contradictions or errors
+found in the King James Bible and we see again this is true with two
+completely different genealogies of the same person. All things are in
+scripture for a reason, even the seemingly unimportant things such as
+Zelophehad's daughters. This also shows how all scripture is about Jesus.
+We need to just study scripture and learn from it so that we may
+understand the coming future events. Praise God that he allowed
+Zelophehad's daughters the right to an inheritance so that Jesus was
+allowed his rightful inheritance because of this law by his mom Mary. God
+truly is a righteous and loving God.           
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,433 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Be Thankful
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The history of Thanksgiving goes back to 1619 when 38 English
+settlers in Berkeley Hundred Charles City County, Virginia held a day of
+thanksgiving to God Almighty for their safe arrival to Virginia. In 1621
+the Pilgrims held a day of thanksgiving to thank God for the good harvest
+and celebrated it along with the American Indians who had given them food
+to help them get through the winter. The Pilgrims understood the feast of
+tabernacles to thank God for the harvest and Thanksgiving traces from that
+original meaning. The Pilgrims had arrived the previous year in 1620
+aboard the Mayflower and many had died that first winter as they landed in
+Plymouth, Massachusetts. William Brewster read Psalm 100 as a prayer of
+Thanksgiving when they sighted land. The Pilgrims had come to America for
+freedom to worship God. The American Indians had helped them get through
+the winter with food and taught them how to fish and hunt. Other days of
+thanksgiving were held on and off by various people. Proclamations of
+thanksgiving were mostly made by church leaders in New England until 1682
+when leaders of the colonies as well as church leaders made proclamations
+until after the Revolutionary War. During the time of the Revolutionary
+War the Continental Congress as well as such leaders as George Washington
+and John Hancock had made thanksgiving proclamations in thanking God.
+President George Washington proclaimed the first nationwide thanksgiving
+celebration in America marking November 26, 1789, "as a day of public
+thanksgiving and prayer, to be observed by acknowledging with grateful
+hearts the many and signal favours of Almighty God". From this time until
+Abraham Lincoln, the date of Thanksgiving varied by state with the last
+Thursday in November being the most common date. In 1863 Abraham Lincoln
+proclaimed the first national Thanksgiving that was to be on the final
+Thursday of November. It has been a national holiday since that time. This
+was to thank God for the continuing success of the Union during the Civil
+War as well as the blessings God had bestowed on America. Sarah Hale had
+written letters to politicians for 40 years asking for a federal holiday
+of Thanksgiving. In 1939 President Franklin D. Roosevelt changed the date
+of Thanksgiving to the third Thursday in November for business purposes,
+but on December 26, 1941 Congress changed Thanksgiving back to the fourth
+Thursday in November. Today a handful of nations also celebrate
+Thanksgiving with most being in November as well, though the date may
+vary. Canada has their Thanksgiving on the second Monday in October to
+thank God for the harvest season. This is Columbus Day in the United
+States. A few other nations have a harvest celebration. All nations should
+have a day set aside to thank God not just for their fall harvest as
+historically was done, but for all that God has done for them.  
 
-Username or email _____________________
+Today we often celebrate Thanksgiving with family and large amounts
+of food including such things as turkey, stuffing, cranberries, potatoes,
+other vegetables, bread, and pumpkin pie. We should enjoy the time with
+family and the food, but not be gluttons and remember that Thanksgiving is
+the day we thank God for everything. (Proverbs 23:21 For the drunkard and
+the glutton shall come to poverty: and drowsiness shall clothe a man with
+rags.) Unfortunately too many people no longer understand the true meaning
+of Thanksgiving and have turned it into just a day to gather with family
+and friends, gorge themselves with lots of food, alcohol, watch football
+and parades, and prepare for Black Friday shopping. The president is too
+busy pardoning a turkey instead of asking God to forgive him and the
+nation of his and our sins and thanking God for having put him in power.
+The blessings of God for most have long been forgotten. Today people are
+very unthankful. (II Timothy 3:2 For men shall be lovers of their own
+selves, covetous, boasters, proud, blasphemers, disobedient to parents,
+unthankful, unholy,) Many people are so unthankful that they call
+Thanksgiving Turkey Day and never say Happy Thanksgiving as they are not
+happy about anything. They have long forgotten God. Americans have become
+some of the most unthankful people even though God has blessed us more
+than any other nation with maybe the exception of Israel. There is no
+excuse for this as God is gracious even to the unthankful who do not
+deserve the grace and blessings of God. (Luke 6:35 But love ye your
+enemies, and do good, and lend, hoping for nothing again; and your reward
+shall be great, and ye shall be the children of the Highest: for he is
+kind unto the unthankful and to the evil.) I have met people that God has
+performed miracles in their lives after some health issue or other event
+and they are completely unthankful and hate God. Some people will never be
+thankful no matter what. God said the nations that forget God will be
+turned into hell. Today the United States of America and all nations have
+forgotten God as they push God aside. America needs to repent today or she
+will be destroyed. (Psalm 9:17 The wicked shall be turned into hell, and
+all the nations that forget God.)  
 
-Reset password
+Just as God provided a bountiful harvest for the Pilgrims in 1621, he
+also provided for the Israelites with manna and water while they were
+wandering in the wilderness for 40 years. (Exodus 16:35 And the children
+of Israel did eat manna forty years, until they came to a land inhabited;
+they did eat manna, until they came unto the borders of the land of
+Canaan.)
+
+The Israelites offered sacrifices of thanksgiving to God. (Leviticus
+7:12-15 If he offer it for a thanksgiving, then he shall offer with the
+sacrifice of thanksgiving unleavened cakes mingled with oil, and
+unleavened wafers anointed with oil, and cakes mingled with oil, of fine
+flour, fried.
+13 Besides the cakes, he shall offer for his offering leavened bread with
+the sacrifice of thanksgiving of his peace offerings.
+14 And of it he shall offer one out of the whole oblation for an heave
+offering unto the LORD, and it shall be the priest's that sprinkleth the
+blood of the peace offerings.
+15 And the flesh of the sacrifice of his peace offerings for thanksgiving
+shall be eaten the same day that it is offered; he shall not leave any of
+it until the morning.) These were to be done by the person's own free
+will. (Leviticus 22:29 And when ye will offer a sacrifice of thanksgiving
+unto the LORD, offer it at your own will.) (Amos 4:5 And offer a sacrifice
+of thanksgiving with leaven, and proclaim and publish the free offerings:
+for this liketh you, O ye children of Israel, saith the Lord GOD.) We as
+Christians should also offer sacrifices to God with our time, money, and
+talents to win souls for Jesus as a thanksgiving to God for saving us and
+providing for us daily.
+
+Many godly men in scripture gave thanks to God. The Levites gave
+thanks to God at the dedication of Solomon's temple to God. (I Chronicles
+5:13 It came even to pass, as the trumpeters and singers were as one, to
+make one sound to be heard in praising and thanking the LORD; and when
+they lifted up their voice with the trumpets and cymbals and instruments
+of musick, and praised the LORD, saying, For he is good; for his mercy
+endureth for ever: that then the house was filled with a cloud, even the
+house of the LORD;) When the Israelites returned to Jerusalem following
+Babylonian and Persian captivity they laid the foundation for rebuilding
+the temple that was destroyed by the Babylonians and they gave thanks to
+God. (Ezra 3:11 And they sang together by course in praising and giving
+thanks unto the LORD; because he is good, for his mercy endureth for ever
+toward Israel. And all the people shouted with a great shout, when they
+praised the LORD, because the foundation of the house of the LORD was
+laid.) Israelites gave thanks to God during the rebuilding of the wall
+around Jerusalem. (Nehemiah 12:40 So stood the two companies of them that
+gave thanks in the house of God, and I, and the half of the rulers with
+me:) Daniel gave thanks to God for revealing what Nebuchadnezzar dreamed.
+(Daniel 2:23 I thank thee, and praise thee, O thou God of my fathers, who
+hast given me wisdom and might, and hast made known unto me now what we
+desired of thee: for thou hast now made known unto us the king's matter.)
+Daniel prayed and gave thanks to God three times a day. (Daniel 6:10 ¶ Now
+when Daniel knew that the writing was signed, he went into his house; and
+his windows being open in his chamber toward Jerusalem, he kneeled upon
+his knees three times a day, and prayed, and gave thanks before his God,
+as he did aforetime.) Today most Christians cannot even pray at all to God
+anytime let alone three times a day. When Jesus was brought to the temple
+as a child to be dedicated to the Lord, the widow Anna was a woman who
+gave thanks to God. (Luke 2:37-38 And she was a widow of about fourscore
+and four years, which departed not from the temple, but served God with
+fastings and prayers night and day.
+38 And she coming in that instant gave thanks likewise unto the Lord, and
+spake of him to all them that looked for redemption in Jerusalem.)  
+
+We are told over and over in scripture that we are to give thanks to
+God. (I Chronicles 16:8 Give thanks unto the LORD, call upon his name,
+make known his deeds among the people.) (I Chronicles 16:34-35 O give
+thanks unto the LORD; for he is good; for his mercy endureth for ever.
+35 And say ye, Save us, O God of our salvation, and gather us together,
+and deliver us from the heathen, that we may give thanks to thy holy
+name, and glory in thy praise.) The psalms are full of verses to thank
+God. (Psalm 136:1-3 O give thanks unto the LORD; for he is good: for his
+mercy endureth for ever.
+2O give thanks unto the God of gods: for his mercy endureth for ever.
+3O give thanks to the Lord of lords: for his mercy endureth for ever.)
+(Psalm 136:26 O give thanks unto the God of heaven: for his
+mercy endureth for ever.) (Psalm 26:7 That I may publish with the voice of
+thanksgiving, and tell of all thy wondrous works.) (Psalm 50:14 Offer unto
+God thanksgiving; and pay thy vows unto the most High:) (Psalm 100:4 Enter
+into his gates with thanksgiving, and into his courts with praise: be
+thankful unto him, and bless his name.)
+
+Christians should pray and thank God for their food before eating and
+this includes in public. Do not be ashamed of God. Many people do not get
+food every day, so we should be thanking God for his blessings. Jesus set
+the example by praying and thanking God for the food before feeding the
+4,000 men. (Matthew 15:36 And he took the seven loaves and the fishes, and
+gave thanks, and brake them, and gave to his disciples, and the disciples
+to the multitude.) Jesus gave thanks for the cup at the Last Supper which
+represented his future shed blood on the cross for our sins when he
+instituted the Lord's Supper. (Matthew 26:27 And he took the cup, and gave
+thanks, and gave it to them, saying, Drink ye all of it;) All food is good
+for us to eat if we pray and ask God to bless it. (I Timothy 4:3-5
+Forbidding to marry, and commanding to abstain from meats, which God hath
+created to be received with thanksgiving of them which believe and know
+the truth.
+4 For every creature of God is good, and nothing to be refused, if it be
+received with thanksgiving:
+5 For it is sanctified by the word of God and prayer.)
+
+God is worthy to be praised and thanked each and every day for the
+things he provides for us. God often even provides the things that we are
+not even aware of. God said those who do not provide for their own are
+worse than an infidel. (I Timothy 5:8 But if any provide not for his own,
+and specially for those of his own house, he hath denied the faith, and is
+worse than an infidel.) God is no infidel as he always takes care of his
+own children and even his enemies. God provides for the sparrow that is
+not worth much and does not forget them, so do you not think he will
+provide for his children? (Luke 12:6 Are not five sparrows sold for two
+farthings, and not one of them is forgotten before God?) (Matthew 6:26
+Behold the fowls of the air: for they sow not, neither do they reap, nor
+gather into barns; yet your heavenly Father feedeth them. Are ye not much
+better than they?) 
+
+Christians should give God thanks every day for all the things he
+does for each of us. Thank God for saving us and for sending his Son Jesus
+so that we could have that salvation. Thank God that he still allows you
+another day on this earth and that you can breathe without thinking about
+it and your heart beats without any thought from you. Thank God you have a
+roof over your head, clothes on your body, and food on the table and live
+in a place where for now we can still worship without fear and have the
+freedom to assemble. Pray that this will continue. Too many Christians
+never thank God for what he does for us each and every day. They take God
+for granted, especially American Christians who have much to be thankful
+for compared to the rest of the world, yet are some of the most ungrateful
+people including Christians. Most American Christians just expect God that
+he is supposed to give them everything they want and are not thankful one
+bit. Most never pray for their food or anything else. Christians should be
+thankful and in everything give thanks. God commands us to be thankful. (I
+Thessalonians 5:18 In every thing give thanks: for this is the will of God
+in Christ Jesus concerning you.) (Ephesians 5:20 Giving thanks always for
+all things unto God and the Father in the name of our Lord Jesus Christ;)
+God is pleased when Christians give him thanks for what he does for them.
+When we live our lives in a godly manner this shows our thanks to God.
+(Colossians 3:15 And let the peace of God rule in your hearts, to the
+which also ye are called in one body; and be ye thankful.) If we are
+Christians we should abound with thanksgiving. (Colossians 2:7 Rooted and
+built up in him, and stablished in the faith, as ye have been taught,
+abounding therein with thanksgiving.) We as Christians should not be
+thankful just on Thanksgiving Day, but every day of the year. (Hebrews
+13:15 By him therefore let us offer the sacrifice of praise to God
+continually, that is, the fruit of our lips giving thanks to his name.) We
+need to learn to thank God even for the things that do not go according to
+the way we wanted, whether a job we did not get or a health issue that
+arises. God said to give thanks in everything, not just for the things we
+wanted or like. This is not always easy, but is God's command. God always
+knows best and has a reason for all things. (Hebrews 11:40 God having
+provided some better thing for us, that they without us should not be made
+perfect.) Everything he does is to bring glory to him, so praise him and
+thank God even in the dark days and times. It may not always be easy to
+thank God at times, but we still must. It is easy to thank God when all is
+going well, but true thanks is shown when all is not well. Let us turn
+Thanksgiving back into a day like it was meant to be, a day of
+thanksgiving to God for all of his blessings he bestows upon us. For those
+who are not saved, call upon Jesus today for salvation and you will have
+reason to be the most thankful in your life that you will ever be since
+now you will have everlasting life and you too can know the true meaning
+of Thanksgiving.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

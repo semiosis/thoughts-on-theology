@@ -1,2 +1,4 @@
+Refresh: psalm-23/index.html
+
 Click here...
 

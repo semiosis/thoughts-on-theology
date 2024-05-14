@@ -1,2 +1,4 @@
+Refresh: obadiah/index.html
+
 Click here...
 

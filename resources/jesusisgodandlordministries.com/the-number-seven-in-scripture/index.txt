@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,379 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Number Seven in Scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Even the casual reader of scripture will notice the frequency of the
+number seven and realize there must be a reason. The number seven is found
+many times not only by the word seven mentioned, but also in many places
+that are not as obvious. The number seven in scripture means completeness
+or spiritual perfection. This number is used by God to show he is
+finished. Often times the number seven is used in conjunction with other
+numbers matching their significance.
 
-Username or email _____________________
+The number seven is first seen with the seven days of creation and
+thus even today we have a seven day week. Some governments over the years
+have tried to go against God's word and his perfect design and have a ten
+day week or something else, but always go back to the seven day week.
 
-Reset password
+We see in Genesis chapter 7 the flood destroying the earth. God was
+showing his complete judgment on the pre-flood world. God commanded Noah
+to bring the animals into the ark. He brought the rain after seven days.
+Noah brought seven of each clean animal. Noah waited seven days after the
+dove returned to send it out again and then waited seven more days to send
+it out a third time. The ark rested in the seventh month upon the
+mountains of Ararat. Noah's name is mentioned for the seventh time in
+Genesis 6:9 where it says Noah was a just man and perfect in his
+generations. This matches the perfection of the number seven. The seventh
+book of the Holy Bible is Judges which also deals with judgment of God's
+people. 
+
+In Revelation we see the number seven frequently. There are the seven
+churches in Asia, seven spirits which are before his throne, seven golden
+candlesticks, and seven stars in chapter 1. At the end of each of the
+churches, Jesus gives seven different promises to each of the churches to
+those who overcome. Revelation mentions the seven seal judgments, seven
+trumpet and seven vial judgments. The seven sealed book is found in
+Revelation 5:1. Seven thunders are heard in heaven (Revelation 10). The
+beast has seven heads and seven crowns. Revelation chapter 12 and 13
+mention seven beings: the woman, the man child, the dragon or Satan,
+archangel Michael, the Lamb or Jesus, the seven headed beast, and the
+false prophet. Revelation 17 mentions seven mountains and seven kings.
+
+In the gospel of John, Jesus made seven "I am" statements. Jesus
+performed seven miracles in John. In Matthew chapter 13 Jesus spoke seven
+parables. In Matthew and Mark we find the miracle of Jesus feeding 4,000
+with seven loaves. One of the meanings of the number four is the gospel.
+This shows how Jesus in his perfection gave the gospel to the 4,000. After
+they were done eating they had seven full baskets left over. God's supply
+never runs out. In Luke chapter 3 we see seventy seven names in the
+genealogy of Jesus from God to Jesus himself. 77 is 7 x 11. Jesus healed
+seven times on the sabbath.
+
+Seven feasts are mentioned in the Old Testament for the Jews
+instituted by God. They are passover, feast of unleavened bread, feast of
+first fruits, Pentecost, feast of trumpets, day of atonement, and feast of
+tabernacles. The feast of unleavened bread was seven days long. The feast
+of trumpets was on the first day of the seventh month. The feast of
+tabernacles was also in the seventh month and seven days long. The Jewish
+sabbath was on the seventh day of the week.
+
+We see the Israelites marched around Jericho for seven days and seven
+times on the seventh day. They were led by seven priests with seven
+trumpets. In Genesis 31, Laban pursued after Jacob for seven days. In II
+Kings, Naaman who had leprosy washed in the Jordan river seven times and
+was made clean. Solomon was seven years in building the temple. Jacob
+bowed himself seven times before Esau when he met him in Genesis 33:3.
+Jacob worked seven years each for Leah and Rachel. In Acts chapter 6,
+seven men of honest report were chosen. Pharaoh's dream he told Joseph
+consisted of seven kine and seven ears of corn representing seven
+plenteous years and seven years of famine. (Genesis 41) Moses turned the
+waters of Egypt into blood for seven days. The candlestick in the temple
+had seven lamps. We see the seven sons of Jesse. God's covenant with
+Abraham in Genesis 12 had seven blessings.
+
+There are four sets of 490 years (70 x 7) in the history of Israel.
+The first is from Abraham to the Exodus, the second from the exodus to the
+temple, the third from the temple to the edict of Artaxerxes who allowed
+the Jews to return to Jerusalem from Babylon, and the fourth from
+Artaxerxes to the second coming of Jesus. Note that all four of these have
+gaps in them as God does not count the time that Israel was in captivity
+or in the last case, the gap continues as we are in the time of the
+gentiles and it will continue until the signing of the peace treaty by the
+antichrist with Israel.
+
+The phrase "Thus saith the LORD of Hosts" is found seventy times in
+scripture. That is 7 x 10. This shows God's word is perfect and cannot be
+changed. The phrase "his servants the prophets" is found seven times with
+the last two times being in verse 7 of that chapter.  The phrase "ark of
+the covenant" is found 42 times (7 x 6) in the Old Testament. The phrase
+"end of the world" is found seven times. The tribulation lasts 7 years
+divided into two 42 month periods (7 x 6).  I believe the millennium will
+start on the seventh day of God's calendar (II Peter 3:8 But, beloved, be
+not ignorant of this one thing, that one day is with the Lord as a
+thousand years, and a thousand years as one day.) The phrase "Jesus
+Christ" is found 196 times (7 x 28). The phrase "word of God" is found 49
+times (7 x 7) showing it is perfect and complete. His word is purified
+seven times. (Psalm 12:6 The words of the LORD are pure words: as silver
+tried in a furnace of earth, purified seven times.) The phrase "Christ
+Jesus" is found seven times in Ephesians. "It is written" is found 63
+times (7 x 9) in the New Testament. Word as a title for Jesus is found
+seven times.
+
+Jesus uttered seven phrases from the cross. His final was "It is
+finished." The word "finished" is found 42 times. (7 x 6) The four gospels
+mention the words put above Jesus while he was on the cross. Those words
+added together from the four gospels equal 28 which is 7 x 4. As mentioned
+earlier the number four represents the gospel as seen in the four gospels
+of Matthew, Mark, Luke, and John.
+
+The best reference to the Godhead found in scripture is found in I
+John 5:7 (I John 5:7 For there are three that bear record in heaven, the
+Father, the Word, and the Holy Ghost: and these three are one.). Five is
+grace and seven is perfection and completeness. All is perfect and
+complete in the Godhead and by the grace of God we have salvation through
+Jesus. Most bible versions remove this reference to the Godhead and take
+parts from verses 6 and 8 to make you think they never removed this verse.
+
+The word "JEHOVAH" is found 7 times in scripture, four times by
+itself and three times as a place name. Newer versions often omit some or
+all of these references including the NKJV (New King James Version) and
+NIV (New International Version) which omit all seven. They do not want you
+to know the name of God. Satan controls the translators of these other
+versions.
+
+Seven types of musical instruments are mentioned in Daniel 3. Seven
+officials are mentioned in Daniel 3. (princes, governors, captains,
+judges, treasurers, counsellors, and sheriffs) The furnace was heated
+seven times hotter than normal, but God protected the three Hebrews
+showing his complete deliverance of his people. Proverbs 6:16-19 lists
+seven things that are an abomination unto the LORD. Hebrews chapter seven
+speaks of the perfect priesthood of Melchisedec. Hebrews mentions seven
+titles or descriptions for Jesus. Hebrews 1:2 says "heir of all things",
+Hebrews 2:10 "captain of their salvation", Hebrews 3:1 "Apostle" and "High
+Priest", Hebrews 5:9 "author of eternal salvation", Hebrews  6:20
+"forerunner", and Hebrews 12:2 "author and finisher of our faith."  Seven
+Psalms written by David are mentioned in the New Testament. (Psalm 2, 16,
+32, 41, 69, 95, and 109)
+
+Jesus is the seventh word in Matthew 1:1 and Jesus is the seventh from the
+last word in the last verse in scripture found in Revelation 22:21. This
+is changed in many modern bibles again destroying God's pattern. It only
+makes sense that the seventh word of the New Testament and the seventh to
+last word in scripture is Jesus since seven is God's perfect number just
+as Jesus was the only perfect man. It all starts and ends with Jesus as
+all of scripture is about Jesus or to point us to him.
+
+There are many other times the number seven is seen in scripture,
+both in the actual number being used and in the number of times something
+happens or is listed, or a word or phrase is found, et cetera. The false
+versions change the number of times a phrase is mentioned so that the
+number pattern is not found and/or make other changes such as change the
+seven letter Saviour to six letters. Often even the fact of the verse
+number or chapter where something is found is significant. These patterns
+are also found with many other numbers and colors, even the metal that an
+object is made out of. God has shown that he alone inspired and preserved
+his word in the King James Bible.
+
+The number seven is even seen in nature as created by God. There are
+seven musical notes (A-G). There are seven types of light (visible, x-ray,
+gamma ray, infrared, ultraviolet, radio, and microwaves.) Visible light
+consists of seven colors as seen in the rainbow. (Red, orange, yellow,
+green, blue, indigo, and violet) There are seven shapes of minerals in
+nature: cubic or isometric, hexagonal, tetragonal, trigonal, orthorhombic,
+monoclinic, and triclinic.
+
+The gestation period of many animals is in a multiple of seven,
+especially mammals and many insects. Most insects are in the ova stage
+from 14 (7 x 2) to 42 (7 x 6) days. The mouse is 21 days, hare and rat is
+28 days, cat is 56 days, dog is 63 days, lion is 98, sheep is 147 (7 x
+21). Note Jacob lived for 147 years. People are normally 280 days ( 7 x
+40). God said people normally live for threescore and ten years 70 years
+(7 x 10) (Psalm 90:10). A common hen is 21 days and a duck is 42 days.
+
+Most diseases or illnesses such as gout in people work on days of
+seven or fourteen or 21 days. Every seven years our bodies replace all of
+our cells. People have seven bones in their neck, fourteen bones in the
+face (7 x 2), and seven holes in the skull (2 for the eyes, 2 for the
+ears, 1 for the mouth, 1 for the nose, and one for the spine).
+
+It is very clear that the number seven has a significant meaning in
+scripture and to God.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

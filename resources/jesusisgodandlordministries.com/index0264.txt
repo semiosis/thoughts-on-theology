@@ -1,2 +1,4 @@
+Refresh: false-religions/index.html
+
 Click here...
 

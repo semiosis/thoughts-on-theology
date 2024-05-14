@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,561 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Significant events that happened on 17 Nisan  
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Throughout history many significant events especially dealing with
+Israel have occurred on 17 Nisan. The number seventeen means victory and
+this will be seen throughout the various events. The number seventeen as
+victory is seen elsewhere in scripture as well such as in Romans 8:35-39
+gives seventeen things that will not be able to separate us from the love
+of Christ. (Romans 8:35-39 35 Who shall separate us from the love of
+Christ? shall tribulation, or distress, or persecution, or famine, or
+nakedness, or peril, or sword?
+36 As it is written, For thy sake we are killed all the day long; we are
+accounted as sheep for the slaughter.
+37 Nay, in all these things we are more than conquerors through him that
+loved us.
+38 For I am persuaded, that neither death, nor life, nor angels, nor
+principalities, nor powers, nor things present, nor things to come,
+39 Nor height, nor depth, nor any other creature, shall be able to
+separate us from the love of God, which is in Christ Jesus our Lord.) At
+least seven significant events have happened on 17 Nisan. It is very rare
+that even two events happen on the same day in a nation's history, yet we
+will see this happen over and over on 17 Nisan. We also saw how at least
+eight significant things happened on the 9^th of Av throughout Israel's
+history in my sermon Jewish tragedies on the 9^th of Av, but on 9 Av it
+brings tragedy to Israel whereas 17 Nisan brings victory. It has been
+calculated that the odds of these seven major events all happening on this
+same day and all being good events on top of it is about 1 in 784
+quadrillion. 784 quadrillion is 784 followed by fifteen zeros. Just like
+with the tragic events all happening on 9 Av is against all odds, so is it
+here on this date. The fact that Israel has two dates with so much
+significance proves again the existence of God and how he clearly is
+involved in the events of Israel and the lives of the Israeli people. No
+other nation or dates in history come close to having so many events let
+alone significant events all happen on the same day of the year. The month
+of Nisan was originally called Abib in scripture and was made the first
+month by God on the religious calendar to remember the Exodus from Egypt.
+It had formerly been the seventh month for Israel. (Exodus 12:2 This month
+shall be unto you the beginning of months: it shall be the first month of
+the year to you.) 17 Nisan normally occurs in April on our calendar. It is
+believed the name Nisan in Hebrew means "miracle". If this is true then it
+is well named as we will see it takes a miracle from God to not only have
+seven significant events for Israel happen on 17 Nisan, but the events
+themselves are miraculous with the last being the most miraculous in the
+resurrection of Jesus.
 
-Username or email _____________________
+The first major event that happened on 17 Nisan was Noah's ark rested
+on the mountains of Ararat following a devastating global flood that
+killed all life on land that was not in the ark, both people and animals.
+(Genesis 8:4 And the ark rested in the seventh month, on the seventeenth
+day of the month, upon the mountains of Ararat.) This verse says the
+seventh month when I said Nisan was the first month, but remember I said
+God had Moses change the calendar after the Israelites left Egypt so this
+became the first month. The ark resting shows how Jesus who was inside the
+ark with those on board had brought peace and rest. The ark finally had
+rest from the violence and sin outside and from floating around during the
+flood. The rest was a type of the sabbath which God gave man to worship
+him as well as rest the body and restore both physical and spiritual
+health. The ark resting brought victory from the flood and death for those
+on board. This first major event on 17 Nisan was not directly for Israel
+as Israel had not been made a nation yet, but it does have implications
+for Israel as well as all true Christians in showing how true rest can
+only come from Jesus. (Matthew 11:28 ¶ Come unto me, all ye that labour
+and are heavy laden, and I will give you rest.) This event happening on
+this day also shows how God is in control of everything and when they
+happen as well as showing that God based events off of the future Hebrew
+calendar which I believe was always the true calendar going back to Adam.
 
-Reset password
+The second major event to occur on 17 Nisan was the Israelites
+entered Egypt exactly 430 years before they left in the exodus under Moses
+following the death of the firstborn in the tenth plaque against Egypt.
+(Exodus 12:40-41 40 ¶ Now the sojourning of the children of Israel, who
+dwelt in Egypt, was four hundred and thirty years.
+41 And it came to pass at the end of the four hundred and thirty years,
+even the selfsame day it came to pass, that all the hosts of the LORD went
+out from the land of Egypt.) 
+
+The third major event to happen on 17 Nisan was when the Israelites
+crossed the Red sea. As the Israelites made their escape from Egypt they
+became cornered at the Red sea surrounded by the sea on one side with
+mountains on the other with the Egyptian army blocking the only escape
+route back out. God used Moses to dry up the Red sea so that there was a
+wall of water on both sides and allowed the Israelites to cross over on
+dry ground to the other side and then God drowned the entire pursuing
+Egyptian army bringing victory to Israel. God had brought the ten plagues
+to Israel to get pharaoh to allow Israel to leave Egypt and now he
+destroys the pursuing Egyptian army. The Israelites left Egypt on the
+self-same day they had entered Egypt showing they had entered Egypt on 17
+Nisan as well. By crossing the Red sea, the Israelites left Egyptian
+territory and crossed over into Arabia into what is now known as Saudi
+Arabia. (Numbers 33:1-8 1 These are the journeys of the children of
+Israel, which went forth out of the land of Egypt with their armies under
+the hand of Moses and Aaron.
+2 And Moses wrote their goings out according to their journeys by the
+commandment of the LORD: and these are their journeys according to their
+goings out.
+3 And they departed from Rameses in the first month, on the fifteenth day
+of the first month; on the morrow after the passover [still the 15^th] the
+children of Israel went out with an high hand in the sight of all the
+Egyptians.
+4 For the Egyptians buried all their firstborn, which the LORD had smitten
+among them: upon their gods also the LORD executed judgments.
+5 And the children of Israel removed from Rameses, and pitched in Succoth.
+[evening of the 15^th]
+6 And they departed from Succoth, and pitched in Etham, which is in the
+edge of the wilderness. [evening of the 16^th]
+7 And they removed from Etham, and turned again unto Pi-hahiroth,
+which is before Baal-zephon: and they pitched before Migdol. [evening of
+the 17^th]
+8 And they departed from before Pi-hahiroth, [morning of the 17^th since
+Jewish day started the previous sunset] and passed through the midst of
+the sea into the wilderness, and went three days' journey in the
+wilderness of Etham, and pitched in Marah.) We see from these verses in
+Numbers 33 it does not say 17 Nisan in the text, but how we can figure out
+the date from reading the verses and deciphering them. We need to remember
+when counting the dates that Jewish days go from sunset to sunset rather
+than starting at midnight like our days. We also need to remember that
+passover is on 14 Nisan so the morrow after would be 15 Nisan. (Exodus
+12:5-6 5 Your lamb shall be without blemish, a male of the first year: ye
+shall take it out from the sheep, or from the goats:
+6 And ye shall keep it up until the fourteenth day of the same month: and
+the whole assembly of the congregation of Israel shall kill it in the
+evening.) (Leviticus 23:5 In the fourteenth day of the first month at even
+is the LORD'S passover.) (Numbers 28:16 And in the fourteenth day of the
+first month is the passover of the LORD.) As I previously mentioned, the
+Israelites left Egypt exactly 430 years after entering Egypt, both on 17
+Nisan. We see how God fulfills his promises and delivers on them on the
+exact day that he says he will. These verses are in chapter 33 with the
+number 33 meaning promise as God promised to send his Son Jesus to save us
+and this will be seen later as Jesus would rise from the grave on 17 Nisan
+in the greatest event on this day or any day in history.
+
+The fourth major event on 17 Nisan is the Israelites ate of the fruit
+of the land for the first time in the Promised Land after wandering in the
+wilderness for forty years. They ate of this fruit exactly forty years
+after they entered the wilderness. They had entered the wilderness on 17
+Nisan after crossing the Red sea as we previously saw. God had said they
+would have to wander in the wilderness for forty years for not believing
+the two spies of Joshua and Caleb and we see God once again fulfills his
+promise to the exact day. (Numbers 14:33-34 33 And your children shall
+wander in the wilderness forty years, and bear your whoredoms, until your
+carcases be wasted in the wilderness.
+34 After the number of the days in which ye searched the land, even forty
+days, each day for a year, shall ye bear your
+iniquities, even forty years, and ye shall know my breach of promise.)
+(Joshua 5:6 For the children of Israel walked forty years in the
+wilderness, till all the people that were men of war, which came out of
+Egypt, were consumed, because they obeyed not the voice of the LORD: unto
+whom the LORD sware that he would not shew them the land, which the
+LORD sware unto their fathers that he would give us, a land that floweth
+with milk and honey.) (Joshua 5:10-12 10 ¶ And the children of Israel
+encamped in Gilgal, and kept the passover on the fourteenth day of the
+month [14 Nisan] at even in the plains of Jericho.
+11 And they did eat of the old corn of the land on the morrow after the
+passover, [15Nisan] unleavened cakes, and parched corn in the selfsame
+day.
+
+12 ¶ And the manna ceased on the morrow after they had eaten of the old
+corn of the land; [16 Nisan] neither had the children of Israel manna any
+more; but they did eat of the fruit of the land of Canaan that year. [17
+Nisan]) This eating of the fruit is symbolic of the first fruits that God
+would give them later in Jesus.
+
+The fifth major event on 17 Nisan was king Hezekiah rededicated and
+opened the cleansed Solomon's temple which had been defiled. The temple
+had long become neglected due to the sins and idolatry of the Israelites
+and Hezekiah who was a godly king ordered the cleansing of the temple so
+that it could once again be used to worship God and bring sacrifices to
+the LORD. The entire chapter of II Chronicles 29 gives details on this
+event. (II Chronicles 29:17-21 17 Now they began on the first day of the
+first month to sanctify, and on the eighth day of the month came they to
+the porch of the LORD: so they sanctified the house of the LORD in eight
+days; and in the sixteenth day of the first month they made an end.
+18 Then they went in to Hezekiah the king, and said, We have cleansed all
+the house of the LORD, and the altar of burnt offering, with all the
+vessels thereof, and the shewbread table, with all the vessels thereof.
+19 Moreover all the vessels, which king Ahaz in his reign did cast away in
+his transgression, have we prepared and sanctified, and, behold,
+they are before the altar of the LORD.
+
+20 ¶ Then Hezekiah the king rose early, and gathered the rulers of the
+city, and went up to the house of the LORD.
+21 And they brought seven bullocks, and seven rams, and seven lambs, and
+seven he goats, for a sin offering for the kingdom, and for the sanctuary,
+and for Judah. And he commanded the priests the sons of Aaron to
+offer them on the altar of the LORD.) Verse 17 says they completed
+cleansing the temple or house of God on 16 Nisan and then verse 20 says
+Hezekiah rose early on what would be 17 Nisan to reopen the temple for the
+LORD and offer sacrifices.
+
+The sixth major event on 17 Nisan was when God used Queen Esther to
+deliver the Jews from death at the hand of the wicked Haman. Haman was
+second only to the king in authority in the Medo-Persian Empire. Esther
+was a Jew who became queen after winning a beauty contest. Her cousin
+Mordecai refused to bow down to Haman so Haman convinced the king to pass
+an edict to destroy [kill] all of the Jews in the empire. Haman was given
+authority by the king to make this happen as king Ahasuerus did not know
+that Esther was a Jew as she had kept this hid from the king. Haman issued
+the decree on 13 Nisan with it to come into effect eleven months later on
+the twelfth month of Adar on the 13^th. (Esther 3:8-13 8 ¶ And Haman said
+unto king Ahasuerus, There is a certain people scattered abroad and
+dispersed among the people in all the provinces of thy kingdom; and their
+laws are diverse from all people; neither keep they the king's laws:
+therefore it is not for the king's profit to suffer them.
+9 If it please the king, let it be written that they may be destroyed: and
+I will pay ten thousand talents of silver to the hands of those that have
+the charge of the business, to bring it into the king's treasuries.
+10 And the king took his ring from his hand, and gave it unto Haman the
+son of Hammedatha the Agagite, the Jews' enemy.
+11 And the king said unto Haman, The silver is given to thee, the people
+also, to do with them as it seemeth good to thee.
+12 Then were the king's scribes called on the thirteenth day of the first
+month, and there was written according to all that Haman had commanded
+unto the king's lieutenants, and to the governors that were over every
+province, and to the rulers of every people of every province according to
+the writing thereof, and to every people after their language; in the name
+of king Ahasuerus was it written, and sealed with the king's ring.
+13 And the letters were sent by posts into all the king's provinces, to
+destroy, to kill, and to cause to perish, all Jews, both young and old,
+little children and women, in one day, even upon the thirteenth day of the
+twelfth month, which is the month Adar, and to take the spoil of them for
+a prey.) We see from these verses that the decree was issued on 13 Nisan.
+Mordecai saw the decree and told Esther about it. She told Mordecai that
+she would fast for three days and for him and all of the Jews there in the
+capital of Shushan to do the same. (Esther 4:16-17 16 Go, gather together
+all the Jews that are present in Shushan, and fast ye for me, and neither
+eat nor drink three days, night or day: I also and my maidens will fast
+likewise; and so will I go in unto the king, which is not according to the
+law: and if I perish, I perish.
+17 So Mordecai went his way, and did according to all that Esther had
+commanded him.) Esther was willing to go before the king even without his
+permission which could mean her death. In those days anyone wanting to see
+the king had to have his permission including even the queen. Three days
+of fasting brings it to 16 Nisan. On the third day of 16 Nisan, Esther
+went before the king and was accepted by him. She requested that he and
+Haman come to a banquet later that day that she had prepared for them. The
+king and Haman went and Esther asked the king and Haman to return the next
+day on 17 Nisan for another banquet and this was agreed upon. (Esther
+5:1-5 1 Now it came to pass on the third day, that Esther put
+on her royal apparel, and stood in the inner court of the king's house,
+over against the king's house: and the king sat upon his royal throne in
+the royal house, over against the gate of the house.
+2 And it was so, when the king saw Esther the queen standing in the
+court, that she obtained favour in his sight: and the king held out to
+Esther the golden sceptre that was in his hand. So Esther drew near, and
+touched the top of the sceptre.
+3 Then said the king unto her, What wilt thou, queen Esther? and
+what is thy request? it shall be even given thee to the half of the
+kingdom.
+4 And Esther answered, If it seem good unto the king, let the king and
+Haman come this day unto the banquet that I have prepared for him.
+5 Then the king said, Cause Haman to make haste, that he may do as Esther
+hath said. So the king and Haman came to the banquet that Esther had
+prepared.) Haman was excited to be invited for a second day and told his
+wife who encouraged him to build a gallows to hang Mordecai on. Haman and
+the king come to the second banquet prepared by Esther on 17 Nisan where
+Esther finally tells the king her petition to have a law passed to stop
+the people from killing the Jews. Esther told the king she was a Jew and
+it was the wicked Haman who was behind the scheme. The king was very angry
+and order Haman hanged on the very gallows that he had prepared for
+Mordecai and placed Mordecai second in charge instead of Haman and signed
+a decree to allow the Jews to kill anyone who tried to harm them. The Jews
+prevailed later on that day in the twelfth month, but it was Haman who
+died on 17 Nisan as God brought victory to the Jewish people. (Esther 7:10
+So they hanged Haman on the gallows that he had prepared for Mordecai.
+Then was the king's wrath pacified.) (Esther 8:1-2 1 On that day [still 17
+Nisan] did the king Ahasuerus give the house of Haman the Jews' enemy unto
+Esther the queen. And Mordecai came before the king; for Esther had told
+what he was unto her.
+2 And the king took off his ring, which he had taken from Haman, and gave
+it unto Mordecai. And Esther set Mordecai over the house of Haman.)
+
+It is possible as one theologian mentioned that the seven sons of
+Saul were put to death on 17 Nisan, though scripture does not confirm this
+and I am not completely convinced of this. Saul's sons were put to death
+because Saul had sinned in killing some Gibeonites whom Joshua and the
+leaders had made a pact not to kill. Saul killed the Gibeonites, yet he
+failed to kill Agag when he was commanded to by God. It is believed that
+Haman was a descendent of Agag, the same one who almost succeeded in
+having all of the Jews killed. This would never have happened if Saul had
+obeyed God when he was commanded to do so. The theologian states that the
+barley season in scripture is in the month of Nisan which is correct. He
+then says that II Samuel 21:9 says they were put to death in the first
+days of barley harvest. To me this shows it probably happened before the
+seventeenth, but I wanted to show the possibility of another event on 17
+Nisan. If the deaths of Saul's sons did happen on 17 Nisan this would show
+victory over Saul and his rebellion and sin. (II Samuel 21:9 And he
+delivered them into the hands of the Gibeonites, and they hanged them in
+the hill before the LORD: and they fell all seven together, and were put
+to death in the days of harvest, in the first days, in the beginning of
+barley harvest.)       
+
+The seventh major event to occur on 17 Nisan was the resurrection of
+Jesus. God under Moses instituted the feast of firstfruits, but this feast
+was not to be celebrated while the Israelites were in the wilderness. It
+was not to be celebrated until they entered the Promised Land. The
+Israelites were to offer to God the firstfruits of their harvest so that
+he would bless the rest of the crop season. Jesus rose from the grave on
+the feast of firstfruits as the firstfruits of resurrection. Jesus had to
+rise first from the grave so that others who were saved might also be able
+to rise from the grave at the rapture. (I Corinthians 15:20 But now is
+Christ risen from the dead, and become the firstfruits of them that
+slept.) (I Corinthians 15:23 But every man in his own order: Christ the
+firstfruits; afterward they that are Christ's at his coming.) The feast of
+firstfruits was always the day after a sabbath so it always occurred on a
+Sunday or the first day of the week and the Sunday that Jesus rose
+victoriously from the grave was 17 Nisan. (Leviticus 23:10-11 10 Speak
+unto the children of Israel, and say unto them, When ye be come into the
+land which I give unto you, and shall reap the harvest thereof, then ye
+shall bring a sheaf of the firstfruits of your harvest unto the priest:
+11 And he shall wave the sheaf before the LORD, to be accepted for you: on
+the morrow after the sabbath the priest shall wave it.) The resurrection
+of Jesus brought the greatest victory as he gave us victory over death,
+sin and Satan for those who receive Jesus as their Saviour. This was the
+true firstfruits and victory that all of these 17 Nisan events pointed to.
+(I Corinthians 15:54-57 54 So when this corruptible shall have put on
+incorruption, and this mortal shall have put on immortality, then shall be
+brought to pass the saying that is written, Death is swallowed up in
+victory.
+55O death, where is thy sting? O grave, where is thy victory?
+56The sting of death is sin; and the strength of sin is the law.
+57But thanks be to God, which giveth us the victory through our Lord Jesus
+Christ.) If Jesus had never risen from the grave then we would still all
+be dead in our sins. (I Corinthians 15:14 And if Christ be not risen, then
+is our preaching vain, and your faith is also vain.) We saw how Noah's ark
+rested on 17 Nisan and just as God ended the judgment on the preflood
+world on this day as the waters began to recede, God also ended the
+judgment on the restored world as he proclaimed victory over a defeated
+Satan. Jesus brought the firstfruits of life on 17 Nisan. Matthew 27:52-53
+shows how at the death of Jesus on the cross for our sins, then the graves
+of some saints in Jerusalem were opened, but then we see that these saints
+were not resurrected until after Jesus had rose from the grave as they
+could not be resurrected until Jesus was since he was the firstfruits of
+resurrection. The open graves remained open for three days and then after
+Jesus rose from the grave he brought forth these people from the grave who
+walked about Jerusalem telling people about Jesus. Those who were brought
+to life prior to Jesus rising from the grave, only died again as they had
+only been brought back to life in their physical body, but no one could
+have a resurrected body like Jesus until after he first rose from the
+grave and defeated death. (Matthew 27:52-53 52 And the graves were opened;
+and many bodies of the saints which slept arose,
+53 And came out of the graves after his resurrection, and went into the
+holy city, and appeared unto many.) 
+
+We see how Noah's ark and the Red sea represent baptism with Jesus
+and the ark as salvation only by Jesus with only the door of Jesus to
+enter that everlasting life. The Israelites ate the firstfruits of the
+Promised Land on this day showing God fulfilling promises as well as a
+promise of the future firstfruits of Jesus bringing us resurrection of our
+bodies. I have clearly shown how seven significant events all occurred on
+17 Nisan. This is virtually impossible for all of these seven major events
+to happen on this day unless God is in control to make it happen. These
+seven events show proof of God just as eight significant tragedies
+occurring on the 9^th of Av. These dates with these events could not
+happen without God controlling them. God clearly shows he is in control
+and how not only the Jewish nation is important to God and what affects
+the nation, but also God is concerned for all people of the world as he
+sent his Son Jesus Christ to die on a cross for our sins, be buried, shed
+his blood for us to wash away our sins, and then to rise victoriously on
+17 Nisan to bring everlasting life to those who will call upon him to save
+them as our firstfruits of resurrection. Bring victory over death today by
+calling upon Jesus to save you if you are not saved.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

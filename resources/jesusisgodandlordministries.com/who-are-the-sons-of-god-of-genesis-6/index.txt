@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,1152 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Who are the sons of God of Genesis 6?
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+This is a highly controversial subject that most Christians try to
+avoid since they do not want to accept the truth. It is a very important
+subject in God's eyes as I have counted over 6% of all verses are directly
+or indirectly related to this study if my beliefs are correct. I also
+believe that this relates to things still to come. The giants are
+mentioned many times in scripture and the sons of God are in Genesis 6.
+God commands us to study all scripture and says it is his word. We are not
+given the option to avoid a subject that we find repulsive or just do not
+want to believe and so change our views or just ignore it. Christians
+should not hate a brother or sister in Christ because they hold a
+different view, but rebuke them in love and show them what scripture says.
+The angel view is the only one that allows all verses in scripture to make
+sense without trying to find different reasons to explain different views
+as are done in the non angel views.
 
-Username or email _____________________
+Genesis 6:1-13 1 And it came to pass, when men began to multiply on the
+face of the earth, and daughters were born unto them,
+2 That the sons of God saw the daughters of men that they were fair; and
+they took them wives of all which they chose.
+3 And the LORD said, My spirit shall not always strive with man, for that
+he also is flesh: yet his days shall be an hundred and twenty years.
+4 There were giants in the earth in those days; and also after that, when
+the sons of God came in unto the daughters of men, and they bare children
+to them, the same became mighty men which were of old, men of renown.
 
-Reset password
+5 ¶ And GOD saw that the wickedness of man was great in the earth, and
+that every imagination of the thoughts of his heart was only evil
+continually.
+6 And it repented the LORD that he had made man on the earth, and it
+grieved him at his heart.
+7 And the LORD said, I will destroy man whom I have created from the face
+of the earth; both man, and beast, and the creeping thing, and the fowls
+of the air; for it repenteth me that I have made them.
+8 But Noah found grace in the eyes of the LORD.
+
+9 ¶ These are the generations of Noah: Noah was a just man and perfect in
+his generations, and Noah walked with God.
+10 And Noah begat three sons, Shem, Ham, and Japheth.
+11 The earth also was corrupt before God, and the earth was filled with
+violence.
+12 And God looked upon the earth, and, behold, it was corrupt; for all
+flesh had corrupted his way upon the earth.
+13 And God said unto Noah, The end of all flesh is come before me; for the
+earth is filled with violence through them; and, behold, I will destroy
+them with the earth.
+
+Who are the sons of God of Genesis 6:2 and 4?
+
+There are four main theories (views) presented as to who Genesis 6 is
+referring to: (Note not everyone who believes in a particular view, all
+agree on everything.)
+
+1. A very few orthodox Jews theorized that "sons of God" meant "nobles"
+or "magnates" (the rulers who were sometimes named after their false
+gods). Hardly anyone today accepts this view. (Royalty view) This view
+is unscriptural. Gary Bates mentions how those who believe in this
+view say the "mighty men" mentioned in Genesis 6:4 refers to rulers
+though scripture says it refers to the giants. All of the offspring
+(giants) from the marriages seem to have been male. A normal male and
+female will produce both sexes. Why would rulers only produce males
+and not any females? There are no scripture verses that say kings were
+sons of God.
+2. That sons of God refers to fallen angels who had sexual relations with
+women on Earth after having lusted after them. Many people try to
+reject this option simply because they cannot believe or do not want
+to believe that angels could have sex with earthly women. This is
+called rejecting on psychophysiological grounds. Others say how in
+Matthew 22:30 it says angels do not marry, but this refers to holy
+angels of God in heaven as God intended all angels to be, and not the
+unholy evil fallen angels. They ignore the part "of God in heaven".
+The angels of Genesis 6 were fallen angels who had left heaven and had
+already disobeyed God before. (Matthew 22:30 For in the resurrection
+they neither marry, nor are given in marriage, but are as the angels
+of God in heaven.) (Mark 12:25 For when they shall rise from the dead,
+they neither marry, nor are given in marriage; but are as the angels
+which are in heaven.) We know angels can take the form of man (or that
+may be their normal spiritual body) and can eat so should also be able
+to perform sexually. We see this with the angels who visited Lot.
+(Genesis 18) Hebrews 13:2 says people have entertained angels unaware.
+(Hebrews 13:2 Be not forgetful to entertain strangers: for thereby
+some have entertained angels unawares.) The women may not have known
+the men were actually angels though I believe they most likely did. An
+adaptation of this view is some wrongly believe it was actual men and
+women, but evil angels possessed the men, rather than the angels
+actually themselves having sex with the women. Some who hold to the
+Seth-Cain view try to say that no where in scripture does it say
+angels make baby angels. Those of us who hold to the angel view never
+said they did. They are just trying to come up with a silly argument
+to try and justify their position. This is the oldest view as it is
+the true view. (Fallen angel view)
+3. The third view (Seth-Cain view) (Sethite view) is that the sons of God
+are the male descendants of Seth and the daughters of men are the
+female descendants of Cain. This view is more recent than the angel
+view. Those who believe this view see this as an early example of
+marriage between saved and unsaved. They believe the good moral sons
+of Seth married the bad evil daughters of Cain and the result of these
+mixed marriages was a mongrel offspring (the giants). Some who hold
+this view do not know where the giants came from even though scripture
+is clear it is from these unholy unions. This view is clearly
+unscriptural. Nowhere in the Holy Bible does God prohibit or condemn
+mixed marriages except those who are unequally yoked. (II Corinthians
+6:14 Be ye not unequally yoked together with unbelievers: for what
+fellowship hath righteousness with unrighteousness? and what communion
+hath light with darkness?) (marriage between saved and unsaved). God
+condemns marriage between saved and unsaved, but has never flooded the
+earth or destroyed all of mankind or sent angels to the bottomless pit
+over it. It still happens today. Why would God do it once, but not
+destroy mankind the other times for continuing to do it. God is
+consistent and would have destroyed the earth many times over. If sons
+of God refers to sons of Seth and daughters of men is daughters of
+Cain then only the sons of Seth and the daughters of Cain were
+involved in the mixed marriages and not Seth's daughters or Cain's
+sons. This also assumes only the sons of Seth were godly and the
+daughters of Cain were evil and all of them as well. It is not
+possible that all of Seth's sons were good and all of Cain's daughters
+were bad anymore than all of a Christian's children today
+automatically become Christians or an unsaved persons children will
+always be unsaved. Genesis 6:12 says all flesh had corrupted his way
+upon the earth. (Genesis 6:12 And God looked upon the earth, and,
+behold, it was corrupt; for all flesh had corrupted his way upon the
+earth.) All flesh includes all of the children of Adam including the
+children descendant from Seth. If the line of Seth was so godly why
+was Noah's family the only one found worthy by God to live? Why did
+Noah's brothers and sisters perish if they were godly? (Genesis 5:30
+And Lamech lived after he begat Noah five hundred ninety and five
+years, and begat sons and daughters:) They also were descendants of
+Seth. Why does Genesis 6:1 refer to men as men, but then as sons of
+God in Genesis 6:2. If they both referred to men, why the change? Why
+would only the sons of Seth be godly and only the daughters of Cain be
+evil? What about the daughters of Seth and the sons of Cain? Godly or
+ungodly? Gary Bates in his book Alien Intrusion shows how in the
+Hebrew, (B'nai HaElohim, "Sons of Elohim" or "Sons of God") it uses
+the word for God and not Adam for sons of God whereas for daughters of
+men it does use the word for Adam. Why the difference if both are
+referring to people? (Pg. 382) This view never mentions the other
+children descendant from Adam's other sons and daughters. Were they
+godly or ungodly?
+4. A fourth view is not very popular. (Cain-Seth view) (Cainite view) It
+is more recent and basically the opposite of view three above. This
+view says the sons of God are the male descendants of Cain and the
+daughters of men are the daughters descendant of Seth. This view also
+is unscriptural.
+
+Sons of God has 3 possible choices (angels, Adam, believers)
+
+1. Adam was the son of God as a direct creation of God (Luke 3:38 Which
+was the son of Enos, which was the son of Seth, which was the son of
+Adam, which was the son of God.). All the rest of mankind are sons of
+men. Adam was specifically created by God in his image (Genesis 5:1
+This is the book of the generations of Adam. In the day that God
+created man, in the likeness of God made he him;). Adam's descendants
+are made in the image of man (Genesis 5:3 ¶ And Adam lived an hundred
+and thirty years, and begat a son in his own likeness, after his
+image; and called his name Seth:) This is why man is born with a sin
+nature since the sin of Adam.
+2. Sons of God in the Old Testament always refers to angels (both holy
+and evil). (Job 1:6 ¶ Now there was a day when the sons of God came to
+present themselves before the LORD, and Satan came also among them.),
+(Job 2:1 Again there was a day when the sons of God came to present
+themselves before the LORD, and Satan came also among them to present
+himself before the LORD.), and (Job 38:7 When the morning stars sang
+together, and all the sons of God shouted for joy?), and (Genesis 6:2
+That the sons of God saw the daughters of men that they were fair; and
+they took them wives of all which they chose.), (Genesis 6:4 There
+were giants in the earth in those days; and also after that, when the
+sons of God came in unto the daughters of men, and they bare children
+to them, the same became mighty men which were of old, men of
+renown.). In Job 38:4-7 the sons of God saw God lay the foundations of
+earth. Man wasn't created yet. (Job 38:4-7 4 Where wast thou when I
+laid the foundations of the earth? declare, if thou hast
+understanding. 5 Who hath laid the measures thereof, if thou knowest?
+or who hath stretched the line upon it? 6 Whereupon are the
+foundations thereof fastened? or who laid the corner stone thereof; 7
+When the morning stars sang together, and all the sons of God shouted
+for joy?) The sons of God in Job 1:6 and 2:1 present themselves before
+God and include Satan who is an angel. Since all other Old Testament
+verses refer to angels, it is logical to see Genesis 6:2 does as well.
+Those who hold to the Seth-Cain view admit the sons of God in Job are
+angels, but refuse to admit the sons of God in Genesis are angels. It
+is the same word, they just are grossed out by the truth, so therefore
+they feel justified to come up with an alternative false view.
+3. In the New Testament, sons of God refers to born again Christians.
+John 1:12-13., Romans 8:14, 1 John 3:1. Dr. Bullinger stated "It is
+only by the divine specific creation that any created being can be
+called a "son of God"". This explains why every born again Christian
+(believer) is a son of God. It explains also why Adam was a son of God
+since Adam was specifically created by God "in the likeness of God
+made he him". (Genesis 5:1) and (Genesis 1:27 So God created man in
+his own image, in the image of God created he him; male and female
+created he them.). Lewis Sperry Chafer expressed an interesting fact.
+In the Old Testament angels are called the sons of God and men are
+called servants of God. In the New Testament this is reversed. Angels
+are the servants and Christians are the sons of God. Of the 3 choices
+above, Adam, angels, or Christians, it is clear Genesis 6:2, 4 does
+not refer to Adam or Christians since Jesus had not been to Calvary
+yet. Therefore we can conclude that it is referring to angels. People
+who are saved become like angels in being sons of God. Angels were
+originally higher beings than us, but one day we as Christians will be
+higher than them and will also judge them, therefore we also become
+sons of God and the New Testament which is about Christians no longer
+refers to angels this way. (I Corinthians 6:3 Know ye not that we
+shall judge angels? how much more things that pertain to this life?)
+Christians after getting saved and then getting our glorified bodies
+will be like the angels and thus also are sons of God.
+
+Jude 6-7 and II Peter 2:4 refers to the angels of Genesis 6:2. (Jude
+6-7 And the angels which kept not their first estate, but left their own
+habitation, he hath reserved in everlasting chains under darkness unto the
+judgment of the great day.
+7 Even as Sodom and Gomorrha, and the cities about them in like manner,
+giving themselves over to fornication, and going after strange flesh, are
+set forth for an example, suffering the vengeance of eternal fire.) (II
+Peter 2:4 For if God spared not the angels that sinned, but cast them down
+to hell, and delivered them into chains of darkness, to be reserved unto
+judgment;) Jude mentions Sodom and Gomorrah and their fornication with
+strange flesh. The angels in verse 6 are being compared to the men of
+Sodom and Gomorrah in verse 7 and how they went after strange flesh when
+men went after men instead of the God ordained women. (sodomy or
+homosexuality) They also tried to have sex with the angels that came to
+get Lot out, though they probably did not know they were angels, but may
+have. The angels in verse 6 also went after strange flesh in going after
+women. In Jude 6 it mentions how the angels kept not their first estate
+but left their own habitation. The habitation or dwelling place of angels
+is heaven. Their own (Greek word idi) refers to the fact that heaven was
+made for the angels, earth for man. Even when we get a new earth, man will
+be on earth. (Revelation 21:1-3 1 And I saw a new heaven and a new earth:
+for the first heaven and the first earth were passed away; and there was
+no more sea.
+2 And I John saw the holy city, new Jerusalem, coming down from God out of
+heaven, prepared as a bride adorned for her husband.
+3 And I heard a great voice out of heaven saying, Behold, the tabernacle
+of God is with men, and he will dwell with them, and they shall be his
+people, and God himself shall be with them, and be their God.). These
+angels left heaven forever. The Greek verb apoleipo is in the aorist tense
+(past action in Greek verbs) which indicates a permanent decision. We know
+their sin from Jude 7 was going after strange flesh. "Strange" here means
+a different kind. II Peter 2:4-6 has the angels that sinned (all sinned in
+rebellion against God, but only some are chained up. Why?) compared to
+Noah and then sexual sins of Sodom and Gomorrah. (II Peter 2:4-6 4 For if
+God spared not the angels that sinned, but cast them down to hell, and
+delivered them into chains of darkness, to be reserved unto judgment;
+5 And spared not the old world, but saved Noah the eighth person, a
+preacher of righteousness, bringing in the flood upon the world of the
+ungodly;
+6 And turning the cities of Sodom and Gomorrha into ashes condemned them
+with an overthrow, making them an ensample unto those that after should
+live ungodly;) These verses show the connection to angels at the time of
+Noah prior to the flood. I believe their sin led to the flood as they
+corrupted all mankind along with their giant offspring. These angels are
+locked up because they tried to corrupt all mankind and prevent Jesus from
+coming to earth as a man and complete his redemption plan. This is also
+why Satan had angels do this a second time after the flood, but this time
+only in the area that would become the Promised Land. The reason for this
+is because prior to the flood Satan did not know from where the seed of
+the woman would come, so he had to corrupt all of the earth. After the
+flood he knew the Messiah would come through Abraham in the land promised
+to him and his descendants. This was the Promised Land. That is why the
+giants were already in this land prior to the entrance of the Jews and not
+found everywhere as before the flood. Notice that God not only will judge
+all people, but that angels are also judged as these angels already have
+been and all angels will be some day. (I Corinthians 6:3 Know ye not that
+we shall judge angels? how much more things that pertain to this life?)
+Chuck Missler in his book Hidden Treasures says Jared's name means "shall
+come down". He believes this refers to the time that the angels came down
+to mate (have sex) with the women. Jared was Enoch's dad. Jesus said in
+(Matthew 18:16 But if he will not hear thee, then take with thee one or
+two more, that in the mouth of two or three witnesses every word may be
+established.) The verses in Jude and II Peter are witnesses to Genesis 6
+in the Old Testament. Chuck Missler in his book Alien Encounters said the
+Greek term oiketerion alludes to the heavenly body which a believer longs
+to be clothed with. This term is also the same one used for the angels
+that disrobed from in Genesis 6:2. This term is only used in II
+Corinthians 5:2 and Jude 6. (Page 351 and page 357) It is possible that
+once these angels committed this atrocious sin of mating with women, that
+they knew they could never be a normal angel again. Maybe somehow they
+were changed. (II Corinthians 5:2 For in this we groan, earnestly desiring
+to be clothed upon with our house which is from heaven:)
+
+I Corinthians 11:6, 10 probably refers to these fallen angels as
+well. It says a woman ought to cover her head unless shaven because of the
+angels. An old rabbinic tradition alleges that the beauty of the women's
+long hair attracted the angels of Genesis 6. (Most men are also attracted
+by women's long hair). (I Corinthians 11:6 For if the woman be not
+covered, let her also be shorn: but if it be a shame for a woman to be
+shorn or shaven, let her be covered.) (I Corinthians 11:10 For this cause
+ought the woman to have power on her head because of the angels.) Verse 10
+cannot be explained except for the angel view of Genesis 6:2. I have never
+come across anyone who has an explanation for it. It seems like a random
+verse, but makes perfect sense if you believe scripture and the sin of the
+evil angels of Genesis 6.
+
+God's law of reproduction states that things reproduce "everything
+after his kind". The marriage of the angels with the women produced
+offspring of giants with special talents. This was against God's design.
+The giants (Hebrew word Nephilim) of the Holy Bible could not have been
+produced by normal men and women (Seth-Cain theory). Many extremely large
+skeletons and footprints have been found so we know the Holy Bible was
+referring to true giants not just famous people (mighty men of renown as
+the Holy Bible says). The giants in the Holy Bible have great strength.
+Angels are known for their power and are referred to as sons of the mighty
+in Psalm 89:6. (Psalm 89:6 For who in the heaven can be compared unto the
+LORD? who among the sons of the mighty can be likened unto the LORD?)
+(Psalm 103:20 Bless the LORD, ye his angels, that excel in strength, that
+do his commandments, hearkening unto the voice of his word.) It is
+reasonable to assume their offspring would have some of this power as the
+giants did. There is no scriptural evidence of believers and unbelievers
+producing giants (as in the Seth-Cain theory). Numbers 13:33 mentions how
+the Israelites appeared as grasshoppers in the giants sight in the land of
+Canaan. Other verses mention their height and strength such as Goliath (9
+feet 9 inches tall) and his brothers, or the king of Og. (about 12-12.5
+ft. tall). These were giants after the flood and most likely were shorter
+than the pre-flood giants. (I Samuel 17:4 ¶ And there went out a champion
+out of the camp of the Philistines, named Goliath, of Gath, whose height
+was six cubits and a span.) [A cubit is about 18 inches or 45.72
+centimeters] The bed of Og was 13.5 feet long and 6 feet wide. Most beds
+are made no more than a foot longer than the individual so I am sure he
+was at least 12-12.5 feet tall. His bed was also made of iron showing it
+had to be strong to support his weight. (Deuteronomy 3:11 For only Og king
+of Bashan remained of the remnant of giants; behold, his bedstead was a
+bedstead of iron; is it not in Rabbath of the children of Ammon? nine
+cubits was the length thereof, and four cubits the breadth of it, after
+the cubit of a man.) Note that tall people exist today, but they are not
+as tall as these giants nor as strong. Most are on the skinnier size and
+feeble and many die young. The giants in scripture were not. Look at the
+weight of the armour of Goliath for example. It takes great strength to
+not only wear it, but move and fight in it without being worn out. (I
+Samuel 17:4-7 4 ¶ And there went out a champion out of the camp of the
+Philistines, named Goliath, of Gath, whose height was six cubits and a
+span.
+5 And he had an helmet of brass upon his head, and he was armed with a
+coat of mail; and the weight of the coat was five thousand shekels of
+brass.
+6 And he had greaves of brass upon his legs, and a target of brass between
+his shoulders.
+7 And the staff of his spear was like a weaver's beam; and his spear's
+head weighed six hundred shekels of iron: and one bearing a shield went
+before him.) Chuck Missler mentioned in his DVD "Return of the Nephilim"
+how the disputed areas in Israel today (West Bank, Gaza Strip and Golan
+Heights) are the same areas that the Israelites failed to kill off in the
+book of Joshua as God had told them to. Pastor Michael Hoggard of Bethel
+Church in Festus, Missouri in a Watchman Broadcast YouTube video called
+Giant Problem said that in theory if the giants were actually on the ratio
+of grasshoppers to people that they may have been 36 times taller than the
+average 6 foot person with a height of 216 feet. Also it says the sons of
+God took the women so they may have had sex unwillingly. He also said that
+the original giants were probably very tall and as those giants had
+children with a woman the new giants were shorter and this continued. This
+is seen as Og was about 13.5 feet tall and Goliath was only 9 feet 9
+inches tall. Four is the number for the gospel and Satan uses it for his
+false gospel and for the future fourth kingdom, the kingdom of angels.
+Daniel chapter 7 says the fourth beast is the fourth kingdom (antichrist).
+Daniel 2:43 also says the fourth kingdom will be angels mating again with
+women. The Holy Bible only mentions male giants. {also only male angels}
+(From an April 2019 YouTube video.) (Daniel 2:43 And whereas thou sawest
+iron mixed with miry clay, they shall mingle themselves with the seed of
+men: but they shall not cleave one to another, even as iron is not mixed
+with clay.) Notice in this verse the phrase "they shall mingle themselves
+with the seed of men". If this was only speaking of earthly kingdoms as
+many people believe, then there would be no need to say the seed of men as
+all children from a man and a woman are of the "seed of men". This refers
+to angels again having sex with women. The two were not intended to be
+mixed according to God's plan, just as iron and clay do not mix. Amos 2:9
+says the Amorite was as tall as cedar trees and as strong as oaks. (Cedar
+trees can grow up to 180 feet, which is 30 times taller than the average 6
+foot man and makes that man a grasshopper in their sight.) (Amos 2:9 ¶ Yet
+destroyed I the Amorite before them, whose height was like the height of
+the cedars, and he was strong as the oaks; yet I destroyed his fruit from
+above, and his roots from beneath.) [This verse in God's word may back up
+Pastor Hoggard believing that some of the giants may have been up to 216
+feet. Many say these claims are outrageous, but scripture is always to be
+taken literally unless it tells you it is speaking metaphorically or
+symbolically. A giant at even the size of Og around 13.5 feet is very tall
+compared to a 6 foot man, but not that much bigger to say you look like a
+grasshopper compared to them.] Were the giants known as "men of renown"
+not only because of their physical height and size, but because they were
+so wicked and also possessed some of the strength and size of their dads
+(angels)? I believe this is so. Gary Bates said maybe even some of the
+knowledge of the angels. The Seth-Cain theory has no explanation why
+ungodly marriages would produce "men of renown" or where they came from if
+not from these marriages. Some of the groups of giants (races) mentioned
+in scripture are the Anakims, Rephaims, Zuzims and Emims.
+
+God flooded the earth to destroy all of mankind that was polluted
+except Noah and his family. Genesis 6:9 says Noah was perfect in his
+generations. (Genesis 6:9 ¶ These are the generations of Noah: Noah was a
+just man and perfect in his generations, and Noah walked with God.) This
+refers to the fact that his family DNA had not been corrupted by the
+angelic DNA. Most people miss or ignore the part that says in his
+generations. This is often removed or changed to a different meaning in
+the false bibles. We know Noah was not perfect as a person as he got drunk
+after the flood and no man is perfect and that is why all need to be saved
+by the blood of Jesus. (Genesis 9:21 And he drank of the wine, and was
+drunken; and he was uncovered within his tent.) I believe this is also why
+the Israelites were also usually commanded to kill all of the men, women,
+and children and often the animals as well wherever the giants were as
+their DNA was corrupted again by angels after the flood. (It is possible
+that the giants were cannibals and even the animals were corrupted by the
+angels or giants. Tim Chaffey in his book Fallen: The Sons of God and the
+Nephilim says he believes Numbers 13:32 may refer to their cannibalism
+(which is also mentioned in I Enoch) when it says it is a land that eateth
+up the inhabitants. [Numbers 13:32 And they brought up an evil report of
+the land which they had searched unto the children of Israel, saying, The
+land, through which we have gone to search it, is a land that eateth up
+the inhabitants thereof; and all the people that we saw in it are men of a
+great stature.] I believe he may be correct.) In areas where the giants
+were not in, then the Israelites were not given the command to kill all,
+but usually just the men, but save the women and children and usually the
+animals. Those not killed were to be made servants. Tim Chaffey also
+mentions in his book how Satan had the giants start being in Hebron
+possibly first since that is where Abraham, Isaac and Jacob all lived and
+where Jacob and his family lived prior to going to Egypt. God said he
+would bring Abraham's descendants back to where they came from so Satan
+started with Hebron. Joshua 14:15, Joshua 15:13 and Joshua 21:11 mention
+Kirjath-arba (Hebron) and then always mention the connection of Arba to
+the Anakims with Arba being the father of Anak. (Joshua 14:15 And the name
+of Hebron before was Kirjath-arba; which Arba was a great man among the
+Anakims. And the land had rest from war.) (Joshua 15:13 ¶ And unto Caleb
+the son of Jephunneh he gave a part among the children of Judah, according
+to the commandment of the LORD to Joshua, even the city of Arba the father
+of Anak, which city is Hebron.) (Joshua 21:11 And they gave them the city
+of Arba the father of Anak, which city is Hebron, in the hill country of
+Judah, with the suburbs thereof round about it.) Scripture tells us the
+Anakims were giants. (Deuteronomy 2:10-11 The Emims dwelt therein in times
+past, a people great, and many, and tall, as the Anakims; 11 Which also
+were accounted giants, as the Anakims; but the Moabites call them Emims.)
+[Deuteronomy 2:20-21 20 (That also was accounted a land of giants: giants
+dwelt therein in old time; and the Ammonites call them Zamzummims; 21 A
+people great, and many, and tall, as the Anakims; but the LORD destroyed
+them before them; and they succeeded them, and dwelt in their stead:] Tim
+Chaffey's book Fallen The Sons of God and the Nephilim is a great book on
+this subject though I disagree with him not using the King James Bible.
+The book is available at http://amazon.com. I wrote a review for it under
+Kevin C.
+
+The devil sent the angels to earth to try and pollute all of the
+women to try and prevent the birth of the Lord Jesus and the Saviour of
+mankind. The devil knew the Messiah would come by the seed of the woman
+and not of man as the seed is normally passed. (Genesis 3:15 And I will
+put enmity between thee and the woman, and between thy seed and her seed;
+it shall bruise thy head, and thou shalt bruise his heel.). This is why he
+went after the women and not the men. The devil thought if he could stop
+the birth of Jesus he might have a chance to defeat God and prevent his
+own doom. God destroyed all of the giants in the flood and the fallen evil
+angels who participated in these sexual acts were sent to the bottomless
+pit (only for angels) (II Peter 2:4 For if God spared not the angels that
+sinned, but cast them down to hell, and delivered them into chains of
+darkness, to be reserved unto judgment;). (Revelation 9:11 And they had a
+king over them, which is the angel of the bottomless pit, whose name in
+the Hebrew tongue is Abaddon, but in the Greek tongue hath his name
+Apollyon.) I believe Abaddon or Apollyon is the angel who was the leader
+of the angels who sinned with the women in Genesis 6. Many say he is
+Satan, but Satan is not locked up yet and will not be sent to the
+bottomless pit until after the great tribulation and at the start of the
+millennium( (thousand year reign of Jesus on earth). (Revelation 20:1-3 1
+And I saw an angel come down from heaven, having the key of the bottomless
+pit and a great chain in his hand.
+2 And he laid hold on the dragon, that old serpent, which is the Devil,
+and Satan, and bound him a thousand years,
+3 And cast him into the bottomless pit, and shut him up, and set a seal
+upon him, that he should deceive the nations no more, till the thousand
+years should be fulfilled: and after that he must be loosed a little
+season.) Once the devil realized the Messiah would come through the
+Israelites, he sent a second wave of angels to marry and corrupt women
+again. This time he did not affect the whole earth, but only the area of
+the Promised Land as given to Abraham since now he knew were the Messiah
+would come from. This is why we read of the giants again after the flood,
+but only in the land of Canaan, the future Promised Land of God's Chosen
+People, the Jews. Satan had over 400 years to have them in that land to be
+ready to try and stop Israel (from possessing the land and destroy them)
+and the coming Messiah. The giants had all ways to enter into the future
+Promised Land blocked off. (North, South, and East) {Great Sea which we
+call the Mediterranean Sea was on the West} We see this in Genesis 6:4
+where it says there were giants in the earth in those days, and also after
+that. (Genesis 6:4 There were giants in the earth in those days; and also
+after that, when the sons of God came in unto the daughters of men, and
+they bare children to them, the same became mighty men which were of old,
+men of renown.) The "and also after that" refers to this second irruption
+(intrusion) of the fallen angels. This is why God commanded the Israelites
+to totally exterminate the Canaanites and others in the land including
+their animals since we also know evil spirits can also possess animals.
+(Mark 5:12-13 12 And all the devils besought him, saying, Send us into the
+swine, that we may enter into them.
+13 And forthwith Jesus gave them leave. And the unclean spirits went out,
+and entered into the swine: and the herd ran violently down a steep place
+into the sea, (they were about two thousand;) and were choked in the
+sea.).
+
+Isaiah 26:14 may refer to the giants and says there is no
+resurrection for the giants. It does not say giants in the English, but
+the Hebrew word deceased refers to the Rephaim (who are mentioned as
+giants in the Holy Bible and lived in the land of Canaan) (The Rephaim
+were a tribe of the Canaanites and were giants). (From The Omega
+Conspiracy by Pastor I.D.E. Thomas pages 69-70.) All of mankind will be
+resurrected. Some people who believe in the Seth-Cain view say that God
+would not prevent someone from getting saved. But Jesus came to earth as a
+man and died for the sins of man for man's salvation. He did not die as an
+angel (for angels) or mixed breeds (giants-[part angel and part man])
+which is why they have no chance for salvation. (Hebrews 2:16 For verily
+he took not on him the nature of angels; but he took on him the seed of
+Abraham.) I believe that most likely the devils of the New Testament were
+the spirits (maybe disembodied spirits) of the giants as since they were
+half angel and half man they did not go directly to hell when they died in
+the flood. Most people believe they are the same as fallen angels, but I
+think this is why the devils always sought a body to possess whether a
+person or animal such as the swine seen above in Mark 5:12-13. According
+to Jewish tradition, the giants were more wicked than their dads the
+fallen angels. This is often the case even with man. I believe the evil
+spirits knew of the bottomless pit since their dads where locked up there.
+This is why they asked if Jesus came to torment them before their time.
+They know where they are going. (Matthew 8:29 And, behold, they cried out,
+saying, What have we to do with thee, Jesus, thou Son of God? art thou
+come hither to torment us before the time?) (Luke 8:31 And they besought
+him that he would not command them to go out into the deep.) The deep in
+scripture often refers to the sea or ocean, but I believe in this verse it
+refers to the bottomless pit. The devils as spirits could not drown in
+water, though the memory of the flood may haunt them, so it could possibly
+refer to that. Angels have a body, so why would they need to always want
+to possess a person or animal. They can do this to torment and control
+people, but they do not need to. [Angels can possess both people and
+animals, just as evil spirits can. Satan (a cherub {type of angel})
+possessed the serpent that deceived Eve and possessed Judas Iscariot who
+betrayed our Lord Jesus and will possess the antichrist during the great
+tribulation.] No where in scripture does it say the bodies they had when
+seen as men (angels are only men in scripture and I believe all are males
+and no females) were bodies they took on temporarily. I believe these are
+their real spiritual bodies. We know angels ate food when they appeared
+before men and they also eat manna in heaven. (Psalm 78:24-25 24 And had
+rained down manna upon them to eat, and had given them of the corn of
+heaven. 25 Man did eat angels' food: he sent them meat to the full.) If
+angels look like men and eat like men, why could not an angel have sex
+like men if they chose to disobey God? If they look like men in all
+appearance as to not be known to be an angel (Hebrews 13:2 Be not
+forgetful to entertain strangers: for thereby some have entertained angels
+unawares.), then they most likely also have the male private parts as
+well. Scripture never says they are sexless, but always refers to them as
+males. We are told in I Corinthians 15:40 that there are celestial bodies
+and bodies terrestrial. I believe the celestial bodies not only speaks of
+the sun, moon, stars and planets, et cetera, but also of angels. Angels
+are often compared to stars in scripture. (I Corinthians 15:40 There are
+also celestial bodies, and bodies terrestrial: but the glory of the
+celestial is one, and the glory of the terrestrial is another.) (Job 38:7
+When the morning stars sang together, and all the sons of God shouted for
+joy?) (Isaiah 14:13 For thou hast said in thine heart, I will ascend into
+heaven, I will exalt my throne above the stars of God: I will sit also
+upon the mount of the congregation, in the sides of the north:) [This
+verse refers to Lucifer who became Satan or the Devil who wanted to be
+above all and be God.] (Revelation 1:20 The mystery of the seven stars
+which thou sawest in my right hand, and the seven golden candlesticks. The
+seven stars are the angels of the seven churches: and the seven
+candlesticks which thou sawest are the seven churches.) (Revelation 12:4
+And his tail drew the third part of the stars of heaven, and did cast them
+to the earth: and the dragon stood before the woman which was ready to be
+delivered, for to devour her child as soon as it was born.) People also
+say angels do not have DNA so they could not reproduce with women.
+Scripture does not say that. Animals have DNA and probably angels do as
+well since they have a body as all things on earth with a body have DNA,
+so most likely also spiritual bodies do too.
+
+There are many Jewish historians including Josephus, and all said
+Genesis 6:2 referred to angels. No one prior to Fifth Century A.D. ever
+interpreted Genesis 6:2 sons of God as anything other than angels. Julius
+Africanus first suggested the Seth-Cain theory in his book "The City of
+God" in the 5^th century A.D. Josephus, who lived at the time of Paul, saw
+some of the bones of the giants. He wrote of the story of fallen angels
+marrying women of earth. He mentions the offspring's great strength and
+extreme wickedness. He even says they resembled the acts of those men the
+Grecians called giants. This is probably where the myth of the Titans and
+other Greek demigods came from. Many myths from different nations speak of
+giants and demi-gods. These myths are distorted, but based on fact.
+Christians will say the reason there are flood myths everywhere is because
+there was a real flood, but then will not apply this to the giant myths
+because they do not want to believe them. I agree with them on the fact of
+the flood myths and that there was a real global flood, but the same
+applies to the giant myths [and also dragon myths as dragons were real and
+were what we now call dinosaurs]. The giants were real as were their "god"
+dads who were fallen angels. Many myths describe half man and half beasts
+as well. Satanists who have become Christians speak of these beasts such
+as werewolves being real. The book of Enoch, though not scripture does
+mention the angels also having sex with animals producing strange beasts.
+This may be why God also destroyed all the animals in the Genesis flood as
+their DNA also had been corrupted. I believe scripture may hint at these
+corrupt mixed beasts as well and this is why God commanded the animals
+also to be destroyed. Satyrs are mentioned in Greek mythology as part
+spirit man and part horse who were always trying to have sex with women.
+Satyrs are also mentioned in scripture and may be similar to those of
+Greek mythology which may have been based off of the real satyrs. (Isaiah
+13:21 But wild beasts of the desert shall lie there; and their houses
+shall be full of doleful creatures; and owls shall dwell there, and satyrs
+shall dance there.) Notice this verse also mentions owls and desert
+places. Many Satanic creatures often were and are in the desert and owls
+are often connected to Satan including in UFO sightings which are devilish
+(demonic). Deserts are void of water which the devils may not like because
+of dying as giants in the flood. Deserts also lack the living water of
+Jesus. Lilith (a female) in Jewish mythology supposedly had sex with a
+devil and may be based off of the screech owl mentioned in scripture. As
+mentioned earlier, owls often are connected to Satan and we see that the
+screech owl is referred to as a female (herself). The screech owl is also
+connected to the satyr. (Isaiah 34:14 The wild beasts of the desert shall
+also meet with the wild beasts of the island, and the satyr shall cry to
+his fellow; the screech owl also shall rest there, and find for herself a
+place of rest.)
+
+If when Moses wrote Genesis and he believed in the Seth-Cain theory,
+then why did he not simply write the sons of Seth saw the daughters of
+Cain? The sons of Seth are never referred to as the sons of God in
+scripture. Genesis 6:12 says all flesh had corrupted his way upon the
+earth. (Genesis 6:12 And God looked upon the earth, and, behold, it was
+corrupt; for all flesh had corrupted his way upon the earth.) Marrying an
+unsaved person is against God's command, but it will not corrupt all
+flesh. An unequally yoked marriage (marriage between saved and unsaved)
+never produces unusual offspring such as giants. (II Corinthians 6:14 Be
+ye not unequally yoked together with unbelievers: for what fellowship hath
+righteousness with unrighteousness? and what communion hath light with
+darkness?) There are many marriages today between saved and unsaved
+people. If the line of Seth was holy and believers, why was Noah's family
+the only one saved? Should not other members of the line have been on the
+ark? Was Noah's family really the only ones left who did not marry
+unbelievers (line of Cain)? I do not think so. Some Jewish traditions even
+say Noah's wife was a daughter from the line of Cain. Scripture does not
+tell us so we cannot know, but if it is true it would make the whole
+Seth-Cain theory a mute point. We are told that Noah had brothers and
+sisters and that they either all died prior to the flood or most likely
+they all drowned as unbelievers in the flood with the rest of the other
+unsaved. So much for all of the line of Seth being godly. (Genesis 5:30
+And Lamech lived after he begat Noah five hundred ninety and five years,
+and begat sons and daughters:) People who believe in the Seth-Cain theory
+never say anything about the sons or daughters from Adam and Eve's other
+children. They had many more besides Seth and Cain. Were the children of
+these other sons and daughters of Adam and Eve saved or unsaved and did
+they intermarry with any from the line of Seth or Cain? Why ignore them?
+
+I Timothy 3:16 says Jesus was seen of angels. This most likely refers
+to when he preached to the angels in hell following his resurrection,
+though it may also refer to angels having seen him from his birth
+(incarnation) through his ministry and to his resurrection. The verse is
+referring to Jesus when he came to earth as a man in the flesh, so it most
+likely does not refer to the angels in heaven. (I Timothy 3:16 And without
+controversy great is the mystery of godliness: God was manifest in the
+flesh, justified in the Spirit, seen of angels, preached unto the
+Gentiles, believed on in the world, received up into glory.)
+
+I Peter 3:19-20 mention Jesus preaching to the spirits in prison and
+then mentions Noah and the Flood to let you know what spirits in prison
+are being referred to. (I Peter 3:19-20 19 By which also he went and
+preached unto the spirits in prison;
+20 Which sometime were disobedient, when once the longsuffering of God
+waited in the days of Noah, while the ark was a preparing, wherein few,
+that is, eight souls were saved by water.) The Greek word used here just
+means Jesus made an announcement, not preach the gospel which is a
+different Greek word. Jesus went to announce his triumph over the devil
+and his angels.  His victory is given in chronological order in I Peter
+3:18-22. (I Peter 3:18-22 18 For Christ also hath once suffered for sins,
+the just for the unjust, that he might bring us to God, being put to death
+in the flesh, but quickened by the Spirit:
+19 By which also he went and preached unto the spirits in prison;
+20 Which sometime were disobedient, when once the longsuffering of God
+waited in the days of Noah, while the ark was a preparing, wherein few,
+that is, eight souls were saved by water.
+21 The like figure whereunto even baptism doth also now save us (not the
+putting away of the filth of the flesh, but the answer of a good
+conscience toward God,) by the resurrection of Jesus Christ:
+22 Who is gone into heaven, and is on the right hand of God; angels and
+authorities and powers being made subject unto him.) Verse 20 tells you
+who the spirits were from verse 19. We know that it had to be the angels
+referred to in Genesis 6 since it relates the spirits to Noah and the
+flood. Spirits also cannot refer to the people who died in the flood since
+an unsaved man can never be saved after death, so there was no need to
+preach to them. Spirits in the Holy Bible refers to angels (holy and
+fallen) and never man. Man has a spirit, but is not a spirit as angels
+are.  (Psalm 104:4 Who maketh his angels spirits; his ministers a flaming
+fire:) Other verses show how the words angels and spirits are used
+interchangeably.
+
+(I Corinthians 6:3 Know ye not that we shall judge angels? how much
+more things that pertain to this life?) This verse says believers will
+judge angels. Believers will judge all of the angels that rebelled against
+God with Satan, but I believe there will be a special judgment by
+believers on the angels that committed this atrocity with women to prevent
+the coming of the Messiah Jesus and tried to prevent salvation for
+mankind. This seems to hold true with God as well as these are the only
+fallen angels locked up at this time.
+
+There are other books besides the Holy Bible (scripture) which
+mention the female-angelic breeding. The book of I Enoch is supposedly
+quoted (though not word for word, more a paraphrase) in Jude verses 9
+(maybe) and 14-15. (I Enoch 1:9, 5:4, and 27:2) It is not the inspired
+word of God, but God obviously acknowledged its historical value. This
+book spends many pages describing the angels coming to earth and
+fornicating with earthly women. The book of I Enoch describes the fallen
+angels as watchers. Another non biblical book that mentions the watchers
+is Genesis Apocryphon. Daniel 4:13, 17, 23 mentions the watchers. (Daniel
+4:13 I saw in the visions of my head upon my bed, and, behold, a watcher
+and an holy one came down from heaven;) (Daniel 4:17 This matter is by the
+decree of the watchers, and the demand by the word of the holy ones: to
+the intent that the living may know that the most High ruleth in the
+kingdom of men, and giveth it to whomsoever he will, and setteth up over
+it the basest of men.) (Daniel 4:23 And whereas the king saw a watcher and
+an holy one coming down from heaven, and saying, Hew the tree down, and
+destroy it; yet leave the stump of the roots thereof in the earth, even
+with a band of iron and brass, in the tender grass of the field; and let
+it be wet with the dew of heaven, and let his portion be with the beasts
+of the field, till seven times pass over him;) These are possibly fallen
+angels and maybe also holy angels. It might be some of the watchers fell
+and became the angels who mated with women, but some remained holy and are
+the ones mentioned in Daniel. Some people believe and I think it might be
+possible that there is a congregation of the mighty or as some people
+refer to as the divine council that was the model which the earthly 70
+elders who helped Moses, the 70 members of the council (Sanhedrin) led by
+the high priest, and possibly the 70 sent out by Jesus to perform miracles
+(Luke 10:1-20). This heavenly council is believed to be led by God and 70
+members including both holy and evil angels including Satan and maybe the
+watchers. This may be why Satan was going to heaven in Job chapters 1 and
+2 or it could have been just to accuse believers before God. It is
+believed that God allows them to make decisions to "assist" God, but God
+is always in control. This may or may not be true, but God is always in
+full control. He allows angels just like with people to "assist" [such as
+when people will rule and reign with Jesus during the Millennium), but God
+really makes the decisions and is in full control. (Psalm 82:1 God
+standeth in the congregation of the mighty; he judgeth among the gods.)
+The book of Jubilees also mentions the watchers as does many other ancient
+documents. The book of Jasher which is mentioned twice in scripture is
+also an uninspired book, but again I believe God recognizes it as
+historical and thus it is mentioned twice in scripture. It does not
+mention the angels mating with women, but does mention the giants and also
+talks of mixing with animals. (Joshua 10:13 And the sun stood still, and
+the moon stayed, until the people had avenged themselves upon their
+enemies. Is not this written in the book of Jasher? So the sun stood still
+in the midst of heaven, and hasted not to go down about a whole day.) (II
+Samuel 1:18 (Also he bade them teach the children of Judah the use of the
+bow: behold, it is written in the book of Jasher.) Most of Greek and Roman
+mythology and other mythology is probably based on these watchers as their
+behaviors (sexual, et cetera), feats, et cetera resemble the giants of the
+Holy Bible and they also have demi gods and half person and half animal
+such as the minotaur which was half man and half bull. The giants are
+mentioned in the apocrypha book of Baruch 3:26. The Koran (Quran) (False
+book of Muslims) mentions that the virgins (of the 72 virgins for the men)
+in heaven are women who have not had sex with men or angels. The Koran is
+not inspired, but again shows how the sons of God having sex with women
+and producing giants is known throughout the world. Many other cultures
+have stories about those from heaven breeding with earthly women. Chuck
+Missler in his book Alien Encounters said many American Indian tribes have
+stories of giants that were killed in a great deluge and were evil towards
+the Indians. Some tribes also have stories about the creators of their
+tribes being star people who came to Earth. (One example is the Cherokees.
+I spoke with a Cherokee chief who told me about the star people.) [Pg. 363
+note 63]
+
+It is possible that the devil (Satan) will try a third time to send
+angels to earth to mix with women (Luke 17:26 And as it was in the days of
+Noe, so shall it be also in the days of the Son of man.) [Noe is Greek
+form of Noah], (Matthew 24:37 But as the days of Noe were, so shall also
+the coming of the Son of man be.). Jesus was speaking in those two verses.
+What was different about Noah's day than ours except the angelic
+irruption? Today we have the wars, famines, pestilence, earthquakes, high
+crime, homosexuality, sexual sins, et cetera that is mentioned elsewhere
+in the Holy Bible (Matthew 24:6-7 And ye shall hear of wars and rumours of
+wars: see that ye be not troubled: for all these things must come to pass,
+but the end is not yet.
+7 For nation shall rise against nation, and kingdom against kingdom: and
+there shall be famines, and pestilences, and earthquakes, in divers
+places.) that will be a sign of the end times. Daniel 2:43 as mentioned
+above also seems to speak of a third time that angels will have sex with
+women. We now await the last angelic irruption. I believe this may have
+already started. I believe that some UFO (unidentified flying object)
+[flying saucers] sightings are of devilish (demonic or Satanic) origin.
+Most sightings can be explained as aircraft, natural phenomenon, or other
+things, but about 1% or maybe a little more cannot be explained. These
+sightings all defy gravity and other laws, which even aliens would have to
+obey. When people claim to have encountered these beings they say they
+smell of sulphur (sulfur), the same substance in hell and the lake of
+fire. Those who have been abducted say the beings always bring up Jesus
+and say he was just a man and deny the need for salvation by him and also
+mention they always perform sexual experiments. Some women claim to have
+been impregnated and then they abduct them again later to get the baby.
+People who have called on the name of Jesus say the abductions always stop
+at the mention of his name. These contacts with "aliens" have the same
+characteristics as people who are possessed by devils. I believe the
+experiments are being done to try and prevent giants, so the offspring can
+blend in with normal people as well as to corrupt and pollute all of
+mankind to try and have the whole world rebel against God and lose all
+their faith. (Luke 18:8 I tell you that he will avenge them speedily.
+Nevertheless when the Son of man cometh, shall he find faith on the
+earth?) The UFO's might also be used to try and explain away the rapture
+as the "aliens always claim Christians are preventing the earth from
+becoming enlightened and need to be removed." I believe Satan himself will
+have sex with a woman and produce the antichrist. (Genesis 3:15 And I will
+put enmity between thee and the woman, and between thy seed and her seed;
+it shall bruise thy head, and thou shalt bruise his heel.) In Genesis 3:15
+it talks of her seed. Most agree that this refers to Mary and her seed
+Jesus, but then when it says thy seed referring to Satan, then people try
+to make this part of the verse symbolic by saying it refers to all
+unbelievers. I do not agree with that. All of scripture is to be taken
+literally unless it tells us it is symbolic. Why take the second half of
+that verse literally with Mary and Jesus, but then deny that Satan will
+have a literal child. Satan does not know when the time for the appearance
+for the antichrist will be, so I believe he has at least one for every
+generation and may include people such as Adolf Hitler and Joseph Stalin.
+Satan himself will also possess the antichrist after he is resurrected at
+the midpoint of the tribulation. Women that have been Satanists claim they
+have had sex with Satan. The antichrist will most likely be from a Jewish
+woman as the tribulation is meant as punishment against the Jews and the
+Jews would not accept a Gentile Messiah. Also we are told he will not
+regard the God of his fathers. In scripture the God of his fathers always
+refers to the Jewish people and the true living God. This never refers to
+the many false gods of the Gentiles. It may be the antichrist will also be
+a homosexual as he has no desire for women. The antichrist who will be
+possessed by Satan will proclaim himself to be God and demands worship.
+(Daniel 11:37 Neither shall he regard the God of his fathers, nor the
+desire of women, nor regard any god: for he shall magnify himself above
+all.) UFO sightings have gone up greatly since Israel became a nation
+again in May 1948. A good book on this subject is Unholy Communion by
+David Ruffino available at www.amazon.com or other book stores. David
+Ruffino has a website http://delusionresistance.org. David shows the
+connection of how the Roman Catholic Church which is controlled by Satan
+and not a true Christian church opens doors to being contacted by the
+devilish spirits behind these UFO's and abduction as does drug use, rock
+and roll music, occult practices, and other things. Two other good books
+are Alien Encounters by Chuck Missler available at his website
+http://www.alienencounters.com/ and Alien Intrusion by Gary Bates
+available at bookstores. There is debate over whether the "aliens'
+("extraterrestrials") are fallen angels or devils (spirits of the giants
+that died). I Timothy 4:1 says in the latter times people will depart from
+the faith and give heed to seducing spirits and doctrine of devils. (I
+Timothy 4:1 Now the Spirit speaketh expressly, that in the latter times
+some shall depart from the faith, giving heed to seducing spirits, and
+doctrines of devils;) I believe this has several meanings, but one of them
+is how people believe the New Age stuff taught by devils portraying
+themselves as extraterrestrials or aliens in UFO's. They preach against
+Jesus. Scripture says that just before the return of Jesus, the days will
+be like in the days of Noah. The fallen angels gave man much knowledge
+prior to the flood and David Ruffino in his book Unholy Communion on pages
+56-57 thinks the same thing may be happening again today with them giving
+us technology. This may be true. Gary Bates said in his book Alien
+Intrusion on page 388 that there is a possibility that the hybrids (half
+angel and half man) exist today, but then why are those angels not
+imprisoned as well? Gary thinks it may be they are allowed to remain free
+since the time of the end is close, just as they were free for awhile
+prior to the flood. II Thessalonians 2 speaks of how the Holy Ghost
+"restrains" Satan at this time, but in the future during the tribulation
+he will let Satan and his angels and devils have much more freedom. As
+Chuck Missler said on his website, the Holy Ghost may be "restraining" or
+holding back much more evil than we are aware of such as the third angelic
+irruption or more UFO's. We are told in Luke how men's hearts fail from
+fear of those things coming on the earth. Satan's kingdom will be
+unleashed on man during the tribulation. (Luke 21:25-26 25 ¶ And there
+shall be signs in the sun, and in the moon, and in the stars; and upon the
+earth distress of nations, with perplexity; the sea and the waves roaring;
+26 Men's hearts failing them for fear, and for looking after those things
+which are coming on the earth: for the powers of heaven shall be shaken.)
+This all happens just before the Second Coming of our Lord Jesus to earth.
+The hearts could fail because they see Jesus coming and know their doom is
+imminent or it could refer to Satan and his angels being kicked out of
+heaven for good and sent to the earth to torment mankind. It could refer
+to both as the powers of heaven will definitely be shaken in either case.
+As Chuck Missler said, until then keep the whole armour of God on us,
+since we do not fight against flesh and blood. We are in a spiritual war.
+(Ephesians 6:10-18 10 Finally, my brethren, be strong in the Lord, and in
+the power of his might.
+11 Put on the whole armour of God, that ye may be able to stand against
+the wiles of the devil.
+12 For we wrestle not against flesh and blood, but against principalities,
+against powers, against the rulers of the darkness of this world, against
+spiritual wickedness in high places.
+13 Wherefore take unto you the whole armour of God, that ye may be able to
+withstand in the evil day, and having done all, to stand.
+14 Stand therefore, having your loins girt about with truth, and having on
+the breastplate of righteousness;
+15 And your feet shod with the preparation of the gospel of peace;
+16 Above all, taking the shield of faith, wherewith ye shall be able to
+quench all the fiery darts of the wicked.
+17 And take the helmet of salvation, and the sword of the Spirit, which is
+the word of God:
+18 Praying always with all prayer and supplication in the Spirit, and
+watching thereunto with all perseverance and supplication for all saints;)
+Most likely the fairies, elves, and other creatures of legend were of
+devilish origin and the same as the "aliens". The fairies, elves, and
+other beings were always thought of as evil until recently such as Santa's
+elves. (Santa is Satan) Just as Satan can transform into an angel of
+light, most likely can his fellow angels and/or devils. Scripture seems to
+say just that. (II Corinthians 11:14-15 14 And no marvel; for Satan
+himself is transformed into an angel of light. 15 Therefore it is no great
+thing if his ministers also be transformed as the ministers of
+righteousness; whose end shall be according to their works.)
+
+Psalm 89:6 and Psalm 29:1 use sons of the mighty or mighty instead of
+sons of God when referring to angels. (Psalm 89:6 For who in the heaven
+can be compared unto the LORD? who among the sons of the mighty can be
+likened unto the LORD?) (Psalm 29:1 Give unto the LORD, O ye mighty, give
+unto the LORD glory and strength.) These verses show that no angel, not
+even Satan himself nor the angels from Genesis 6 can compare to God. Psalm
+29:1 shows how angels are referred to as mighty. Angels have great
+strength and some of this was most likely passed onto their children, the
+giants. Psalm 29:1 referring to angels as mighty also seems to back up the
+congregation of the mighty as a council of angels led by God that "help"
+rule as mentioned above. (Psalm 82:1 God standeth in the congregation of
+the mighty; he judgeth among the gods.)
+
+Job 4:18 says God charged his angels with folly. (Job 4:18 Behold, he
+put no trust in his servants; and his angels he charged with folly:) This
+could refer to all of the angels who rebelled against God with Satan or
+the angels of Genesis 6 who had sex with women or both groups.
+
+I believe Jesus descended bodily into hell [tarturus in the Greek]
+(mentioned in II Peter 2:4) in the section known as the bottomless pit.
+(also known as the abyss) He had to go in the body and not in the spirit
+because he had to show the angels that were locked up there that he had
+won and they were defeated. The reason these angels committed their sin
+was to try and corrupt all of mankind and prevent Jesus coming as the
+Messiah and Saviour of man. This is why they had to be locked up. God will
+allow you to reject Jesus, but will not allow anyone to try to stop his
+son from saving mankind. By going down there with his body, Jesus showed
+the angels he had come as a man to earth and the angels had failed. The
+angels had seen him in heaven as a Spirit, so that would not have proved
+anything. I Peter 3:19 tells of Jesus preaching to the spirits in prison.
+Spirits in the Bible only refers to the Spirit of God or angels, never
+man. Man has a spirit, but is never referred to as a spirit. The only
+angels in prison are the angels of Genesis 6:2. In John 20:17, Jesus tells
+Mary Magdalene not to touch him since he had not ascended to his Father
+yet. (John 20:17 Jesus saith unto her, Touch me not; for I am not yet
+ascended to my Father: but go to my brethren, and say unto them, I ascend
+unto my Father, and your Father; and to my God, and your God.) Jesus most
+likely did not have his glorified body yet, (nor had he placed his blood
+on the heavenly mercy seat yet, so he could not be touched and corrupted)
+but still talked with Mary Magdalene. Jesus was in his body already and we
+know his body was missing from the tomb. His body was missing for those
+three days while he was in the tomb and during that time he was in hell
+preaching to the angels. Jesus was not preaching to the people who were
+rebellious during Noah's time just before the flood as some believe and
+Jesus also did not come in the preincarnate to preach to man along with
+Noah prior to the flood as some believe. As previously mentioned, spirits
+refers to angels not man so he could not be preaching to the men that
+perished in the flood. Jesus also does not give people a second chance to
+repent and receive Jesus as their Saviour after they die. When you die it
+is too late to get saved. (Hebrews 9:27 And as it is appointed unto men
+once to die, but after this the judgment:) Also why would Jesus only give
+the people prior to the flood a second chance and no one else? Jesus' body
+was not corrupted by going to the bottomless pit (hell) just as scripture
+said it would not. (Psalm 16:1 For thou wilt not leave my soul in hell;
+neither wilt thou suffer thine Holy One to see corruption.) (Acts 13:37
+But he, whom God raised again, saw no corruption.) The Jews believed that
+one's body began to decay or be corrupted on the fourth day after death
+such as when Jesus brought Lazarus back to life. (John 11:17 Then when
+Jesus came, he found that he had lain in the grave four days already.)
+(John 11:39 Jesus said, Take ye away the stone. Martha, the sister of him
+that was dead, saith unto him, Lord, by this time he stinketh: for he hath
+been dead four days.) Jesus was only dead for three days and did not have
+his glorified body yet.
+
+══════════════════════════════════════════════════════════════════════════
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

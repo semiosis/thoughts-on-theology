@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,470 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Deserts in scripture and in our lives
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Deserts are often mentioned in scripture. They are sometimes referred
+to as wilderness. Deserts were areas that often were mostly uninhabited,
+but not always. Deserts sometimes had little life, but other times had
+life. Often flocks of sheep were raised here. Often times there was not
+much water in deserts. Deserts have multiple meanings in scripture both
+good and bad. The Jews wandered in the wilderness (desert) for 40 years.
+The number forty represents trials and temptations.
 
-Username or email _____________________
+The first use of the word desert mentioned in scripture was when
+Moses was feeding the flock of sheep of his father-in-law Jethro and Moses
+came to the backside of the desert near the mountainside of God which is
+mount Horeb which is also known as mount Sinai so this was most likely the
+desert of Sinai referred to here. Mount Sinai is where Moses received the
+ten commandments from God. This is where Jesus as the angel of the LORD
+appeared to Moses in the burning bush. (Exodus 3:1-2 1 Now Moses kept the
+flock of Jethro his father in law, the priest of Midian: and he led the
+flock to the backside of the desert, and came to the mountain of
+God, even to Horeb.
+2 And the angel of the LORD appeared unto him in a flame of fire out of
+the midst of a bush: and he looked, and, behold, the bush burned with
+fire, and the bush was not consumed.) (Acts 7:30 And when forty years were
+expired, there appeared to him in the wilderness of mount Sina an angel of
+the Lord in a flame of fire in a bush.) Jesus told Moses to go to Egypt
+and free his people. God used a small bush to speak to Moses just as God
+chose Israel as the smallest of people to be his chosen people. God takes
+lowly things and makes them great just as he takes humble people and makes
+them great for him.  
 
-Reset password
+The Israelites wandered through six deserts during the 40 years they
+spent in the wilderness on their way to the Promised Land. They were the
+deserts or wildernesses of Shur, Sin, Sinai, Paran, Zin, and Etham and
+passed by the wilderness of Moab. Fourteen other deserts are mentioned by
+name in scripture for a total of twenty deserts. They were the deserts or
+wilderness of Beer-sheba, Moab, Kedemoth, Beth-aven, Judah, Ziph, Maon,
+En-gedi, Gibeon, Damascas, Edom, Jeruel, Tekoa, and Judaea. (Exodus 15:22
+So Moses brought Israel from the Red sea, and they went out into the
+wilderness of Shur; and they went three days in the wilderness, and found
+no water.) When the Israelites first came to the wilderness of Shur, they
+complained to Moses that the waters of Marah were bitter and they could
+not drink them. God had Moses cast a certain tree into the waters to make
+it sweet and drinkable. (Exodus 15:25 And he cried unto the LORD; and the
+LORD shewed him a tree, which when he had cast into the waters, the waters
+were made sweet: there he made for them a statute and an ordinance, and
+there he proved them,) God can take the bitterness of life and make it
+sweet if we only rely on him and not man or ourselves.
+
+(Exodus 16:1 And they took their journey from Elim, and all the
+congregation of the children of Israel came unto the wilderness of Sin,
+which is between Elim and Sinai, on the fifteenth day of the second month
+after their departing out of the land of Egypt.) When the Israelites first
+came to the wilderness of sin, the next desert they arrived in, they
+complained to Moses about a lack of food. God provided the Israelites with
+angel's food in manna, the bread from heaven which represented Jesus who
+everyone needs for salvation. (Psalm 78:24-25 24 And had rained
+down manna upon them to eat, and had given them of the corn of heaven.
+25Man did eat angels' food: he sent them meat to the full.) For those who
+trust in Jesus for their hunger, they shall never lack food. (John 6:58
+This is that bread which came down from heaven: not as your fathers did
+eat manna, and are dead: he that eateth of this bread shall live for
+ever.) The Israelites ate the manna for the full 40 years they wandered in
+the wilderness as they needed to rely on the bread of Jesus for survival
+in the desert and so do we. (Deuteronomy 8:3 And he humbled thee, and
+suffered thee to hunger, and fed thee with manna, which thou knewest not,
+neither did thy fathers know; that he might make thee know that man doth
+not live by bread only, but by every word that proceedeth out of the mouth
+of the LORD doth man live.)  
+
+The Israelites next came to the desert of Sinai. (Exodus 19:2 For
+they were departed from Rephidim, and were come to the desert of Sinai,
+and had pitched in the wilderness; and there Israel camped before the
+mount.) It was in the desert of Sinai that God had Moses take a census of
+all males that were 20 years old and older. (Numbers 1:2-3 2 Take ye the
+sum of all the congregation of the children of Israel, after their
+families, by the house of their fathers, with the number of their names,
+every male by their polls;
+3From twenty years old and upward, all that are able to go forth to war in
+Israel: thou and Aaron shall number them by their armies.) Of all of the
+men numbered, only Caleb and Joshua would be allowed entry into the
+Promised Land with all of the others having died in the desert due to not
+trusting God after the twelve spies returned from the Promised Land. Only
+Caleb and Joshua trusted God and so were allowed to live and enter the
+Promised Land. This is a lesson to all people that in order to enter
+heaven, they must trust God's word and receive Jesus as their Saviour. The
+desert of Sinai is also were Aaron's sons Nadab and Abihu offered strange
+fire to God and had their lives taken by God. (Numbers 3:4 And Nadab and
+Abihu died before the LORD, when they offered strange fire before the
+LORD, in the wilderness of Sinai, and they had no children: and Eleazar
+and Ithamar ministered in the priest's office in the sight of Aaron their
+father.) This is another lesson to obey God and his commands or your life
+will be taken by him. All of those who try to serve God and enter heaven
+their way such as by good works will have their life taken and their soul
+will spend eternity in hell. There is only one way to heaven and that is
+by God's Son Jesus.
+
+The next desert entered by the Israelites was the wilderness of
+Paran. (Numbers 10:12 And the children of Israel took their journeys out
+of the wilderness of Sinai; and the cloud rested in
+the wilderness of Paran.) Moses sent the twelve spies to search out the
+Promised Land from the wilderness of Paran. (Numbers 13:3 And Moses by the
+commandment of the LORD sent them from the wilderness of Paran: all those
+men were heads of the children of Israel.) What a contrast from the desert
+they were in to the land God promised them if they had only obeyed God.
+God promises us a mansion in heaven to those who accept his Son as
+Saviour, streets of gold, and a place with no sorrow, pain, or tears. A
+person only needs to believe and trust Jesus to receive all of this. Those
+who reject Jesus will live their lives in a barren desert just like the
+Israelites chose.
+
+The Israelites next entered the desert of Zin. (Numbers 20:1 Then
+came the children of Israel, even the whole congregation, into
+the desert of Zin in the first month: and the people abode in Kadesh; and
+Miriam died there, and was buried there.) Miriam died in the desert of
+Zin. This is also where once again the Israelites tempted God by
+complaining about not having water. This is when God commanded Moses to
+speak to the rock to give the people water, but Moses in his anger struck
+the rock and this sin cost him the opportunity to enter the Promised Land.
+(Deuteronomy 32:51 Because ye trespassed against me among the children of
+Israel at the waters of Meribah-Kadesh, in the wilderness of Zin; because
+ye sanctified me not in the midst of the children of Israel.) Those who
+disobey God will die including his man Moses. God is no respecter of
+persons. (Acts 10:34 ¶ Then Peter opened his mouth, and said, Of a truth I
+perceive that God is no respecter of persons:)
+
+The sixth and final desert that the Israelites passed through in
+their exodus from Egypt to the Promised Land was the wilderness of Etham.
+(Numbers 33:8 And they departed from before Pi-hahiroth, and passed
+through the midst of the sea into the wilderness, and went three days'
+journey in the wilderness of Etham, and pitched in Marah.) Some of these
+deserts they passed through and encamped in more than once. Just as God
+did not let the Israelites thirst while wandering in the wilderness, he
+also will not let a person thirst who seeks him. (Isaiah 48:21 And they
+thirsted not when he led them through the deserts: he caused the waters to
+flow out of the rock for them: he clave the rock also, and the waters
+gushed out.)  
+
+The deserts contain many beasts and creatures of Satan. This is one
+reason that God had the Israelites pass through the desert in order to see
+sin and also to learn to trust in him for all things whether it is food,
+water, or protection. The wild beasts not only refers to the literal
+dangerous animals found in the desert, but here it mostly refers to
+Satanic creatures that like the desert and its absence of water, with
+water representing the living water of Jesus. Satan and his beasts do not
+like or want the living water of Jesus anywhere near them and will try to
+lead as many people from Jesus as well to a life in the desert. The satyrs
+mentioned are devils and owls are often associated with Satan with the
+screech owl here most likely being a satanic reference. (Deuteronomy 8:15
+Who led thee through that great and terrible wilderness, wherein were
+fiery serpents, and scorpions, and drought, where there was no water; who
+brought thee forth water out of the rock of flint;) (Isaiah 34:14 The wild
+beasts of the desert shall also meet with the wild beasts of the island,
+and the satyr shall cry to his fellow; the screech owl also shall rest
+there, and find for herself a place of rest.) Isaiah 13:21 speaks of the
+takeover of Babylon by wild beasts of the desert whereas Isaiah 34:14 most
+likely refers to the end of Edom. (Isaiah 13:21 But wild beasts of the
+desert shall lie there; and their houses shall be full of doleful
+creatures; and owls shall dwell there, and satyrs shall dance there.)
+Devils like to wander around in dry places such as deserts. (Matthew 12:43
+When the unclean spirit is gone out of a man, he walketh through dry
+places, seeking rest, and findeth none.) They also seek the unsaved who do
+not have the living water of Jesus and hence are living a life of
+dehydration. Many people are partially dehydrated due to not drinking
+enough physical water, but many more people are spiritually dehydrated as
+they do not have Jesus who is the living water. (John 7:38 He that
+believeth on me, as the scripture hath said, out of his belly shall flow
+rivers of living water.) The man of the Gadarenes who was possessed by
+Legion was driven into the desert since devils like the desert. [Luke 8:29
+(For he had commanded the unclean spirit to come out of the man. For
+oftentimes it had caught him: and he was kept bound with chains and in
+fetters; and he brake the bands, and was driven of the devil into the
+wilderness.)] Deserts can often bring fear to people living in them due to
+the harsh conditions such as lack of food and water as well as the
+darkness. Only by trusting in Jesus can a person survive spiritually in
+the desert. Deserts in a Christian's life can teach a Christian to have
+more faith in God. Times of dryness as in a desert will make a person seek
+what is truly important and that is Jesus.
+
+Often times Jesus will have us move to a desert spiritually so that
+he might teach us a lesson and allow us to grow closer to him. Just as a
+person grows spiritually when they are in a valley, a person will grow
+spiritually during their time in a desert if they learn to trust God. The
+next time that God has placed you in the desert and you feel that God has
+abandoned you just remember that God uses all for good for those who seek
+his righteousness and that if God can take the dry bones of Israel as seen
+in Ezekiel 37 and once again make them a thriving nation, God can also
+take you out of the desert and make you a great soul winner and servant
+for Jesus. (Matthew 6:33 But seek ye first the kingdom of God, and his
+righteousness; and all these things shall be added unto you.)When Abraham
+sent Hagar away with Ishmael, they wandered in the wilderness of
+Beer-sheba until they no longer had water. (Genesis 21:14 And Abraham rose
+up early in the morning, and took bread, and a bottle of water, and
+gave it unto Hagar, putting it on her shoulder, and the child, and sent
+her away: and she departed, and wandered in the wilderness of Beer-sheba.)
+It was only after she cried to God and God heard her and spoke to her,
+that she trusted God. God provided her with water and will provide the
+living water of Jesus to anyone who cries out to Jesus for it. The water
+God provided represents the water of Jesus that everyone needs. Just as
+some deserts will bloom and come to life after a rain, we can bloom as
+well when we are in a spiritual desert if we drink of the rain of God
+through his Son Jesus.
+
+Sometimes God has people escape to the desert to escape the
+sinfulness of cities where they can be alone with God. God said it was
+better to live in the desert than with an angry woman. (Proverbs 21:19 It
+is better to dwell in the wilderness, than with a contentious and an angry
+woman.) John the Baptist lived in the desert and preached repentance. He
+prepared the way for Jesus. (Matthew 3:1 In those days came John the
+Baptist, preaching in the wilderness of Judaea,) God had John the Baptist
+live in the desert so he could rely on Jesus for life and to allow him the
+freedom from the snares of life to serve him. Isaiah had prophesied about
+John the Baptist and his preparing the way for Jesus. (Isaiah 40:3 ¶ The
+voice of him that crieth in the wilderness, Prepare ye the way of the
+LORD, make straight in the desert a highway for our God.) (Matthew 3:3 For
+this is he that was spoken of by the prophet Esaias, saying, The voice of
+one crying in the wilderness, Prepare ye the way of the Lord, make his
+paths straight.) Jesus himself spent time in the desert to be tempted by
+Satan to show he was tempted just like every other man, yet he still did
+not sin. (Matthew 4:1 Then was Jesus led up of the Spirit into
+the wilderness to be tempted of the devil.) (Mark 1:13 And he was there in
+the wilderness forty days, tempted of Satan; and was with the wild beasts;
+and the angels ministered unto him.) Jesus was sent to the wilderness,
+since Satan likes the dry places and it is a spiritually unclean place and
+life is harsh, so it was a good place of temptation. Notice the wild
+beasts were there as well and how Jesus was there for forty days, since
+forty means temptation. Jesus went into the desert because he could not
+freely walk in the cities of Galilee after healing a leper who disobeyed
+his command. (Mark 1:45 But he went out, and began to publish it much, and
+to blaze abroad the matter, insomuch that Jesus could no more openly enter
+into the city, but was without in desert places: and they came to him from
+every quarter.) Jesus went into the desert to rest with his disciples but
+was followed and it was here that he fed the five thousand with two fishes
+and five loaves. (Mark 6:31 And he said unto them, Come ye yourselves
+apart into a desert place, and rest a while: for there were many coming
+and going, and they had no leisure so much as to eat.) This feeding of the
+people in the desert again shows our need to trust in Jesus as the bread
+of life during our journey in the desert place.
+
+David escaped into the desert to escape his enemies and seek God
+where his soul thirsted for the water of Jesus as he was in a dry desert
+physically and spiritually. (I Samuel 23:15 And David saw that Saul was
+come out to seek his life: and David was in the wilderness of Ziph in a
+wood.) (Psalm 63:1 O God, thou art my God; early will I seek thee: my soul
+thirsteth for thee, my flesh longeth for thee in a dry and thirsty land,
+where no water is;) Just as David and the land of Israel needed the water
+of Jesus, so do all people. Deserts can be a place of evil, but they can
+also be used by God to clean up a Christian's life so that they will grow
+for him. Deserts are often times thought of as dry places, but God has
+promised to make the desert of Israel into a plush place for life. (Isaiah
+27:6 He shall cause them that come of Jacob to take root: Israel shall
+blossom and bud, and fill the face of the world with fruit.) (Isaiah
+35:1-2 1 The wilderness and the solitary place shall be glad for them; and
+the desert shall rejoice, and blossom as the rose.
+2 It shall blossom abundantly, and rejoice even with joy and singing: the
+glory of Lebanon shall be given unto it, the excellency of Carmel and
+Sharon, they shall see the glory of the LORD, and the excellency of our
+God.) (Isaiah 35:6 Then shall the lame man leap as an hart, and the tongue
+of the dumb sing: for in the wilderness shall waters break out, and
+streams in the desert.) God has partly fulfilled this prophecy and promise
+today as Israel produces much more food and has much more green grass than
+her Arab neighbors. Israel sells much fruit to the Arab world and other
+parts of the world just as God said she would. God has made the desert
+come alive and he can in your life too. This has all happened since Israel
+became a nation again in May 1948. Israel was 84% desert in 1964 and today
+is less than 62%. God still looks after his people, while the Arabs serve
+the false god Allah of Islam. The Arabs live in a physical and spiritual
+desert. Just as God can bring forth physical life in the desert of Israel,
+he will also bring forth spiritual life and growth to those who are living
+in spiritual deserts.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

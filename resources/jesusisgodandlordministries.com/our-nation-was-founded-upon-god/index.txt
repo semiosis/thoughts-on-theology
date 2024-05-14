@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,472 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Our Nation Was Founded Upon God
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Today is Independence Day, the day we celebrate our nation's 245^th
+birthday and our independence from Great Britain. The United States of
+America was founded on July 4, 1776. It was on this date and year that our
+nation began, not in 1619 as is being falsely claimed today by haters of
+the USA. This nation was founded upon God despite what the liberals are
+trying to teach by changing and erasing history. The United States of
+America was founded by godly men and was based upon godly principles. God
+blessed this nation from her start due to the reverence given to God, yet
+today this nation has abandoned God and therefore God has abandoned
+America. This nation was great because it had God in the picture and a
+fear of God. Today that fear of God is gone as most Americans have not
+only rejected Jesus, but God in general. This nation needs to turn back to
+God in order to become great again.
 
-Username or email _____________________
+Most of our nation's founding fathers were men of God and men who
+feared God. Not all of them were true Christians, but even those who were
+not Christians still acknowledged God and respected those who were
+Christians. Today if you are a Christian leader in our government, you can
+guarantee you will be mocked and attacked. Our founding fathers based our
+Constitution on Biblical principles. Before the Constitution was approved
+by the states, ten amendments were added. The first was the most important
+as it gave people freedom to worship God without interference from the
+government and prevented a state religion in order to prevent the Church
+of England or the Roman Catholic Church from controlling our government as
+in Europe and to keep taxpayers from having to pay taxes to a church they
+did not belong to. Liberals have tried to infringe upon these rights
+during the COVID-19 pandemic by preventing worship of God. The first
+amendment says "Congress shall make no law respecting an establishment of
+religion, or prohibiting the free exercise thereof ..." This right must
+never be allowed to be taken away from us.
 
-Reset password
+Of the 56 men who signed the Declaration of Independence on July 4,
+1776, 24 had seminary or Bible college degrees. John Witherspoon was a
+Presbyterian minister and president of College of New Jersey (today known
+as Princeton University) which was originally a Presbyterian Bible school.
+This shows the importance of God to most of our nation's founding fathers.
+The following are some quotes from some of our founding fathers. Many
+today try to deny that our nation was founded upon God and by godly men,
+but these quotes will show the truth. George Washington who was our
+nation's first president said "While we are zealously performing the
+duties of good citizens and soldiers, we certainly ought not to be
+inattentive to the higher duties of religion. To the distinguished
+character of Patriot, it should be our highest glory to add the more
+distinguished character of Christian." George Washington was a man who
+prayed for his soldiers at Valley Forge during the harsh winter of
+1777-1778. He often mentioned God in his speeches. Benjamin Franklin who
+signed the Declaration of Independence and the U.S. Constitution said
+"Here is my Creed. I believe in one God, the Creator of the Universe. That
+He governs it by His Providence. That He ought to be worshipped." Samuel
+Adams who signed the Declaration of Independence and was a leader of the
+Revolutionary War while governor of Massachusetts in 1797 said "And as it
+is our duty to extend our wishes to the happiness of the great family of
+man, I conceive that we cannot better express ourselves than by humbly
+supplicating the Supreme Ruler of the world that the rod of tyrants may be
+broken to pieces, and the oppressed made free again; that wars may cease
+in all the earth, and that the confusions that are and have been among
+nations may be overruled by promoting and speedily bringing on that holy
+and happy period when the kingdom of our Lord and Saviour Jesus Christ may
+be everywhere established, and all people everywhere willingly bow to the
+sceptre of Him who is Prince of Peace." James Madison the 4^th president
+said "A watchful eye must be kept on ourselves lest while we are building
+ideal monuments of Renown and Bliss here we neglect to have our names
+enrolled in the Annals of Heaven." John Quincy Adams, the 6^th president
+of the United States said "The hope of a Christian is inseparable from his
+faith. Whoever believes in the divine inspiration of the Holy Scriptures
+must hope that the religion of Jesus shall prevail throughout the earth.
+Never since the foundation of the world have the prospects of mankind been
+more encouraging to that hope than they appear to be at the present time.
+And may the associated distribution of the Bible proceed and prosper till
+the Lord shall have made 'bare His holy arm in the eyes of all the
+nations, and all the ends of the earth shall see the salvation of our God'
+(Isaiah 52:10)." William Penn who founded Pennsylvania said "I do declare
+to the whole world that we believe the Scriptures to contain a declaration
+of the mind and will of God in and to those ages in which they were
+written; being given forth by the Holy Ghost moving in the hearts of holy
+men of God; that they ought also to be read, believed, and fulfilled in
+our day; being used for reproof and instruction, that the man of God may
+be perfect. They are a declaration and testimony of heavenly things
+themselves, and, as such, we carry a high respect for them. We accept them
+as the words of God Himself." Roger Sherman who signed the Declaration of
+Independence and the Constitution said "I believe that there is one only
+living and true God, existing in three persons, the Father, the Son, and
+the Holy Ghost ..." "I believe that God having elected some of mankind
+to eternal life, did send his own Son to become man, die in the room and
+stead of sinners and thus to lay a foundation for the offer of pardon and
+salvation to all mankind, so as all may be saved who are willing to accept
+the gospel offer: also by his special grace and spirit, to regenerate,
+sanctify and enable to persevere in holiness, all who shall be saved; ..."
+Patrick Henry who was a ratifier of the U.S. Constitution and best known
+for saying "Give me liberty, or give me death!", said "It cannot be
+emphasized too strongly or too often that this great nation was founded,
+not by religionists, but by Christians; not on religions, but on the
+gospel of Jesus Christ. For this very reason peoples of other faiths have
+been afforded asylum, prosperity, and freedom of worship here." and "The
+Bible ... is a book worth more than all the other books that were ever
+printed."  John Jay was the first Chief Justice of the Supreme Court and
+president of the American Bible Society who said "In forming and settling
+my belief relative to the doctrines of Christianity, I adopted no articles
+from creeds but such only as, on careful examination, I found to be
+confirmed by the Bible." and "The Bible will also inform them that our
+gracious Creator has provided for us a Redeemer, in whom all the nations
+of the earth shall be blessed; that this Redeemer has made atonement 'for
+the sins of the whole world,' and thereby reconciling the Divine justice
+with the Divine mercy has opened a way for our redemption and salvation;
+and that these inestimable benefits are of the free gift and grace of God,
+not of our deserving, nor in our power to deserve." Benjamin Rush who
+signed the Declaration of Independence and was a ratifier of the
+Constitution said "The gospel of Jesus Christ prescribes the wisest rules
+for just conduct in every situation of life. Happy they who are enabled to
+obey them in all situations!" John Hancock who was the first to sign the
+Declaration of Independence said "... Continue steadfast and, with a proper
+sense of your dependence on God, nobly defend those rights which heaven
+gave, and no man ought to take from us." John Adams was a signer of the
+Declaration of independence as well as the 2^nd U.S. president and the dad
+of John Quincy Adams. He raised his family in a godly home and had family
+devotions around the Holy Bible. Many of these men had many other quotes
+about God and Jesus as did many other prominent men who founded our nation
+with the help of God. Those who signed the Declaration of Independence
+were knowingly putting their lives on the line, yet these men were willing
+to die for our freedom as a nation to be able to worship God and Jesus and
+to preach the gospel. These men all understood that this nation must be
+founded upon God and Jesus if it was to survive and be blessed. This
+principle held this nation together for a long time, but today is under
+severe attack as Satan has a stranglehold on our nation. This is why we
+see our nation falling apart and divided and crime rising as Jesus has
+been removed from our nation in nearly every aspect even including most
+churches and by many who profess to be Christians. Many professing
+Christians only add Jesus to their lives when they have time for him or it
+is convenient for them, but do not submit to him as the Lord of their
+lives. This has led to the destruction of the church in all denominations
+including Baptists.
+
+Most of our nations early colleges were all founded as seminaries.
+106 out of the first 108 colleges founded in America were founded by
+Christians. Some are Yale, Harvard, and Princeton. Yale was started by
+clergymen. Harvard was named after a Christian minister. The first teacher
+at Princeton was the minister Jonathan Dickinson. Princeton's crest still
+says "Dei sub numine viget," which is Latin for "Under God she
+flourishes." Today these universities are extremely liberal and hardly any
+sign of God is found anywhere if at all. How sad.
+
+Children in our schools in the early days learned how to read by
+reading a King James Bible. This shows that it is not a hard Bible to read
+as is often falsely claimed by those who hate and attack the King James
+Bible. President George Washington started the custom of placing your hand
+on a Holy Bible and swearing on the Holy Bible when you were sworn into
+public office. This was to show that you were given your position in
+office by God as well as to show that if you do wrong before the people,
+you have also done wrong or sinned against God as you have taken an oath
+on God's holy word. You have lied before God. Today politicians make a
+mockery of their oaths before God and some have even been sworn into
+office on a Koran (Quran).
+
+I have already mentioned how the first amendment of the U.S.
+Constitution prohibits a state religion. Just because a state religion is
+prohibited does not mean that God is not allowed in our government. People
+today are trying to remove all mention of God from our government, yet
+this was never the intention of our founding fathers. As I said it was
+only to prevent a state religion, but not to remove God from government.
+In fact the U.S. Capitol was used to hold church services every Sunday
+morning in what is today known as Statuary Hall. This was where the House
+of Representatives met. Various denominations held services here with up
+to four church services every Sunday. Church services were held here from
+1807-1857. Church services have also been held in executive branch
+buildings and in the Supreme Court yet today they have prohibited God in
+school for the most part as in most of the rest of our government and
+including the military by saying God has no part of government. Our
+constitution allows God in our government and schools. It just cannot be
+mandatory.
+
+Many of our government buildings used to acknowledge God. The Supreme
+Court displays the ten commandments as did formerly other courts. The
+Liberty Bell in Philadelphia quotes part of Leviticus 25:10 from the King
+James Bible and says "Proclaim LIBERTY Throughout all the Land unto all
+the Inhabitants Thereof Lev. XXV. v X." The bell's designers knew where
+our liberty as Americans truly came from. It has been said that only two
+people have died for our freedom; Jesus and the American soldier. This is
+true. In the prayer room of the U.S. Capitol is the quote "Annuit coeptis"
+(God has favored our undertakings) and also Psalm 16:1 from the King James
+Bible "Preserve me, O God: for in thee do I put my trust." In the Senate
+chamber over the east doorway is the quote "Annuit coeptis" (God has
+favored our undertakings) and over the south entrance is the phrase "In
+God we trust". "In God we trust" is also found in the House chamber. If
+only the people in those chambers actually believed that.  
+
+Our independence as a nation was allowed by God to happen because of
+the godly men who founded it. God intended our nation to be a lighthouse
+to the world just as Israel was and is his chosen nation. God had a
+special blessing on this nation from the start and we have been more
+blessed by God than any nation in the history of the world with the sole
+exception possibly of Israel. Our nation has been the leader of the free
+world for a long time and has produced many brilliant inventors,
+scientists, preachers, and other great people who have been the envy of
+the world. Initially our nation obeyed God and thanked God for his
+blessings on the nation by sending more missionaries to the world to
+spread the gospel and reach people for Jesus. Today as our nation has
+fallen away from Jesus; it is our nation that has missionaries sent to it.
+Our own nation is ripe for harvest as it is filled with many unsaved
+people. Many today no longer identify as Christians. How sad considering
+this is what our nation was founded on.
+
+God gives freedom to people. Many brave men have died for our nation
+in our wars, but true freedom only comes from God and his son Jesus,
+especially for those who are saved and have received Jesus as their
+Saviour. Only those who are saved will have true freedom from spiritual
+death and independence from Satan. Jesus will save all of those who call
+upon him by admitting they are a sinner in need of a Saviour. All of us
+have sinned and sin leads to death. (Romans 3:23 For all have sinned, and
+come short of the glory of God;) (Romans 6:23 For the wages of sin is
+death; but the gift of God is eternal life through Jesus Christ our Lord.)
+(Romans 6:6-9 6 Knowing this, that our old man is crucified with him, that
+the body of sin might be destroyed, that henceforth we should not serve
+sin.
+7 For he that is dead is freed from sin.
+8 Now if we be dead with Christ, we believe that we shall also live with
+him:
+9 Knowing that Christ being raised from the dead dieth no more; death hath
+no more dominion over him.) Receiving Jesus as your Saviour will free you
+from spiritual death. When we see the American flag, let us always
+remember that it represents the freedom we have as Americans given to us
+by God our Creator. Do not burn it or disrespect it as is done by people
+who hate God and hate this nation which was founded upon God. These people
+hate freedom just as Satan does. Thomas Jefferson was the drafter and
+signer of the Declaration of Independence and the 3^rd president of the
+United States of America. Thomas Jefferson was not a true Christian in
+that he denied Jesus was God, but he acknowledged God in general. He
+admitted that our freedom came from God. He said "God who gave us life
+gave us liberty. And can the liberties of a nation be thought secure when
+we have removed their only firm basis, a conviction in the minds of the
+people that these liberties are of the Gift of God? That they are not to
+be violated but with His wrath? Indeed, I tremble for my country when I
+reflect that God is just; that His justice cannot sleep forever..." While
+the Statue of Liberty in New York Harbor represents freedom for Americans,
+the cross of Jesus Christ at Calvary represents freedom for Christians.
+Here are some verses that show our freedom and liberty comes from God and
+God alone. (II Corinthians 3:17 Now the Lord is that Spirit: and where the
+Spirit of the Lord is, there is liberty.) (Galatians 5:1 Stand fast
+therefore in the liberty wherewith Christ hath made us free, and be not
+entangled again with the yoke of bondage.) (Romans 8:21 Because the
+creature itself also shall be delivered from the bondage of corruption
+into the glorious liberty of the children of God.) We are no longer bound
+to the law because of the death of Jesus for us. (Romans 7:6 But now we
+are delivered from the law, that being dead wherein we were held; that we
+should serve in newness of spirit, and not in the oldness of the letter.)
+God gave freedom to this nation 245 years ago today because godly men
+honored and followed the Lord. This nation needs to repent of her many
+sins and turn back to God if she wants to survive for many more years
+until the return of Jesus. Individuals must call upon Jesus to save them.
+Let us pray for godly leaders to return to our government. God said if a
+nation will turn back to him he will heal it. This verse is referring to
+Christians, so it must start with us. (II Chronicles 7:14 If my people,
+which are called by my name, shall humble themselves, and pray, and seek
+my face, and turn from their wicked ways; then will I hear from heaven,
+and will forgive their sin, and will heal their land.) (Proverbs 14:34
+Righteousness exalteth a nation: but sin is a reproach to any people.) As
+we celebrate Independence Day today while we grill and eat hot dogs and
+hamburgers and watch fireworks, let us remember the godly men who risked
+all for our freedom as our founding fathers, let us remember those who
+gave their lives in wars for our freedom, and most of all let us remember
+that our freedom comes from God and let us thank him for it and pray that
+we may continue to have the freedom he gave us to be able to worship him
+freely. Let us set time apart today to pray for our nation and our leaders
+and that all Americans will turn back to God and for those who are lost
+that today they will call upon Jesus to be saved. Let all heads of the
+household say as Joshua did "as for me and my house, we will serve the
+LORD." [Joshua 24:15] If America will turn back to God, she can be saved
+and be blessed once more. May God bless America and may America bless God.
+(Psalm 33:12 Blessed is the nation whose God is the LORD; and the people
+whom he hath chosen for his own inheritance.)  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

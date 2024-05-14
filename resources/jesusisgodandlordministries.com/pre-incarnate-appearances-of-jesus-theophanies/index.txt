@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,624 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Pre-incarnate Appearances of Jesus (Theophanies)
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Gospel of John shows us the genealogy of Jesus showing he is the Son
+of God.
 
-Username or email _____________________
+John 1:1 In the beginning was the Word, and the Word was with God, and the
+Word was God.
 
-Reset password
+John 1:14 And the Word was made flesh, and dwelt among us, (and we beheld
+his glory, the glory as of the only begotten of the Father,) full of grace
+and truth.
+
+We know Jesus has no beginning.
+
+The pre-incarnate appearances of Jesus are referred to as theophanies
+or occasionally Christophanies. Theophany means appearance of God and
+Christophany means appearance of Christ. A pre-incarnate appearance of
+Jesus refers to an appearance by Jesus normally in a visible form usually
+of a man in the Old Testament prior to his being born by Mary in
+Bethlehem. Often times this is seen by him being referred to as the angel
+of the LORD, but not always. (angel of God) Often we see people
+recognizing they had seen God and or worshipped the angel of the LORD
+showing he was God. Some appearances are seen below. 
+
+1. The first appearance of Jesus is seen I believe in Genesis Chapter 3. I
+believe Jesus walked with them in the garden of Eden prior to their fall
+and not just spoke to them from heaven.
+
+Jesus appeared to Abraham on more than one occasion.
+
+2. When Abraham was in the plain of Moreh shortly after he left Haran
+after being told by God to go to the land of Canaan. He was 75.
+
+Genesis 12:7-8 7 And the LORD appeared unto Abram, and said, Unto thy seed
+will I give this land: and there builded he an altar unto the LORD, who
+appeared unto him.
+
+8 And he removed from thence unto a mountain on the east of Bethel, and
+pitched his tent, having Bethel on the west, and Hai on the east: and
+there he builded an altar unto the LORD, and called upon the name of the
+LORD.
+
+3. After Abraham rescued Lot after he had been captured by several kings
+who made war with the king of Sodom, he was visited by Melchizedek, the
+king of Salem.
+
+(Genesis 14:18-20 And Melchizedek king of Salem brought forth bread and
+wine: and he was the priest of the most high God.
+19 And he blessed him, and said, Blessed be Abram of the most high God,
+possessor of heaven and earth:
+20 And blessed be the most high God, which hath delivered thine enemies
+into thy hand. And he gave him tithes of all.)
+
+Abraham tithed Melchizedek recognizing his importance. Melchizedek was the
+priest of the most high God. I believe Melchizedek was Jesus. We see this
+in Hebrews Chapters 5 and 7 with five meaning grace and seven completeness
+or spiritual perfection.
+
+(Hebrews 7:1-4 For this Melchisedec, king of Salem, priest of the most
+high God, who met Abraham returning from the slaughter of the kings, and
+blessed him;
+
+2 To whom also Abraham gave a tenth part of all; first being by
+interpretation King of righteousness, and after that also King of Salem,
+which is, King of peace;
+
+3 Without father, without mother, without descent, having neither
+beginning of days, nor end of life; but made like unto the Son of God;
+abideth a priest continually.
+
+4 Now consider how great this man was, unto whom even the patriarch
+Abraham gave the tenth of the spoils.)
+
+(Hebrews 7:17:For he testifieth, Thou art a priest for ever after the
+order of Melchisedec.)
+
+If you will notice, you will see that in Hebrews 7:2 King is capitalized.
+King is only capitalized in the King James Bible when referring to Jesus
+as Jesus is King of kings. There are only three exceptions when king
+starts a sentence or quote and all words in the Bible including "and" are
+capitalized at the beginning of a sentence or quote. This is not the case
+in the corrupt non King James Bibles such as the New International Version
+(NIV), New King James Version (NKJV), New Living Translation (NLT),
+English Standard Version (ESV), or Holman Christian Standard Bible (HCSB)
+(Southern Baptist version) where they capitalize king for all earthly
+kings. That is not correct or Biblical.
+
+4. We read in Genesis 18 how Jesus and two angels appeared to Abraham, ate
+with him, and then Jesus told Abraham how he was going to destroy Sodom
+and Gomorrah and the cities around them for their sins. Abraham's nephew
+Lot lives in Sodom and so Abraham tries to bargain with God to save Lot.
+Abraham asked God to spare Sodom if there were only 50 righteous, 45, 40,
+30, 20, and finally ten.
+
+(Genesis 18:1-3 And the LORD appeared unto him in the plains of Mamre: and
+he sat in the tent door in the heat of the day;
+
+2 And he lift up his eyes and looked, and, lo, three men stood by him: and
+when he saw them, he ran to meet them from the tent door, and bowed
+himself toward the ground,
+
+3 And said, My Lord, if now I have found favour in thy sight, pass not
+away, I pray thee, from thy servant:)
+
+(Genesis 18:33 And the LORD went his way, as soon as he had left communing
+with Abraham: and Abraham returned unto his place.)
+
+5. Jesus appeared to Isaac in Beersheba:
+
+(Genesis 26:24-25 24 And the LORD appeared unto him the same night, and
+said, I am the God of Abraham thy father: fear not, for I am with thee,
+and will bless thee, and multiply thy seed for my servant Abraham's sake.
+
+25 And he builded an altar there, and called upon the name of the LORD,
+and pitched his tent there: and there Isaac's servants digged a well.)
+
+Jacob wrestled Jesus the night before he met with Esau after he escaped
+from Laban with his family after serving for Leah and Rachel.
+
+(Genesis 32:24-32 24 And Jacob was left alone; and there wrestled a man
+with him until the breaking of the day.
+
+25 And when he saw that he prevailed not against him, he touched the
+hollow of his thigh; and the hollow of Jacob's thigh was out of joint, as
+he wrestled with him.
+
+26 And he said, Let me go, for the day breaketh. And he said, I will not
+let thee go, except thou bless me.
+
+27 And he said unto him, What is thy name? And he said, Jacob.
+
+28 And he said, Thy name shall be called no more Jacob, but Israel: for as
+a prince hast thou power with God and with men, and hast prevailed.
+
+29 And Jacob asked him, and said, Tell me, I pray thee, thy name. And he
+said, Wherefore is it that thou dost ask after my name? And he blessed him
+there.
+
+30 And Jacob called the name of the place Peniel: for I have seen God face
+to face, and my life is preserved.
+
+31 And as he passed over Penuel the sun rose upon him, and he halted upon
+his thigh.
+
+32 Therefore the children of Israel eat not of the sinew which shrank,
+which is upon the hollow of the thigh, unto this day: because he touched
+the hollow of Jacob's thigh in the sinew that shrank.)
+
+6. Moses and burning bush.
+
+Moses had been out attending his father in law Jethro's flock of sheep,
+when he saw the burning bush.
+
+(Exodus 3:2-6 2 And the angel of the LORD appeared unto him in a flame of
+fire out of the midst of a bush: and he looked, and, behold, the bush
+burned with fire, and the bush was not consumed.
+
+3 And Moses said, I will now turn aside, and see this great sight, why the
+bush is not burnt.
+
+4 And when the LORD saw that he turned aside to see, God called unto him
+out of the midst of the bush, and said, Moses, Moses. And he said,
+Here am I.
+
+5 And he said, Draw not nigh hither: put off thy shoes from off thy feet,
+for the place whereon thou standest is holy ground.
+
+6 Moreover he said, I am the God of thy father, the God of Abraham, the
+God of Isaac, and the God of Jacob. And Moses hid his face; for he was
+afraid to look upon God.)
+
+7. Jesus appeared to Moses and others just before he received the ten
+commandments.
+
+(Exodus 24:9-11 9 Then went up Moses, and Aaron, Nadab, and Abihu, and
+seventy of the elders of Israel:
+
+10 And they saw the God of Israel: and there was under his feet as it were
+a paved work of a sapphire stone, and as it were the body of heaven
+in his clearness.
+
+11 And upon the nobles of the children of Israel he laid not his hand:
+also they saw God, and did eat and drink.)
+
+8. We see Jesus appear to Balaam after he was told not to go and curse
+Israel after he was asked by the king of Moab (Balak) The king of Moab had
+asked Balaam to come to Moab and curse Israel because he was afraid of
+them. Balaam at first refused and then agreed to go, but said he would
+only go if God allowed him and would only say what God gave him to say. On
+the way, God was angry with Balaam and used a talking ass (donkey) to get
+Balaam's attention.
+
+(Numbers 22:22-35 22 And God's anger was kindled because he went: and the
+angel of the LORD stood in the way for an adversary against him. Now he
+was riding upon his ass, and his two servants were with him.
+
+23 And the ass saw the angel of the LORD standing in the way, and his
+sword drawn in his hand: and the ass turned aside out of the way, and went
+into the field: and Balaam smote the ass, to turn her into the way.
+
+24 But the angel of the LORD stood in a path of the vineyards, a
+wall being on this side, and a wall on that side.
+
+25 And when the ass saw the angel of the LORD, she thrust herself unto the
+wall, and crushed Balaam's foot against the wall: and he smote her again.
+
+26 And the angel of the LORD went further, and stood in a narrow place,
+where was no way to turn either to the right hand or to the left.
+
+27 And when the ass saw the angel of the LORD, she fell down under Balaam:
+and Balaam's anger was kindled, and he smote the ass with a staff.
+
+28 And the LORD opened the mouth of the ass, and she said unto Balaam,
+What have I done unto thee, that thou hast smitten me these three times?
+
+29 And Balaam said unto the ass, Because thou hast mocked me: I would
+there were a sword in mine hand, for now would I kill thee.
+
+30 And the ass said unto Balaam, Am not I thine ass, upon which thou hast
+ridden ever since I was thine unto this day? was I ever wont to do so unto
+thee? And he said, Nay.
+
+31 Then the LORD opened the eyes of Balaam, and he saw the angel of the
+LORD standing in the way, and his sword drawn in his hand: and he bowed
+down his head, and fell flat on his face.
+
+32 And the angel of the LORD said unto him, Wherefore hast thou smitten
+thine ass these three times? behold, I went out to withstand thee,
+because thy way is perverse before me:
+
+33 And the ass saw me, and turned from me these three times: unless she
+had turned from me, surely now also I had slain thee, and saved her alive.
+
+34 And Balaam said unto the angel of the LORD, I have sinned; for I knew
+not that thou stoodest in the way against me: now therefore, if it
+displease thee, I will get me back again.
+
+35 And the angel of the LORD said unto Balaam, Go with the men: but only
+the word that I shall speak unto thee, that thou shalt speak. So Balaam
+went with the princes of Balak.)
+
+9. Appearance to Gideon:
+
+(Judges 6:11-21 11 And there came an angel of the LORD, and sat under an
+oak which was in Ophrah, that pertained unto Joash the Abiezrite: and his
+son Gideon threshed wheat by the winepress, to hide it from the
+Midianites.
+
+12 And the angel of the LORD appeared unto him, and said unto him, The
+LORD is with thee, thou mighty man of valour.
+
+13 And Gideon said unto him, Oh my Lord, if the LORD be with us, why then
+is all this befallen us? and where be all his miracles which our fathers
+told us of, saying, Did not the LORD bring us up from Egypt? but now the
+LORD hath forsaken us, and delivered us into the hands of the Midianites.
+
+14 And the LORD looked upon him, and said, Go in this thy might, and thou
+shalt save Israel from the hand of the Midianites: have not I sent thee?
+
+15 And he said unto him, Oh my Lord, wherewith shall I save Israel?
+behold, my family is poor in Manasseh, and I am the least in my father's
+house.
+
+16 And the LORD said unto him, Surely I will be with thee, and thou shalt
+smite the Midianites as one man.
+
+17 And he said unto him, If now I have found grace in thy sight, then shew
+me a sign that thou talkest with me.
+
+18 Depart not hence, I pray thee, until I come unto thee, and bring forth
+my present, and set it before thee. And he said, I will tarry until thou
+come again.
+
+19 And Gideon went in, and made ready a kid, and unleavened cakes of an
+ephah of flour: the flesh he put in a basket, and he put the broth in a
+pot, and brought it out unto him under the oak, and presented it.
+
+20 And the angel of God said unto him, Take the flesh and the unleavened
+cakes, and lay them upon this rock, and pour out the broth. And he did so.
+
+21 Then the angel of the LORD put forth the end of the staff that was in
+his hand, and touched the flesh and the unleavened cakes; and there rose
+up fire out of the rock, and consumed the flesh and the unleavened cakes.
+Then the angel of the LORD departed out of his sight.)
+
+Gideon went on to defeat the Midianites and became a judge of Israel.
+
+10. Story of Manoah with Samson.
+
+(Judges 13:3 And the angel of the LORD appeared unto the woman, and said
+unto her, Behold now, thou art barren, and bearest not: but thou shalt
+conceive, and bear a son.)
+
+(Judges 13:8-22 8 Then Manoah intreated the LORD, and said, O my Lord, let
+the man of God which thou didst send come again unto us, and teach us what
+we shall do unto the child that shall be born.
+
+9 And God hearkened to the voice of Manoah; and the angel of God came
+again unto the woman as she sat in the field: but Manoah her
+husband was not with her.
+
+10 And the woman made haste, and ran, and shewed her husband, and said
+unto him, Behold, the man hath appeared unto me, that came unto me
+the other day.
+
+11 And Manoah arose, and went after his wife, and came to the man, and
+said unto him, Art thou the man that spakest unto the woman? And he said,
+I am.
+
+12 And Manoah said, Now let thy words come to pass. How shall we order the
+child, and how shall we do unto him?
+
+13 And the angel of the LORD said unto Manoah, Of all that I said unto the
+woman let her beware.
+
+14 She may not eat of any thing that cometh of the vine, neither let her
+drink wine or strong drink, nor eat any unclean thing: all that I
+commanded her let her observe.
+
+15 And Manoah said unto the angel of the LORD, I pray thee, let us detain
+thee, until we shall have made ready a kid for thee.
+
+16 And the angel of the LORD said unto Manoah, Though thou detain me, I
+will not eat of thy bread: and if thou wilt offer a burnt offering, thou
+must offer it unto the LORD. For Manoah knew not that he wasan angel of
+the LORD.
+
+17 And Manoah said unto the angel of the LORD, What is thy name, that when
+thy sayings come to pass we may do thee honour?
+
+18 And the angel of the LORD said unto him, Why askest thou thus after my
+name, seeing it is secret?
+
+19 So Manoah took a kid with a meat offering, and offered it upon a rock
+unto the LORD: and the angel did wondrously; and Manoah and his wife
+looked on.
+
+20 For it came to pass, when the flame went up toward heaven from off the
+altar, that the angel of the LORD ascended in the flame of the altar. And
+Manoah and his wife looked on it, and fell on their faces to the ground.
+
+21 But the angel of the LORD did no more appear to Manoah and to his wife.
+Then Manoah knew that he was an angel of the LORD.
+
+22 And Manoah said unto his wife, We shall surely die, because we have
+seen God.)
+
+11. Sennacherib the king of Assyria sent his troops to surround Jerusalem
+and try and convince Judah to surrender to him. Hezekiah the king of Judah
+had prayed to God to protect Judah and Isaiah told Hezekiah that God had
+heard his pray. Here is God's answer.
+
+(Isaiah 37:36 Then the angel of the LORD went forth, and smote in the camp
+of the Assyrians a hundred and fourscore and five thousand: and when they
+arose early in the morning, behold, they were all dead corpses) (185,000
+dead) The king of Assyria went back home and was killed by his sons.
+
+12. In the story of Shadrach, Meshach, and Abednego they had refused to
+bow down to the gold statue of king Nebuchadnezzar that he made from the
+vision in his dream. The statue was (60 cubits high) 90 feet high and (6
+cubits wide) 9 feet wide and all were to bow to it when the king had music
+played. The Hebrew boys refused and were thrown into the fiery furnace
+made seven times hotter than usually done. Jesus appeared to the men.
+
+(Daniel 3:22-26 22 Therefore because the king's commandment was urgent,
+and the furnace exceeding hot, the flame of the fire slew those men that
+took up Shadrach, Meshach, and Abednego.
+
+23 And these three men, Shadrach, Meshach, and Abednego, fell down bound
+into the midst of the burning fiery furnace.
+
+24 Then Nebuchadnezzar the king was astonied, and rose up in
+haste, and spake, and said unto his counsellors, Did not we cast three men
+bound into the midst of the fire? They answered and said unto the king,
+True, O king.
+
+25 He answered and said, Lo, I see four men loose, walking in the midst of
+the fire, and they have no hurt; and the form of the fourth is like the
+Son of God.
+
+26 Then Nebuchadnezzar came near to the mouth of the burning fiery
+furnace, and spake, and said, Shadrach, Meshach, and Abednego, ye servants
+of the most high God, come forth, and come hither. Then Shadrach, Meshach,
+and Abednego, came forth of the midst of the fire.)
+
+(Capital S for Son in the proper King James Bible.) (not a son of the gods
+such as in New International Version (NIV), et cetera. This was Jesus,
+despite that many try to deny it.) Nebuchadnezzar did not invite Jesus to
+come out of the fire which I find interesting. I pray that all who are
+reading this will invite Jesus into their heart and lives.
+
+13. When Moses was getting ready to transfer leadership to Joshua just
+before his death, Jesus appeared before the two as a cloud.
+
+(Deuteronomy 31:14-15 14 And the LORD said unto Moses, Behold, thy days
+approach that thou must die: call Joshua, and present yourselves in the
+tabernacle of the congregation, that I may give him a charge. And Moses
+and Joshua went, and presented themselves in the tabernacle of the
+congregation.
+
+15 And the LORD appeared in the tabernacle in a pillar of a cloud: and the
+pillar of the cloud stood over the door of the tabernacle.)
+
+14. The LORD appeared to Samuel.
+
+God called Samuel when he was a young boy living with the high priest Eli.
+
+(I Samuel 3:10 And the LORD came, and stood, and called as at other times,
+Samuel, Samuel. Then Samuel answered, Speak; for thy servant heareth.) (I
+Samuel 3:21 And the LORD appeared again in Shiloh: for the LORD revealed
+himself to Samuel in Shiloh by the word of the LORD.)
+
+15. Jesus was also with the Israelites in the wilderness as a cloud by day
+and a pillar of fire by night. Jesus also appeared in visions and dreams
+and spoke to others such as Hagar when she fled from Sarai. The angel of
+the Lord appeared to Hagar and told her she would give birth to Ishmael
+and her son would be a wild man. There are other appearances in the
+scriptures other than those I presented such as when Moses saw the back of
+God. This was Jesus. All physical appearances of God in the Old Testament
+were of Jesus.
+
+Theophanies are only in the Old Testament for once Jesus was born as
+a man in the flesh they were no longer needed.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

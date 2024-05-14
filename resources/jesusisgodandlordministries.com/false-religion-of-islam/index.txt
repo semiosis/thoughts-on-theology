@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,595 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+False Religion of Islam
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Islam was founded by Mohammed in AD 610. Mohammed was forty years old
+and claimed to have visions from God by the angel Gabriel. Mohammed
+claimed to continue to get these revelations over the next 22 years and
+this is where the supposed Koran (Qur'an) came from. The Koran is Islam's
+holy book and is considered infallible. Islam and Mormonism where both
+founded by men who claimed to have had a vision from an angel. Paul said
+that even if an angel preached a gospel other than what he preached that
+they were to be accursed. God was warning of such deception. (Galatians
+1:8 But though we, or an angel from heaven, preach any other gospel unto
+you than that which we have preached unto you, let him be accursed.) Satan
+himself appears as an angel of light. (II Corinthians 11:14 And no marvel;
+for Satan himself is transformed into an angel of light.) Supposedly
+Mohammed was told to turn away from the many idols of his people and to
+turn to the one god Allah. In reality all Mohammed did was pick his
+favorite god from the twelve tribal gods his people worshipped. The god he
+chose was the moon god Allah which he then said was the only true god.
+This is why the symbol of Islam is the crescent moon. Mohammed was living
+in Mecca when he founded Islam and stayed there for 12 years before moving
+to Medina in 622. This is known as the Hijra which means emigration.
 
-Username or email _____________________
+In reality Islam was founded when the Roman Catholic Church under the
+authority of the pope had the Roman Catholic Khadija marry Mohammed and
+start a new religion. Khadija had money to do so. The Roman Catholic
+Church wanted to control the Holy Land and Jerusalem when God had given it
+to the Jews. The pope wanted a new religion started to gain control of the
+Holy Land and not make the "Church" look bad and then would control Islam.
+Islam grew too fast and the Roman Catholic Church could no longer control
+Islam and this is one of the reasons for the crusades. The crusades were
+to destroy both the Jews to gain control of the Holy Land as well as to
+destroy Islam which had gotten out of control. Many people including the
+Roman Catholic Church deny the truth of the founding of Islam, but a
+former Jesuit priest Alberto Riviera who was saved revealed the truth. The
+Jesuits were founded to do the dirty work of the pope so he would be told
+the dark secrets of Roman Catholicism. If you compare the two religions
+you will see that they have much in common including the importance of
+Mary. Many Muslims are getting visions from Mary (devils) today just as
+many Roman Catholics are. I believe during the great tribulation, it will
+be apparition Mary and the shared belief by both Roman Catholics and
+Muslims that will unite the Muslims under the pope as the antichrist. The
+Catechism of the Catholic Church (CCC 841) says Muslims worship the same
+god as them and they do not need to be converted to Roman Catholicism as
+they are saved. They are right in that both worship the same god, but that
+god is Satan. Mary is the only female mentioned by name in the Koran and
+even has a chapter (Sura 19) named after her. Jesus is often referred to
+as the son of Mary.
 
-Reset password
+Islam and Roman Catholicism share many similarities which can be seen
+since Islam was started by the Roman Catholic Church. Both claim to be the
+only true religion. Both require mandatory fasting. The Roman Catholic
+Church gives titles of God to Mary and worships her and Islam has great
+devotion to Mary as well. She has Sura 19 named after her in the Koran and
+is mentioned 34 times in the Koran. Both base their salvation on good
+works and neither has assurance of salvation, not even its leaders.
+Neither believes in the scriptural atonement with Roman Catholicism having
+purgatory and Islam good works waiting for judgment day to see if enough
+were done. Both claim visions gave them doctrines. Islam got the Koran
+from Gabriel given to Mohammed and the pope got Assumption of Mary. The
+Roman Catholic Church uses rosary beads and Muslims use prayer beads both
+of which have heathen origins. The pope is considered the substitute for
+Jesus here on earth and Mohammed succeeded Jesus as prophet and as the
+greatest prophet. Both have their own way of divorce. Roman Catholicism
+has annulments and Muslim men can divorce their wife by just saying they
+are divorced. Both believe if you leave their religion then you will be
+damned to hell. Both have a long history of hatred to Jews. Both have many
+traditions and beliefs based on heathen origins. Both have added books
+considered scripture. Both have a long history of sexual abuse to children
+and women. Both have used forced conversions over the years with threats
+of death to those who did not comply. Both unite the state with their
+beliefs and both have a holy place as their headquarters. Both have
+pilgrimages and holy wars. Both revere the sun and moon gods. The sun and
+moon is all over the monstrance and the crescent moon is the symbol of
+Islam. Both want the world under their religion and domination. There are
+many other similarities.
+
+Islam along with Christianity and Judaism are known as monotheistic
+religions as the followers only believe in one God or god unlike other
+religions that are polytheistic believing in many gods. They are also
+known as Abrahamic religions as all claim to descend from Abraham with
+Christianity and Judaism from Abraham's son Isaac and Islam from Abraham's
+son Ishmael. Islam is the second largest religion in the world after
+Christianity with 1.9 billion Muslims [Moslems] as followers of Islam are
+known as. They were at one time referred to as Mohammedans up to about the
+1950's. It is either the fastest growing major religion or the second
+fastest after Christianity depending on the source. Islam teaches it is
+the only religion. Islam means submission.  
+
+When Mohammed moved to Medina he started changing Islam to being more
+violent. When he lived in Mecca he was greatly outnumbered so he was
+persecuted, but after he moved he quickly gained converts and went back to
+Mecca to take control of the people. Most converts to Islam over the years
+are by forced conversions. The difference can be seen in the Koran as well
+as the verses he wrote while in Mecca are of a peaceful religion, but once
+in Medina Islam becomes a warrior religion. Mohammed even claimed in Sura
+(chapter) 9:5 that the Koran verses in Mecca were abrogated which means
+cancelled and were no longer true. (Sura 9:5 ... so kill the polytheists
+wherever you find them ...) [This includes Christians and Jews] It is the
+peaceful verses from Mecca that Muslims will read to people to pretend
+that Islam is a peaceful religion when in reality it is a very dangerous
+religion. Anyone who is not a Muslim is considered an infidel. Muslims
+have always used forced conversions as well as forced taxes known as
+Jizyah to control people. God does not force anyone to become a Christian.
+Notice how this also agrees with how the Roman Catholic Church has
+operated over the years. God said he never changes so if the Koran was
+from God and is considered infallible, then why would he have Mohammed
+write verses in Mecca and then override them in Medina? (Malachi 3:6 For I
+am the LORD, I change not; therefore ye sons of Jacob are not consumed.)
+Islam has a long history of violence and killing people. Islam is known
+for its Jihad or holy wars. Roman Catholicism had the crusades as her holy
+wars. Many of the Muslims who kill and harm people are said to be radical
+Muslims. This is not true. These Muslims are the true Muslims and are the
+only ones truly obeying the Koran. If Christians obeyed the Holy Bible the
+way these so called radicals obey the Koran, then this would be a much
+different world we would live in. Women have no freedom or say in Islam
+and are treated as property. In Islam then religion and government are
+considered one. Lately Islam especially in the United States and Europe
+has been trying to take over by having many children as well as getting
+many people in the government. Islam wants to take over the world.
+
+The Koran in Arabic is considered the holy book of Islam. It is
+Qur'an in Arabic. Koran means "read" or "recitation". The Koran takes many
+stories from the Holy Bible and then distorts them such as Abraham
+sacrificing Isaac is changed to sacrificing Ishmael and the Genesis flood
+story is distorted to a local flood. The Koran is considered only correct
+in Arabic yet most Muslims do not speak or understand Arabic. They are
+taught to memorize and site words, but they do not understand them. This
+is also similar to how the Roman Catholic Church made her people listen to
+Mass in Latin long after anyone understood Latin. These things are done
+for control purposes. Many scientific and historical facts are wrong in
+the Koran yet it says it is infallible or without error. Islam teaches
+that the Holy Bible has been corrupted and that is why God gave the Koran
+to Mohammed. Many contradictions exist in the Koran. A good English
+translation of the Koran is the Generous Qur'an by Usama Dakdok.
+
+Mohammed, who is the man God used to supposedly start the true
+religion, was married to 23 women including Aisha who was 8 years old when
+Mohammed married her. Some sources say she was 6. He was 53 when he
+married her. God never approved of having multiple wives known as polygamy
+or marrying such a young girl. Mohammed was considered the last and
+greatest of all Muslim prophets.
+
+The Muslim calendar starts with year 1 being in 622 when Mohammed
+moved to Medina.  
+
+A person supposedly becomes a Muslim at birth if the parents are
+Muslim and one joining Islam becomes a Muslim by saying "There is no true
+god but Allah and Mohammed is the prophet of God." This is known as the
+Testimony of Faith (Shahada).
+
+Islam has what is known as the Hadith besides the Koran. Hadiths are
+supposed sayings and traditions of Mohammed that all Muslims are to
+follow. The Koran and the Hadith are the two holy books of Islam.
+
+Islam is broken up into two main branches known as the Sunnis and
+Shiites (Shia). This would be similar to Christian denominations. The
+Sunnis make up the vast majority of Muslims with about 85-90% and most of
+the rest are Shiites with a small percentage made up of what are
+considered cults by Muslims such as the Surfs and the Nation of Islam.
+Following the death of Mohammed dissension arose over who should follow
+Mohammed as the leader of Islam. Some Muslims followed Ali ibn Abi Talib
+and these became the Shia Muslims and some Muslims followed Abu Bakr and
+became the Sunni Muslims. The religious leaders of Islam are known as
+Imams.
+
+A Muslim enters heaven by having their good works outweigh their bad
+works. A Muslim is supposedly only guaranteed heaven if they die in jihad.
+This is one reason for so many Muslim suicide bombers as they believe they
+go straight to heaven. In reality they go straight to hell for rejecting
+Jesus as their Saviour and not because of suicide as so many people
+believe and teach. Muslim men believe they will spend eternity with 72
+virgins in heaven.
+
+All Muslims are expected to follow the Five Pillars of Islam and they
+are considered obligatory.  The first pillar is the Shahada or the
+Declaration of Faith where a person declares that Allah is god and
+Mohammed is his messenger. This supposedly makes a person a Muslim. After
+becoming a Muslim, they are obligated to follow the other four pillars.
+
+The second pillar is Salah or prayer. A Muslim is obligated to pray
+five times a day at certain times while facing Mecca. Notice how they
+copied from the Jews who face Jerusalem. Before praying a Muslim must wash
+his hands, his face, and feet. A Christian can pray in any direction at
+any time and no matter how dirty they are. A Muslim's prayers are just
+repeated sayings. God condemned this vain repetition. (Matthew 6:7 But
+when ye pray, use not vain repetitions, as the heathen do: for they think
+that they shall be heard for their much speaking.) A Muslim kneels on the
+ground and then prostrates his face rocking back and forth. A dedicated
+Muslim can actually wear a spot in his forehead from the ground. The
+mosque is the preferred place for prayer, but a Muslim must perform these
+prayers no matter where they are. The declaration of faith is said in
+every prayer, so it is said five times a day confirming they are a Muslim.
+This faith is the first thing said to a baby and the last thing said to a
+dying person.
+
+The third pillar is Zakat or almsgiving. A Muslim is obligated to
+spend 2.5% of their income on things supporting the Islamic community such
+as the mosques. The rich are to give comparable to their wealth. The money
+is to go to the community that you use. The Muslim must announce to Allah
+they are giving the money and it then must be done the same day. The poor
+are not obligated to give as much money, but then must do good works in
+place of giving money.
+
+The fourth pillar is Sawm (fasting). Muslims are expected to fast
+during the month of Ramadan on the Islamic calendar. This month is
+considered holy by Muslims. Ramadan changes each year on our calendar as
+the Islamic calendar is based on a lunar year. Muslims are obligated to
+fast from sunrise to sunset and to not only avoid eating food or drink but
+to refrain from sex and smoking. They can do all of these things at night.
+At the end of the month they break the fast with a three day feast.
+Fasting is required for all Muslims who have reached puberty and only
+those Muslims with medical issues are exempt from fasting.  
+
+The fifth pillar is Hajj or pilgrimage. A Muslim is expected to make
+the pilgrimage to Mecca at least one time in their lifetime during the
+Islamic twelfth month. All Muslims making the pilgrimage are to wear only
+two white sheets so all pilgrims look alike and there are no class
+distinctions. These sheets are put on just before entering the sanctuary
+area of Mecca as a sign of purity. The Muslim who has made the trip is
+known as a hajj. The main rituals at the pilgrimage are walking seven
+times around the Kaaba, touching the Black Stone, traveling seven times
+between Mount Safa and Mount Marwah, and symbolically stoning the devil in
+Mina. The pilgrimage is supposedly done to walk where Mohammed did and
+hope Allah will give them spiritual insight as well. The black stone was
+supposedly placed there by Mohammed and supposedly fell from heaven to be
+a guide for Adam to build an altar. The black stone is known to have
+occult connections to the Kaaba before Mohammed and with the fertility
+goddess. The framework of the black stone is said to resemble the exterior
+female genitalia (vulva). Muslims believe the stone was originally white
+but became black from the sins of all the people touching it. Muslims
+attempt to kiss the stone if possible during their hajj. The male changes
+his headdress after making the hajj from the black checkered headdress to
+a red checkered headdress. The Shiite Muslims five pillars are the same
+with slight differences.
+
+The Shiite Muslims look for the twelfth imam to come at the end of
+time and restore peace and establish Islam throughout the world. They
+believe the first eleven successors to Mohammed were the first eleven
+Imams. The twelfth imam is supposedly alive and has been in occultation or
+waiting supernaturally for his return. Supposedly the twelfth imam will
+return with Jesus whom Muslims refer to as Isa. In order for him to return
+the world must be fighting and much violence going on. This is one reason
+that Muslims are also fighting either themselves or someone else. The
+first eleven imams were all murdered. Both sects of Islam are always
+fighting each other. If this was the true religion of God, this would not
+be true. God said to love your enemies, but Muslims are always killing.
+(Matthew 5:44 But I say unto you, Love your enemies, bless them that curse
+you, do good to them that hate you, and pray for them which despitefully
+use you, and persecute you;)
+
+The three holiest cities in Islam are Mecca, Medina, and Jerusalem.
+Muslims share some beliefs with Judaism and Christianity. They believe in
+angels and hell. Some of the people considered prophets in Islam are Adam,
+Noah, Abraham, Moses, and Jesus. Mohammed is considered the last and
+greatest prophet of Islam.  
+
+Muslims believe Jesus (Isa) was a prophet and believe he was born of
+a virgin and performed miracles something they say not even Mohammed did
+who is considered the greatest prophet. Muslims believe Jesus was a
+prophet from birth. Jesus supposedly spoke at birth according to Muslims.
+Muslims do not believe Jesus is the Son of God. Muslims say Allah has no
+Son. Muslims believe Jesus was sinless, but say Mohammed sinned. The Koran
+contradicts itself on the crucifixion of Jesus. Three verses say Jesus
+died, but one says he did not. Muslim scholars claim Jesus did not die,
+but was removed from the cross and Judas died in his place. Muslims
+believe Jesus will return in the end times. The Koran says Jesus was
+created from dust just like Adam. (Sura 3:59 ... He created him from dust.
+...)
+
+Muslims are not allowed to eat pork. Muslims want all nations to live
+under Sharia which means Islamic law. Sharia is in Muslim majority
+nations. Imams are the leaders of Islam who interpret the Koran and the
+Hadith and Muslims worship in mosques. Just as Jews eat kosher meat,
+Muslims are only supposed to eat halal meat which is meat that meets
+certain specifications and is blessed for Allah. Christians should not eat
+halal meat as Islamic terrorist groups receive money by those who certify
+meat as halal and you are supporting terrorist groups. You are also
+supporting meat dedicated to a false god Allah. Adam is considered the
+first Muslim and first prophet of Islam.
+
+The Koran says there are seven heavens when scripture says only three
+heavens. (Sura 41:12) The Koran says the sun orbits the earth when it is
+the other way around. (Sura 21:33) The Koran says the earth is flat. (Sura
+71:19 and others) The Koran says the sun sets in a muddy spring. (Sura
+18:86-90) The Koran says ants can speak languages of man. (Sura 27:18)
+These false scientific facts and many others prove the Koran is not
+inspired from God. Many contradictions are also found in the Koran again
+showing it was not inspired.    
+
+Sura 9:13 says Muslims are to fight and kill anyone who insults Islam
+or Mohammed. All non-Muslims are considered infidels and are to be killed,
+converted or forced to pay a tax. All Muslims who do not go to war will go
+to hell. See how Islam controls its people. True Christianity does not do
+that.  
+
+Islam teaches that hell is a place where a person suffers both
+physically and spiritually. The punishment is in relation to the sins they
+committed. Islamic hell is made up of many levels with each one more
+severe than the previous one. They believe hell is so deep that if you
+dropped a stone in it that it would take 70 years to reach the bottom.
+Islamic hell is referred to as Jahannam. Some Muslims believe that a
+person in hell will eventually be annihilated. God says otherwise that it
+will be everlasting punishment. (Matthew 25:46 And these shall go away
+into everlasting punishment: but the righteous into life eternal.) Some
+Muslim scholars believe hell is a sentient being rather than a place.
+Muslims who seem like real Muslims on the outside, but really are not on
+the inside go to hell. The level of hell is harsher for Jews, then
+Christians, and then Muslims who deserve hell have the easiest level. A
+Muslim can go to hell for improperly performing a ritual washing, cruelty
+to animals, careless words, arrogance and stubbornness and other reasons
+that the blood of Jesus can wash away.
+
+Islam teaches that there are seven heavens. Jannah is the highest
+heaven or paradise in Islam. Men who go to heaven are said to get 72
+perpetual virgins. It does not say what women get. Some Muslim scholars
+teach that in heaven a Muslim gets whatever they want. Muslims believe in
+a day of judgment when all the dead will be brought back to life to face
+judgment and if the good deeds outweigh the bad deeds then the Muslim goes
+to heaven and others to hell. The Koran teaches that heaven is a beautiful
+garden. A Muslim does not know where they will go until they reach the day
+of judgment. Even Mohammed said he did not know where he would end up and
+he is considered the restorer of Islam and greatest Muslim.
+
+Islam teaches that Allah created the universe. Some places he did it
+in six days and in other places it was much longer with each day lasting
+50,000 years. This supports the false old earth belief.  
+
+I previously mentioned how Islam wants to make the whole world
+Muslims and have a world Islamic caliphate. This is happening in Europe
+with not only many Muslims moving in, but also by having many children.
+Places in France and Germany have been completely taken over by Muslims
+and they refuse to let no-Muslims in their area even the police. This has
+happened in smaller scale in Michigan in places like Dearborn. Muslim
+terrorist groups have gained great grounds in recent years and have an
+ultimate goal of destroying Israel. Many all over the world are suffering
+at the hands of Muslims. Some theologians believe the antichrist will be a
+Muslim rather than come from Europe since they are quickly taking over the
+world. Many Muslims have gotten saved due to seeing the rise of Islamic
+terror and preferring the peace of Jesus Christ. Many Muslims have seen
+visions of Jesus and have gotten saved as well especially in Iran. I
+believe many Muslims will get saved during the great tribulation. Islamic
+nations along with Russia which has a large Muslim population will be the
+nations as mentioned in Ezekiel 38-39 that will come against Israel in the
+future in what is referred to as the battle of Gog and Magog. God will
+supernaturally intervene to save Israel and will destroy most of the
+attackers. I believe this will spell the end of Islam as a major
+religion.    
+
+Many non-Muslims including professing Christians say that the God of
+the Bible is the same as Allah. No Muslim would ever say that. How sad
+that professing Christians believe that. Some bible translators have even
+used the name Allah in place of God. It is sad that a Muslim is wiser than
+a professing Christian. The pope and the Roman Catholic Church say the god
+of Islam is the same as the Christian God and that Muslims are saved
+because they worship the same god. (See Catechism of the Catholic Church
+841, page 223) They do not. Allah who is the god of Islam is not like
+Jehovah God of the scriptures. God never changes yet Allah does. (Malachi
+3:6 For I am the LORD, I change not; therefore ye sons of Jacob are not
+consumed.) (Sura 2:106 Whatever verse we abrogate ... we bring a better
+verse ...) God got scripture right the first time and does not need to
+change it. Allah has no son, but God has his Son Jesus. (Sura 2:116) God's
+love to us is unconditional whereas Allah's love is conditional to what
+the Muslim does. (Romans 5:8 But God commendeth his love toward us, in
+that, while we were yet sinners, Christ died for us.) (Sura 2:190 ... Allah
+does not love the transgressors.) God cannot lie yet Allah deceives
+Muslims. (Titus 1:2 In hope of eternal life, which God, that cannot lie,
+promised before the world began;) (Sura 3:54 ... Allah is the best
+deceiver.) God became flesh in Jesus, but Allah never did. (John 1:14 And
+the Word was made flesh, and dwelt among us, (and we beheld his glory, the
+glory as of the only begotten of the Father,) full of grace and truth.)
+(Sura 5:72) Islam denies the Godhead. (Sura 5:73) Muslims believe
+Christians worship three Gods and say Allah is one god. Muslims do not
+understand that God is one God in three persons. (I John 5:7 For there are
+three that bear record in heaven, the Father, the Word, and the Holy
+Ghost: and these three are one.) Allah is very removed and distant from
+people whereas God very much cares and interacts with his creation,
+especially man.
+
+Islam does not believe in man being born with a sin nature passed on
+from Adam. Salvation is simply based on one's works weighed out. The Bible
+is believed by Muslims to have been a revelation from God, but that it has
+been corrupted and superseded by the Koran.  
+
+To any precious Muslim soul that may be listening to this sermon, I
+plead to you that you realize that Allah is a false god, Satan himself,
+and that you will turn to the Jesus of the Holy Bible who is more than
+just a prophet, but is God himself. You can be guaranteed to go to heaven
+without doing any works. All you need to do is to realize that you are a
+sinner and call upon Jesus today and ask him to save you. If you did this
+with sincerity in your heart then Jesus will save you and guarantees that
+you will never lose your salvation and you will spend eternity with him.
+Please get out of Islam which is nothing more than a terrorist religion
+and call upon Jesus today. For those who are saved, please tell other
+Muslims about Jesus so that they may be saved as well.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,662 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Crucifixion of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+We prepare to celebrate the death of our Lord Jesus which we call
+Good Friday. It may seem strange to celebrate the death of the God-man,
+but if Jesus had not died and shed his blood for us on that cross then he
+could never have risen from the grave to bring victory over death and we
+would still be dead in our sins. Jesus suffered terribly for you and me
+for nothing that he did, but because he loved us so much and wanted us to
+be reunited with him. Jesus was a sinless man who did not deserve death.
+(II Corinthians 5:21 For he hath made him to be sin for us, who knew no
+sin; that we might be made the righteousness of God in him.) We are going
+to look at the suffering that he bore for all mankind from his scourging
+to the actual crucifixion. Much of this comes from a physician Dr. David
+A. Ball who understands the anatomy and the effects of crucifixion on the
+body. Being crucified was one of the worst ways to die and was often saved
+for the worst criminals. The Romans used crucifixion as a way to keep the
+people in line and these were very public events oftentimes with people
+hanging on the cross for days suffering cruel deaths and for all to see
+and mock them. The crucifixion of Jesus was no different as he was
+crucified with two criminals, one on each side. (Matthew 27:38 Then were
+there two thieves crucified with him, one on the right hand, and another
+on the left.) Jesus would be mocked not only by the people, but even by
+the two thieves on the crosses next to him. (Matthew 27:39 ¶ And they that
+passed by reviled him, wagging their heads,) (Matthew 27:44 The thieves
+also, which were crucified with him, cast the same in his teeth.)
+Crucifixion was only for non-Roman citizens which is why Jesus as a Jew
+was crucified as was Peter, but Paul was beheaded since he was a Roman
+citizen.
 
-Username or email _____________________
+Jesus knew his whole life that his only purpose for being alive was
+to die a cruel undeserved death so that man could be saved. Most people
+never want to think about death, but Jesus knew that was his purpose here
+on earth. Before Jesus was crucified he had been praying to God the Father
+to take away his having to go to the cross and bearing the sins of the
+world. He was in so much mental anguish over what he knew he would have to
+bear on that cross that he sweat drops of blood. This is a very rare
+medical condition known as hematidrosis. (Luke 22:42-44 42 Saying, Father,
+if thou be willing, remove this cup from me: nevertheless not my will, but
+thine, be done. 
+43 And there appeared an angel unto him from heaven, strengthening him.
+44 And being in an agony he prayed more earnestly: and his sweat was as it
+were great drops of blood falling down to the ground.) His own disciples
+did not believe what he had told them and instead of praying themselves
+for Jesus, they slept and later would run away instead of supporting him.
+The suffering of Jesus started even before his arrest and then it was one
+of his own that led to his arrest in Judas Iscariot. Here would be more
+mental anguish. Being betrayed is bad enough, but to be betrayed by
+someone who is supposed to be your friend is very painful mentally. (Luke
+22:47-48 47 ¶ And while he yet spake, behold a multitude, and he that was
+called Judas, one of the twelve, went before them, and drew near unto
+Jesus to kiss him.
+48 But Jesus said unto
+him, Judas, betrayest thou the Son of man with a kiss?)    
 
-Reset password
+Jesus was arrested and bound for no crime he had committed. Jesus was
+falsely accused of a crime since the Jewish leaders wanted him dead. The
+Romans had taken away the Jews right to execute anyone, so the Jewish
+leaders had to get the Romans to execute Jesus. At these fake trials the
+Jews buffeted and smote Jesus with the palms of their hands. (Matthew
+26:67 Then did they spit in his face, and buffeted him; and others smote
+him with the palms of their hands,) (Luke 22:64 And when they had
+blindfolded him, they struck him on the face, and asked him, saying,
+Prophesy, who is it that smote thee?) Buffet means to punch a person with
+fists over and over in the face. Jesus was blindfolded so he could not
+even see the blows coming. Being blindfolded is more mental anguish as you
+cannot see what is going on and what they may be doing. No one likes being
+blind. Jesus was hit so many times in the face that it says his visage or
+the form of his face was so disfigured that he was not recognized. (Isaiah
+52:14 As many were astonied at thee; his visage was so marred more than
+any man, and his form more than the sons of men:) Besides the beatings,
+Jesus was spat upon. This was not only considered a great insult, but it
+is very frustrating to be spit on and the spit probably did not feel good
+in his open wounds. Being spit upon is mental anguish as was the mocking
+done by the Jews and later by the Romans and others. These beatings were
+illegal according to Jewish law. Following the fake trials, Jesus was
+found guilty by the Jewish leaders, but not by the Roman governor Pontius
+Pilate. Pilate wanted to free Jesus except to scourge him, but he was
+convinced by the people to crucify Jesus. Pilate did not want a riot to
+start, so he gave into the Jews. Pilate told the Roman soldiers to scourge
+Jesus before he was crucified. (Matthew 27:24-26 24 ¶ When Pilate saw that
+he could prevail nothing, but that rather a tumult was made, he took
+water, and washed his hands before the multitude, saying, I am innocent of
+the blood of this just person: see ye to it.
+25 Then answered all the people, and said, His blood be on us, and on our
+children.
+
+26 ¶ Then released he Barabbas unto them: and when he had scourged Jesus,
+he delivered him to be crucified.) This was not normal. Normally you were
+either scourged as your punishment or you were crucified, but Jesus
+endured both. Scourging just like crucifixion was not allowed on Roman
+citizens. (Acts 22:25 And as they bound him with thongs, Paul said unto
+the centurion that stood by, Is it lawful for you to scourge a man that is
+a Roman, and uncondemned?) Scourging consisted of taking a whip that had
+nine tails on it with a hook on the end similar to a fishhook. The tails
+were often cords and thin to hurt even more than a wide strip does. It
+always hurts more when hit with a thin strip than a wider one. The
+prisoner would have his shirt removed and would be strapped down on his
+stomach so he could not move and then would be whipped with great speed
+and ferocity. It was probably hard to breathe strapped down like that as
+well. When the whip hit the flesh then the soldier would pull back to
+bring the whip back to him so he could lash him again. When the whip hit
+the flesh then the hooks would imbed into the skin and when they were
+pulled back by the soldier then chunks of flesh would be torn out of the
+back. Muscles would have been torn and maybe even nerves. The Jews were
+allowed to whip a person forty times, but always stopped at thirty nine to
+make sure in case they miss counted to not exceed forty stripes.
+(Deuteronomy 25:3 Forty stripes he may give him, and not exceed: lest, if
+he should exceed, and beat him above these with many stripes, then thy
+brother should seem vile unto thee.) The Romans were not limited to this,
+but even 39 times of this would have torn the back of Jesus to shreds with
+skin hanging from him. The whip would often extend to the sides as well.
+The scourging of Jesus was predicted by Isaiah. (Isaiah 50:6 I gave my
+back to the smiters, and my cheeks to them that plucked off the hair: I
+hid not my face from shame and spitting.) (Isaiah 53:5 But he was wounded
+for our transgressions, he was bruised for our iniquities: the
+chastisement of our peace was upon him; and with his stripes we are
+healed.) The stripes mentioned refer to the stripes left on his back from
+the scourging. The bruising refers to that left by being punched and
+slapped in the face and probably even some bruising from the scourging and
+from the crown of thorns on his head. Jesus would have internal bruising
+from being scourged. Jesus also told his disciples when they were on their
+way to Jerusalem for his triumphant entry on Palm Sunday that he would be
+scourged there and mocked, spit upon, and killed so he knew what was going
+to happen to him even before getting there yet Jesus still went so he
+could die for you and me. Dying is bad enough, but Jesus suffered greatly
+before his death before even dying. (Mark 10:34 And they shall mock him,
+and shall scourge him, and shall spit upon him, and shall kill him: and
+the third day he shall rise again.) Many people never survived the brutal
+scourging.    
+
+Following the scourging of Jesus, he was then stripped of the rest of
+his clothes so he endured the embarrassment of being seen naked and he
+then was clothed with a purple robe to mock him as king. This robe was
+probably heavy and any clothing upon the open bleeding wounds on his back
+would make the wounds hurt even more. The blood dripping down his back
+into open wounds would also add to the pain. After placing the robe on
+Jesus he was crowned with a crown of thorns. If you have ever been pricked
+by a thorn then you know how painful that is. Can you imagine them all
+being placed upon the head and pushed down into his skin causing even more
+bleeding and pain. That alone had to be excruciating on top of the other
+things done to him. Then to top it off the Roman soldiers smote or hit him
+on the head with a reed which was a type of aquatic plant. (Mark 15:19 And
+they smote him on the head with a reed, and did spit upon him, and
+bowing their knees worshipped him.) Remember his face had already been
+beaten and punched by the Jews and now the Romans add to the disfiguring
+of his face by injuring his head. The pain must have been unbelievable for
+as they hit his head with the reed then the crown of thorns would dig
+deeper into his head making it bleed even more. Finally the Romans spit in
+the face of Jesus just as the Jews had. Jesus was forced to walk from one
+fake trial to the next for a total of six trials. He would have been up
+all night so he would have been sleepy and then he is forced to endure all
+of this punishment when he knew he was innocent. He would have been hungry
+and thirsty. Trying to walk with all of the flesh hanging from his back
+and the open wounds upon them must have been very painful. Every time he
+walked the wounds would spread open more. It was also cold out as Peter
+had tried to warm himself by the fire and the cold would just add to the
+suffering of Jesus as he was not dressed for warmth and the cold would try
+to shrink the open wounds. Sometime after the scourging of Jesus, his
+beard was pulled out of his face. Again this would be very painful. If you
+ever have a piece of hair pulled out it hurts, but to pull it out of the
+face as with a beard is much more painful. Your face has many nerve
+endings and beard hair is thicker and requires greater effort to pull out.
+His face was already marred beyond recognition by the beatings he took,
+was bleeding, and in great pain, and now they add to it by plucking the
+hairs of his beard off of his face as we saw in Isaiah 50:6. This would
+hurt enough by itself, but when Jesus' face was so damaged then it would
+be that much more painful. They probably were grabbing on it and pulling
+chunks out at a time and multiple people at the same time so he would be
+pulled in different directions putting even more strain on an already sore
+and damaged face.
+
+Following all of this Jesus was forced to once again walk to the
+crucifixion site. Jesus had already suffered the mental anguish of having
+been rejected by his own people for a murderer and robber in Barabbas and
+now was being led off to be crucified. (Mark 15:7 And there was one named
+Barabbas, which lay bound with them that had made insurrection with him,
+who had committed murder in the insurrection.) (John 18:40 Then cried they
+all again, saying, Not this man, but Barabbas. Now Barabbas was a robber.)
+These same people that rejected him were the same people he had created as
+God and had come to die for. The people chose a murderer and a robber over
+the Creator of the universe and their Messiah. While Jesus was being
+forced to walk to the crucifixion site then he was also forced to carry
+the cross he would be crucified on. This walk was uphill making it even
+harder. It is believed this was about a half mile in distance. That is a
+long way to carry such weight under such a condition as Jesus was in.
+(John 19:17 And he bearing his cross went forth into a place
+called the place of a skull, which is called in the Hebrew Golgotha:)
+Jesus was carrying the cross he would die on made from a tree that he had
+created. He would have had to place this on his back to try and carry it
+due to its size and weight. This would have weighed over a hundred pounds.
+The cross would have rubbed against his open bleeding sores along with the
+great pressure on those open wounds. This would have added much to his
+pain while at the same time having to try and walk and probably having a
+hard time seeing as well due to his face being so marred. The cross was
+often placed on a person's back and tied to outstretched arms. This would
+force you to walk hunched over. Scripture does not say, but it is very
+likely that as Jesus was walking he would have stumbled and maybe even
+fallen. It is believed this was cobblestone they were walking on, but even
+if just ground then it would be very hard and especially since his arms
+were tied to the cross then he could not put them out if he fell. This
+would cause him to fall smack on his face damaging it even more. With the
+weight on his back it would crash into him upon falling and this could
+easily cause bruising of the heart that alone could lead to death. He
+could even break or bruise ribs. Jesus was finally unable to carry his
+cross any longer due to his injuries and so Simon of Cyrene was forced to
+carry it. (Matthew 27:32 And as they came out, they found a man of Cyrene,
+Simon by name: him they compelled to bear his cross.) Most people if they
+had to endure what Jesus had to even before he was crucified would have
+long died before ever being crucified. This also shows the determination
+of Jesus to endure the pain and live so that he could be crucified as
+prophesied and could bear the sins of the world so that man might have
+everlasting life. Just as prophesy foretold of Jesus being scourged, it
+also foretold of the crucifixion of Jesus hundreds of years before it was
+even invented as a form of capital punishment. (Psalm 22:16 For dogs have
+compassed me: the assembly of the wicked have inclosed me: they pierced my
+hands and my feet.) Jesus also knew he would be crucified when he went
+into Jerusalem and told his disciples he would. (Matthew 20:17-19 17 ¶ And
+Jesus going up to Jerusalem took the twelve disciples apart in the way,
+and said unto them,
+18 Behold, we go up to Jerusalem; and the Son of man shall be betrayed
+unto the chief priests and unto the scribes, and they shall condemn him to
+death,
+19 And shall deliver him to the Gentiles to mock, and to scourge, and to
+crucify him: and the third day he shall rise again.) Most men would run
+away knowing they were going to die, but not Jesus. Jesus was a man's man.
+Jesus was willing to be crucified and become a curse for you and me. It
+was a curse for a Jew to be hanged on a tree, yet Jesus became that curse
+for you and me. (Deuteronomy 21:23 His body shall not remain all night
+upon the tree, but thou shalt in any wise bury him that day; (for he that
+is hanged is accursed of God;) that thy land be not defiled, which the
+LORD thy God giveth thee for an inheritance.) (Galatians 3:13 Christ hath
+redeemed us from the curse of the law, being made a curse for us: for it
+is written, Cursed is every one that hangeth on a tree:)
+
+Jesus was crucified at the third hour or 9 am and hung and suffered
+on that cross for six hours until 3 pm or the ninth hour. (Mark 15:25 And
+it was the third hour, and they crucified him.) While on that cross he was
+once again mocked. Jesus was placed on that cross naked since his clothes
+were taken and divided among four soldiers. (John 19:23 ¶ Then the
+soldiers, when they had crucified Jesus, took his garments, and made four
+parts, to every soldier a part; and also his coat: now the coat was
+without seam, woven from the top throughout.) We see even here how Jesus
+presented the gospel without the soldiers even knowing since four means
+gospel, but can also mean world of which Jesus died for in reference to
+the people of the world including those four Roman soldiers. They were
+crucified naked as part of the humiliation and shame that they would feel.
+Here was more mental anguish that Jesus would have endured as he the
+Creator of the world was flaunted naked before his creation including men,
+women, and children. When a person was crucified then they were nailed to
+the cross. (John 20:25 The other disciples therefore said unto him, We
+have seen the Lord. But he said unto them, Except I shall see in his hands
+the print of the nails, and put my finger into the print of the nails, and
+thrust my hand into his side, I will not believe.) We already read Psalm
+22:16 which showed how Jesus was pierced in his hands and his feet. In
+this case he was pierced with nails. The arms were outstretched with each
+hand being nailed and then one foot was placed on top of the other foot
+and nailed to the cross. Usually the foot was placed flat on the cross
+with the other one flat on top of it to expedite the death and make it
+harder to breathe. The nails in the hands were probably actually placed in
+the space of destot which is in the wrist. This space unlike the palm of
+the hand which is often portrayed in pictures allows the nail to hold up
+the person whereas if in the palm the nail would rip through the hand. The
+wrist at that time was considered part of the hand. Just above this space
+is the median nerve that goes to the thumb. The nail would have placed
+pressure on this nerve and would have sent tremendous constant pain
+shooting through the hand. Anyone with nerve pain can attest to the pain
+it causes including often a burning sensation. They did sometimes nail in
+the palms so it is possible that this was done with Jesus, but quite
+unlikely. Just having the nails driven into the hands and feet would be
+painful enough. These nails were more like spikes and not small nails. It
+is believed they were usually around seven to nine inches long and had a
+square end rather than a rounded end which would require a much greater
+force to enter the body. It is quite possible that Jesus could have had
+his shoulders separated while hanging on the cross and later his wrists as
+well from hanging. The way that the feet were nailed to the cross
+prevented the person from being able to hold themselves up except with the
+thigh muscles. These muscles will quickly tire even in an athlete, but
+Jesus had already gone through much torture so he was far from being fit.
+After the muscles tire a person is forced to relax which then puts added
+pressure on the hands and shoots even more pain through the median nerve.
+As Jesus was upon the cross for six hours then he would have had
+difficulty breathing. Normally a person who was crucified would die from
+suffocation as the lungs could not get air. As a person was on the cross
+they would have to try and lift themselves up so that the head was equal
+or above the arms, but this could only be done for a short period due to
+muscle fatigue. A person could inhale while slumped, but could not exhale.
+Eventually the person would not be able to breathe and would suffocate.
+Remember Jesus had his back ripped open from scourging and this moving up
+or down would cause great pain. Some did die from starvation, dehydration,
+or animals eating them if they placed them on the cross in a way to
+prolong their death. This was not done for Jesus. Because Jesus was
+probably having a hard time inhaling oxygen due to having to keep himself
+held up then his body would accommodate for this by burning only
+carbohydrates. This causes lactic acid to build up in the muscles which is
+painful. If you have every used your muscles for a long period of time
+doing strenuous work then you know what lactic acid is. The burning in
+them that you feel when extremely fatigued is due to lactic acid. This
+would have probably happened to Jesus. We know that Jesus did not die from
+suffocation since just before he died he was able to shout twice with a
+loud voice. (Matthew 27:46 And about the ninth hour Jesus cried with a
+loud voice, saying, Eli, Eli, lama sabachthani? that is to say, My God, my
+God, why hast thou forsaken me?) (Matthew 27:50 ¶ Jesus, when he had cried
+again with a loud voice, yielded up the ghost.) Jesus died just after
+shouting. He had also been able to talk seven recorded utterances while on
+the cross as he took care of his mom, gave eternal salvation to one of the
+thieves, and forgave those who crucified him. Even while suffering in
+great agony, Jesus still took the time to not only fulfill prophecy such
+as I thirst, but to forgive sinners and look after his mom. This shows his
+great love as he cared more about others than his own suffering. (Isaiah
+53:12 Therefore will I divide him a portion with the great, and he shall
+divide the spoil with the strong; because he hath poured out his soul unto
+death: and he was numbered with the transgressors; and he bare the sin of
+many, and made intercession for the transgressors.) Suffocation is a slow
+process. Not sudden death as seen with Jesus and they are never able to
+shout out. They are usually gasping too much for each breathe to even be
+able to talk or if they do it is often a soft whisper. Now while Jesus
+probably did suffer in his breathing, it was not suffocation that he died
+from. It was also not due to blood loss which causes hypovolemic shock. It
+is true that Jesus lost a lot of blood, but probably not enough to kill
+him. Dr. Ball believes that Jesus died from a broken or ruptured heart and
+he says scripture proves that. This would make a lot of sense
+theologically as Jesus bore the burden of the sins of everyone from Adam
+to the last person born for all time on that cross and the fact that he
+knew most would reject him should break anyone's heart who loves the lost
+and just like Jesus wishes that none should perish. As was stated it is
+very likely that Jesus would have fallen while carrying his cross and the
+fall would have bruised his heart. Today we can do surgery or if not as
+bad the person is given much bed rest, but Jesus had neither option so his
+heart would not heal. It is very likely a small hole was punctured in the
+heart of Jesus if he fell. This would cause blood to leak out with every
+heart beat and fill the pericardial sac with blood. The pericardial sac,
+or pericardium as it is also known as, surrounds the heart. As this sac
+filled with blood it would put pressure on it like filling up a balloon
+with water. When the pressure in the sac equals the pressure the heart can
+pump then the heart will stop. This is known as cardiac tamponade. This
+occurs quickly, but not so quick that the person does not know they are
+about to die. This would allow Jesus to have shouted loudly and then die
+right after from this broken or ruptured heart. As Dr. Ball said it is
+important to understand that Jesus really died or else he could not be our
+Saviour and we are still dead in our sins. Many claim Jesus faked his
+death, but God shows in scripture that not only did Jesus die, but he
+tells us how he died. Often times a person's legs were broken to speed up
+death since they could not lift themselves up and they would quickly
+suffocate. This was done to the two thieves, but Jesus had already died so
+they did not break his legs. To confirm that Jesus really died we see that
+after his death Jesus was pierced by a spear in his side that went through
+the pericardium and into the heart. This would guarantee death for anyone
+including Jesus. (John 19:34 But one of the soldiers with a spear pierced
+his side, and forthwith came there out blood and water.) The description
+of blood and water coming out forthwith or immediately after the
+pericardial sac was pierced by the spear confirms that Jesus died of a
+ruptured heart. If Jesus had died of another cause then no blood would
+come out since none would be pumped. This knowledge is used even today by
+detectives to determine if a dead person in a car crash died because of
+the crash or had a heart attack which caused the crash. If he died in the
+crash there is blood, but if he died of a heart attack then there is no
+blood. When a person dies of a ruptured heart then the blood that is in
+the pericardial sac separates into red blood cells and a clear serum. The
+clear serum mixes with the clear pericardial fluid. The red blood cells
+settle to the bottom of the sac and the clear fluid stays on top. When
+Jesus was pierced in his side then the pericardial sac was ruptured and
+first the blood would come out and then the clear fluid or water as
+described by John who was a witness to the event. God tells us how Jesus
+died as there is no other medical explanation for the blood and water
+coming out of Jesus' side. Jesus may have died of a broken or ruptured
+heart medically, but he gave his life for you and me. No one took his
+life, he gave his life. (Luke 23:46 ¶ And when Jesus had cried with a loud
+voice, he said, Father, into thy hands I commend my spirit: and having
+said thus, he gave up the ghost.) Jesus willingly gave his spirit into the
+hands of his Father who is God the Father. Jesus died at the precise
+moment that the passover lamb was crucified and Jesus was our passover
+lamb so we might live. (I Corinthians 5:7 Purge out therefore the old
+leaven, that ye may be a new lump, as ye are unleavened. For even Christ
+our passover is sacrificed for us:) Some say Jesus could not have willed
+himself to die at the exact moment he did as this would require the use of
+his deity. This may be true, but then God chose the time for him and let
+Jesus know when he was going to die so that Jesus could cry out with a
+loud voice "It is finished" as he did in John 19:30. John 10:18 seems to
+show that God the Father did give Jesus the ability to will his life to
+end without using his deity. (John 10:17-18 17 Therefore doth my Father
+love me, because I lay down my life, that I might take it again.
+18 No man taketh it from me, but I lay it down of myself. I have power to
+lay it down, and I have power to take it again. This commandment have I
+received of my Father.) This does not mean Jesus committed suicide; just
+that he had control over when he died. Even people that commit suicide do
+not have full control over the exact time of their death. Just remember
+the reality is that all of us crucified Jesus because of our sin. Do not
+blame the Jews as they could not have crucified Jesus without the help of
+the Romans and again Jesus went to that cross willingly to die so that all
+of us could be saved if we choose him as our Saviour. Jesus paid the
+penalty for sin for us when he took our place on that cross and suffered
+and died so that we would not have to. (I Peter 3:18 For Christ also hath
+once suffered for sins, the just for the unjust, that he might bring us to
+God, being put to death in the flesh, but quickened by the Spirit:) (I
+Peter 2:24 Who his own self bare our sins in his own body on the tree,
+that we, being dead to sins, should live unto righteousness: by whose
+stripes ye were healed.) We are healed from sin due to the stripes that
+Jesus bore for us from his scourging to his crucifixion. Jesus said that a
+man could not have any greater love than to lay down their life for their
+friend, yet Jesus laid his down for his enemies. (John 15:13 Greater love
+hath no man than this, that a man lay down his life for his friends.)
+
+
+Besides all of the physical and mental suffering by Jesus on the
+cross he also had to endure extreme thirst as he probably had not had
+anything to drink since the night before at the last supper. Jesus was
+offered vinegar with gall, but he refused even though he was extremely
+dehydrated. Gall was used as a way to numb pain and Jesus could not allow
+himself to not bear the full pain of sin while on the cross. As bad as all
+of the physical suffering was that Jesus endured and mental suffering from
+various means, the suffering from bearing the worlds sins was probably the
+greatest. Some people have a hard enough time bearing their own sins if
+they have been a violent person, but Jesus bore those sins, plus all the
+sins for everyone. This would be mine and yours all the way to the most
+wicked men and women who have ever lived such as Hitler, Jezebel, Stalin,
+and others. There is no way to even fathom what Jesus was bearing on that
+cross and the suffering he endured. To make matters worse, just when Jesus
+thought it could not get any worse than God the Father forsook Jesus as he
+could not look at sin even if it was his only begotten Son Jesus. We saw
+this in Matthew 27:46. This was predicted many years earlier. (Psalm 22:1
+My God, my God, why hast thou forsaken me? why art thou so far from
+helping me, and from the words of my roaring?) Jesus suffered one last
+time just before he died. I said he was very dehydrated and we know this
+because he cried out I thirst. (John 19:28 ¶ After this, Jesus knowing
+that all things were now accomplished, that the scripture might be
+fulfilled, saith, I thirst.) Jesus this time was offered vinegar without
+gall and so therefore took a sip to fulfill scripture and then died. (John
+19:30 When Jesus therefore had received the vinegar, he said, It is
+finished: and he bowed his head, and gave up the ghost.) Even this sip of
+vinegar would bring pain. First straight vinegar tastes terrible
+especially if you were extremely thirsty as Jesus was. The vinegar which
+is also a mild acid would burn and be very painful as it touched his dried
+chapped and cracked lips as well as probably sores inside his mouth from
+the beatings he had suffered earlier and probably even burned as it went
+down his throat. Jesus suffered in so many ways on his way to the cross as
+we have seen. Each one of them is bad, but to have to have bore all of
+these together is unfathomable. Many people could not have survived even
+one of these events suffered by Jesus, yet he continued to suffer for you
+and me. Realize that Jesus at any time while he was suffering the things
+that were mentioned even up until the time of his death then he as God
+could have stopped it all, but he chose not to so that we might have
+everlasting life. If you are not saved, please receive Jesus today as your
+Saviour so that his great suffering and death will not have been in vain.
+That should have been you and me suffering the way Jesus did, but he took
+our place for us so that we would not have to. Thank God for that. I have
+shown how Jesus suffered and went to the cross for you so please call upon
+Jesus today. Today even most Christians take the death of Jesus on the
+cross for granted and do not understand the true agony that Jesus suffered
+while on the cross and shortly before going to the cross. This is usually
+not preached in churches, but we need to understand the pain Jesus bore
+because of mine and your sins. It was not because of someone else, but
+because of ours. Jesus would have died on that cross for even just one
+sinner. Now that is love.       
+
+Thank God that the story does not end with the crucifixion and death
+of Jesus. If it did then we would still be dead in our sins. (I
+Corinthians 15:17 And if Christ be not raised, your faith is vain; ye are
+yet in your sins.) Jesus was buried after his death, but he arose from
+that grave on the third day to bring victory over death and our sins and
+today sits at the right hand of God the Father. We serve a risen Saviour
+and God unlike false religions. Praise be to God.                
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

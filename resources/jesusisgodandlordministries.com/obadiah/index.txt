@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,479 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Obadiah
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Obadiah is the 31^st book of the old testament and the Holy Bible and
+is located between Amos and Jonah. Obadiah is considered one of the twelve
+minor prophets. Obadiah is the shortest book in the old testament. Obadiah
+consists of only one chapter of twenty one verses. The number 21 means
+exceeding sinfulness of sin of which Edom had much sin. This book is about
+the coming destruction of Edom. The Edomites were descendants of Esau who
+was the twin brother of Jacob. Edom means red. (Genesis 25:30 And Esau
+said to Jacob, Feed me, I pray thee, with that same red pottage; for I am
+faint: therefore was his name called Edom.) (Genesis 36:1 Now these are
+the generations of Esau, who is Edom.) The Edomites had always been
+enemies of God and just as we saw how God destroyed the Assyrians in our
+study on Nahum, God promises to do the same to the Edomites. Just because
+the Edomites are related to the Israelites does not give them a free pass
+from God's wrath. God is no respecter of persons and no one is exempt from
+his wrath for persecuting his chosen people the Israelites. (Acts 10:34 ¶
+Then Peter opened his mouth, and said, Of a truth I perceive that God is
+no respecter of persons:) God said he hated Esau. (Malachi 1:2-3 2 I have
+loved you, saith the LORD. Yet ye say, Wherein hast thou loved us? Was not
+Esau Jacob's brother? saith the LORD: yet I loved Jacob,
+3 And I hated Esau, and laid his mountains and his heritage waste for the
+dragons of the wilderness.) We see in verse three how God laid Edom waste
+just as God predicted by his prophet Obadiah. (Romans 9:13 As it is
+written, Jacob have I loved, but Esau have I hated.) Judgment against Edom
+is mentioned probably more in the old testament than against any other
+nation. The nation of Edom is no longer around today and became just one
+of many nations that have come and gone over the years. Most of the land
+where Edom was located is now a part of Israel and Jordan. It is believed
+that Obadiah wrote this prophecy against Edom in 585 BC the year after
+Jerusalem was captured by the Babylonians. This would make Obadiah a
+prophet at the same time as Jeremiah. Just as God destroyed Edom an enemy
+of Israel, God will also one day destroy the enemies of Christians. Just
+as Jonah and Nahum dealt with a heathen nation rather than Israel or
+Judah, so does Obadiah. It seems that the Obadiah that wrote this book was
+one of possibly thirteen different Obadiah's mentioned in scripture. It
+seems the name Obadiah means a worshipper or servant of Jehovah.
 
-Username or email _____________________
+(Obadiah 1 The vision of Obadiah. Thus saith the Lord GOD concerning
+Edom; We have heard a rumour from the LORD, and an ambassador is sent
+among the heathen, Arise ye, and let us rise up against her in battle.) We
+see in this verse how God gave a vision to Obadiah. This vision was only
+for him. God sends a rumor to the heathen nations. The heathen nations
+hear this rumor and realize that God has sent an ambassador to speak of
+the coming destruction of Edom by these heathen nations. History seems to
+show that the Edomites were destroyed as a nation shortly after this
+prophecy was given by Obadiah by the Babylonians though she still survived
+until at least 125 BC and some say until they were defeated by the
+Muslims. This means multiple nations were involved in her final
+destruction just as God said.  
 
-Reset password
+(Obadiah 2 Behold, I have made thee small among the heathen: thou art
+greatly despised.) Edom was a fairly powerful nation at the time of the
+prophecy against her and a nation that thought she was able to withstand
+attack against her just as Tyre had thought, but God said he would make
+Edom small among the heathen as she would be no more. Edom was involved in
+much trade with other nations.
+
+(Obadiah 3 ¶ The pride of thine heart hath deceived thee, thou that
+dwellest in the clefts of the rock, whose habitation is high; that saith
+in his heart, Who shall bring me down to the ground?) It was Edom's pride
+that had deceived her as she thought she was invincible not only due to
+her physical location but also as a relative of the Israelites. She said
+who can bring me down. It is believed that her capital called Bozrah in
+scripture is the same place as the Greek name for it known as Petra. It is
+believed that at one time Petra was a part of Edom and if this is true
+this may be what is referred to here by God in the phrase "dwellest in the
+clefts of the rock, whose habitation is high". Petra was cut out of red
+rocks just like Edom's namesake of being red. There is only one narrow
+entrance into this city with the rock walls standing about 200 feet tall.
+This is why Edom thought she was invincible. It is believed by many
+theologians that Petra will be the place that the Israelites will escape
+to during the great tribulation and be supernaturally protected by God.  
+
+(Obadiah 4 Though thou exalt thyself as the eagle, and though thou
+set thy nest among the stars, thence will I bring thee down, saith the
+LORD.) Edom exalted herself just like an eagle and just like an eagle that
+has her nest high in the tops of trees, Edom had her capital surrounded by
+high rock walls, but God said that would not stop God from bringing her
+down. This passage also seems to be a subtle slam against Satan that he
+too will be brought down though he tried to exalt himself above the stars
+of God (angels) as he wanted to be God.
+
+(Obadiah 5 If thieves came to thee, if robbers by night, (how art
+thou cut off!) would they not have stolen till they had enough? if the
+grapegatherers came to thee, would they not leave some grapes?) This verse
+shows how Edom would one day be destroyed with nothing left to take as she
+would be "cut off". Normally thieves take the valuable things and leave
+the rest behind just as grapegatherers would leave the rotten grapes
+behind, but God will have the nations take everything that belongs to Edom
+leaving nothing behind. Today much of this former area is still desolate
+with not much there.
+
+(Obadiah 6 How are the things of Esau searched out! how are his
+hidden things sought up!) These thieves will search out all of what Edom
+has. Nothing will remain hidden from them. Edom as a nation involved in
+much trade, probably had many great treasures stored in Petra believing
+they were safe and well hidden from invaders, but God allows the invaders
+to capture even the hidden things. Nothing is hid from God and he then
+tells the invaders were to go.
+
+(Obadiah 7 All the men of thy confederacy have brought thee even to
+the border: the men that were at peace with thee have deceived thee, and
+prevailed against thee; they that eat thy bread have laid a wound under
+thee: there is none understanding in him.) The first part of the verse
+seems to speak of the allies of Edom that turn against her as they have
+deceived her as well as others that were at peace with her and traded with
+her. Jeremiah most like speaks of these confederate nations with Edom in
+the nations of Moab, Ammon, Tyre, and Zidon. (Jeremiah 27:3 And send them
+to the king of Edom, and to the king of Moab, and to the king of the
+Ammonites, and to the king of Tyrus, and to the king of Zidon, by the hand
+of the messengers which come to Jerusalem unto Zedekiah king of Judah;)
+These nations refused to help Edom in her time of need only worrying about
+themselves. Nations that have eaten of her food have hurt her as they
+refuse to come to her aid. The last phrase of the verse in not having any
+understanding seems to leave Edom wondering why no one will help her and
+what was she supposed to do as she had no one to turn to.
+
+(Obadiah 8 Shall I not in that day, saith the LORD, even destroy the
+wise men out of Edom, and understanding out of the mount of Esau?) Often
+it is the wise men that think they do not need God. God will destroy all
+of the wise men out of Edom. Without leaders and intellect the nation will
+be doomed. God applies this same principle to all of those who think they
+are so wise that they do not need God.
+
+(Obadiah 9 And thy mighty men, O Teman, shall be dismayed, to the end
+that every one of the mount of Esau may be cut off by slaughter.) Teman
+was a city about fifteen miles south of the capital Petra (Bozrah).
+Eliphaz who was one of Job's friends was a Temanite. God says he would
+destroy Teman as well just like he would destroy the capital of Bozrah.
+Many mighty men lived in Teman, but they would be destroyed by being
+slaughtered. Amos said God would send fire to destroy both Teman and
+Bozrah. (Amos 1:12 But I will send a fire upon Teman, which shall devour
+the palaces of Bozrah.) This will leave Teman desolate. (Jeremiah 49:20
+Therefore hear the counsel of the LORD, that he hath taken against Edom;
+and his purposes, that he hath purposed against the inhabitants of Teman:
+Surely the least of the flock shall draw them out: surely he shall make
+their habitations desolate with them.)
+
+(Obadiah 10 ¶ For thy violence against thy brother Jacob shame shall
+cover thee, and thou shalt be cut off for ever.) Because Esau the founder
+of Edom and his descendants had brought violence against Jacob and his
+descendants the Israelites then God would bring shame to the nation as the
+whole world will see of her destruction as she is cut off from the world
+forever. She suffered for a while until God cut her off from even being a
+nation anymore and today there are no Edomites.  
+
+(Obadiah 11 In the day that thou stoodest on the other side, in the
+day that the strangers carried away captive his forces, and foreigners
+entered into his gates, and cast lots upon Jerusalem, even thou wast as
+one of them.) This verse is speaking of the day that Babylon captured
+Jerusalem how many people of Judah tried to escape to neighboring Edom,
+but Edom helped the Babylonians capture them instead of helping a nation
+related to them. History says the Babylonians allowed the Edomites to take
+some of the spoils of Jerusalem for helping them. Who needs enemies when
+your family is against you? God includes the Edomites as foreigners and
+strangers even though they are related to the Israelites.
+
+(Obadiah 12 But thou shouldest not have looked on the day of thy
+brother in the day that he became a stranger; neither shouldest thou have
+rejoiced over the children of Judah in the day of their destruction;
+neither shouldest thou have spoken proudly in the day of distress.) God
+condemns the Edomites for having rejoiced at the destruction of Jerusalem
+and the nation of Judah as she was taken captive by the Babylonians. Edom
+spoke this with pride in acting like Edom was so much better than Judah as
+if this would never happen to them. God warns us against rejoicing when
+our enemy is destroyed. We should not rejoice that people go to hell. We
+see in this verse how Edom thought of Judah as a stranger. This goes back
+to Esau and Jacob as Jacob fled from Esau for twenty years.
+
+(Obadiah 13 Thou shouldest not have entered into the gate of my
+people in the day of their calamity; yea, thou shouldest not have looked
+on their affliction in the day of their calamity, nor have laid hands on
+their substance in the day of their calamity;) This verse again speaks of
+how Edom entered Jerusalem after her fall and how the Edomites
+participated with the Babylonians in the spoils of Jerusalem. It also
+shows again how Edom gloated over the destruction of Jerusalem and of
+Judah. God stresses this fact that they did this three times and lets you
+know it is Judah being spoken of here with the phrase "in the day of their
+calamity".
+
+(Obadiah 14 Neither shouldest thou have stood in the crossway, to cut
+off those of his that did escape; neither shouldest thou have delivered up
+those of his that did remain in the day of distress.) This verse speaks of
+what I previously said how Edom prevented those fleeing from Judah to
+escape to Edom, but rather turned them over to the Babylonians. God may
+have been punishing Judah, but that does not justify Edom also punishing
+the people of Judah. Vengeance belongs to God, not Edom and God did not
+need any help from Edom. We see in this verse how God will punish his
+chosen people, but how he also stills loves them enough that he will not
+tolerate anyone else trying to harm them above what he allows for their
+punishment.
+
+(Obadiah 15 For the day of the LORD is near upon all the heathen: as
+thou hast done, it shall be done unto thee: thy reward shall return upon
+thine own head.) God says the day of his coming judgment of the nations
+will be coming soon. This day will happen at the end of the great
+tribulation during the period of days just before the start of the
+millennium. (See Matthew 25:31-46) All of those nations who were the
+enemies of Israel will get their just reward from God and be destroyed
+permanently. God will bring upon them what they sowed upon Israel. God
+said we reap what we sow and Edom and the other heathen nations will soon
+reap for sowing hatred against Israel. Edom has a long history of being
+against Israel such as the time Edom refused to let Israel pass through
+their land when they were wondering in the wilderness. (Numbers 20:21 Thus
+Edom refused to give Israel passage through his border: wherefore Israel
+turned away from him.)   
+
+(Obadiah 16 For as ye have drunk upon my holy mountain, so shall all
+the heathen drink continually, yea, they shall drink, and they shall
+swallow down, and they shall be as though they had not been.) This verse
+may speak of how when the Edomites entered Jerusalem to partake of the
+spoils, she was not only drunk with glee at Judah's destruction, but was
+literally drunk with alcohol upon God's holy mountain. Jerusalem is God's
+holy city and sits upon a mountain. God says Edom and all of the heathen
+nations will drink of his coming wrath against the nations.
+
+(Obadiah 17 ¶ But upon mount Zion shall be deliverance, and there
+shall be holiness; and the house of Jacob shall possess their
+possessions.) This verse through the end of the book deals with the
+millennium. During the millennium Israel will finally have all of the land
+that God promised her. This land includes all of what at one time was the
+nation of Edom who would no longer exist just as she does not today. She
+may have gloated over Judah's capture, but this was only temporary as God
+sent Judah back to her land after 70 years yet Edom would one day
+disappear with Israel controlling her former land. I previously mentioned
+how parts of former Edom are already part of Israel. Holiness will one day
+come to the former land of Edom.
+
+(Obadiah 18 And the house of Jacob shall be a fire, and the house of
+Joseph a flame, and the house of Esau for stubble, and they shall kindle
+in them, and devour them; and there shall not be any remaining of the
+house of Esau; for the LORD hath spoken it.) This verse seems to speak of
+the one day unification of Israel and Judah again during the millennium
+and how Edom (the house of Esau) will not be around. The house of Jacob is
+Judah and the house of Joseph is Israel or Ephraim as it was sometimes
+referred to as. Ephraim was the youngest son of Joseph. Israel will act
+like a fire against the stubble of Edom. Just as stubble which is the left
+over cut stalks of grain sticking out of the ground will burn very easily
+and be consumed, Edom will also be consumed by the fire of a united
+Israel. God not only destroyed the nation of Edom, but all of her people
+so that today there are no Edomite people alive anywhere.
+
+(Obadiah 19 And they of the south shall possess the mount of Esau;
+and they of the plain the Philistines: and they shall possess the fields
+of Ephraim, and the fields of Samaria: and Benjamin shall possess Gilead.)
+This verse speaks of how Israel will control all of the land as promised
+to her during the millennium including of her former enemies of Edom and
+Philistia. She will also control the former land of Judah and Israel.
+Israel will control the mountains, fields, and the plains. They will
+control it all. Israel will be the most powerful nation during the
+millennium.
+
+(Obadiah 20 And the captivity of this host of the children of Israel
+shall possess that of the Canaanites, even unto Zarephath; and the
+captivity of Jerusalem, which is in Sepharad, shall possess the cities of
+the south.) Verse 20 continues by showing how the Israelites (children of
+Israel) that had been held captive (by Assyria) will one day control the
+land of her former enemy the Canaanites and how Judah (captivity of
+Jerusalem) will control the cities of the south. This verse shows how one
+day all Jews from all over the world wherever they were scattered will one
+day return to the Promised Land. This is partially happening now.
+
+(Obadiah 21 And saviours shall come up on mount Zion to judge the
+mount of Esau; and the kingdom shall be the LORD'S.) This verse ends with
+the prophecy that Jesus will return to reign during the millennium with
+his saints and that judgment has been made against Edom and how the
+millennial kingdom belongs to the LORD. He will rule with a rod of iron
+and no competition will be allowed against him. The phrase "the kingdom
+shall be the LORD's" also shows how the land of Edom will belong to God
+who has taken it from Edom and given the land to Israel. Mount Zion spoken
+of here refers to Jerusalem where Jesus will rule and reign from. The
+phrase "to judge the mount of Esau" refers again to the fact that God will
+not allow Edom as a nation into the millennial kingdom or any Edomites
+unless they were saved. God destroyed Edom just as he said he would by his
+prophet Obadiah and he will also destroy all the enemies of Israel one
+day. Let us pray for the United States that we will stay on the side of
+God and not become his enemy by our attacks on Israel.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

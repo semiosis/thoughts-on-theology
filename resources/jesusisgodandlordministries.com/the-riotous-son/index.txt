@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,503 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Riotous Son
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Most people who have any knowledge of the Holy Bible have heard the
+story about the riotous son found in Luke 15:11-32. Most people call him
+the prodigal son, but God calls him the riotous son. Prodigal means lavish
+and wasteful spending. Many people do not realize that this story is a
+perfect Father's Day story as the father here is a type of God the Father
+who loves all people and wishes that none should perish. (II Peter 3:9 The
+Lord is not slack concerning his promise, as some men count slackness; but
+is longsuffering to us-ward, not willing that any should perish, but that
+all should come to repentance.) God the Father will do what is necessary
+to bring his wayward and wandering children back to him, even if it means
+that they must be brought down low and almost to the bottom of the barrel
+in order to wake them up. God does not do these things to be mean, but
+rather out of love as he does not want anyone to spend eternity in the
+lake of fire.  
 
-Username or email _____________________
+Jesus gave this parable right after he told the parables about the 99
+sheep and one that wondered off followed by a woman who had ten pieces of
+silver and lost one. In both cases the shepherd and the woman do whatever
+it takes to find the lost sheep and the lost piece of silver, even leaving
+the 99 sheep that did not wander. They both rejoice at finding the lost
+sheep and lost piece of silver. Jesus said that in heaven there is joy in
+heaven more over one sinner that repents than over 99 persons who need no
+repentance. These two parables set the tone for this third parable about
+the riotous son. The whole point of this story is that God the Father
+rejoices over those who repent and get right with him. This pleases God
+more than those who need no repentance as the older son in this story as
+he is already pleasing God.
 
-Reset password
+(Luke 15:11-12 11 ¶ And he said, A certain man had two sons:
+12 And the younger of them said to his father, Father, give me the portion
+of goods that falleth to me. And he divided unto them his living.) The
+parable starts off with a certain man who had two sons. This man or father
+is a type or reference of God the Father. The two sons in this parable are
+both representative of Christians with the older son being faithful to God
+the Father and the younger son as a rebellious wandering backslidden milk
+Christian. They both have to be saved or they would not be sons of God as
+the unsaved are not God's children. We only become a child of God when we
+are saved. (Galatians 3:26 For ye are all the children of God by faith in
+Christ Jesus.) A person can become very backslidden as this younger son
+became, but they do not lose their salvation, but always remain saved.
+Their way of living may not please God, but they will remain saved. In
+verse 12 we see that the younger son says to the father to give him his
+portion of goods. This is not like how Jesus said that we were to pray to
+God the Father and ask for our daily bread that we need to survive. This
+son was demanding that he get his inheritance which is really a gift. An
+inheritance is given to the children after the death of the father, yet
+this son demanded it now. This son was basically saying he wished his
+father was dead or at least he had no use for him and did not need him. He
+figured as long as he had goods from the father then he could survive on
+his own. He wanted the gifts from the father, but not the father in his
+life. This is what happens to Christians who have backslidden and
+especially as bad as this son as they feel that God owes them because they
+are his son, yet they do not want God the Father in their lives and always
+telling them how to live their lives. They want to stay living in sin and
+do not want God the Father interfering. The end of the verse shows that
+the father granted his sons wish and divided the inheritance between the
+two sons. God will let you wander from him and live in sin for a while,
+but there will be consequences for that rebellion and the riotous son was
+about to find out.   
+
+(Luke 15:13 And not many days after the younger son gathered all
+together, and took his journey into a far country, and there wasted his
+substance with riotous living.) Not long after the younger son was given
+his portion of the inheritance then he gathered his goods together and
+journeyed to a far country. The son was trying to get as far from his
+father as he could so the father would not see how he was living.
+Backsliding Christians do the same as they try to get as far from God as
+they can, not realizing that God is everywhere and you cannot escape from
+him. The only reason any Christian would want to is if they are living a
+life of sin. This younger son soon wasted his substance on riotous living.
+This is why I call him the riotous son as he was being more than
+extravagant and lavish as prodigal means, he was being riotous in the way
+he lived including his rebellion against his father. A person can be
+lavish in buying many homes, a boat, an airplane, and fancy cars, but here
+the son was spending the money on sinful things such as harlots. Notice
+that the older son who represents a son or Christian that is walking with
+God continued to stay with his father even though he was also given his
+share of the inheritance early. Obedient Christians will always remain
+close to God as it is only God who can keep you walking righteously and
+can keep you safe.
+
+(Luke 15:14 And when he had spent all, there arose a mighty famine in
+that land; and he began to be in want.) Not long after he had spent all of
+his money, then there came a famine in the land and he was lacking or in
+want of what he needed to survive. There is always a famine in lands that
+reject God, both physical famine and famine of his word. God will always
+bring famine into the lives of his wandering children so that he can make
+them realize that they can only survive because of him as only God
+supplies our needs. All that a Christian has comes from God and none
+because of ourselves. (Philippians 4:19 But my God shall supply all your
+need according to his riches in glory by Christ Jesus.)
+
+(Luke 15:15 And he went and joined himself to a citizen of that
+country; and he sent him into his fields to feed swine.) The riotous son
+was desperate for food and so he went to work for a man in his fields to
+feed swine. For a Jewish man this was about as low as you could get as
+swine were an unclean animal and a Jew was not to eat their flesh or even
+touch a dead swine. Most likely this is what he would have to do as some
+may have died in the fields. (Deuteronomy 14:8 And the swine, because it
+divideth the hoof, yet cheweth not the cud, it is unclean unto you: ye
+shall not eat of their flesh, nor touch their dead carcase.)
+
+(Luke 15:16 And he would fain have filled his belly with the husks
+that the swine did eat: and no man gave unto him.) The son was so hungry
+that he would have fain filled his belly with the husks that the swine
+ate. The word fain means gladly or with joy. The husks were the dry outer
+covering that is discarded and not eaten by man, just the swine, yet he
+was so hungry he would gladly have eaten even that. The end of the verse
+says no man gave unto him. He was not given any food to eat, yet the swine
+were fed. Here was a rich man who squandered his wealth on riotous living
+and now the swine were fed better than him who had no feed. This is what
+happens when Christians try to do things on their own and do not want God
+in their lives. We also see how his "friends" he probably had while he was
+rich have long forgotten him since his money ran out. Even they will not
+give him any food. Scripture says everyone loves rich people and he would
+have been no different as he probably foolishly spent great wealth on them
+trying to impress them, but when the money is gone so are your "friends".
+(Proverbs 14:20 The poor is hated even of his own neighbour: but the rich
+hath many friends.)
+
+(Luke 15:17 And when he came to himself, he said, How many hired
+servants of my father's have bread enough and to spare, and I perish with
+hunger!) The riotous son finally realizes what a fool he has been as he
+realizes that his father has many hired servants who have plenty of food
+to eat and some to spare and yet he was dying of hunger. The son has ended
+his backsliding and is starting to repent of his sins. God took him to a
+very low point in life in order to get him to repent. He brought the son
+close to death in order to do so, but because he was his son never gave up
+on him.
+
+(Luke 15:18 I will arise and go to my father, and will say unto him,
+Father, I have sinned against heaven, and before thee,) The son has come
+to repentance and says that he will go back to his father and tell him
+that he has sinned against heaven and his father. The son realizes that he
+has sinned against God. That is the sign of true repentance and then as
+this son he wants to do something about it. God says if we confess our
+sins before him then he will forgive them and this son realized his father
+would as well. (I John 1:9 If we confess our sins, he is faithful and just
+to forgive us our sins, and to cleanse us from all unrighteousness.)
+
+(Luke 15:19 And am no more worthy to be called thy son: make me as
+one of thy hired servants.) The son continues to show true repentance as
+he feels he is not even worthy to be called a son of his father due to his
+sins. He says he will tell his father to make him one of his hired
+servants instead. The psalmist realized that it was better to be a servant
+of God than to be in rebellion and sin as this son had been. (Psalm 84:10
+For a day in thy courts is better than a thousand. I had rather be a
+doorkeeper in the house of my God, than to dwell in the tents of
+wickedness.)     
+
+(Luke 15:20 And he arose, and came to his father. But when he was yet
+a great way off, his father saw him, and had compassion, and ran, and fell
+on his neck, and kissed him.) The son left his wondering and the sin of
+the far country and came back home to his father. When he was still a
+great distance away, his father saw him and had compassion and ran to him
+and fell on his neck and kissed him. The fact that the father saw him
+shows that the father was always looking for his son, just as God the
+Father is always watching his children just waiting for the rebellious
+ones to return. The father had compassion on him. God the Father always
+has compassion on his children, especially for those who were lost and
+have repented and returned to him. The father ran to him. The father ran
+to him and did not even wait for his son to get there. The father here as
+a type of God the Father shows God running to retrieve one of his lost
+children who has repented and is returning back to him. This is the only
+place in scripture where we see God running and when he does it is for a
+repentant soul. God loves us so much that he wants to bring us home. When
+the father reaches his son, he falls on his neck and kisses him. The son
+would have been filthy with no shower in a long time and remember he just
+came from the fields feeding swine an unclean animal, yet the father only
+cares that his son has repented and returned home. God the Father also is
+the same as he will clean us up and wants us to come to us with our filth
+and let him do the cleaning.
+
+(Luke 15:21 And the son said unto him, Father, I have sinned against
+heaven, and in thy sight, and am no more worthy to be called thy son.) The
+son tells his father that he has sinned against heaven and him and that he
+was no longer worthy to be called his son. The son is admitting his sins
+to God the Father here showing true repentance. He realizes that he is not
+even worthy to still be called his son.
+
+(Luke 15:22 But the father said to his servants, Bring forth the best
+robe, and put it on him; and put a ring on his hand, and shoes on his
+feet:) The son never has a chance to tell his father that he wants to be
+one of his hired servants as the father tells his servants to bring forth
+the best robe and put it on him and put a ring on his hand and shoes on
+his feet. The father does not even have his son get cleaned up first
+before clothing him with his best robe and shoes. The father knows he can
+always buy new clothes, but his son returning is far more important than
+these material items. This is a sign of not only God the Father clothing
+his children and providing for them and in essence covering up their filth
+and sin, but also how God the Father has unlimited wealth and can easily
+replace these items later. The fact that the father placed a ring on his
+son shows that the father's wealth was once again the sons. The shoes show
+that the father thought he was still worthy to be called his son and
+normally servants did not wear shoes, but the son of a wealthy father
+would.
+
+(Luke 15:23 And bring hither the fatted calf, and kill it; and let us
+eat, and be merry:) The father says to bring a fatted calf, kill it, and
+let them eat and for all to be happy. The father would have brought his
+best. God only always gives us his best.
+
+(Luke 15:24 For this my son was dead, and is alive again; he was
+lost, and is found. And they began to be merry.) The father says his son
+was dead, but is alive again. The son was lost, but is found. The son had
+repented and so was once again alive and has returned to the father. He is
+no longer lost. They all began to be merry as they rejoiced at the return
+of the son. You can only be merry when walking with God. This is the same
+as the first two parables I mentioned in this chapter as heaven rejoices
+over just one lost sinner who repents and is found. This parable consists
+of 22 verses with 22 meaning light. It is God alone who brings us true
+light and the son has finally realized this. This parable is found in
+chapter 15 and 15 means rest. An unrepentant Christian will only have rest
+when they repent and return to God the Father who gives us our rest.   
+
+(Luke 15:25 Now his elder son was in the field: and as he came and
+drew nigh to the house, he heard musick and dancing.) The elder son was in
+the field and came to the house and heard musick and dancing.
+
+(Luke 15:26 And he called one of the servants, and asked what these
+things meant.) He asked one of the servants what these things meant with
+all of the musick and dancing. Notice that this father has many servants.
+Only the rich have servants. God the Father also has many servants as
+Christians that are walking with him will willingly serve God the Father
+and God owns all.
+
+(Luke 15:27 And he said unto him, Thy brother is come; and thy father
+hath killed the fatted calf, because he hath received him safe and sound.)
+The servant tells the elder son that the music and dancing is because his
+brother has come home and is safe and sound and so his father had killed a
+fatted calf for him.
+
+(Luke 15:28 And he was angry, and would not go in: therefore came his
+father out, and intreated him.) The elder son was angry and would not go
+in to enjoy the festivities. The son was jealous and sin was showing here.
+As Christians we should never be jealous of another Christian, but should
+always rejoice when a brother in Christ repents of their sins and returns
+to walking with the Lord. Since the son would not go in then the father
+came out to him and intreated or asked urgently what was the son's
+problem. God always is urgent in asking us to tell us what is wrong. He
+wants to know what he can do to make it better just like this father with
+his son.
+
+(Luke 15:29 And he answering said to his father, Lo, these many years
+do I serve thee, neither transgressed I at any time thy commandment: and
+yet thou never gavest me a kid, that I might make merry with my friends:)
+The son tells his father that he had served him all these years and had
+never sinned and obeyed his commandments and yet his father had never
+given him a kid so that he could be merry with his friends. Here the son
+is sinning by being jealous of his brother.
+
+(Luke 15:30 But as soon as this thy son was come, which hath devoured
+thy living with harlots, thou hast killed for him the fatted calf.) The
+son continues to tell the father that he had never given him a kid, yet
+his brother who had spent all of his money on harlots returns and he kills
+a fatted calf for him. The elder son was saying I never even got a kid
+which is a baby goat, yet his brother who lived a life of sin got a fatted
+calf which is worth much more.
+
+(Luke 15:31 And he said unto him, Son, thou art ever with me, and all
+that I have is thine.) The father told his son that he was forever with
+him and all that he had was his sons as well. God the Father also shares
+his riches with us. This verse shows that those of us who are saved will
+forever be with God the Father.
+
+(Luke 15:32 It was meet that we should make merry, and be glad: for
+this thy brother was dead, and is alive again; and was lost, and is
+found.) The father says that it was meet or worthy to make merry and be
+glad because his brother had been dead, but was alive again and had been
+lost, but was now found. The father was saying that the riotous son had
+been dead to them as he chose to abandon the father and live a life of
+sin, but now he had repented and so was alive again and was found as he
+returned home to his father. We are all lost and dead without God the
+Father in our lives. The father was trying to teach the elder son to learn
+that we all must rejoice when a Christian repents and turns back to God
+the Father in righteousness. Those who are already walking with God must
+never feel neglected by God the Father because he is focused on a
+wandering son.
+
+For those who are saved this Father's Day then rejoice that you are
+and let us pray for those brothers and sisters in Christ that are
+wandering and rejoice when they return. This parable by Jesus clearly
+shows how God the Father loves all of his children and no matter how much
+we may wander from him, he will never give up on us, stop looking for us,
+or be thankful when we return to us. For those wandering Christians, today
+is the day to repent and return to God the Father. He will receive you
+with open arms and has the best he has to offer waiting for you with him
+in heaven. Let us thank God that we have a loving father like God the
+Father that we can call Father and he will take us back no matter what we
+have done. God never disowns his children. He will discipline them, but he
+will never forsake them. Remember this and call upon the Father in
+repentance now. For those Christians who are walking with God, continue to
+walk with God and stay on the path of righteousness. Do not become like
+the riotous son and rebel. If you do, then become like the repentant son.
+For those who are not saved, please repent and admit you are a sinner and
+need the Son Jesus Christ as your Saviour and that he died for you, was
+buried, and rose again on that third day. Call upon Jesus today as your
+Saviour so that God the Father will be your Father too. There is no better
+Father's Day gift that a son can give their father today than to be saved.
+
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

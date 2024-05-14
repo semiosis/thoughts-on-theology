@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,406 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Widow Woman and the Oil  
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Today is Mother's day and I want to look at one woman in scripture
+who trusted in the Lord and was faithful. The story of this woman can be
+found in II Kings 4:1-7. This woman was a widow who had been married to a
+son of the prophets. When a woman became a widow in biblical days, then
+this became a real hardship. Unlike today when widows can get assistance
+from the government or other sources, this was not the case for this
+woman. Women in those days did not work, but stayed at home and raised the
+children. They had no skills and would not have been as educated as the
+men so that if the husband died then they had no means of income. There
+were no life insurance benefits, social security, or other government
+aids. God did require the people to leave some of the crops and oil for
+widows and the fatherless. (Deuteronomy 24:19-21 19 ¶ When thou cuttest
+down thine harvest in thy field, and hast forgot a sheaf in the field,
+thou shalt not go again to fetch it: it shall be for the stranger, for the
+fatherless, and for the widow: that the LORD thy God may bless thee in all
+the work of thine hands.
+20 When thou beatest thine olive tree, thou shalt not go over the boughs
+again: it shall be for the stranger, for the fatherless, and for the
+widow.
+21 When thou gatherest the grapes of thy vineyard, thou shalt not
+glean it afterward: it shall be for the stranger, for the fatherless, and
+for the widow.) This would help with some food, but not with money.
+(Deuteronomy 26:12 ¶ When thou hast made an end of tithing all the tithes
+of thine increase the third year, which is the year of tithing, and hast
+given it unto the Levite, the stranger, the fatherless, and the widow,
+that they may eat within thy gates, and be filled;) Widows were often in
+the same category as the fatherless in scripture since they both were in
+the same boat and often times the widow had to now raise the children
+without a dad. Widows in those days were expected to be supported by their
+relatives, but many relatives refused their duty to take care of widows
+and maybe even more at this time since so many of the people had turned
+from God and did not obey his commandments. God reminded of this in the
+New Testament as well and told the church to help take care of them. (I
+Timothy 5:4 But if any widow have children or nephews, let them learn
+first to shew piety at home, and to requite their parents: for that is
+good and acceptable before God.) This widow lived in Israel which had
+become a very idolatrous nation as most of the people had turned from the
+true God Jehovah to the false god Baal. We are not even told the name of
+the widow in this story as women were often times not seen as important,
+but God knows her name and she was important to him and he provided for
+her because she trusted in him. God also may have not given a name as he
+wants us to remember his glory that was done and not give any to the
+woman.    
 
-Username or email _____________________
+Let us look at this widow woman. (II Kings 4:1-7 1 Now there cried a
+certain woman of the wives of the sons of the prophets unto Elisha,
+saying, Thy servant my husband is dead; and thou knowest that thy servant
+did fear the LORD: and the creditor is come to take unto him my two sons
+to be bondmen.
+2 And Elisha said unto her, What shall I do for thee? tell me, what hast
+thou in the house? And she said, Thine handmaid hath not any thing in the
+house, save a pot of oil.
+3 Then he said, Go, borrow thee vessels abroad of all thy
+neighbours, even empty vessels; borrow not a few.
+4 And when thou art come in, thou shalt shut the door upon thee and upon
+thy sons, and shalt pour out into all those vessels, and thou shalt set
+aside that which is full.
+5 So she went from him, and shut the door upon her and upon her sons, who
+brought the vessels to her; and she poured out.
+6 And it came to pass, when the vessels were full, that she said unto her
+son, Bring me yet a vessel. And he said unto her, There is not a vessel
+more. And the oil stayed.
+7 Then she came and told the man of God. And he said, Go, sell the oil,
+and pay thy debt, and live thou and thy children of the rest.)
 
-Reset password
+We see in verse 1 how this widow woman cried out to Elisha the
+prophet. Remember she had been married to a son of the prophets and the
+verse ending seems to imply that Elisha had known her husband. The widow
+cries out to Elisha and says you know that my husband or servant had
+feared the LORD and yet the creditors have come to take my two sons as
+bondmen or slaves. We are not told how old her sons were, but no mom wants
+her sons to become slaves because of debt owed by their parents and
+especially because it was most likely incurred because the husband died
+and no income was coming in, yet the bills did not stop. This widow's
+husband was one of the few in Israel that did fear the LORD as most had
+cursed him and turned to Baal. This widow could not just declare
+bankruptcy like so many do today. God expects people to pay their debts
+and that includes his servants such as this widow's husband had been. Just
+because someone has served the Lord faithfully, does not exempt them from
+paying their debts. (Psalm 37:21 The wicked borroweth, and payeth not
+again: but the righteous sheweth mercy, and giveth.) In those days if a
+widow could not pay her debts then the sons were taken and used as slave
+labor to repay the debt. They would remain slaves until the debt was
+repaid. This widow knew that Elisha was a man of God and that God would
+hear his prayer and answer it.  
+
+In verse 2 we see Elisha asks the widow what it was that she expected
+him to do. He then asks her what she had in the house. This was most
+likely done to see what she had that could be sold. The widow said that
+all she had was a pot of oil. This was most likely olive oil which was
+used for cooking and other purposes such as lighting lamps. Elisha wanted
+to see what she had first before calling on God. Often times we have the
+things we need already in our house that God has previously given us and
+yet we overlook them expecting God to do some miracle or bail us out. God
+would do a miracle for this widow, but he used what was already in her
+house.
+
+In verse 3 we see Elisha then tells her to go to her neighbors and
+borrow as many empty vessels as she can and do not be lazy and only grab a
+few. She was to get as many from the neighbors as they would let her
+borrow. This widow did as she was asked. She fully trusted in God and what
+God would have Elisha do. She did not question him or say what good will
+that do me. This is unlike Naaman, whose story is found in II Kings 5, who
+would later come to Elisha to be cleansed of leprosy and was ready to
+ignore the words of Elisha after he was told to go and dip in the Jordan
+River seven times when he wanted him to do something more. He thought that
+was too simple. He finally was convinced by his servants to obey and was
+healed, but he questioned the tactics of Elisha at first. The widow woman
+never did. She did not expect some great miracle or something more than
+getting empty vessels. The widow gathered as many empty vessels as she
+could. This would be important as we will soon see.
+
+In verse 4 we see Elisha commands the widow to bring all of the empty
+vessels that she had borrowed and to bring them into her house and then to
+shut the door. She was then to empty the pot of oil into a vessel and when
+it was full to then set it aside. She was to keep doing this until all of
+the pots were full. Here again the widow trusted in God enough to know
+that he would use his prophet Elisha to perform his miracle. She never
+said how ridiculous is that knowing that there was not enough oil in the
+pot to fill all of the vessels. She just did what she was told to do. Let
+this be a lesson to all of us that when God speaks through a man then let
+us listen to what he says and then do it without questioning. We need to
+have enough faith to believe and trust in God. It would have been
+pointless for this widow woman to have cried out to Elisha for help and
+then to ignore what he told her to do, yet many people do just that as
+they cry out to God and then ignore what he tells them in scripture or
+from another godly person.
+
+Verse 5 shows the woman obeying Elisha by having brought the vessels
+into her house and shutting the door. She then has her sons bring her the
+vessels as she pours the oil into them and then they set aside the full
+ones.
+
+In verse 6 we see the woman asks one of her sons to bring her yet
+another vessel to be filled and placed along the many other full vessels.
+The son tells her that there are no more vessels to fill. Since there were
+no more vessels to fill then the oil stayed or stopped. Notice though that
+the oil never ran out. If they had had more vessels to fill then the oil
+would have continued to fill them up as well. This miracle is like when
+Jesus fed the five thousand with five loaves of bread and two fishes and
+yet he ended up with more than he started with even after all of those men
+ate.
+
+In verse 7 we see the woman came to Elisha after she had finished
+filling all of the vessels with oil and told him how she had done as he
+had commanded. It is important to always go back to God or in this case
+she went to Elisha who was being used by God. Elisha then told her to go
+and sell the oil and use the money to pay off her debts so that her sons
+would not be taken as bondmen and then the woman was to use the rest of
+the money for her and her children to live off of. This is probably why
+Elisha told the woman to shut the door so that no one could see all of the
+oil she had and try and steal it from her. Even this simple act of
+obedience in fully doing what she was told to do was significant so that
+she would have the oil to sell. God also may have done this as he often
+does his miracles behind the scenes as they are not for the heathen as
+most Israelites were, but only for those like this woman who trusted in
+him. God never forgot this widow woman who trusted in him. He provided for
+her when no one else did and cared for her when all hope seemed gone. That
+is when God does his best work, but he does require us to trust in him and
+place our faith in him. We saw how God used what was already in her house.
+She did not have to get oil from somewhere else along with vessels and
+then have God multiply the oil. She already had the oil. The same applies
+to each of us who places our trust in God as God has already supplied us
+with something that he can use for his honor and glory. We just need to
+trust him and let him do his work with what he has already given us. The
+problem is most do not trust God enough to do as he says he would. If this
+woman had refused to obey Elisha then she would have lost her sons as
+bondmen and most likely would have died herself from starvation. The same
+also applies to if she had not obeyed Elisha by borrowing as many vessels
+as she could. So many people want to just do as little as they can. One
+example is seen when the Israelite king Joash came to Elisha just before
+Elisha died and asked for his help in defeating the Syrians. Elisha told
+him to strike arrows upon the ground as these arrows represented
+deliverance by God from Syria. The king only struck the ground three times
+and then stopped. He should have kept striking the ground until Elisha
+told him to stop. Elisha scolded him for stopping and said he would defeat
+Syria three times, but that if he had struck the ground five or six times
+instead of stopping then he could have consumed Syria. This king should
+have wanted to completely defeat Syria, but he was too lazy to strike the
+arrows more than three times even when he was told it represented God's
+deliverance. This man never truly trusted that God could deliver Israel or
+he would have done more. Fortunately this widow woman was not like this
+heathen king. The story of the king and Elisha can be found in II Kings
+13:14-19. This should be a lesson for us not to stop what God tells us to
+do until he tells us to stop. If she had not borrowed enough vessels then
+she would not have been able to pay off her debt and still have enough
+money to live on. Notice that because of her obedience then God not only
+took care of her immediate need in paying off her debt and keeping her
+sons from becoming bondmen, but he also provided for her long term needs
+by making sure she had money for the rest of her life to live on and to
+also provide for her children. God is not skimpy with those who fully
+trust in him. God provides for all time, unlike people who only usually
+are concerned about immediate needs.  
+
+God used this widow woman who placed her faith and trust in him to
+perform a miracle. This woman was wise enough to know to cry out to Elisha
+who was a man of God and not go to one of the prophets of Baal as she knew
+they could not help her nor would they even care about her. May more moms
+be like this woman who loved her sons enough that she was willing to call
+out to a man of God for help and more importantly was willing to listen
+and do what he told her to do. If you are not saved then what better give
+can you give your mom on this Mother's Day than to admit that you are a
+sinner in need of a Saviour and call upon Jesus to save you.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

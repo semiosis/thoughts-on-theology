@@ -1,2 +1,4 @@
+Refresh: animals-teaching-man/index.html
+
 Click here...
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,421 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The True Creationism of the Scriptures versus False Theories
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Many people including many pastors and theologians deny the true
+creationism by God as mentioned in Genesis. Many deny the power of God or
+minimize his involvement in creationism. Many eliminate God altogether and
+push the false evolutionism created by Satan to deceive people. There are
+two main theories believed in by professing Christians that we will look
+at along with a few others briefly. Some deny that the time period
+mentioned in Genesis is literal 24 hour days. All promote an old earth
+which goes against the young earth as taught in scripture and proven by
+true science. By allowing long ages for the earth and death prior to man,
+this negates the gospel. If sin did not get passed along to man by Adam
+and all mankind is born with a sin nature, then we have no need of a
+Saviour and the death of Jesus on the cross was for nought. Note that not
+everyone who believes in any of these false theories believes the exact
+same thing.
 
-Username or email _____________________
+The first is the Gap theory also known as the ruin-restoration
+theory. This theory was first popularized by Thomas Chalmers in 1814. He
+claimed it was first proposed by Simon Episcopius, an Arminian theologian
+in the 17^th century. Arminian theology is wrong just as Calvinism is as
+well. Thomas Chalmers was a Scottish minister. This is his words
+describing it, "My own opinion, as published in 1814, is that it forms no
+part of the first day but refers to a period of indefinite antiquity when
+God created the worlds out of nothing. The commencement of the first day's
+work I hold to be the moving of God's Spirit upon the face of the waters.
+We can allow geology the amplest time ... without infringing even on the
+literalities of the Mosaic record." ^ He clearly shows he believes in an
+old earth and has no problem compromising scripture. The Gap theory really
+took off for a while when it was pushed by Cyrus I. Scofield  in his
+Scofield Reference Bible published in 1917. The Gap theory said that there
+were two creations. The first was far in time past and then there was a
+gap of a long indeterminate time between Genesis 1:1 and Genesis 1:2. Then
+they say God recreated or restored the ruined earth and then created
+everything in six literal 24 hour days. They say scripture says the earth
+was without form and void and thus had to have been destroyed. This is
+taken out of context as the original Hebrew as understood by the Jews was
+this just means it was not finished. Not all who believe in the Gap theory
+believe everything exactly alike. They say that when Lucifer and one third
+of the angels that rebelled with him against God, then they were thrown
+out of heaven to the earth and this is where Satan and his angels lived
+and they controlled it. Some say he ruled with a throne here before his
+fall. Views vary. Some even say there was a pre-Adamic race. This is
+unscriptural and again promotes evolutionary belief that man was a cave
+man and evolved into modern man.
 
-Reset password
+The Gap theory believed by many allows for the long ages of science
+and evolution. True science has shown that the earth is young. The
+scientists of the Institute of Creation Research (ICR) have done great
+work on this. The book The Genesis Flood by John C. Whitcomb and Henry
+Morris is a great work on this showing how the flood was responsible for
+the many things we see such as the Grand Canyon. It also explains the Ice
+Age of which there was only one, not many as secular scientists believe.
+Dr. Kent Hovind's great Creation Seminar Series also proves a young earth.
+This theory also puts doubts into scripture about dinosaurs. They are
+mentioned in scripture as dragons and one is behemoth, which was the
+largest sauropod to ever live as well as the largest land animal to ever
+live. False bibles try to deny dinosaurs were with man and say behemoth
+was a hippopotamus. The description is clearly something much larger. (Job
+40:15-24 15 ¶ Behold now behemoth, which I made with thee; he eateth grass
+as an ox.
+16 Lo now, his strength is in his loins, and his force is in the navel of
+his belly.
+17 He moveth his tail like a cedar: the sinews of his stones are wrapped
+together.
+18 His bones are as strong pieces of brass; his bones are like bars of
+iron.
+19 He is the chief of the ways of God: he that made him can make his sword
+to approach unto him.
+20 Surely the mountains bring him forth food, where all the beasts of the
+field play.
+21 He lieth under the shady trees, in the covert of the reed, and fens.
+22 The shady trees cover him with their shadow; the willows of the brook
+compass him about.
+23 Behold, he drinketh up a river, and hasteth not: he trusteth that he
+can draw up Jordan into his mouth.
+24 He taketh it with his eyes: his nose pierceth through snares.)
+
+Some of the reasons people say the Gap theory is true is because it
+says in Genesis 1:2 that the earth was without form and void. This was
+explained early that God was not finished with his creation. This is just
+like a potter who takes a lump of clay and makes something beautiful out
+of it. It starts out without form. (Genesis 1:1-2 1 In the beginning God
+created the heaven and the earth. 2 And the earth was without form, and
+void; and darkness was upon the face of the deep. And the Spirit of God
+moved upon the face of the waters.) The first act by God was to let there
+be light. Another issue is they say Satan rebelled prior to creation and
+him and the angels were created before the six days of creation. They are
+wrong on both accounts. Scripture does not give a clear answer on what day
+angels were created other than they were their watching God create at the
+foundations of the earth. There is disagreement on exactly what moment
+that it speaks of. Some say angels including Satan were created on day
+four when the stars where made as angels are often associated with stars
+in scripture. Whenever they were created, it was during the six days of
+creation because we are told everything was made in six days. Angels are
+everything. (Job 38:7 When the morning stars sang together, and all the
+sons of God shouted for joy?) (Exodus 20:11 For in six days the LORD made
+heaven and earth, the sea, and all that in them is, and rested the seventh
+day: wherefore the LORD blessed the sabbath day, and hallowed it.) This
+verse also shows the earth could not have existed for billions of years
+before. Another complaint is that Satan and his angels rebelled prior to
+the six days of creation. We have shown that they were all created at some
+point on one of the six days. The reason Satan rebelled was because man
+was made in the image of God and given authority over the earth. In his
+pride he rebelled as he wanted to be God. We are told God said all was
+very good at the end of his creation. If Lucifer was already Satan and had
+rebelled, God would not say all was very good. (Genesis 1:31 And God saw
+every thing that he had made, and, behold, it was very good. And the
+evening and the morning were the sixth day.)
+
+The Gap theory has led to progressive creationism and to today's
+theistic evolution. Progressive creationism says that God created new
+forms of life gradually over a period of hundreds of millions of years.
+They say this explains the fossil record. My God is powerful enough to
+create everything at once just as it is told in scripture. This minimizes
+Jesus who is the Creator.
+
+Theistic evolution says God created everything by the Big Bang or
+something and then all of the rest of creation was by evolution. Just as
+in secular evolution which denies a God, theistic evolution promotes
+billions of years and all of the false so called science that evolution
+pushes such as death existed for millions of years long before man came
+out and survival of the fittest. This is not what scripture teaches. As I
+said death came about because of Adam's sin and it is not every man for
+himself as pushed by the belief of evolution, secular or theistic
+evolution. As I said, if death was here before Adam, we do not have a sin
+nature and need of a Saviour and the death of Jesus on the cross was
+pointless. We would still die in sin and go to hell and the lake of fire.
+(Romans 5:12 Wherefore, as by one man sin entered into the world, and
+death by sin; and so death passed upon all men, for that all have sinned:)
+This verse clearly shows there was no death before Adam.
+
+Another newer break-off of these is called Intelligent Design. These
+people acknowledge the ridiculousness and stupidity of evolution. They
+admit that there are designs and patterns in creation and that there had
+to be a designer, they just do not see the designer is God. They just push
+it off, so it could be aliens or even Satan. This is dangerous thinking
+and will still land you in hell.
+
+Another belief among professing Christians is the day age theory.
+This theory was pushed by the Scottish lawyer and geologist Charles Lyell
+around 1833. This man was a friend of Charles Darwin and influenced him
+and his evolution theory. This theory says the days in Genesis are not
+literal 24 hour days but are thousands, millions or billions of years
+depending on one's beliefs. Just as in the Gap theory, not all agree on
+everything. The day age theory is an attempt by professing Christians to
+believe in God and still believe in evolution just as is done in theistic
+evolution or progressive creationism. Again as I mentioned above, my God
+is able to create quickly and not takes billions of years to create. This
+theory also promotes death before Adam denying the work done by Jesus for
+our salvation. Christians need to stop trying to compromise with the world
+and just believe what God said in the scriptures. Once you start
+compromising on one part of scripture, it never ends. It will lead to
+compromise in other areas of scripture. The Hebrew word for day used in
+the Genesis creation story just as in the rest of scripture always means a
+literal 24 hour period and has always been understood by the Jews in this
+way. There are cases in scripture where day can be different from 24
+hours, but it is clearly seen in the verses, such as the daytime of a day
+is still called day. We do that ourselves even today, but people know what
+we are referring to. This theory says each day matches an age given by
+scientists such as the Cambrian Age, the Devonian Age (Age of Fish) or the
+Mezosoic Age (Age of Reptiles when dinosaurs supposedly lived.) By saying
+dinosaurs where not around with man again denies what scripture says. Some
+bibles such as the RSV (Revised Standard Version) actually promote this
+theory by changing in Genesis 1 from "the first day' or "the second day",
+etc. to "one day" or "a second day". This denies they are literal 24 hour
+days and again the superiority of the King James Bible as God's word.
+
+Scripture clearly shows in Genesis that the earth is a little less
+than 6,000 years old. One can easily count up the ages of the patriarchs
+from Adam to Abraham seen in Genesis 5. We know when Abraham lived. There
+is a disagreement by a couple of hundred years when he lived, but it still
+is around 6,000 years. This is a big difference between 13.7 billion years
+for the universe and 4.6 billion years for the earth as promoted by
+evolution and some of these old earth creation theories. Scripture says
+the earth was created for man, not Satan and his angels. (Isaiah 45:18 For
+thus saith the LORD that created the heavens; God himself that formed the
+earth and made it; he hath established it, he created it not in vain, he
+formed it to be inhabited: I am the LORD; and there is none else.) We also
+know all of creation is to glorify God and was not before the earth. The
+sun and other stars and the moon were all created after the earth. They
+were made on day four as almost an after thought. (Genesis 1:16 And God
+made two great lights; the greater light to rule the day, and the lesser
+light to rule the night: he made the stars also.) We also clearly see God
+made man and everything else. It did not evolve. (Genesis 5:1-2 1 This is
+the book of the generations of Adam. In the day that God created man, in
+the likeness of God made he him;
+2 Male and female created he them; and blessed them, and called their name
+Adam, in the day when they were created.) Scripture clearly teaches Jesus
+is our Creator. (Ecclessiastes 12:1 Remember now thy Creator in the days
+of thy youth, while the evil days come not, nor the years draw nigh, when
+thou shalt say, I have no pleasure in them;) (Isaiah 40:28 ¶ Hast thou not
+known? hast thou not heard, that the everlasting God, the LORD, the
+Creator of the ends of the earth, fainteth not, neither is weary? there is
+no searching of his understanding.) We see in Ephesians and Colossians
+that Jesus created everything. (Ephesians 3:9 And to make all men see what
+is the fellowship of the mystery, which from the beginning of the world
+hath been hid in God, who created all things by Jesus Christ:) (Colossians
+1:16 For by him were all things created, that are in heaven, and that are
+in earth, visible and invisible, whether they be thrones, or dominions, or
+principalities, or powers: all things were created by him, and for him:)
+For almost all of Christianity, believers and not believers believed in a
+young created world by God. Only in the last few hundred years has inroads
+been made to change this. True science has proven the young earth. We are
+warned in scripture about false science so widely seen today. (I Timothy
+6:20 O Timothy, keep that which is committed to thy trust, avoiding
+profane and vain babblings, and oppositions of science falsely so called:)
+
+Scriptures clearly teaches God (Jesus) created everything about 6,000
+years ago. The theories presented deny scripture that it is God's word
+because they go against what is written. They lead to believing in
+evolution, deny need for salvation, and ultimately no need for God. Most
+of these theories agree with evolution in the order of things coming
+about. They say the sun was here before the plants. Scripture says plants
+were created on day three and the sun on day four. They say animals
+evolved or changed into higher animals. God's word says animals reproduce
+after their own kind. They do not become another animal. Young earth
+creationism is a fact, not a theory. Christians just need to believe what
+God said in his word. For true Christians that promote these theories, we
+need to love them as a brother or sister in Christ, but rebuke them.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

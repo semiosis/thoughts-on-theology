@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,533 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+What must I do to be saved (be born again), have eternal life and go to heaven?
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+I am so happy that you have an interest in where you will spend
+eternity. The decision you make regarding your salvation will be the most
+important decision you will ever make and will determine where you will
+spend eternity.
 
-Username or email _____________________
+The short answer to the above question is you can do nothing, only
+believe (have faith) in Jesus. Jesus already paid for our sins at Calvary
+on the cross. Satan (the Devil) wants you to believe you must do something
+to be saved. This is what cults are about. They always add believing plus
+something else. Salvation is by faith alone. Getting saved (the gospel) is
+so simple that even a child can understand it and be born again. (Jesus
+said in Matthew 18:3 And said, Verily I say unto you, Except ye be
+converted, and become as little children, ye shall not enter into the
+kingdom of heaven.) True Christianity is a personal relationship with the
+Lord Jesus Christ and not religion. True Christianity is the only one that
+can say that. Religion will not save you and God condemned religion and
+the Pharisees who put tradition over obeying him.
 
-Reset password
+The basics of what the gospel is is found in I Corinthians 15:1-4
+
+1 Moreover, brethren, I declare unto you the gospel which I preached unto
+you, which also ye have received, and wherein ye stand;
+2 By which also ye are saved, if ye keep in memory what I preached unto
+you, unless ye have believed in vain.
+3 For I delivered unto you first of all that which I also received, how
+that Christ died for our sins according to the scriptures;
+4 And that he was buried, and that he rose again the third day according
+to the scriptures:
+
+Roman Road of Salvation (Common plan of salvation to show one is a sinner
+and needs salvation)
+
+1. Romans 3:10 As it is written, There is none righteous, no, not one:
+2. Romans 3:23 For all have sinned, and come short of the glory of God;
+3. Romans 5:12 Wherefore, as by one man sin entered into the world, and
+death by sin; and so death passed upon all men, for that all have
+sinned: (Adam is the man sin entered the world)
+4. Romans 5:8 But God commendeth his love toward us, in that, while we
+were yet sinners, Christ died for us.
+5. Romans 6:23 For the wages of sin is death; but the gift of God is
+eternal life through Jesus Christ our Lord.
+6. Romans 10:13 For whosoever shall call upon the name of the Lord shall
+be saved.
+7. Revelation 3:20 Behold, I stand at the door, and knock: if any man
+hear my voice, and open the door, I will come in to him, and will sup
+with him, and he with me.
+8. Romans 10:9 That if thou shalt confess with thy mouth the Lord Jesus,
+and shalt believe in thine heart that God hath raised him from the
+dead, thou shalt be saved.
+9. Romans 10:10 For with the heart man believeth unto righteousness; and
+with the mouth confession is made unto salvation.
+
+Other good verses:
+
+Matthew 7:13-14 13 ¶ Enter ye in at the strait gate: for wide is the gate,
+and broad is the way, that leadeth to destruction, and many there be which
+go in thereat:
+14 Because strait is the gate, and narrow is the way, which leadeth unto
+life, and few there be that find it. (Strait means narrow) (Jesus is the
+only way to eternal life)
+
+John 3:36 He that believeth on the Son hath everlasting life: and he that
+believeth not the Son shall not see life; but the wrath of God abideth on
+him.
+
+John 10:9 I am the door: by me if any man enter in, he shall be saved, and
+shall go in and out, and find pasture.
+
+John 14:6 Jesus saith unto him, I am the way, the truth, and the life: no
+man cometh unto the Father, but by me.
+
+Acts 2:21 And it shall come to pass, that whosoever shall call on the name
+of the Lord shall be saved.
+
+Acts 4:12 Neither is there salvation in any other: for there is none other
+name under heaven given among men, whereby we must be saved. (Refers to
+the name of Jesus)
+
+Acts 16:30-31 And brought them out, and said, Sirs, what must I do to be
+saved? 31 And they said, Believe on the Lord Jesus Christ, and thou shalt
+be saved, and thy house. (This was the Philippian jailer asking Paul and
+Silas what he must do to be saved. The most important question you can ask
+any one.)
+
+Acts 17:30 And the times of this ignorance God winked at; but now
+commandeth all men every where to repent:
+
+Romans 12:1-2 1 I beseech you therefore, brethren, by the mercies of God,
+that ye present your bodies a living sacrifice, holy, acceptable unto God,
+which is your reasonable service.
+2 And be not conformed to this world: but be ye transformed by the
+renewing of your mind, that ye may prove what is that good, and
+acceptable, and perfect, will of God. (For the new believer [Christian])
+
+Ephesians 2:8-9 For by grace are ye saved through faith; and that not of
+yourselves: it is the gift of God: 9 Not of works, lest any man should
+boast.
+
+I John 1:9 If we confess our sins, he is faithful and just to forgive us
+our sins, and to cleanse us from all unrighteousness.
+
+Nicodemus came to Jesus (We all should come to Jesus) and Jesus told
+him he must be born again to go to heaven. (Jesus answered the question
+"What must I do to be saved?") (John 3:1-21)
+
+John 3:1-21
+
+1 There was a man of the Pharisees, named Nicodemus, a ruler of the Jews:
+2 The same came to Jesus by night, and said unto him, Rabbi, we know that
+thou art a teacher come from God: for no man can do these miracles that
+thou doest, except God be with him.
+3 Jesus answered and said unto him, Verily, verily, I say unto thee,
+Except a man be born again, he cannot see the kingdom of God.
+4 Nicodemus saith unto him, How can a man be born when he is old? can he
+enter the second time into his mother's womb, and be born?
+5 Jesus answered, Verily, verily, I say unto thee, Except a man be born of
+water and of the Spirit, he cannot enter into the kingdom of God.
+6 That which is born of the flesh is flesh; and that which is born of the
+Spirit is spirit.
+7 Marvel not that I said unto thee, Ye must be born again.
+8 The wind bloweth where it listeth, and thou hearest the sound thereof,
+but canst not tell whence it cometh, and whither it goeth: so is every one
+that is born of the Spirit.
+9 Nicodemus answered and said unto him, How can these things be
+10 Jesus answered and said unto him, Art thou a master of Israel, and
+knowest not these things?
+11 Verily, verily, I say unto thee, We speak that we do know, and testify
+that we have seen; and ye receive not our witness.
+12 If I have told you earthly things, and ye believe not, how shall ye
+believe, if I tell you of heavenly things?
+13 And no man hath ascended up to heaven, but he that came down from
+heaven, even the Son of man which is in heaven.
+
+14 ¶ And as Moses lifted up the serpent in the wilderness, even so must
+the Son of man be lifted up:
+15 That whosoever believeth in him should not perish, but have eternal
+life.
+
+16 ¶ For God so loved the world, that he gave his only begotten Son, that
+whosoever believeth in him should not perish, but have everlasting life.
+17 For God sent not his Son into the world to condemn the world; but that
+the world through him might be saved.
+
+18 ¶ He that believeth on him is not condemned: but he that believeth not
+is condemned already, because he hath not believed in the name of the only
+begotten Son of God.
+19 And this is the condemnation, that light is come into the world, and
+men loved darkness rather than light, because their deeds were evil.
+20 For every one that doeth evil hateth the light, neither cometh to the
+light, lest his deeds should be reproved.
+21 But he that doeth truth cometh to the light, that his deeds may be made
+manifest, that they are wrought in God.
+
+Admit to God that you are a sinner in need of a Saviour and ask God to
+forgive you and repent (turn from the sin that has kept you from God. When
+you truly repent, you should think spiritually about God and not the
+world. You should not want to sin. When you repent you turn away from the
+world and turn to God by Jesus. With true repentance, you realize that you
+are a lost sinner in need of salvation and that only comes by Jesus.
+Without realizing your need to be saved, you never will be. In true
+repentance, you see sin in the same light that God does.) Jesus said in
+Luke 13:3 and Luke 13:5 I tell you, Nay: but, except ye repent, ye shall
+all likewise perish. (Acts 3:19-20 ¶ Repent ye therefore, and be
+converted, that your sins may be blotted out, when the times of refreshing
+shall come from the presence of the Lord;
+20 And he shall send Jesus Christ, which before was preached unto you:)
+
+Believe that Jesus is God who came in the flesh to save us from our sins.
+
+Confess your faith in Jesus Christ as your personal Saviour and Lord and
+accept the free gift of salvation and forgiveness from Jesus. Ask him to
+enter your body and control your life. Often it is said ask Jesus into
+your heart. Remember eternal life is a free gift, but one must receive it.
+If one refuses the free gift they will spend eternity in the lake of fire.
+(This is similar to a prisoner who is granted a pardon from death. If the
+prisoner accepts the free pardon, they will live. If they refuse the free
+pardon, they will die.) Please accept the free gift today and be born
+again and have eternal life.
+
+You must truly believe Jesus is God and Lord and your Saviour. See Proof
+that Jesus is God and Lord if you are not sure Jesus is God. God knows
+your true heart. (James 2:19 Thou believest that there is one God; thou
+doest well: the devils also believe, and tremble.) You may deceive your
+pastor, church members, family or friends, but you will never deceive God.
+Jesus said in Matthew 7:22-23 Many will say to me in that day, Lord, Lord,
+have we not prophesied in thy name? and in thy name have cast out devils?
+and in thy name done many wonderful works? 23 And then will I profess unto
+them, I never knew you: depart from me, ye that work iniquity. (Remember
+your good works will never save you, nor will being baptized, being a
+church member, a good person, or being a Jew (God's chosen people), only
+faith in Jesus. Jesus is not fooled. You should do good works after you
+are saved, because you are saved, not to save you.) One comes to Jesus
+just as they are as the filthy sinner they are. You do not need to change
+your life before being saved. The Holy Ghost after salvation will convict
+you of your sin and then you need to turn from it. (repent [have a change
+of heart])
+
+No one knows when they will take their last breath and enter
+eternity. We all think we have forever. (James 4:14 Whereas ye know not
+what shall be on the morrow. For what is your life? It is even a vapour,
+that appeareth for a little time, and then vanisheth away.) We all will
+live somewhere in eternity, either heaven or hell. Choose heaven and life,
+not hell and death. To day is the day of salvation. Do not put it off
+before it is too late. II Corinthians 6:2 (For he saith, I have heard thee
+in a time accepted, and in the day of salvation have I succoured thee:
+behold, now is the accepted time; behold, now is the day of salvation.)
+(Hebrews 9:27 And as it is appointed unto men once to die, but after this
+the judgment:) One final plea to get saved. We all will face Jesus one day
+either as our Saviour or as our Judge and bow before him and confess he is
+Lord. Which will it be. Will you confess Jesus is Lord willingly as your
+Saviour or forcefully as your Judge. I pray you choose as your Saviour.
+(Philippians 2:11 And that every tongue should confess that Jesus Christ
+is Lord, to the glory of God the Father.)
+
+Jesus is the only name by which you can be saved. (Acts 4:12 Neither
+is there salvation in any other: for there is none other name under heaven
+given among men, whereby we must be saved.) Allah, Buddha, Mohammed, Hindu
+gods, Satan or Lucifer or any other name cannot and will not save you.
+They will only lead you down the path of destruction straight to hell.
+
+In this tough world we live in one who gets saved can overcome the
+world. (I John 5:5 Who is he that overcometh the world, but he that
+believeth that Jesus is the Son of God?) Please ask Jesus to save you, so
+that you may overcome the world and remember once you are saved, Jesus who
+lives in you is greater than Satan who is in the world. (I John 4:4 Ye are
+of God, little children, and have overcome them: because greater is he
+that is in you, than he that is in the world.) Call upon Jesus now.
+
+For the unsaved, pray a prayer in your own words, but something like
+this: "Dear God, I know I am a sinner in need of a Saviour. I believe
+Jesus died on the cross to forgive me of my sins, was buried and rose
+again on the third day. I am sorry (repent and change your ways after
+salvation) for all the wrong (sin) I have done and ask you to forgive me.
+I accept your free gift of eternal life, knowing it is you Lord and not my
+good works that saves me. Thank you for your love to me a sinner,
+forgiveness of my sins, and a new life in Jesus Christ. From this day
+forward, I choose to follow you. In Jesus' name, Amen."
+
+Congratulations if you in all sincerity prayed a prayer similar to
+this to Jesus. Welcome to the family of God and I look forward to meeting
+you in eternity. You have made the greatest and most important decision in
+your life by choosing to follow Jesus and serve him. If you got saved from
+reading this website, please let me know. I would love to hear about it.
+
+Some helpful things for a new Christian to have if they have access
+and can afford them are a King James Bible (a must if at all possible,
+either printed or online), a good hymnal (such as Living Hymns or the
+Baptist Hymnal), and a concordance such as Strong's Concordance. Use the
+concordance only to help you find words in the King James Bible. You can
+also go to Purebiblesearch.com to use a program for free with a King James
+Bible and a concordance in one.
+
+After salvation (being born again) read your Holy Bible (scriptures)
+{King James Bible} everyday (Romans 10:17 So then faith cometh by hearing,
+and hearing by the word of God.), pray to God in Jesus' name, confess your
+sins daily and try to serve the Lord. Make Jesus Lord of your life. (not
+every Christian does, most do not, but it is vital for growth as a
+Christian) [II Corinthians 5:17 Therefore if any man be in Christ, he is a
+new creature: old things are passed away; behold, all things are become
+new.] If one is truly saved, there should be a change in the way they
+think, talk, act, see life, treat others, and they should hate sin and be
+convicted when they do sin. Others should notice something is different.
+You should want to read God's word and know him. You can make sure you are
+saved by reading I John especially chapter 5 and verse 13. Make sure you
+are saved as Satan deceives many into thinking and believing they are
+saved. Jesus truly knows and will not be deceived. (Matthew 7:21-23 ¶ Not
+every one that saith unto me, Lord, Lord, shall enter into the kingdom of
+heaven; but he that doeth the will of my Father which is in heaven.
+22 Many will say to me in that day, Lord, Lord, have we not prophesied in
+thy name? and in thy name have cast out devils? and in thy name done many
+wonderful works?
+23 And then will I profess unto them, I never knew you: depart from me, ye
+that work iniquity. [iniquity is sin]) (II Corinthians 13:5 Examine
+yourselves, whether ye be in the faith; prove your own selves. Know ye not
+your own selves, how that Jesus Christ is in you, except ye be
+reprobates?) Find you a good Bible believing King James Bible church (I
+would recommend a Baptist or independent church, as they usually follow
+scripture the closest, though you will still need to be wary of some
+Baptist and independent churches doctrines and beliefs) and then be
+baptized by immersion. Then fulfill the commandment of Jesus in the Great
+Commission by telling your family, friends and all that you meet about
+Jesus so that they may be saved as well. Never fear to stand up for Jesus.
+I John 4:4 says Ye are of God, little children, and have overcome them:
+because greater is he that is in you, than he that is in the world. (This
+refers to Jesus who is in the saved person being greater than Satan who is
+in the world.) Never be ashamed of Jesus or deny him. (Mark 8:38 Whosoever
+therefore shall be ashamed of me and of my words in this adulterous and
+sinful generation; of him also shall the Son of man be ashamed, when he
+cometh in the glory of his Father with the holy angels.) (Luke 9:26 For
+whosoever shall be ashamed of me and of my words, of him shall the Son of
+man be ashamed, when he shall come in his own glory, and in his Father's,
+and of the holy angels.) Do not deny Jesus. (Matthew 10:33 But whosoever
+shall deny me before men, him will I also deny before my Father which is
+in heaven.) Do something for the Lord. Find a way to serve him and grow
+from a milk Christian to a meat Christian. (I Corinthians 3:2. Hebrews
+5:12-13, and I Peter 2:2) See Now that I am a born again Christian, how do
+I grow (mature)?
+
+It is my sincere, heartfelt prayer that all will seek out and come to
+the saving knowledge of Jesus Christ and receive Jesus as their Saviour
+and be saved. If one is still not convinced of their need for salvation,
+please listen to J. Harold Smith's sermon God's Three Deadlines at
+www.sermonaudio.com.
+
+Remember, salvation is simple and free (for us, not Jesus who paid
+with his life in a very painful death) to those who will accept the free
+gift, but it must be accepted to get the pardon from eternal death.
+Salvation cannot be bought (purchased), earned (good works), awarded, or
+won, or is not automatic to those who are born to parents who are
+Christians, is not automatic for one just because they were born in a
+"Christian" nation such as the United States of America, or one who is
+baptized as an infant or any other time. If one is a Jew, they are not
+automatically saved and going to heaven just because they are God's chosen
+people, despite the many people that teach this false teaching. They must
+be saved the same way everyone else is, by putting their faith and trust
+in Jesus Christ as their Saviour after admitting they are a sinner in need
+of a Saviour. Every person must make their own chose to choose or reject
+Jesus as their Saviour. Salvation only comes by faith, by believing in
+Jesus as your Saviour, so do not delay and choose eternal life by
+accepting and receiving the free gift of salvation from Jesus Christ.
+Salvation is a personal relationship with Jesus and not religion. Jesus
+condemned religion. Salvation is for everyone who wants to be saved or
+born again and have a personal relationship with the Lord Jesus Christ. It
+is not just for the rich or famous or high class such as royalty, but for
+the poor, lame and everyone in between who seeks him out. Come as the
+wretched sinner you are and after salvation let God clean you up. Do not
+try to clean yourself up before getting saved. Please come to Jesus as the
+Philippian jailer and Nicodemus did. They asked the right question and
+responded by doing what they were told to do in the answer. May all ask
+what must I do to be saved and follow the above answer.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,438 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus as the Temple
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+I previously had a sermon on how the tabernacle pointed to Jesus and
+today we will look at the significance of the temple in relation to Jesus.
+Just as Jesus was seen in the tabernacle, Jesus was also seen in the
+temple. Many of the same things found in the tabernacle were also found in
+the temple though sometimes on a bigger scale as the temple was bigger. I
+will only briefly mention the significance of some things as they were
+previously mentioned in my sermon Jesus in the tabernacle. The first
+temple was built by Solomon to replace the tabernacle in order to have a
+permanent place in which to worship God. This is known as Solomon's
+temple. Solomon dedicated the temple on the feast of tabernacles. David
+had first wanted to build the temple, but was told by God that since he
+was a man of war he would not be allowed to build it but rather his son
+Solomon would. The temple was built in Jerusalem, the capital of Israel,
+and God's chosen city here on earth. This first temple was destroyed by
+the invading Babylonians who took the tribes of Judah and Benjamin
+captive. After the end of the 70 year Babylonian captivity, the Jews were
+allowed to return to Jerusalem by the Persian king Cyrus and rebuild the
+temple. (Ezra 1:3 Who is there among you of all his people? his God be
+with him, and let him go up to Jerusalem, which is in Judah, and build the
+house of the LORD God of Israel, (he is the God,) which is in Jerusalem.)
+This second temple is known as Zerubbabel's temple which was later
+expanded by Herod and became known as Herod's temple. Herod's temple was
+destroyed by the Romans in A.D. 70. The Jews will rebuild a third temple
+that will be desecrated by the antichrist during the tribulation. A fourth
+temple that is described in Ezekiel 40-48 will be built and used during
+the Millennium and is known as the millennial temple. I may preach on this
+temple in a future sermon.  
 
-Username or email _____________________
+The temple was located on what was known as the temple mount. This is
+the exact spot where Abraham brought Isaac to sacrifice him to God. (II
+Chronicles 3:1 Then Solomon began to build the house of the LORD at
+Jerusalem in mount Moriah, where the LORD appeared unto David his father,
+in the place that David had prepared in the threshingfloor of Ornan the
+Jebusite.)
 
-Reset password
+The temple was the treasury for Israel and contained all of the gold
+and treasures of Israel. This was often raided by Israel's enemies as
+Israel turned from God. These were located in storerooms behind the most
+holy place in the temple. We should also place our treasures in Jesus.
+Jesus said to have your treasure in heaven as represented by the treasure
+in the temple and not here on earth. (Matthew 6:19-21 ¶ Lay not up for
+yourselves treasures upon earth, where moth and rust doth corrupt, and
+where thieves break through and steal:
+20 But lay up for yourselves treasures in heaven, where neither moth nor
+rust doth corrupt, and where thieves do not break through nor steal:
+21 For where your treasure is, there will your heart be also.)
+
+The announcement of the birth of John the Baptist was given to
+Zachariah in the temple. Jesus was taken there to be circumcised. Jesus
+was brought there by Satan and placed on a pinnacle of the temple and
+tempted by Satan that if he was the Son of God to jump off of the pinnacle
+and that his angels would save him. (Luke 4:9 And he brought him to
+Jerusalem, and set him on a pinnacle of the temple, and said unto him, If
+thou be the Son of God, cast thyself down from hence:) Jesus quoted
+scripture to him just as we should when tempted by Satan. (Luke 4:12 And
+Jesus answering said unto him, It is said, Thou shalt not tempt the Lord
+thy God.)
+
+The temple was known as the house of God and the house of prayer. God
+originally dwelt in Solomon's temple just as he had in the tabernacle. God
+was not in the future temples after the removal of the ark of the
+covenant.  
+
+Only the priests were allowed inside the actual temple since it was
+the house of God and a place of worship and was were God's presence was.
+The common people had to stay in the courtyard were they came to pray and
+offer animal sacrifices.
+
+The temple consisted of two parts: the most holy place and the holy
+place. It also had a porch known as Solomon's porch. There were two
+courtyards: the inner courtyard and the outer courtyard. The outer
+courtyard was known as the courtyard of Gentiles. No Gentiles were allowed
+beyond this point as Jesus had not died on the cross yet. The inner
+courtyard was divided into three parts: the courtyard of priests, the
+courtyard of men also known as the courtyard of Israel, and the courtyard
+of women with the respective people only being allowed in the proper
+courtyard. There were four gates to enter the courtyards such as a gate to
+enter the women's courtyard so the women did not enter the other areas and
+one for bringing their animal sacrifice. Four is the number for the gospel
+as we need to enter the house of God in Jesus for salvation.   
+
+The temple was divided into the holy of holies and the holy place or
+sanctuary. The holy of holies or most holy place was where the ark of the
+covenant was located in Solomon's temple and was in essence God's throne
+room. The ark of the covenant was made of shittim wood and covered in gold
+and represented Jesus as the God-man with the shittim wood representing
+his man nature and the gold as deity his divine nature. The ten
+commandments where inside the ark which represented the law and Jesus
+would come to fulfill the law. (Matthew 5:17 ¶ Think not that I am come to
+destroy the law, or the prophets: I am not come to destroy, but to
+fulfil.) The ark had the mercy seat on top of it on the lid of the ark.
+Two cherubim were on the lid with each one pointing toward the mercy seat
+which was the throne of God. The high priest would place the blood of the
+animal sacrifice of the goat for the people on this mercy seat once a year
+on the day of atonement for the covering of the people's sins for one
+year. The most holy place was divided between the holy place by a vail
+which was a giant curtain that was blue, purple, and crimson. According to
+Jewish tradition it was four inches thick and about 60 feet tall and was
+so strong that a team of horses could not tear it. The blue represented
+separation for God, the purple represented royalty as Jesus as King of
+kings, and the crimson as the shed blood of Jesus that washed away our
+sins. This was the vail that was torn in two when Jesus died on the cross.
+(Matthew 27:51 And, behold, the veil of the temple was rent in twain from
+the top to the bottom; and the earth did quake, and the rocks rent;) It
+was torn since there was no longer a need for a priest to enter in the
+most holy place alone since now all true saved believers can pray directly
+to Jesus since all true Christians are priests. We can now have direct
+access to Jesus at any time and not just once a year as the high priest
+did. Inside the most holy place there were carvings on the wall of
+cherubims and palm trees. Palm branches were placed on the ground before
+Jesus as he rode into Jerusalem on the ass on Palm Sunday. (John 12:13
+Took branches of palm trees, and went forth to meet him, and cried,
+Hosanna: Blessed is the King of Israel that cometh in the name of the
+Lord.) Palm trees represent wisdom which comes from God. (Proverbs 2:6 For
+the LORD giveth wisdom: out of his mouth cometh knowledge and
+understanding.) The walls were made of cedar and covered in gold. There
+were also two doors used to enter the most holy place that were behind the
+vail and were made of olive wood covered in gold. They had cherubims and
+palm trees and flowers carved on them. (I Kings 6:32 The two doors also
+were of olive tree; and he carved upon them carvings of cherubims and palm
+trees and open flowers, and overlaid them with gold, and spread gold upon
+the cherubims, and upon the palm trees.) The entire temple was covered in
+gold since it was God's house. The cherubim in the most holy place
+represent the guardians of God's throne to keep away sin from God just as
+they guarded the garden of Eden after Adam and Eve's sin. Someday
+Christians will be allowed in God's presence when we get our glorified
+bodies. What a day that will be.
+
+The holy place was beyond Solomon's porch and could only be
+entered into by the priests who entered there daily. The holy place
+contained ten tables of shewbread, altar of incense, and ten seven
+branched golden candlesticks. I mentioned in my sermon Jesus in the
+Tabernacle how the table of shewbread represented Jesus as the bread of
+life and the golden candlestick represented Jesus as the light of the
+world with seven representing completeness. The gold again represented the
+deity of Jesus showing him as God. The number ten represents the law which
+pointed to the need for Israel for Jesus. The law was fulfilled in Jesus.
+(Matthew 5:17 ¶ Think not that I am come to destroy the law, or the
+prophets: I am not come to destroy, but to fulfil.) The altar of incense
+also was made of shittim wood and covered in gold again showing Jesus as
+the God-man. This was where a special sweet incense was burned and prayers
+were offered. Jesus is sweet. (Revelation 5:8 And when he had taken the
+book, the four beasts and four and twenty elders fell down before the
+Lamb, having every one of them harps, and golden vials full of odours,
+which are the prayers of saints.) Zacharias was at the altar of incense
+when the angel Gabriel appeared to him to tell him about the birth of John
+the Baptist. (Luke 1:11 And there appeared unto him an angel of the Lord
+standing on the right side of the altar of incense.) Also in here were the
+accompanying utensils of cups and snuffers for the candlesticks and bowls,
+spoons, and firepans, et cetera for the shewbread table. (I Kings 7:50 And
+the bowls, and the snuffers, and the basons, and the spoons, and the
+censers of pure gold; and the hinges of gold, both for the doors of the
+inner house, the most holy place, and for the doors of the house, to wit,
+of the temple.)
+
+There were two brass pillars known as Jachin and Boaz that held up
+the porch of the temple. (I Kings 7:15 For he cast two pillars of brass,
+of eighteen cubits high apiece: and a line of twelve cubits did compass
+either of them about.) (I Kings 7:21 And he set up the pillars in the
+porch of the temple: and he set up the right pillar, and called the name
+thereof Jachin: and he set up the left pillar, and called the name thereof
+Boaz.) These pillars represented those who were faithful to God during
+trials. God said he would make them pillars in his temple. (Revelation
+3:12 Him that overcometh will I make a pillar in the temple of my God, and
+he shall go no more out: and I will write upon him the name of my God, and
+the name of the city of my God, which is new Jerusalem, which cometh down
+out of heaven from my God: and I will write upon him my new name.)
+
+The molten sea was located between the brasen altar and the temple.
+This represented the sea that is located between the second and third
+heaven that separates sin from heaven or this case the temple. (Psalm
+148:4 Praise him, ye heavens of heavens, and ye waters that be above the
+heavens.) The priests washed themselves in the basin prior to entering the
+temple. This was symbolic of washing away their sins. This is seen in
+Christians who have received Jesus as their Saviour and are saved, but
+need to confess their sins daily in order to stay spiritually clean. The
+molten sea was about 15 feet across and held about 10,000 gallons of
+water. It was placed upon 12 oxen. (I Kings 7:23 ¶ And he made a molten
+sea, ten cubits from the one brim to the other: it was round all about,
+and his height was five cubits: and a line of thirty cubits did compass it
+round about.) (I Kings 7:25 It stood upon twelve oxen, three looking
+toward the north, and three looking toward the west, and three looking
+toward the south, and three looking toward the east: and the sea was set
+above upon them, and all their hinder parts were inward.) The twelve oxen
+most likely represented the twelve tribes of Israel.
+
+The brasen altar was located in the courtyard of the temple and was
+where the people came to offer their sacrifice for the atonement of their
+sins. The brass that the altar was made of once again represents judgment
+and shows God will judge sin. (Leviticus 17:11 For the life of the flesh
+is in the blood: and I have given it to you upon the altar to make an
+atonement for your souls: for it is the blood that maketh an atonement for
+the soul.) God required a perfect unblemished animal for the sacrifice.
+Jesus became the perfect unblemished sacrifice for us so we no longer need
+animal sacrifices which only covered the people's sins, whereas the blood
+of Jesus washes away and cleanses us from sin. (Revelation 1:5 And from
+Jesus Christ, who is the faithful witness, and the first begotten of the
+dead, and the prince of the kings of the earth. Unto him that loved us,
+and washed us from our sins in his own blood,) The person that brought the
+sacrifice placed his hand on the animal as it was killed. This was
+symbolic of placing his sins on the animal which then died in their place.
+Jesus died in our place for our sins as he took them upon himself. (I
+Peter 2:24 Who his own self bare our sins in his own body on the tree,
+that we, being dead to sins, should live unto righteousness: by whose
+stripes ye were healed.) (John 1:29 ¶ The next day John seeth Jesus coming
+unto him, and saith, Behold the Lamb of God, which taketh away the sin of
+the world.)
+
+Jesus said he was the temple. He said that his body would be
+destroyed and raised again in three days. (John 2:19 Jesus answered and
+said unto them, Destroy this temple, and in three days I will raise it
+up.) The Jews thought he was referring to Herod's temple, but he was
+referring to himself and his death on the cross and his resurrection.
+(John 2:21 But he spake of the temple of his body.)
+
+The loss of the temples was significant to the Israelites as they
+lost a literal place where they worshipped God and where his presence was
+and they also lost the place where they brought sacrifices for their sins
+therefore keeping them from being atoned of their sins.
+
+Christians represent the temple here on earth today as our bodies are
+a temple of the Holy Ghost. (I Corinthians 6:19 What? know ye not that
+your body is the temple of the Holy Ghost which is in you, which ye have
+of God, and ye are not your own?) Just as the original temples were holy
+and were to be treated with respect, we as Christians need to properly
+maintain our bodies and not pollute them so as not to pollute the temple
+of God. Jesus cleansed the temple and we need to cleanse ourselves by not
+sinning and confessing our sins when we do. (I John 1:9 If we confess our
+sins, he is faithful and just to forgive us our sins, and to cleanse us
+from all unrighteousness.)
+
+In the new Jerusalem on the new earth, there will be no need for a
+temple as Jesus will be there and he will be the temple. (Revelation 21:22
+And I saw no temple therein: for the Lord God Almighty and the Lamb are
+the temple of it.)
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

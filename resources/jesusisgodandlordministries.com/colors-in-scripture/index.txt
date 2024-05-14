@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,460 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Colors in Scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Colors just as numbers have meanings in scripture. Colors just as
+numbers often have more than one meaning depending on the context. This is
+seen even in regular words in English. An example is the word B-O-W
+pronounced bow (bo) or bow (bow) depending on its usage. In scripture bow
+(bo) is seen as the short form for rainbow or as a bow and arrows. Bow
+(bow) is used for someone who bows down before someone such as Jesus
+Christ or a king or something such as an idol. In secular usage this word
+has even more meanings such as a bow (bo) in a girl's hair or the bow (bo)
+(curvature) in a board or the bow (bow) (front) of a ship. Some examples
+of numbers are two means division or union or witnessing such as the two
+witnesses. Three means resurrection, four is the world or the gospel, and
+five means grace.
 
-Username or email _____________________
+Colors in scripture just as numbers are more than meets the eye. It
+is not just when a word of an actual color is given, but the color of
+objects such as precious stones (gems) or metals. Many times a color and
+its corresponding numbers will match such as in Revelation or the priestly
+precious stones they wore mentioned in Exodus.
 
-Reset password
+The first color we will look at is green. The word green is seen 41
+times in scripture. Green represents life. We see this in nature as spring
+arrives it brings forth the green grass and green leaves on the trees.
+Only green trees bear fruit. When grass or a tree dries up, it loses its
+color and also dies. We see green representing good food for life.
+(Genesis 1:30 And to every beast of the earth, and to every fowl of the
+air, and to every thing that creepeth upon the earth, wherein there is
+life, I have given every green herb for meat: and it was so.) We see the
+removal of green as removing life. (Exodus 10:15 For they covered the face
+of the whole earth, so that the land was darkened; and they did eat every
+herb of the land, and all the fruit of the trees which the hail had left:
+and there remained not any green thing in the trees, or in the herbs of
+the field, through all the land of Egypt.) The Jews were to offer green
+ears of corn as a meat offering to the LORD. (Leviticus 2:14 And if thou
+offer a meat offering of thy firstfruits unto the LORD, thou shalt offer
+for the meat offering of thy firstfruits green ears of corn dried by the
+fire, even corn beaten out of full ears.) Satan's followers always try to
+copy God and offered to their idols (gods) in groves under green trees.
+(II Kings 17:10 And they set them up images and groves in every high hill,
+and under every green tree:)
+
+We see green in emeralds. Emeralds are by the throne of God as God is
+life. (Revelation 4:3 And he that sat was to look upon like a jasper and a
+sardine stone: and there was a rainbow round about the throne, in sight
+like unto an emerald.) Lucifer originally had an emerald among his
+precious stones on him. He originally had life before he rebelled.
+(Ezekiel 28:13) Emeralds were the fourth stone and first in the second row
+on the priests breastplate. (Exodus 39:11 And the second row, an emerald,
+a sapphire, and a diamond.) Emeralds are seen in the New Jerusalem.
+(Revelation 21:19 And the foundations of the wall of the city were
+garnished with all manner of precious stones. The first foundation was
+jasper; the second, sapphire; the third, a chalcedony; the fourth, an
+emerald;) Notice that on both the priests breastplate and the foundations
+of the wall of New Jerusalem, the emerald representing life is the fourth
+stone matching the meaning of the number four as the gospel through which
+if we believe it and receive Jesus as Saviour, we will have eternal life.
+
+We see how the colors work together such as how yellow (deity) + blue
+(separation)= green (life). Separation for God leads to life.
+
+Blue represents separation or division. Blue is the most popular
+color in the world. This color is seen on the priest's robes as they were
+separated for service for God. Blue is seen as one of the colors for the
+curtains in the tabernacle. (Exodus 26:1 Moreover thou shalt make the
+tabernacle with ten curtains of fine twined linen, and blue, and purple,
+and scarlet: with cherubims of cunning work shalt thou make them.) Blue is
+also seen in the temple separating the holy of holies from the rest of the
+temple. The holy of holies was where God lived. (II Chronicles 3:14 ¶ And
+he made the vail of blue, and purple, and crimson, and fine linen, and
+wrought cherubims thereon.) A cloth of blue covered the ark of the
+covenant, the table of shewbread, the golden lampstand and altar and all
+of the instruments of ministry used in the tabernacle as they were set
+apart or separated for God. Things here on earth, especially dealing with
+the Jews was a shadow of things in heaven. (Hebrews 8:5 Who serve unto the
+example and shadow of heavenly things, as Moses was admonished of God when
+he was about to make the tabernacle: for, See, saith he, that thou make
+all things according to the pattern shewed to thee in the mount.) I
+believe the curtains and the vail and their colors are the same as in
+heaven with the cherubim around God's throne. I believe the blue is
+separation of God from the rest of creation because he is holy, the purple
+represents the royalty of God as King, and the scarlet and crimson
+represents our sins washed away by the shed blood of Jesus. We see blue in
+nature as separation or division. The blue sky separates us here on earth
+from outer space. The blue ocean separates the continents and the people
+living on them. The word blue is found 50 times in scripture. The number
+50 represents the Holy Ghost. The word blue is only found in the Old
+Testament. This is because we no longer need priests to go to God for us,
+but if one is saved they are a priest and have direct access to Jesus and
+God. Each of the three heavens were divided by a layer of blue water.
+Water is universally recognized as being blue such as we sailed the ocean
+blue. Most of the first layer between the first and second heaven was
+destroyed at the start of the Genesis flood. There is also a frozen layer
+between the second and third heaven. This is seen in (Psalm 148:2 Praise
+him, ye heavens of heavens, and ye waters that be above the heavens.) I
+believe the glass sea seen by John in Revelation is this sea which
+separates the second and third heaven. I believe he described it as glass
+since it is probably frozen. (Revelation 15:2 And I saw as it were a sea
+of glass mingled with fire: and them that had gotten the victory over the
+beast, and over his image, and over his mark, and over the number of his
+name, stand on the sea of glass, having the harps of God.) I believe when
+the new earth has no more sea, it will literally have no more oceans, but
+I believe this sea separating the two heavens will also be gone as now
+there will be no more sin to keep us from having direct access to the
+third heaven where God's throne is located. (Revelation 21:1 And I saw a
+new heaven and a new earth: for the first heaven and the first earth were
+passed away; and there was no more sea.) I believe this sea is seen in the
+molten sea in the temple. (I Kings 7:23 ¶ And he made a molten sea, ten
+cubits from the one brim to the other: it was round all about, and his
+height was five cubits: and a line of thirty cubits did compass it round
+about.)
+
+The sapphire is blue and is seen in the priest's breastplate and in
+the New Jerusalem. (Exodus 39:11 And the second row, an emerald, a
+sapphire, and a diamond.) (Revelation 21:19 And the foundations of the
+wall of the city were garnished with all manner of precious stones. The
+first foundation was jasper; the second, sapphire; the third, a
+chalcedony; the fourth, an emerald;) Notice that the color blue matches
+with the number of the same meaning as two has. It is found as the second
+stone in the second row of the priest's breastplate and as the second
+stone in the foundation of New Jerusalem. Both blue and two represent
+separation and division.
+
+Purple represents royalty. Even today, it is a common color of kings
+and queens. A purple robe was placed on Jesus just before his crucifixion
+as they mocked him as king. They will someday bow down before that King.
+Jesus is the King of kings. (John 19:2 And the soldiers platted a crown of
+thorns, and put it on his head, and they put on him a purple robe,). The
+rich man who is in hell wore a purple robe. Purple was a hard color to
+obtain and was used by the wealthy. (Luke 16:19 ¶ There was a certain rich
+man, which was clothed in purple and fine linen, and fared sumptuously
+every day:) The priests robes were blue and purple showing in a sense
+their royalty as the leaders of the people and the purple of Jesus Christ.
+The amethyst is purple and seen in the New Jerusalem as the twelfth stone
+and as well as in the priest's breastplate. (Exodus 28:19 And the third
+row a ligure, an agate, and an amethyst.) (Revelation 21:20 The fifth,
+sardonyx; the sixth, sardius; the seventh, chrysolite; the eighth, beryl;
+the ninth, a topaz; the tenth, a chrysoprasus; the eleventh, a jacinth;
+the twelfth, an amethyst.) Notice the amethyst as purple is the twelfth
+stone in the foundation matching the meaning of the number twelve which
+means governmental perfection. Jesus as King of kings (royalty) will rule
+the millennium with governmental perfection.
+
+Yellow means deity or God's glory. We see this in the yellow gold
+found as streets in heaven. The ark of the covenant including the mercy
+seat was covered with gold. The yellow sun represents God's Son Jesus who
+is the Sun of Righteousness. (Malachi 4:2 ¶ But unto you that fear my name
+shall the Sun of righteousness arise with healing in his wings; and ye
+shall go forth, and grow up as calves of the stall.) The topaz which is
+yellow is the ninth stone in the New Jerusalem foundation wall as seen in
+(Revelation 21:20 The fifth, sardonyx; the sixth, sardius; the seventh,
+chrysolite; the eighth, beryl; the ninth, a topaz; the tenth, a
+chrysoprasus; the eleventh, a jacinth; the twelfth, an amethyst.) and also
+a stone on the first row of the priests breastplate as seen in (Exodus
+39:10 And they set in it four rows of stones: the first row was a sardius,
+a topaz, and a carbuncle: this was the first row.). Nine is the number of
+the fruit of the Spirit and God is first hence it is found in the first
+row of the breastplate.
+
+Black represents death. This is still seen today as people often wear
+black at funerals in mourning for the dead. Darkness is black and is the
+removal of light which is Jesus and thus represents death. Hell is
+described as outer darkness as the people rejected the life of Jesus and
+chose death. There was darkness over the whole earth when Jesus was
+crucified as he was the light of the world. (John 8:12 ¶ Then spake Jesus
+again unto them, saying, I am the light of the world: he that followeth me
+shall not walk in darkness, but shall have the light of life.) We are
+called out of darkness to the light. (I Peter 2:9 But ye are a chosen
+generation, a royal priesthood, an holy nation, a peculiar people; that ye
+should shew forth the praises of him who hath called you out of darkness
+into his marvellous light:) Satan and his angels are rulers of the
+darkness of this world. This world leads to death. (Ephesians 6:12 For we
+wrestle not against flesh and blood, but against principalities, against
+powers, against the rulers of the darkness of this world, against
+spiritual wickedness in high places.) We are not to be children of
+darkness, but of light. The black horse of the third seal in (Revelation
+6:5 And when he had opened the third seal, I heard the third beast say,
+Come and see. And I beheld, and lo a black horse; and he that sat on him
+had a pair of balances in his hand.) represents famine which often leads
+to a painful death. Black also represents evil. It is seen today in the
+Goth community as it rebels and in those who are Satanic worshippers where
+black is their favorite color. Black is the absence of light. (Jesus)
+
+Red has multiple meanings. We see it represented by blood and
+especially by the blood of Jesus Christ that was shed on the cross at
+Calvary for all of us so that we might be washed clean and have eternal
+life. The red horse of the second seal in Revelation 6:4 represents war.
+Much blood is shed in war. Satan is described as a red dragon. (Revelation
+6:4 And there went out another horse that was red: and power was given to
+him that sat thereon to take peace from the earth, and that they should
+kill one another: and there was given unto him a great sword.) He has also
+brought much bloodshed and his rebellion will lead to war in heaven.
+(Revelation 12:7) The red heifer of Numbers 19 represents cleansing and
+purification and is representative of the cleansing by Jesus.
+
+Scarlet and crimson which are shades of red often represent sin.
+(Isaiah 1:18 Come now, and let us reason together, saith the LORD: though
+your sins be as scarlet, they shall be as white as snow; though they be
+red like crimson, they shall be as wool.) Revelation 17:3-4 speaks of a
+woman on a scarlet beast wearing scarlet. This woman martyred the people
+of Jesus and is represented by the Roman Catholic Church today as seen by
+the cardinals in their red robes and their history of killing true
+Christians.
+
+White represents purity. This is seen today when brides wear white at
+their wedding. We as the bride of Christ will wear white to the marriage
+supper of the Lamb. We saw how the blood of Jesus can make our sins as
+white as wool. Notice lambs are white of which Jesus is the Lamb of God
+and our passover Lamb. (John 1:29 ¶ The next day John seeth Jesus coming
+unto him, and saith, Behold the Lamb of God, which taketh away the sin of
+the world.) (I Corinthians 5:7 Purge out therefore the old leaven, that ye
+may be a new lump, as ye are unleavened. For even Christ our passover is
+sacrificed for us:) Jesus sits on a great white throne. Born again
+believers will all wear white and return to earth with Jesus on white
+horses. (Revelation 19:4 And the armies which were in heaven followed him
+upon white horses, clothed in fine linen, white and clean.) (Revelation
+20:11 And I saw a great white throne, and him that sat on it, from whose
+face the earth and the heaven fled away; and there was found no place for
+them.)
+
+We all know the rainbow was God's promise to Noah and all mankind
+that he would never flood the whole earth again. (Genesis 9:11-16) The
+colors of the rainbow represent the gospel of Jesus Christ. (red [sin],
+orange [judgment], yellow [God], green [life], blue [separation], indigo,
+violet [Christ]) The colors read as follows: Through Adam, sin entered
+into the world. Judgment was passed by the Lord whereby man would not have
+eternal life and therefore because of Adam's sin, God needed to be
+separated from mankind, until Christ came as a man, bore our sins and shed
+his blood on the cross and rose again to be our Saviour and King. [The
+phrase above on the meaning of the colors in the rainbow comes from the
+book Color in Scripture by D.L. Higginbotham.] A rainbow is seen behind
+the throne of God. (Revelation 4:3 And he that sat was to look upon like a
+jasper and a sardine stone: and there was a rainbow round about the
+throne, in sight like unto an emerald.) The LGBTQ (lesbian, gay, bisexual,
+transgender, queer) movement tries to destroy the gospel of Jesus. They
+also remove one color in their rainbow to only have six whereas God has
+seven in his. Seven is spiritual perfection. Six is the number of man.
+Satan is always less than God and can never match up with him. The next
+time we see a rainbow in the sky, let us never remember the distortion by
+Satan and the devilish LGBTQ Pride movement and their false meaning, but
+let us remember the true meaning, of not only the covenant God made with
+Noah not to flood the earth again, but also the presentation of the
+gospel, to thank God for our salvation and to encourage us to tell others
+about Jesus.
+
+Brass which is reddish-orange seems to represent judgment. Orange is
+seen in fire where the ultimate judgment of the unsaved will be when they
+spend eternity in the lake of fire. This is seen in certain items in the
+tabernacle and temple. Other colors such as brown and grey are mentioned.
+Many other things in scripture such as silver, tin, lead and other metals
+or the color of other items such as various precious stones or wood, hay
+and stubble all have various meanings beyond the scope of this sermon. The
+colors and order of the precious stones found on the priest's breastplate
+and the foundations of the New Jerusalem as well as those in the rainbow
+all have meaning and significance as to their order, but that is also
+beyond the scope of this sermon.
+
+In conclusion, colors just as numbers are very significant in scripture
+and many of their meanings are still seen today.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

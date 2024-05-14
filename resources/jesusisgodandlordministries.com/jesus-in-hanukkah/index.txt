@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,433 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in Hanukkah
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Hanukkah is the winter Jewish feast celebrated in late November or
+late December of our calendar and starting on 25 Kislev in the Hebrew
+calendar and lasting for eight days until 2 Tevet. Hanukkah is also known
+as the feast of dedication and the festival of lights. Jesus celebrated
+Hanukkah. (John 10:22-23 ¶ And it was at Jerusalem the feast of the
+dedication, and it was winter.
+23 And Jesus walked in the temple in Solomon's porch.) This is the only
+time Hanukkah is mentioned in scripture.  
 
-Username or email _____________________
+Hanukkah is not one of the seven feasts ordained by God that the
+Israelites were required to celebrate. Hanukkah was added later just like
+the feast of Purim by the rabbis. Just because it was added later does not
+minimize it and it still points the Jews to Jesus just like all of the
+other Jewish feasts. Hanukkah is not considered a major religious feast by
+the Jews and is often celebrated by all Jews today including secular Jews.
 
-Reset password
+The Syrians as part of the Seleucid Empire had conquered Israel and
+tried to force Hellenization on the Jews. They tried to make them more
+Greek like in culture, religion, and language. Antiochus IV Epiphanes
+launched a major attack against the Jews in 168 BC (or 167 BC). Jewish
+practices were banned such as circumcision, worshipping on the sabbath,
+and sacrifices, and Jerusalem was under direct control of the Seleucid
+Empire and Syrian king. Antiochus desecrated the temple in Jerusalem by
+sacrificing a pig on the altar to the Greek god Zeus and pouring the pig
+broth on scrolls. Pigs were unclean animals to Jews and this defiled the
+temple. His order said the Jews could only sacrifice pigs in the temple.
+The antichrist will desecrate the third temple during the great
+tribulation maybe in a similar fashion. Daniel 11:31 seems to point to
+both the future desecration of the temple by the antichrist as well as the
+past desecration by Antiochus. Verse 32 which says "the people that do
+know their God shall be strong, and do exploits" may refer to the
+Maccabees and their recapture and cleansing of the temple and hint at the
+future Hanukkah. (Daniel 11:31-32 And arms shall stand on his part, and
+they shall pollute the sanctuary of strength, and shall take away the
+daily sacrifice, and they shall place the abomination that maketh
+desolate.
+32 And such as do wickedly against the covenant shall he corrupt by
+flatteries: but the people that do know their God shall be strong, and
+do exploits.) Mattathias Maccabee a priest and his five sons led a group
+of Jews in rebellion against the invaders for having desecrated the temple
+of God. His followers became known as the Maccabees and the story of their
+revolt and Hanukkah is found in the apocryphal books of I and II
+Maccabees. These books are not scripture, but rather Jewish historical
+books. The Maccabees were able to recapture the temple after three years
+and after cleansing the temple they rededicated it on 25 Kislev 165 BC (or
+164 BC) exactly three years after the desecration of the temple led by
+Judas Maccabees the son of Mattathias who had died. This is what Hanukkah
+celebrates today. They only had enough oil for one day for the menorah
+which was supposed to burn continually in the temple as it represented the
+eternal light of God. God provided a miracle and the one day supply of oil
+burned for eight days, long enough for them to produce new oil. Hanukkah
+is actually more than just the oil. The Jews had been fighting for three
+years and had been unable to celebrate the feast of tabernacles. This
+feast would have been the most recent on the Jewish calendar. Hanukkah was
+really to be a sort of celebration of the feast of tabernacles as a second
+celebration in recognition of God providing them victory over their
+enemies. Tradition says that the date of 25 Kislev was chosen since it was
+on this date that a miracle was said to have happened when Nehemiah
+relighted the altar fire and this date was chosen in remembrance of that
+event as well. These accounts are from I and II Maccabees which as I said
+say this new feast was really meant to be a delayed celebration of the
+feast of tabernacles which is why Hanukkah is also eight days long and has
+many similarities with the lighted menorah and such. I believe this is one
+reason for the name festival of lights for Hanukkah. The miracle of the
+oil is not mentioned in I or II Maccabees and some say it was added later
+to deceive the Romans so they would not fear another revolt, but I believe
+it happened. Notice how the food eaten on Hanukkah is fried in oil
+representative of this miracle oil.
+
+Jews have a joyous time during Hanukkah. They sing Hanukkah songs and
+eat special foods such as latkes which are potato pancakes fried in oil
+and sufganiyot which are jelly donuts fried in oil. Notice the oil as this
+connection will be seen later. The children often play a game called
+dreidel. A dreidel is a four sided top with a Hebrew letter on each side
+that forms the acrostic which says "A Great Miracle Happened Here." The
+children play the game remembering how God saved the Jewish people from
+destruction. A special menorah with nine branches or candlesticks known as
+a hanukiyah is used for Hanukkah in place of the normal seven candlestick
+menorah. The number nine means the fruit of the Spirit. The center
+candlestick is raised higher above the four on each side of it and is
+known as the shamash or servant candle. The servant candle is lit first on
+the first night and is then used to light one candle. Each night another
+candle is lit by the servant candle until all eight are lit by day eight.
+Praises are sung while lighting the candles. Psalm 30 is recited on 25
+Kislev along with the Torah, the first five books of scripture. (Psalm
+119:105 (NUN). Thy word is a lamp unto my feet, and a light unto my path.)
+Psalm 30 has the superscription (A Psalm and Song at the dedication of the
+house of David.) The house of David referred to here is Solomon's temple
+with the true temple of Jesus coming from the seed of David. It is said
+the 25 of Kislev and the five books equal 30, the number of the psalm. The
+Jews do not understand the real meaning. The number 25 means forgiveness
+of sins and five means grace. The number 30 means the blood of Christ and
+dedication. It is because of the shed blood of Jesus and by his grace that
+we can be redeemed or dedicated as a child of God. Just as the temple was
+cleansed from defilement, Jesus cleanses us from sin. (I John 1:9 If we
+confess our sins, he is faithful and just to forgive us our sins, and to
+cleanse us from all unrighteousness.) The giving of gifts was originally
+never a part of Hanukkah, but today some people do give small gifts to the
+children though not a lot or expensive ones the way people often do on
+Christmas.
+
+The one time in scripture that Hanukkah is mentioned, Jesus is at the
+temple preaching. The people want to know if he is the Messiah or not and
+Jesus tells them I have already told you by my works. Jesus said he and
+God the Father were one thus saying he was God. (John 10:30 I and my
+Father are one.) The Jews wanted to stone him. After the temple was
+cleansed the Jews had placed the contaminated and desecrated stones on the
+temple mount waiting for the Messiah to come and tell them what to do with
+them. A new altar had replaced the desecrated altar. The Maccabees
+believed these stones were holy since they had been used on the altar for
+sacrifices to God, yet now they were desecrated so they knew they had to
+be removed from the temple yet they did not want to destroy them due to
+their original purpose. Therefore they were looking for the Messiah to
+come and direct them on what to do. This is one reason the Jews were
+asking Jesus if he was the Messiah and they also wanted the Messiah to
+overthrow the Romans, but they did not realize that the first coming of
+Jesus was to bring salvation to man and the second coming would bring
+judgment and rule of the world. The Jews did not understand this and
+thought there were going to be two Messiahs and they did not care about
+salvation from sins, only from the oppression of the Romans. Many people
+are just like them today not caring about their eternal destiny only their
+freedom to do what they want today. Jesus tried to point out to the Jews
+on this feast of the dedication that it was not the temple that needed to
+be cleansed, but rather our sinful defiled bodies and souls and that is
+why people need Jesus as their Saviours. Jesus came to earth to dedicate
+the true temple of God in himself along with the temple which is the body
+of believers. People once cleansed by Jesus' blood become a temple of God.
+(John 2:19 Jesus answered and said unto them, Destroy this temple, and in
+three days I will raise it up.) (I Corinthians 3:16-17 Know ye not that ye
+are the temple of God, and that the Spirit of God dwelleth in you?
+17 If any man defile the temple of God, him shall God destroy; for the
+temple of God is holy, which temple ye are.) Jesus was the true temple
+that was desecrated when he was crucified on the cross at Calvary. The
+Maccabees victory was only temporary, but for those who receive Jesus as
+their Saviour, they will have permanent victory over Satan, sin, and
+death. This does not mean we will not sin anymore or see physical death,
+but rather that Satan can never pull us away from Jesus and the
+everlasting life he has promised us and Satan can never take away our
+salvation or control us again unless we let him. Just as Hanukkah means
+dedication, we as Christians should be dedicated to the Lord every day and
+not just on Sunday. In God's eyes, partial dedication is the same as a
+desecrated temple. Children should be dedicated to the Lord and trained in
+the ways of the Lord. (Proverbs 22:6 Train up a child in the way he should
+go: and when he is old, he will not depart from it.)
+
+Jesus can be seen in Hanukkah. I mentioned how Hanukkah is a joyous
+time for the Jewish people as it should be since it points to Jesus as our
+salvation. The servant candle that is used to light the other candles
+represents Jesus. Jesus as God became a servant for us by becoming a man
+so that he might suffer and die for our sins and be resurrected so that we
+might have everlasting life. (Isaiah 53:11 He shall see of the travail of
+his soul, and shall be satisfied: by his knowledge shall my righteous
+servant justify many; for he shall bear their iniquities.) (Philippians
+2:7 But made himself of no reputation, and took upon him the form of a
+servant, and was made in the likeness of men:) (Matthew 20:28 Even as the
+Son of man came not to be ministered unto, but to minister, and to give
+his life a ransom for many.) It is only because Jesus was willing to
+become a servant for us that we are able to have everlasting life with
+him. The entire menorah with its lighted candles represents Jesus as the
+light of the world. (John 9:5 As long as I am in the world, I am the light
+of the world.) True light only comes from Jesus. This will be seen during
+the new Jerusalem where there is no more sun as Jesus is present and he is
+the only light we need. (Revelation 21:23 And the city had no need of the
+sun, neither of the moon, to shine in it: for the glory of God did lighten
+it, and the Lamb is the light thereof.) Jesus will also be the temple and
+this one will never be desecrated. (Revelation 21:22 And I saw no temple
+therein: for the Lord God Almighty and the Lamb are the temple of it.)
+Just as the servant candle is used to light the other candles only Jesus
+can bring light to individuals. I have mentioned before in other sermons
+how Jesus as the light of the world was conceived on Hanukkah and was
+dedicated to the world to be our Saviour thus showing the relevance of the
+names for this feast of the feast of the dedication as Jesus is dedicated
+to man and the festival of lights as Jesus is the true light of the world.
+This shows that God approves of this feast even though it was not
+originally prescribed by God. Jesus was born on the feast of tabernacles
+showing the connection with Hanukkah having been conceived on Hanukkah.
+Every significant event in the life of Jesus was on a Jewish feast as will
+be all future events in the life of Jesus. I showed how Hanukkah is only
+mentioned the one time in John. It is not a coincidence that it is not in
+the old testament as first off the events happened during the silent years
+between the old and new testaments and also Jesus is revealed openly in
+the new testament or dedicated to the world as the God-man. I mentioned
+the nine branches of the special Hanukkah menorah and the meaning of the
+number nine. The eight branches that are left with four on each side of
+the servant candle represent the new beginning a person has in Jesus
+Christ when they are saved. The number 8 means new beginning. (II
+Corinthians 5:17 Therefore if any man be in Christ, he is a new creature:
+old things are passed away; behold, all things are become new.)  The
+number four means gospel and can be seen by the four branches on the two
+sides of the servant candle which represents Jesus. It is the gospel that
+is presented to people that brings people to Jesus for salvation and the
+new beginning of everlasting life. Let us preach the gospel to a lost and
+dying world so that others may have a new beginning and a new life with
+Jesus. (I Corinthians 15:3-4 For I delivered unto you first of all that
+which I also received, how that Christ died for our sins according to the
+scriptures;
+4And that he was buried, and that he rose again the third day according to
+the scriptures:) The lights of the menorah shine brightly in the darkness
+each night, but when daylight comes they are greatly outshone by the sun.
+This is represented by Jesus as the Sun of righteousness. (Malachi 4:2 ¶
+But unto you that fear my name shall the Sun of righteousness arise with
+healing in his wings; and ye shall go forth, and grow up as calves of the
+stall.) When night comes again the lit candles bring new hope as they look
+to their coming Messiah. I do not believe that it is a coincidence that
+Hanukkah and Christmas are close to the same time. I have mentioned in
+previous sermons how sometimes Hanukkah and Christmas fall at the same
+time and that it is possible that in the year that Jesus was conceived on
+Hanukkah that Christmas that year was also at the same time. Just as Jesus
+fulfilled Hanukkah an added Jewish feast from the seven ordained by God,
+he can also fulfill a non-Jewish day in Christmas. As we celebrate the
+birth of Jesus at Christmas and his conception at Hanukkah the two are
+interlinked with Hanukkah showing Jesus as the light of the world and
+Christmas showing Jesus as the bread of life. (John 6:35 And Jesus said
+unto them, I am the bread of life: he that cometh to me shall never
+hunger; and he that believeth on me shall never thirst.) (Isaiah 9:2 The
+people that walked in darkness have seen a great light: they that dwell in
+the land of the shadow of death, upon them hath the light shined.) Jesus
+is the light that will bring people out of darkness. Hanukkah points to
+the fact that Jesus as the Light brings salvation not only to the Jews,
+but also to Gentiles. (Isaiah 49:6 And he said, It is a light thing that
+thou shouldest be my servant to raise up the tribes of Jacob, and to
+restore the preserved of Israel: I will also give thee for a light to the
+Gentiles, that thou mayest be my salvation unto the end of the earth.) May
+the Jews and all people turn to Jesus today for salvation. Satan brings
+darkness to his followers, but Jesus brings light. (John 8:12 ¶ Then spake
+Jesus again unto them, saying, I am the light of the world: he that
+followeth me shall not walk in darkness, but shall have the light of
+life.) For those who are Christians let us shine brightly and bring forth
+the light of Jesus to a dark and sinful world. Be a lighthouse and a
+beacon of light in a world full of darkness.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

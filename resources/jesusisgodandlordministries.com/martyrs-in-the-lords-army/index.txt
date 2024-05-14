@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,427 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Martyrs in the Lord's Army
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+This weekend we celebrate Memorial Day. This is the day that we
+remember all of those men and women who have died for our nation during
+wars against our nation's enemies. They sacrificed and gave their lives
+for the freedoms we have in this nation. May we never forget what they
+have done for us and always be willing to continue the fight for those
+freedoms even at the expense of our lives. Veteran's Day honors all of
+those who have served in our military. May we also remember all of those
+who have served in the Lord's army, especially those who were martyred.
+June 29 is the day that is set aside to remember the martyr of the
+apostles Peter and Paul. May we remember all of those martyred for Jesus
+on this day just as we do our military dead. Jesus said (John 15:13
+Greater love hath no man than this, that a man lay down his life for his
+friends.) Our military war dead and Christian martyrs gave their lives for
+their enemies. May our enemies become our friends as we win them for
+Jesus. Jesus of his own free will died for all sinners, which is everyone
+who ever lived, so that all may have eternal life. The world hated Jesus
+yet he still died for all people.    
 
-Username or email _____________________
+God has an army. When Jesus returns at his second coming after the
+tribulation, he will come with his armies riding on white horses. Both
+angels and all saved people in heaven will ride those horses. (Revelation
+19:14 And the armies which were in heaven followed him upon white horses,
+clothed in fine linen, white and clean.)Saved people have fought against
+alien armies who were enemies of the LORD. (Hebrews 11:34 Quenched the
+violence of fire, escaped the edge of the sword, out of weakness were made
+strong, waxed valiant in fight, turned to flight the armies of the
+aliens.) God has in his army people, angels, and animals. God used his
+army of locusts and caterpillars to destroy his enemy. (Joel 2:25 And I
+will restore to you the years that the locust hath eaten, the cankerworm,
+and the caterpiller, and the palmerworm, my great army which I sent among
+you.) Holy angels fight a constant spiritual war against Satan's angels.
+Archangel Michael is the warrior angel who helped the angel Gabriel reach
+Daniel. (Daniel 10:13 But the prince of the kingdom of Persia withstood me
+one and twenty days: but, lo, Michael, one of the chief princes, came to
+help me; and I remained there with the kings of Persia.) Gabriel had to
+fight on the way back as well. (Daniel 10:20 Then said he, Knowest thou
+wherefore I come unto thee? and now will I return to fight with the prince
+of Persia: and when I am gone forth, lo, the prince of Grecia shall come.)
+When Elijah was in Dothan, the Syrian army surrounded the city. Elijah's
+servant was afraid, but Elijah asked God to open his eyes and see the
+heavenly army of angels that were with them and outnumbered the Syrians.
+(II Kings 15-17 15 And when the servant of the man of God was risen early,
+and gone forth, behold, an host compassed the city both with horses and
+chariots. And his servant said unto him, Alas, my master! how shall we do?
+16 And he answered, Fear not: for they that be with us are more than they
+that be with them.
+17 And Elisha prayed, and said, LORD, I pray thee, open his eyes, that he
+may see. And the LORD opened the eyes of the young man; and he saw: and,
+behold, the mountain was full of horses and chariots of fire round about
+Elisha.)
 
-Reset password
+Not only do Christians fight in the Lord's army against God's earthly
+enemies, but they also fight a spiritual battle with Satan and his devils
+every day. We are told to put on the whole armour of God in order to fight
+this battle. (Ephesians 6:11-18 11 Put on the whole armour of God, that ye
+may be able to stand against the wiles of the devil.
+12 For we wrestle not against flesh and blood, but against principalities,
+against powers, against the rulers of the darkness of this world, against
+spiritual wickedness in high places.
+13 Wherefore take unto you the whole armour of God, that ye may be able to
+withstand in the evil day, and having done all, to stand.
+14 Stand therefore, having your loins girt about with truth, and having on
+the breastplate of righteousness;
+15 And your feet shod with the preparation of the gospel of peace;
+16 Above all, taking the shield of faith, wherewith ye shall be able to
+quench all the fiery darts of the wicked.
+17 And take the helmet of salvation, and the sword of the Spirit, which is
+the word of God:
+18 Praying always with all prayer and supplication in the Spirit, and
+watching thereunto with all perseverance and supplication for all saints;)
+Staying in the word of God daily, confessing your sins daily to Jesus, not
+to a priest and daily prayer will keep you in the fight. Prayer is a
+strong weapon against Satan. Satan hates prayer warriors. Praying is
+something all Christians can do.
+
+Just as it is a privilege to serve in your nations military as I did
+and if necessary to die, it should be the desire of every person to serve
+and fight in the Lord's army and if necessary to die for our Lord Jesus
+Christ. Just as some die in our nation's military, some who fight in the
+Lord's army will be martyred. Scripture mentions some of the people who
+were martyred for God. During the tribulation which is not far away, most
+of those who get saved will be martyred for Jesus. Most will be beheaded
+for Jesus. They wondered in heaven how long they would have to wait before
+Jesus avenged their deaths. (Revelation 6:9-11 9 And when he had opened
+the fifth seal, I saw under the altar the souls of them that were slain
+for the word of God, and for the testimony which they held:
+10 And they cried with a loud voice, saying, How long, O Lord, holy and
+true, dost thou not judge and avenge our blood on them that dwell on the
+earth?
+11 And white robes were given unto every one of them; and it was said unto
+them, that they should rest yet for a little season, until their
+fellowservants also and their brethren, that should be killed as
+they were, should be fulfilled.) (Revelation 20:4 And I saw thrones, and
+they sat upon them, and judgment was given unto them: and I saw the souls
+of them that were beheaded for the witness of Jesus, and for the word of
+God, and which had not worshipped the beast, neither his image, neither
+had received his mark upon their foreheads, or in their hands; and they
+lived and reigned with Christ a thousand years.) These people and all who
+have been martyred for Jesus will be greatly rewarded by God. They will
+reign with Jesus during the literal thousand years Millennium when Jesus
+rules here on earth. John the Baptist preached repentance and for people
+to turn to God. He also preached against king Herod who had sinned by
+marrying his brother's wife even though his brother was still alive. For
+this he was put in prison where he was later beheaded. (Matthew 14:10 And
+he sent, and beheaded John in the prison.)
+
+Abel was the first person martyred for serving God when he was
+murdered by his brother Cain. (Genesis 4:8 And Cain talked with Abel his
+brother: and it came to pass, when they were in the field, that Cain rose
+up against Abel his brother, and slew him.) Jesus spoke of the martyr of
+Abel and all of those to Zacharias. (Matthew 23:35 That upon you may come
+all the righteous blood shed upon the earth, from the blood of righteous
+Abel unto the blood of Zacharias son of Barachias, whom ye slew between
+the temple and the altar.)  Zechariah the son of Jehoiada the priest was
+martyred after speaking against Joash the king of Judah for his sins. (II
+Chronicles 24:20-21 20 And the Spirit of God came upon Zechariah the son
+of Jehoiada the priest, which stood above the people, and said unto them,
+Thus saith God, Why transgress ye the commandments of the LORD, that ye
+cannot prosper? because ye have forsaken the LORD, he hath also forsaken
+you.
+21 And they conspired against him, and stoned him with stones at the
+commandment of the king in the court of the house of the LORD.) This may
+be the Zacharias mentioned by Jesus, but there was probably another
+Zacharias as Jesus said he was the son of Barachias whereas II Chronicles
+24 says this was the son of Jehoiada. If so there were two men named
+Zacharias martyred for Jesus. Stephen was stoned to death while preaching
+about Jesus. (Acts 7:58-60 58 And cast him out of the city, and
+stoned him: and the witnesses laid down their clothes at a young man's
+feet, whose name was Saul.
+59 And they stoned Stephen, calling upon God, and saying, Lord Jesus,
+receive my spirit.
+60And he kneeled down, and cried with a loud voice, Lord, lay not this sin
+to their charge. And when he had said this, he fell asleep.) Stephen asked
+God to forgive his killers. This is hard to do, but God commands us to
+love our enemies. This man of God and others who have been martyred have
+obeyed this command as have many surviving family members. (Matthew 5:44
+But I say unto you, Love your enemies, bless them that curse you, do good
+to them that hate you, and pray for them which despitefully use you, and
+persecute you;) The apostle James, the brother of John, was martyred by
+king Herod when he was killed with a sword. (Acts 12:1-2 1 Now about that
+time Herod the king stretched forth his hands to vex certain of the
+church.
+2 And he killed James the brother of John with the sword.) Antipas was
+martyred for Jesus. Scripture does not say how, but tradition says he was
+burned in a brass bull shaped chamber that was used to roast the person
+inside. (Revelation 2:13 I know thy works, and where thou dwellest, even
+where Satan's seat is: and thou holdest fast my name, and hast not denied
+my faith, even in those days wherein Antipas was my faithful martyr, who
+was slain among you, where Satan dwelleth.) The two witnesses, most likely
+Moses and Elijah, will be martyred during the tribulation. (Revelation
+11:7 And when they shall have finished their testimony, the beast that
+ascendeth out of the bottomless pit shall make war against them, and shall
+overcome them, and kill them.) Hebrews 11 mentions some that were sawn
+asunder and stoned. (Hebrews 11:37 They were stoned, they were sawn
+asunder, were tempted, were slain with the sword: they wandered about in
+sheepskins and goatskins; being destitute, afflicted, tormented;)
+According to tradition, the prophet Isaiah was sawn in half. Tradition
+also says all of the apostles except John were martyred. Jesus told Peter
+he would be crucified on a cross for preaching about him. (John 21:18-19
+18 Verily, verily, I say unto thee, When thou wast young, thou girdedst
+thyself, and walkedst whither thou wouldest: but when thou shalt be old,
+thou shalt stretch forth thy hands, and another shall gird thee, and carry
+thee whither thou wouldest not.
+19This spake he, signifying by what death he should glorify God. And when
+he had spoken this, he saith unto him, Follow me.)
+
+Many people are still martyred for Jesus today especially in other
+nations such as Muslim nations, communist nations such as China and North
+Korea, and in India by the Hindus. The ministry Voice of the Martyrs
+tracks these deaths and issues a monthly magazine with some of their
+stories. The book Foxe's Book of Martyrs tells of many stories of
+Christians martyred for Jesus including many by the Roman Catholic Church
+who burnt people at the stake as well as pulled some bodies apart on
+torture rack machines. Other torture devices were also used. The woman in
+Revelation 17 is speaking of the Roman Catholic Church and how she has
+martyred many true Christians. (Revelation 17:6 And I saw the woman
+drunken with the blood of the saints, and with the blood of the martyrs of
+Jesus: and when I saw her, I wondered with great admiration.) There are
+those today and in the past that think by killing true Christians they are
+doing God service. This includes Roman Catholics, Muslims, and Hindus as
+well as others such as the Jewish leaders of Jesus' day. Jesus warned of
+this. (John 16:2 They shall put you out of the synagogues: yea, the time
+cometh, that whosoever killeth you will think that he doeth God service.)
+(Matthew 24:9 Then shall they deliver you up to be afflicted, and shall
+kill you: and ye shall be hated of all nations for my name's sake.) Jim
+Elliot is a modern martyr who was willing to give his life for Jesus to
+try and reach the Waodani or Huaorani people, a tribal people of Ecuador.
+Jim along with four other men were killed by the tribe for preaching
+Jesus. Jim's wife Elizabeth and Rachel, the sister of Nate Saint who was
+among the martyred, became missionaries and went back to the tribe willing
+to risk their lives and remember what they did to their family in order to
+try and win them for the Lord. They succeeded in winning many for the Lord
+including some of those who had martyred Jim and Nate. May we all be
+willing to stand and fight for Jesus this way as well as forgiving our
+enemies.  
+
+May we all be willing to fight and die for Jesus. Whether preaching,
+passing out tracts, using radio, television, websites, or social media, or
+trying to reach the lost on the streets and homes or however else you try
+to lead people to the Lord, be prepared for persecution and possible death
+if you are sincere in trying to win souls. God said he who wins souls is
+wise. (Proverbs 11:30 The fruit of the righteous is a tree of life; and he
+that winneth souls is wise.) Soul winners will also get a crown in heaven.
+(I Thessalonians 2:19 For what is our hope, or joy, or crown of rejoicing?
+Are not even ye in the presence of our Lord Jesus Christ at his coming?)
+Fighting for the Lord is hard, but will always be worth it even if it
+means your life here on earth. Jesus said those who lose their lives for
+him will find it. (Matthew 16:25 For whosoever will save his life shall
+lose it: and whosoever will lose his life for my sake shall find it.)
+Those who are martyred for Jesus will receive a martyr's crown.
+(Revelation 2:10 Fear none of those things which thou shalt suffer:
+behold, the devil shall cast some of you into prison, that ye may be
+tried; and ye shall have tribulation ten days: be thou faithful unto
+death, and I will give thee a crown of life.) Jesus says all who die for
+him will not have died in vain. Let us all fight for Jesus today and try
+and win as many souls for him as we can before it is too late. We are fast
+losing our rights here in the United States and the day will come that we
+will not be allowed to openly serve Jesus unless we fight for him today.
+May God bless all of those who have fought the good fight as the apostle
+Paul said he had and especially all of those who have been martyred for
+Jesus. As we celebrate Memorial Day tomorrow, may we remember those who
+died for our earthly freedom as a nation, but may we also remember all of
+those Christians who have been martyred throughout history and around the
+world for Jesus in the fight against Satan. 
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

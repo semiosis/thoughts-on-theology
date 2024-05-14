@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,548 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+God is Light
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+God is light. Light is necessary for life and we will see that the
+real light that one needs is Jesus as their Saviour. I John 1:5 shows us
+that God is light and that there is no darkness in him. (I John 1:5 This
+then is the message which we have heard of him, and declare unto you, that
+God is light, and in him is no darkness at all.) Light represents purity
+and as God is pure there can be no darkness in him. Darkness represents
+evil. We see this how crime is much more rampant at night. People are
+afraid of the dark. Satan loves the dark and tries to keep all others in
+the dark as well as he spreads his evil. The unsaved love the darkness and
+hate the light as they know the light represents Jesus. (John 3:19-21 19
+And this is the condemnation, that light is come into the world, and men
+loved darkness rather than light, because their deeds were evil.
+20 For every one that doeth evil hateth the light, neither cometh to the
+light, lest his deeds should be reproved.
+21 But he that doeth truth cometh to the light, that his deeds may be made
+manifest, that they are wrought in God.) Because God is light and light is
+pure and there is no darkness in him then God had to create darkness to
+allow people a choice to serve him as the light or to serve the darkness
+of Satan. (Isaiah 45:7 I form the light, and create darkness: I make
+peace, and create evil: I the LORD do all these things.) This verse shows
+God created darkness and evil which the darkness represents. When God
+created the heaven and the earth on day one then he had to create darkness
+as he as light already existed. God formed light for here on earth, but he
+did not create it as God is not a created being. We see in Genesis 1:2-5
+how God created the darkness to start off the day and then formed light to
+shine forth in the second part of the day. This is why the Jews day starts
+at sunset as darkness came before God let the light shine through. This
+represents how we are born as sinners in darkness and then only receive
+light after we are reborn as sinners washed in the blood of Jesus. Jesus
+was the light for the first three days until he created the sun and was
+the light for the plants to survive on day three. (Genesis 1:2-5 2 And the
+earth was without form, and void; and darkness was upon the face of the
+deep. And the Spirit of God moved upon the face of the
+waters.                                                        
+3 And God said, Let there be light: and there was
+light.                                                 4 And God saw the
+light, that it was good: and God divided the light from the
+darkness.                                                                                                                                
+5 And God called the light Day, and the darkness he called Night. And the
+evening and the morning were the first day.) II Corinthians 4:6 shows how
+God commanded the light to shine out of the darkness during the second
+half of the day. We see this in Genesis 1:3 when God said let there be
+light. (II Corinthians 4:6 For God, who commanded the light to shine out
+of darkness, hath shined in our hearts, to give the light of the knowledge
+of the glory of God in the face of Jesus Christ.) God commanded his Son
+Jesus to shine forth out of the darkness as a symbol of his bringing light
+to the world when he came to earth as a man.
 
-Username or email _____________________
+Jesus said he is the light of the world. (John 8:12 ¶ Then spake
+Jesus again unto them, saying, I am the light of the world: he that
+followeth me shall not walk in darkness, but shall have the light of
+life.) (John 9:5 As long as I am in the world, I am the light of the
+world.) Only Jesus is true light and only he can bring salvation to man.
+Satan is the false light and is in reality darkness. (II Corinthians 11:14
+And no marvel; for Satan himself is transformed into an angel of light.)
+True light can only shine forth when Jesus as God is here on earth,
+whether physically or living in Christians hearts. This is why some
+nations shine forth much brighter than other nations as so many nations
+have almost no true Christians so they have no light of Jesus to shine
+forth. I have preached on it before how we as Christians are supposed to
+shine forth the light of Jesus by reflecting that light. We are to be a
+lighthouse to the world so that the world should see Jesus when they see
+us. (Matthew 5:14-16 14 Ye are the light of the world. A city that is set
+on an hill cannot be
+hid.                                                   
+15 Neither do men
+light a candle, and put it under a bushel, but on a candlestick; and it
+giveth light unto all that are in the
+house.                                                          16 Let
+your light so shine before men, that they may see your good works, and
+glorify your Father which is in heaven.) (Philippians 2:15 That ye may be
+blameless and harmless, the sons of God, without rebuke, in the midst of a
+crooked and perverse nation, among whom ye shine as lights in the world;)
+We see in these verses how we are to be a light on the hill shining
+brightly and are not to hide from the world. We as the light of the world
+must tell others about the light of Jesus. I have said this before, but
+the reason that the whole world was dark for the last three hours when
+Jesus was dying on the cross is because he as the light of the world bore
+the sins of the world and took upon himself all the darkness and evil that
+mankind has or ever will do. The light of the world died for you and me.
+(Luke 23:44-45 44 And it was about the sixth hour, and there was a
+darkness over all the earth until the ninth hour.            45 And the
+sun was darkened, and the veil of the temple was rent in the midst.) Verse
+45 shows that the sun was darkened as well, as the sun is a type of Jesus
+and if the real thing was dying then so does the type. We see in John 1
+that Jesus is called Light four times. The number four means gospel as
+Jesus is the gospel. John the Baptist bear witness of Jesus as the true
+Light. (John 1:7-9 7 The same came for a witness, to bear witness of the
+Light, that all men through him might believe.  
 
-Reset password
+8 He was not that Light, but was sent to bear witness of that
+Light.                               9 That was the true Light, which
+lighteth every man that cometh into the world.) Jesus brought light not
+only to the Jews, but the Gentiles as well. Jesus as light shined in the
+darkness, but darkness did not comprehend or understand the light as
+darkness as sin is the polar opposite of light and its purity. (John 1:4-5
+4 In him was life; and the life was the light of
+men.                                                                 5 And
+the light shineth in darkness; and the darkness comprehended it not.) The
+sinful world is darkness and will never understand Jesus. This is why we
+need to let the light of Jesus shine on us so that we can allow it to work
+and open our eyes to understand we need to be saved and then seek out that
+light. Jesus came to be a light to the world so that we might be pulled
+from the darkness and to light and be saved for those who believe in him
+as their Saviour. (John 12:46 I am come a light into the world, that
+whosoever believeth on me should not abide in darkness.) When Jesus was
+brought to the temple to be presented to the Lord then Simeon recognized
+Jesus as the light of the world. (Luke 2:32 A light to lighten the
+Gentiles, and the glory of thy people Israel.) When Jesus spoke to Paul on
+the road to Damascus then a great light that was Jesus shone around Paul
+at noontime. The light of Jesus outshone the sun to spotlight Paul. (Acts
+22:6 And it came to pass, that, as I made my journey, and was come nigh
+unto Damascus about noon, suddenly there shone from heaven a great light
+round about me.) (Acts 22:11 And when I could not see for the glory of
+that light, being led by the hand of them that were with me, I came into
+Damascus.) (Acts 26:13 At midday, O king, I saw in the way a light from
+heaven, above the brightness of the sun, shining round about me and them
+which journeyed with me.) We see Paul gets saved in chapter 22. In
+scripture the number 22 means light and it is the light of Jesus that
+brings salvation to Paul who used him to be a light to the Gentiles. The
+number 14 in scripture means salvation and you add eight for new beginning
+and it gives you 22 or light which is life by Jesus who delivers you from
+your sins.  
+
+The light of Jesus is so glorious that when God spoke to Moses then
+his light shone upon Moses and this light was still seen on his face after
+Moses left to go and speak to the people so he had to wear a vail. (Exodus
+34:29-30 29 ¶ And it came to pass, when Moses came down from mount Sinai
+with the two tables of testimony in Moses' hand, when he came down from
+the mount, that Moses wist not that the skin of his face shone while he
+talked with him.                                                       
+30 And when Aaron and all the children of
+Israel saw Moses, behold, the skin of his face shone; and they were afraid
+to come nigh him.)
+
+We see in other verses that light is spoken of being in Christians or
+that people ignore the light. The light spoken of in these verses speaks
+of the light of Jesus or the salvation which his light brings. (Luke 16:8
+And the lord commended the unjust steward, because he had done wisely: for
+the children of this world are in their generation wiser than the children
+of light.) Luke 16:8 shows how God refers to Christians as children of
+light. That is because God is light and the saved are children of God.
+(John 12:36 While ye have light, believe in the light, that ye may be the
+children of light. These things spake Jesus, and departed, and did hide
+himself from them.) (James 1:17 Every good gift and every perfect gift is
+from above, and cometh down from the Father of lights, with whom is no
+variableness, neither shadow of turning.) (Galatians 3:26 For ye are all
+the children of God by faith in Christ Jesus.) Light is meant to be shone
+brightly and as children of light then we must be obedient to God and
+shine forth that light. There is a song sung sometimes in church we sing
+that says of our light to "Let it shine, let it shine, let it shine". Let
+this song be more than words in our hearts. Let us shine forth Jesus. II
+Corinthians 6:14 shows how we as children of light are not to be unequally
+yoked with children of darkness or unsaved people. Why would you as a
+child of light want to return to darkness? (II Corinthians 6:14 Be ye not
+unequally yoked together with unbelievers: for what fellowship hath
+righteousness with unrighteousness? and what communion hath light with
+darkness?) (Ephesians 5:8 For ye were sometimes darkness, but now are ye
+light in the Lord: walk as children of light:) The Jews as God's chosen
+people were originally intended to be the light to Gentiles, but they
+failed to fulfill that as most chose darkness. (Isaiah 49:6 And he said,
+It is a light thing that thou shouldest be my servant to raise up the
+tribes of Jacob, and to restore the preserved of Israel: I will also give
+thee for a light to the Gentiles, that thou mayest be my salvation unto
+the end of the earth.) II Corinthians 4:4 shows how Satan blinds people so
+they will not let the light of Jesus shine upon them. (II Corinthians 4:4
+In whom the god of this world hath blinded the minds of them which believe
+not, lest the light of the glorious gospel of Christ, who is the image of
+God, should shine unto them.) God calls all people to put off the darkness
+which is sin and to put on the armour of light which is Jesus. A person
+can only be saved when they put on the light or armour of Jesus. As
+Christians we need to make sure we are walking with Jesus so that the
+armour of light that we have will be most effective. This is the armour
+that will keep us away from darkness. (Romans 13:12 The night is far
+spent, the day is at hand: let us therefore cast off the works of
+darkness, and let us put on the armour of light.)
+
+Various things in scripture represent Jesus as light. The sun as the
+brightest thing we see on earth is a type of Jesus. The sun is yellow
+which represents deity. Jesus is called the Sun of righteousness showing
+this connection. (Malachi 4:2 ¶ But unto you that fear my name shall the
+Sun of righteousness arise with healing in his wings; and ye shall go
+forth, and grow up as calves of the stall.) I already mentioned how the
+sun as a type went dark for the last three hours that Jesus was on the
+cross and at one point will not shine in the tribulation as the people
+choose the darkness of Satan over the light of Jesus. (Joel 2:10 The earth
+shall quake before them; the heavens shall tremble: the sun and the moon
+shall be dark, and the stars shall withdraw their shining:) When Jesus was
+transfigured then his face shone like the sun. (Matthew 17:2 And was
+transfigured before them: and his face did shine as the sun, and his
+raiment was white as the light.) When John saw Jesus in Revelation 1:16
+then the countenance of Jesus was as the sun. (Revelation 1:16 And he had
+in his right hand seven stars: and out of his mouth went a sharp twoedged
+sword: and his countenance was as the sun shineth in his strength.)
+Countenance means face. The moon is a type of Christians that reflects the
+light of the sun just as Christians as children of light are meant to
+reflect the light of Jesus. Stars are represented in scripture as a type
+of angels and just as Christians are supposed to reflect the light of
+Jesus then so are angels. This is why as we saw in Joel 2:10 that when the
+sun goes dark then the moon and stars must as well as they have no light
+of Jesus to reflect. Notice that the moon is much brighter in the sky than
+the stars. This is symbolic of how as Christians we are children of light
+who are supposed to tell others about Jesus. Salvation is for man and so
+God expects man to preach the gospel, not angels as they have no
+salvation. This means that as Christians we should shine forth brighter
+than angels to spread this most important message. Lucifer whose name
+meant light bearer was originally created to shine forth the light of
+Jesus, but he rejected that light and became darkness and was renamed
+Satan. Another type in scripture as Jesus as the light of the world is
+seen in the lamps that were placed in the tabernacle. These lamps were to
+burn continuously just like we need the light of Jesus to burn
+continually. Without the light of Jesus we would die in our sins and burn
+for eternity in the lake of fire. These seven lamps were attached to a
+candlestick that had twenty two bowls which fed these lamps. (Leviticus
+24:2-4 2 Command the children of Israel, that they bring unto thee pure
+oil olive beaten for the light, to cause the lamps to burn
+continually.                                                    
+3 Without the vail of the testimony,
+in the tabernacle of the congregation, shall Aaron order it from the
+evening unto the morning before the LORD continually: it shall be a
+statute for ever in your
+generations.                                                                  
+4 He shall order the lamps upon the pure candlestick before the LORD
+continually.) These lamps were the only light allowed inside as no natural
+light was allowed. This is symbolic of how only the light of Jesus can
+save us and it is only the light of Jesus that we need to survive. We do
+not need to rely on natural or artificial light. This is why we do not
+worship the sun even though it is a type of Jesus. We only worship the
+true light. The candlesticks that held the lamps were made of gold and
+gold represents deity showing how the light inside them comes from God.
+The Jewish feast of Hanukkah which is called the feast of the dedication
+in scripture in John 10:22 is also known as the festival of lights. Notice
+this is verse 22. Hanukkah is when Jesus was conceived as a man and
+dedicated to the world as the light of the world so we see both names
+apply. The feast of tabernacles had a major lighting ceremony on the last
+day that shone throughout Jerusalem and it was here that Jesus said he was
+the light of the world to show the people what the lighting ceremony was
+meant to represent all these years as a type of him.
+
+We saw how the sun as the greatest light in nature is a type of
+Jesus. Lightning is another great light in nature. In nature there are
+seven types of light. Seven represents perfection or completeness. This
+fits in as God as light is perfect and complete. Light is electromagnetic
+energy. Light has tremendous power that can be converted into weapons or
+used for cooking such as seen in microwaves. God also is omnipotent or all
+powerful. Light is the fastest known thing in existence and travels at
+186,000 miles per second. The only thing in nature that light cannot
+escape from is a black hole which is symbolic of hell where those there
+will live forever in darkness without the light of Jesus. Light represents
+the Godhead which makes sense since God is light and all three persons of
+the Godhead are one. The seven types of light found in nature are from
+longest to shortest wavelength radio waves, microwaves, infrared, visible,
+ultraviolet, x-ray, and gamma rays. Notice that visible light is in the
+middle or the fourth light from either direction. Four represents the
+gospel and I have already shown how Jesus is the visible light of the
+world and he is the gospel that must be preached to everyone. Visible
+light itself is white light with white representing purity, but when split
+it is divided into seven colors which are the colors of the rainbow. These
+seven colors from longest to shortest wavelength are red, orange, yellow,
+green, blue, indigo, and violet. All seven of these together make white
+light. Colors as numbers in scripture have meaning and the seven colors of
+the rainbow present the gospel with their meanings and order of the
+colors. Color is vibration of light and sound is vibration of air. There
+are seven musical notes which all have a corresponding color of the
+rainbow. Light consists of three primary colors of red, green, and blue.
+Red represents the shed blood of Jesus that he shed for the sins of the
+world on the cross at Calvary. Green represents the life we have which God
+the Holy Ghost breathed into us, and blue represents God the Father. Blue
+means separation and God the Father is separated from all other false gods
+as he is the God of gods. (Deuteronomy 10:17 For the LORD your God is God
+of gods, and Lord of lords, a great God, a mighty, and a terrible, which
+regardeth not persons, nor taketh reward:) We see that there are only
+three primary colors since there are three persons in the Godhead. We also
+see these are not the same primary colors as seen in paint of red, yellow,
+and blue. Light as God is different. In paint the three colors still
+represent God with the red of Jesus' blood, and the yellow of the deity of
+God, and the blue of separation of God from all other gods. Primary colors
+whether in light or paint when mixed make the three secondary colors.
+Primary colors exist on their own and are not made from any other color
+just like God who has always existed and is made by no one else. The three
+primary colors of light of red, green, and blue when mixed together make
+white light as it is pure like God, but when you combine the three primary
+colors of paint you make black. The three primary colors of light make all
+other colors just as God made everything. Light is the best analogy for
+trying to understand the Godhead which consists of God the Father, God the
+Son Jesus Christ, and God the Holy Ghost. God is one God in three persons
+at the same time and God is light. This can be seen how when you mix the
+three primary colors of light together you have one light which is white
+light. This white light is made up of the colors of red, green, and blue
+which all three exist at the same time, but are still only one white
+light. We still refer to white light in the singular. The Godhead is the
+same way as all three persons of the Godhead exist at the same time, but
+are still only one God and light is the same way. People often try to show
+the Godhead as how water can be a solid, liquid, or gas which is true, but
+they cannot all three exist at the same time the way light can. I believe
+it is best to compare the Godhead with scripture and how God compares
+himself since God is light. I have to give credit to Dr. David A. Ball for
+this analogy which I believe is the best one I have ever heard. The three
+secondary colors of light are cyan, magenta, and yellow. Cyan is a mixture
+of blue and green light. Magenta is a mixture of red and blue light and
+yellow is a mixture of red and green light. The three primary colors in
+paint are orange, green, and purple. Orange is a mixture of red and
+yellow, green is a mixture of yellow and blue, and purple is a mixture of
+red and blue. Light has many qualities that are like God which makes sense
+since God is light. Light is unable to be touched and is uncreated. Light
+always overcomes darkness. You take a candle and stick it in a pitch black
+room and it will seem like a bright light. Light seems to be in multiple
+places at once as you can see light in a distant room even if you cannot
+see the light bulb as light is able to bend around obstacles. This shows
+God's omnipresence. Light is unchanging and absolute just like God.
+(Malachi 3:6 For I am the LORD, I change not; therefore ye sons of Jacob
+are not consumed.) Light is pure just like God and all of creation relies
+on light for survival. This applies to physical life, but especially to
+the spiritual life of Jesus. People who are denied light, especially
+sunlight for a long time will soon start developing many health problems
+and psychological problems and they will soon lead to death. It is light
+that allows plants by photosynthesis to produce food to live which the
+plants then become food for all animals and people. All of these
+attributes apply to both God and light. The seven types of light can all
+be compared to the three persons of the Godhead. Light has different
+properties that represent the Godhead. X-rays, gamma rays, radio waves,
+and ultraviolet light cannot be seen or felt just as God the Father cannot
+be seen or felt. Visible light can be seen and felt just as Jesus could be
+seen and felt. Infrared light cannot be seen but can be felt as heat just
+as the Holy Ghost cannot be seen but can be felt. Not sure on microwaves.
+They too may represent the Holy Ghost. They are not seen and some say not
+felt, but others say they can burn you, but they still may not be felt
+before burning you. I am not sure. Just as light with the exception of
+visible light cannot be seen, neither can God who is a Spirit. (John 4:24
+God is a Spirit: and they that worship him must worship him in spirit and
+in truth.) Spirits are invisible unless God allows them to be seen just as
+he allowed Jesus to be seen.    
+
+I have shown how God is light especially Jesus who is the light of
+the world. It is this light that gives us not only physical life, but
+spiritual life. We see how nature with the seven types of light represent
+the Godhead here on earth and how the sun represents Jesus and the rainbow
+his salvation that he gives us. The sun is clearly visible for all to see
+and so is God as his light shines all over the world so that people are
+without excuse in rejecting the free gift of the light of God. Light in
+nature is a wondrous and marvelous thing and so is the God who is light.
+The next time we see light let it remind us of the Godhead and for those
+who are still unsaved and living in darkness, then please turn from the
+darkness and to the light and be saved. Seek the light so that you might
+have everlasting life.        
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

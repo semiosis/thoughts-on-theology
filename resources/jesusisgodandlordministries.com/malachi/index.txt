@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,969 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Malachi   
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Malachi is the thirty ninth and last book of the old testament as
+well as the thirty ninth book of scripture. Malachi is considered one of
+the minor prophets. Following his book, God had over 400 years pass before
+he revealed his written word again. This is often referred to as the
+"silent years" as God did not send any prophets to the people of Israel or
+in this case Judah until John the Baptist. Malachi consists of four
+chapters. Malachi was one of the prophets after the end of the Babylonian
+captivity. 
 
-Username or email _____________________
+(Malachi 1:1 The burden of the word of the LORD to Israel by
+Malachi.) God shows in this verse how he is using Malachi to speak to
+Israel about a burden of the LORD for Israel.
 
-Reset password
+(Malachi 1:2 I have loved you, saith the LORD. Yet ye say, Wherein
+hast thou loved us? Was not Esau Jacob's brother? saith the LORD: yet I
+loved Jacob,) The LORD says he has loved Israel, yet the people ask how.
+They have forgotten the many miracles that God has performed on their part
+and how he established them as a nation and his chosen people from
+nothing. The LORD says that Esau was Jacob's brother who founded Israel,
+yet God chose Jacob for his nation as he loved him. God rejected Esau even
+though he was Jacob's brother. The people forgot about the love of the
+LORD how he had brought them out of captivity from Babylon. The people
+partially turned back to God after their return from Babylon, but they had
+now once again turned from God. Often times revivals do not last long as
+people have short memories and love sin too much.
+
+(Malachi 1:3 And I hated Esau, and laid his mountains and his
+heritage waste for the dragons of the wilderness.) God says he hated Esau
+and laid his heritage as a waste. God confirms that he hated Esau in
+Romans. (Romans 9:13 As it is written, Jacob have I loved, but Esau have I
+hated.) The nation of Edom came from Esau and we saw in our study on
+Obadiah how Edom was a long time enemy of Israel and God and finally God
+had enough of Edom and destroyed her. Much of her former land is still a
+waste today. God shows in this verse and in verse 2 how God loved Israel
+by blessing her much greater than Edom even though Esau and Jacob (Israel)
+were brothers.  
+
+(Malachi 1:4 Whereas Edom saith, We are impoverished, but we will
+return and build the desolate places; thus saith the LORD of hosts, They
+shall build, but I will throw down; and they shall call them, The border
+of wickedness, and, The people against whom the LORD hath indignation for
+ever.) Edom brags that even though God has punished them by partial
+destruction then she will rebuild. This shows the defiance by Edom against
+God and how she had not repented of her sins as a nation. God says if they
+rebuild he will destroy them until they are finally completely destroyed.
+God did finally destroy Edom so that today she no longer exists. God said
+she was full of wickedness. The end of the verse shows that God has
+indignation (hatred) for ever against Edom as she has always been wicked
+and against him and had never repented.
+
+(Malachi 1:5 And your eyes shall see, and ye shall say, The LORD will
+be magnified from the border of Israel.) God says in this verse that the
+day will come that Israel will see what God has done for her and God will
+be magnified throughout her border. This will take place during the
+millennium.
+
+(Malachi 1:6 ¶ A son honoureth his father, and a servant his master:
+if then I be a father, where is mine honour? and if I be a master, where
+is my fear? saith the LORD of hosts unto you, O priests, that despise my
+name. And ye say, Wherein have we despised thy name?) God said that a son
+honours his earthly father and a servant his master, yet God says if I be
+your Father, then where is my honour due me? The same honor is not given
+to him as Master as they show no fear of him yet an earthly servant fears
+his earthly master. The people showed more honor to earthly people and
+fear than they did God. God says the priests despise his name yet they ask
+how. The priests claim to worship God, but it is in reality in name only
+as they allowed the people to offer blemished sacrifices to God when they
+were to have been the mediators for God.
+
+(Malachi 1:7 Ye offer polluted bread upon mine altar; and ye say,
+Wherein have we polluted thee? In that ye say, The table of the LORD is
+contemptible.) God said the people have offered polluted bread to him as
+they have not repented prior to making an offering. They give God the
+bread that they do not want instead of the best bread. Their bread is
+polluted with their sin as they do not offer to God out of love or fear,
+but as just one going through the motions. The people did not understand
+what the sacrifices represented and why they were doing them nor did they
+care. The people asked how had they polluted because they could not see
+what evil they had done before God because of their sin. They could not
+even see it as sin.
+
+(Malachi 1:8 And if ye offer the blind for sacrifice, is it not evil?
+and if ye offer the lame and sick, is it not evil? offer it now unto thy
+governor; will he be pleased with thee, or accept thy person? saith the
+LORD of hosts.) God said the people offered to him the blind animals or
+the lame animals when he had commanded that they offer animals without
+blemish. These were animals that were of no use to the people so they
+figured they would offer them as sacrifices to God instead of just killing
+them and disposing of them. They believed that God did not care and would
+be pleased yet God said would you offer such animals to the governor and
+would he be pleased. God was saying that even the governor would reject
+the animals so why did they think that a holy and righteous God who is
+much greater than the governor would accept these sacrifices. (Leviticus
+22:19-25 19 Ye shall offer at your own will a male without blemish, of the
+beeves, of the sheep, or of the goats.
+20 But whatsoever hath a blemish, that shall ye not offer: for it shall
+not be acceptable for you.
+21 And whosoever offereth a sacrifice of peace offerings unto the LORD to
+accomplish his vow, or a freewill offering in beeves or sheep, it shall be
+perfect to be accepted; there shall be no blemish therein.
+22 Blind, or broken, or maimed, or having a wen, or scurvy, or scabbed, ye
+shall not offer these unto the LORD, nor make an offering by fire of them
+upon the altar unto the LORD.
+23 Either a bullock or a lamb that hath any thing superfluous or lacking
+in his parts, that mayest thou offer for a freewill offering; but for a
+vow it shall not be accepted.
+24 Ye shall not offer unto the LORD that which is bruised, or crushed, or
+broken, or cut; neither shall ye make any offering thereof in your land.
+25 Neither from a stranger's hand shall ye offer the bread of your God of
+any of these; because their corruption is in them, and blemishes be in
+them: they shall not be accepted for you.) We see how the people offered
+many of the blemished animals mentioned in this forbidden list by God.
+
+(Malachi 1:9 And now, I pray you, beseech God that he will be
+gracious unto us: this hath been by your means: will he regard your
+persons? saith the LORD of hosts.) Malachi tells the people to repent and
+ask God to be gracious to them for their many sins of offering blemished
+sacrifices to the LORD. Malachi asks the people if they really thought God
+should regard (care about) the people due to their sins. 
+
+(Malachi 1:10 Who is there even among you that would shut the doors
+for nought? neither do ye kindle fire on mine altar for nought. I have no
+pleasure in you, saith the LORD of hosts, neither will I accept an
+offering at your hand.) The priests had become so corrupt that they would
+not even fulfill the small things in the temple such as shut the doors
+unless they were rewarded with pay. They would not do it for free as part
+of their priestly duties as assigned by God. The same applies to keeping
+the fire on the altar burning. They would let it burn out unless they were
+paid for it. This sounds like many people in our society today including
+Christians. God said he has no pleasure in the people and he would not
+accept their offerings. In essence they might as well close the temple as
+God has turned away from them as they have polluted his commandments.
+
+(Malachi 1:11 For from the rising of the sun even unto the going down
+of the same my name shall be great among the Gentiles; and in every place
+incense shall be offered unto my name, and a pure offering: for my name
+shall be great among the heathen, saith the LORD of hosts.) God speaks of
+a future prophecy and its fulfillment when he says his name will become
+great among the Gentiles. This has been partially fulfilled with the
+church and will be completely fulfilled during the millennium. The Jews
+mock the LORD with their sacrifices yet the Gentiles will honor the LORD.
+
+
+(Malachi 1:12 ¶ But ye have profaned it, in that ye say, The table of
+the LORD is polluted; and the fruit thereof, even his meat, is
+contemptible.) God says the Jews have profaned his name whereas the
+Gentiles will make his name great. God said the table of the LORD was
+polluted as the Jews had brought such sickly animals that even the priests
+could not eat of them. The priests were to get the best portions of meat
+to eat as their reward for serving God, yet even they could not get any
+food, but they seemed to only care about that and not about God and they
+may not even have cared that they had nothing to eat as their hate for God
+was that great.
+
+(Malachi 1:13 Ye said also, Behold, what a weariness is it! and ye
+have snuffed at it, saith the LORD of hosts; and ye brought that which was
+torn, and the lame, and the sick; thus ye brought an offering: should I
+accept this of your hand? saith the LORD.) God continues by saying how the
+people had brought the torn animals, the lame, and the sick and yet God
+asks do you really think I should accept these as offerings. The people
+said that bringing sacrifices to God was weary and that basically they did
+not care about God and they had no time for him. They figured they would
+keep the best animals for themselves when they were supposed to have given
+God the best animals. They only went through the motions of sacrificing
+animals because they were commanded to, but they had lost the true meaning
+for the sacrifices as they continued in their sins.
+
+(Malachi 1:14 But cursed be the deceiver, which hath in his flock a
+male, and voweth, and sacrificeth unto the Lord a corrupt thing: for I am
+a great King, saith the LORD of hosts, and my name is dreadful among the
+heathen.) God said that those who were deceived into believing they were
+honoring God would be cursed. God would curse those who had the male
+animals as God commanded for sacrifices yet they brought their blemished
+animals instead. God said these were corrupt offerings. They did not care
+about obedience. The same can be seen in many churches today as the people
+go about their lives like the heathen or who believe that giving God a
+dollar or two will have them blessed by God when they can afford more. God
+was not pleased by the Israelites or of those in the church today who are
+like them in their tithes and offerings when they hold back from God. God
+says he is a great King which we know now refers to Jesus Christ. God said
+his name would be dreadful among the heathen and this is seen some today.
+
+(Malachi 2:1 And now, O ye priests, this commandment is for you.) God
+says what he is about to speak of next applies to the priests and that it
+is a commandment and not just a suggestion. The first nine verses all seem
+to apply to the priests specifically as they were to be the leaders and
+yet they have been the ones who allowed such hideous sacrifices and have
+failed at teaching the people the proper ways of God.
+
+(Malachi 2:2 If ye will not hear, and if ye will not lay it to heart,
+to give glory unto my name, saith the LORD of hosts, I will even send a
+curse upon you, and I will curse your blessings: yea, I have cursed them
+already, because ye do not lay it to heart.) God warns the priests that he
+would curse them if they continued to allow these unworthy sacrifices and
+he would turn what should have been blessings for them into curses as
+well. God said he has already started to do just this as the priests just
+like the people will not put it in their hearts to love the LORD and to
+want to offer to God unblemished sacrifices as required by God. The
+priests only go about their duties out of obligation and they have no love
+in their hearts for the LORD. Deuteronomy 28 speaks of the many blessings
+and curses from God for the Israelite priests and people with the first
+fourteen verses listing blessings and verses 15-68 all of the curses that
+will wipe out the blessings whenever they reject God. The blessings will
+quickly be wiped out by God and he said he was already bringing these
+curses upon the people. A person can do one thousand good things, but just
+one disobedience will wipe them all out and God shows this in the chapter
+in Deuteronomy. James said if you break one part of the law then you have
+broken all of it. (James 2:10 For whosoever shall keep the whole law, and
+yet offend in one point, he is guilty of all.)
+
+(Malachi 2:3 Behold, I will corrupt your seed, and spread dung upon
+your faces, even the dung of your solemn feasts; and one shall take you
+away with it.) God says he will corrupt their seed and will spread dung
+upon their faces, even of their feasts as he will not accept the worship
+of the feasts as they have removed any obedience to their original true
+meaning. God was basically telling the people that he was going to do to
+them just as they had done to him. They showed no respect in their
+offerings to him as they were equivalent to dung.
+
+(Malachi 2:4 And ye shall know that I have sent this commandment unto
+you, that my covenant might be with Levi, saith the LORD of hosts.) God
+said he sent this commandment to the priests to again remind who God was
+speaking to. God made his covenant with Levi for the Levites to be his
+priests since the whole nation which had been intended to be priests had
+rejected the LORD.
+
+(Malachi 2:5 My covenant was with him of life and peace; and I gave
+them to him for the fear wherewith he feared me, and was afraid before my
+name.) This verse speaks of the covenant of peace that God made with
+Phinehas who was the son of Eleazar and grandson of Aaron. Phinehas in his
+zeal for the LORD killed Zimri and Cozbi who had rebelled against God and
+made sacrifices to false gods. God stopped the plague he had brought upon
+the people due to the actions of Phinehas. God gave this covenant to
+Phinehas because of his fear of God yet now the Israelite priests had lost
+all fear of God and disrespected his name. (Numbers 25:11-13 11 Phinehas,
+the son of Eleazar, the son of Aaron the priest, hath turned my wrath away
+from the children of Israel, while he was zealous for my sake among them,
+that I consumed not the children of Israel in my jealousy.
+12 Wherefore say, Behold, I give unto him my covenant of peace:
+13 And he shall have it, and his seed after him, even the covenant of an
+everlasting priesthood; because he was zealous for his God, and made an
+atonement for the children of Israel.)
+
+(Malachi 2:6 The law of truth was in his mouth, and iniquity was not
+found in his lips: he walked with me in peace and equity, and did turn
+many away from iniquity.) The life of Phinehas honored the LORD just as
+the lives of the priests were to have done. The priests were to have set
+the examples and brought people to the LORD to be saved and become
+righteous yet these priests had done just the opposite as they encouraged
+the people to live a life of sin and rebellion against God. Phinehas
+turned people away from sin, but these people led people into deeper sin
+and glorified it.
+
+(Malachi 2:7 For the priest's lips should keep knowledge, and they
+should seek the law at his mouth: for he is the messenger of the LORD of
+hosts.) The priests were expected by God to know his word and to teach
+this to the people yet they had failed miserably in their
+responsibilities. Many pastors today have as well.
+
+(Malachi 2:8 But ye are departed out of the way; ye have caused many
+to stumble at the law; ye have corrupted the covenant of Levi, saith the
+LORD of hosts.) God said these priests have corrupted the covenant God
+made with Levi and have caused many people to turn away from God rather
+than towards him as they were required to do. The priests themselves had
+turned from God, so they could not even if they wanted to bring the people
+to the LORD. The priests were the very ones who were supposed to know the
+law and obey it yet they were the ones who broke the law and taught this
+disobedience to the people.
+
+(Malachi 2:9 Therefore have I also made you contemptible and base
+before all the people, according as ye have not kept my ways, but have
+been partial in the law.) God said that just as he had rejected the
+priests due to their sins and corruption he had made the people to reject
+them as well. God also condemned the priests for being partial in who had
+to obey the law. They probably were guilty of requiring the people to obey
+certain laws that they themselves disobeyed. More than likely they also
+condemned certain people for bringing blemished animals for sacrifices
+while excusing others with no discipline or even saying anything to them.
+Many church leaders are similar to these priests today as they allow some
+to sin without consequences while punishing others for not being perfect.
+There is no consistency and obedience to God anymore, but rather church
+leaders are concerned about pleasing the people and keeping their jobs
+over obedience to God. They fear men when they should fear God.
+
+(Malachi 2:10 Have we not all one father? hath not one God created
+us? why do we deal treacherously every man against his brother, by
+profaning the covenant of our fathers?) Malachi asks do not all Jews have
+the same father in Abraham and were not all of them created by the same
+God? Saved Jews would also have the same Father in God the Father. This
+also speaks of how God created the nation of Israel as well as all
+Israelites literally being created by God. Malachi asks since all Jews
+have the same father and Creator then they were all brothers, yet they
+dealt evil against their brothers by profaning the covenant to their
+fathers given to them by God. The fathers spoken of here refer to Abraham,
+Isaac, and Jacob.  
+
+(Malachi 2:11 ¶ Judah hath dealt treacherously, and an abomination is
+committed in Israel and in Jerusalem; for Judah hath profaned the holiness
+of the LORD which he loved, and hath married the daughter of a strange
+god.) Judah has dealt treacherously as she has married the daughter of a
+strange god. God says this is an abomination. Judah has turned from the
+living God to a strange false god by marrying heathen women who worship
+false gods. This sin will always turn the man away from God as seen in
+Solomon and in others. Not only is this idolatry but God considers it
+adultery as well. God shows how Judah was guilty of the same sin of
+serving false gods as was Israel whom God destroyed. This is seen in the
+mention of Jerusalem with Israel. Jerusalem was the capital of Judah.
+
+(Malachi 2:12 The LORD will cut off the man that doeth this, the
+master and the scholar, out of the tabernacles of Jacob, and him that
+offereth an offering unto the LORD of hosts.) God said that those who were
+guilty of the sin of verse 11 will be cut off meaning God will not have
+anything to do with them and they will ultimately be destroyed by God. All
+of those who offer offerings to the strange false gods will be destroyed
+by God and these will die in their sins.
+
+(Malachi 2:13 And this have ye done again, covering the altar of the
+LORD with tears, with weeping, and with crying out, insomuch that he
+regardeth not the offering any more, or receiveth it with good will at
+your hand.) The people are crying out to God and asking why God is not
+accepting their offerings yet God says he will ignore their tears as they
+are crocodile tears in that the people are not sincere and have refused to
+repent so God says why should I accept your offerings. God will never hear
+the cries of those who refuse to repent. These people did not want to get
+right with God, but rather were only concerned about their own wellbeing.
+
+(Malachi 2:14 ¶ Yet ye say, Wherefore? Because the LORD hath been
+witness between thee and the wife of thy youth, against whom thou hast
+dealt treacherously: yet is she thy companion, and the wife of thy
+covenant.) God continues to tell the people that why should he accept
+their sacrifices as they have not only treated God with treachery by going
+after false gods, but apparently many of the men had divorced their wives
+to marry the heathen women and who served false gods. These men ignored
+the vow of marriage until death do us part that they had made before God.
+Vows and God meant nothing to them or even their wives they married in
+their youth.
+
+(Malachi 2:15 And did not he make one? Yet had he the residue of the
+spirit. And wherefore one? That he might seek a godly seed. Therefore take
+heed to your spirit, and let none deal treacherously against the wife of
+his youth.) God said he only made one wife for Adam and he set the example
+showing he does not approve of polygamy (multiple wives at the same time)
+or of divorce. It seems the people were trying to justify having more than
+one wife or divorce by saying Abraham had two wives yet Malachi says he
+took the second wife in order to obtain an heir and not out of pleasure.
+Malachi also says at the end of the verse that God was not happy with
+Abraham and did not approve of what he did by dealing treacherously with
+his wife and he will not give approval to them either.
+
+(Malachi 2:16 For the LORD, the God of Israel, saith that he hateth
+putting away: for one covereth violence with his garment, saith the LORD
+of hosts: therefore take heed to your spirit, that ye deal not
+treacherously.) God again says he hates divorce in the phrase "putteth
+away". God says they try to cover their sin and violence by casting their
+garment upon another woman. This covering the garment shows a person
+wanting a marriage with the person covered. This is similar to how Ruth
+covered the feet of Boaz when he was sleeping and then she lied down next
+to him.
+
+(Malachi 2:17 ¶ Ye have wearied the LORD with your words. Yet ye say,
+Wherein have we wearied him? When ye say, Every one that doeth evil is
+good in the sight of the LORD, and he delighteth in them; or, Where is the
+God of judgment?) The people have wearied the LORD with their words as
+they continue to try to excuse and justify their sins yet the people ask
+God how have we wearied you showing they cannot even recognize their sins
+and have no repentance. God says they have wearied him by saying that
+those who do evil are good and then try to justify them before the LORD
+and then they have the nerve to ask God where is the God of judgment
+showing they think they are untouchable. The people also seem to be saying
+before God that every one (all of the nations) is doing the same things as
+them and yet they do not seem to be judged by God and in fact are
+prosperous.  
+
+(Malachi 3:1 Behold, I will send my messenger, and he shall prepare
+the way before me: and the Lord, whom ye seek, shall suddenly come to his
+temple, even the messenger of the covenant, whom ye delight in: behold, he
+shall come, saith the LORD of hosts.) Malachi tells the people that God
+will send his messenger to prepare the way for the Lord whom the people
+seek. The people will seek and delight in the coming of this person and
+will come to his temple as they are looking for a man to save them from
+other nations. This verse is speaking of John the Baptist who would come
+about 400 years after Malachi predicted this and he prepared the way for
+Jesus at his first coming. The people wanted Jesus to be their king in
+order to free them from Rome rather than for Jesus to be their Saviour.
+Once the people knew that Jesus would not be king and save them from their
+oppressors, then they had him crucified. The people only delighted in
+Jesus for selfish reasons and not out of repentance. The last part of the
+verse says the messenger of the covenant and seems to be speaking of the
+second coming of Jesus with him as the messenger this time.
+
+(Malachi 3:2 But who may abide the day of his coming? and who shall
+stand when he appeareth? for he is like a refiner's fire, and like
+fullers' soap:) This verse speaks of the second coming in that he asks who
+will be able to stand when he appears. When he comes at his second coming
+most of the world will be unsaved and have just finished going through the
+great tribulation and they will not be able to stand before God and will
+be cast into hell. The unholy can never stand before a holy God. Refiner's
+fire refers to how smelters melt metal such as silver or gold and then
+scoop off the dross which is the impurities off of the top and they
+continue this process until it is almost pure. God's judgment will be the
+same when Jesus returns as he will separate the saved from the unsaved and
+will cast the unsaved into hell. Fuller's soap refers to how the people of
+that day cleaned or purified clothes. Jesus came the first time to show
+people they were sinners and how they needed to be purified by his shed
+blood. Jesus will also purify people following his second coming as one
+day he will give saved people a glorified body and the people will then be
+purified of their sins.
+
+(Malachi 3:3 And he shall sit as a refiner and purifier of silver: and
+he shall purify the sons of Levi, and purge them as gold and silver, that
+they may offer unto the LORD an offering in righteousness.) God (Jesus)
+will be the refiner and will purify the people just like pure silver.
+Jesus will refine the Jews until he can see his face in them just like how
+a silver refiner stops the refining process when they can see their own
+reflection. Jesus refines us until he can see himself when he looks at us.
+God will also purify the sons of Levi so that they may offer unto the LORD
+with righteousness. The fulfilling of both of these things will occur
+during the millennium as the Jews will now have received Jesus as their
+Saviour and will follow him whole heartedly.
+
+(Malachi 3:4 Then shall the offering of Judah and Jerusalem be
+pleasant unto the LORD, as in the days of old, and as in former years.)
+God will now finally accept their offerings which will be pleasant unto
+the Lord just as they had been at times in the past. At certain times in
+Israel's history they did offer sacrifices to God with the right heart and
+with a looking to the coming of Jesus as their Messiah.
+
+(Malachi 3:5 And I will come near to you to judgment; and I will be a
+swift witness against the sorcerers, and against the adulterers, and
+against false swearers, and against those that oppress the hireling in his
+wages, the widow, and the fatherless, and that turn aside the stranger
+from his right, and fear not me, saith the LORD of hosts.) In Malachi 2:17
+the people had asked "Where is the God of judgment?" and Malachi says that
+they will now see as God will judge against the sorcerers, the adulterers,
+false swearers and those who mistreat those they hire, the widow, the
+fatherless, and those who turn away the stranger and those who do not fear
+God. God warns not to keep wages from the hired person. Let this be a
+warning to all business owners to make sure they are paying their
+employees a fair wage. The widow back then was much worse off than today
+as back then the man brought in all of the money and took care of the
+family and the widow could not get a job and had no one to take care of
+them. If they had children then they were to take care of the widow and if
+none then fellow believers were to take care of her. The children without
+a dad had no one to guide them spiritually as the dad was the one who did
+that as well as took care of the family and the widow as I said often
+could not work so she had a hard time now taking care of the family.
+People back then and even today in most of the Middle East then you were
+expected to allow a stranger to stay at your house while he was traveling
+and to provide them food and shelter. God reminded the people that they
+were strangers in Egypt. The people failed in all of these things and God
+said he would judge them.
+
+(Malachi 3:6 For I am the LORD, I change not; therefore ye sons of
+Jacob are not consumed.) God says that he does not change. We see in
+Hebrews how Jesus is the same forever. (Hebrews 13:8 Jesus Christ the same
+yesterday, and to day, and for ever.) The fact that God never changes is
+the only reason that he never destroyed the sons of Jacob as he had made a
+covenant with Jacob and since he does not change he could not break that
+covenant and so he did allow Israel and Judah to be taken captive, but the
+Hebrews are still around today and as a people have never been destroyed
+so that God could keep his word. It is man who changes, but God never
+does. The Hebrews at one time followed God, but then changed and served
+false gods.
+
+(Malachi 3:7 ¶ Even from the days of your fathers ye are gone away
+from mine ordinances, and have not kept them. Return unto me, and I will
+return unto you, saith the LORD of hosts. But ye said, Wherein shall we
+return?) God tells the Hebrews how they had gone away from him basically
+from their beginning. They have failed to obey God's commands
+continuously, but since God cannot change as we saw in verse 6 then God
+says if you will return back to me then I will return back to you. God
+still had a covenant with the people so he could not completely destroy
+them, but he did turn away from them due to their sin and allowed them to
+be taken captive. God says I will return to you as your God if you will
+repent of your sins. The people were so consumed by their sins that they
+ask "Wherein shall we return" meaning they were so spiritually blinded by
+their many sins that they could not even see that they needed to repent
+and return back to God. They believed that what they had and how they were
+living was ok and they did not want to change that.
+
+(Malachi 3:8 ¶ Will a man rob God? Yet ye have robbed me. But ye say,
+Wherein have we robbed thee? In tithes and offerings.) God asks will you
+rob God and then he says they have robbed God. The people blinded by their
+sins then ask how had they robbed God and God says in tithes and
+offerings. The crime of robbery is bad enough against fellow man, but to
+rob God is inexcusable. Many professing Christians today rob God of tithes
+and offerings as well and of course so do those who do not even profess to
+be Christians. Many churches are full of people who rob God every week as
+they believe that as long as they give God a dollar or two then they have
+tithed and God will be happy this is not true. God does not need your
+money, he needs your obedience and tithes and offerings show you love God.
+Samuel told Saul it is better to obey than sacrifice. (I Samuel 15:22)
+They also keep the church afloat in order to pay bills and have money for
+winning souls. Many churches can barely keep their doors open as they have
+no money to pay the bills as the people rob God and do not honor him. Many
+Christians use the excuse that our time counts towards our tithes, but
+again this is a lie. A tithe is ten percent of your gross income and an
+offering is anything above that. The word tithe even means ten percent and
+we see in scripture how Abraham and Jacob gave ten percent as they
+understood what a true tithe was. Many Christians also claim they do not
+need to tithe because that was only under the Mosaic law. This is yet
+another lie as tithing existed long before the time of Moses. Abraham gave
+a tithe to Melchizedek who was the preincarnate Jesus. (Genesis 14:18-20
+18 And Melchizedek king of Salem brought forth bread and wine: and
+he was the priest of the most high God.
+19 And he blessed him, and said, Blessed be Abram of the most high God,
+possessor of heaven and earth:
+20 And blessed be the most high God, which hath delivered thine enemies
+into thy hand. And he gave him tithes of all.) Jesus also commended the
+Pharisees for tithing and never told them to stop saying it was no longer
+needed. (Matthew 23:23 Woe unto you, scribes and Pharisees, hypocrites!
+for ye pay tithe of mint and anise and cummin, and have omitted the
+weightier matters of the law, judgment, mercy, and faith: these ought ye
+to have done, and not to leave the other undone.) Even if tithing had only
+been for the Israelites under Moses then people should want to give back
+to God. This shows the true heart of most professing Christians as they do
+not love God as much as they say they do nor do they trust him for
+supplying their needs for if they did then they would gladly give to God.
+God only asks for ten percent. Uncle Sam gets a lot more than that. Many
+Christians also rob God by basing their tithe off of their net pay so they
+do not have to give God as much money. The money means more to them then
+God. Christians are to give to God cheerfully and not just because they
+are commanded to do so. (II Corinthians 9:7 Every man according as he
+purposeth in his heart, so let him give; not grudgingly, or of necessity:
+for God loveth a cheerful giver.)
+
+(Malachi 3:9 Ye are cursed with a curse: for ye have robbed me, even
+this whole nation.) God says he has cursed the whole nation for having
+robbed him. The United States is guilty of the same sin and I believe God
+has also cursed us. The problem with sin is that it affects everyone and
+not just the individual. God did not just curse the people who robbed from
+him, but the whole nation as it was so common among the people. There were
+probably a handful of people who were obedient to God yet they too
+suffered as they lived in a cursed nation.  I believe God may curse many
+nations for having robbed him, but especially Israel as they were and are
+God's chosen people.
+
+(Malachi 3:10 Bring ye all the tithes into the storehouse, that there
+may be meat in mine house, and prove me now herewith, saith the LORD of
+hosts, if I will not open you the windows of heaven, and pour you out a
+blessing, that there shall not be room enough to receive it.) God tells
+the people to start bringing their tithes in as he commanded and he will
+prove how they will be blessed for doing so. Many believed if they gave
+God ten percent of their crops then they would not have enough to eat and
+many Christians feel the same way today. The reality is that most
+Christians just want to keep the money so they can use it for sinful
+pleasures rather than for God. God challenged the people to bring in all
+their tithes and he would prove they would have food (meat) to eat as he
+would open the windows of heaven and pour out his blessing upon those who
+obeyed. God's blessings and treasures cannot and will not run out for
+those who obey God in tithing. You cannot out give God. You will always
+receive much more from God in return than from what you gave him in tithes
+and offerings. God says he will bless you with so much that you will not
+have room for it all and will have to share it with others. I have seen
+this principle firsthand and also with others who were not tithing and
+then once they started the blessings came upon them. God is not saying you
+will become rich, but you will be greatly blessed and will be able to
+survive. The question is will you take on the challenge from God and start
+obeying God and stop robbing from him by giving your tithes and offerings?
+
+(Malachi 3:11 And I will rebuke the devourer for your sakes, and he
+shall not destroy the fruits of your ground; neither shall your vine cast
+her fruit before the time in the field, saith the LORD of hosts.) God told
+the Hebrews that if they obeyed God by giving him of their tithes and
+offerings then he would keep Satan back from destroying their crops and he
+would keep back the insects such as locusts from devouring their crops.
+The key was they had to obey God. If they did not then God would not keep
+his end of protecting their crops. God also said that the crops would come
+at their proper times and would be abundant and not fall to the ground too
+early to be of no use. This promise by God applies to Israel only, but I
+do believe that any nation that would follow the same principle would also
+be blessed by God at least spiritually.
+
+(Malachi 3:12 And all nations shall call you blessed: for ye shall be
+a delightsome land, saith the LORD of hosts.) If they obey then God will
+bless Israel and all nations will see how God has blessed Israel and they
+will acknowledge this. Israel will become a delightsome land that all
+nations will desire. God has been blessing much of the land in Israel
+today as she has great crops including exporting most of the fruit that
+goes to Europe.
+
+(Malachi 3:13 ¶ Your words have been stout against me, saith the
+LORD. Yet ye say, What have we spoken so much against thee?) God tells the
+people that they have spoken words against him that have been stout. Stout
+means they spoke strong bold arrogant words against God as the people had
+no fear of God. They were not afraid to speak against him. The people were
+so much in sin that they did not even recognize that they were being
+blasphemous in their words against God or that they were even doing
+anything wrong.
+
+(Malachi 3:14 Ye have said, It is vain to serve God: and what profit
+is it that we have kept his ordinance, and that we have walked mournfully
+before the LORD of hosts?) The people said that is was vain (useless and a
+waste of time) to serve God and what did they get from doing so by keeping
+his ordinance (law)? The people were so in their sins that they felt there
+was no point in serving God as it did not benefit them in any way. The
+people clearly had forgotten all that God had done for the nation over the
+years and clearly did not understand that for them to get the blessings
+from God then they also had to be obedient from God and to serve him with
+a willing and loving heart. The people only served him out of obligation
+and not out of love so God did not bless them. The people also were so
+spiritually blinded that they did not understand that they needed God for
+their salvation. This would still be seen in the days of Jesus as the
+leaders did not understand scripture that Jesus was their Messiah when
+they should have known. Both in Jesus's day and in Malachi's day the
+people were only concerned about God in how would serving God benefit them
+particularly monetarily rather than serving God out of obedience and love.
+Many professing Christians in the church are the same way today which is
+why they rob God of tithes and offerings as well as do not witness for him
+and live very much in the world. The last part of the verse speaks of when
+the Israelites mourned they once again only mourned for themselves rather
+than mourning for their souls or any other lost souls. Today too many
+professing Christians are the same way as there is no burden for the lost
+and any mourning is just for public sympathy.
+
+(Malachi 3:15 And now we call the proud happy; yea, they that work
+wickedness are set up; yea, they that tempt God are even delivered.) The
+people claim that see there is no reason to serve God since the proud are
+happy and those who are wicked seem to have everything and none are
+punished by God. They say even those who tempt God are not destroyed. The
+people did not realize that God will allow the wicked to prosper for a
+while and they seem to get away with their sins, but they will one day be
+held accountable by God. It is not worth the rebellion against God for a
+short season of what seems like prosperity here on earth as you will pay
+for it with an eternity in hell and the lake of fire and separation from
+God. God will always eventually punish the wicked even if not here on
+earth. The people had become so bold in their sin that they even tempted
+God again showing a lack of fear by the people. The people had also
+forgotten how God should have destroyed all of the people and how the only
+reason he never did as he did with other sinful nations was because of the
+covenant he had made with Israel.
+
+(Malachi 3:16 ¶ Then they that feared the LORD spake often one to
+another: and the LORD hearkened, and heard it, and a book of remembrance
+was written before him for them that feared the LORD, and that thought
+upon his name.) There were a small number of the people who did fear the
+LORD and these people spake often one to another. Most likely they met
+together for worship in small groups. God always has a remnant that honor
+and serve him and worship him in sincerity even among the rest of the
+wicked and sinful people. It is possible that a few of the wicked repented
+and became one of those that feared the LORD though I believe it refers
+mostly to those who had always feared the LORD. God says he has hearkened
+(listened) and heard those who feared the LORD and spoke to one another
+and he has placed them in a book of remembrance which is a book of all of
+those who fear the LORD and that thought upon his name. God has many books
+in his library and this is one book that all who profess to be Christians
+should be in. Unfortunately most are not as they do not fear God and most
+do not even think about him that much as they have no time for him such as
+prayer and scripture reading.
+
+(Malachi 3:17 And they shall be mine, saith the LORD of hosts, in
+that day when I make up my jewels; and I will spare them, as a man spareth
+his own son that serveth him.) God says that he will spare those who fear
+him and are written in that book just as a man spares his own son who
+serves him. Saved people are adopted sons of God and the Israelites were
+the firstborn son of God. (Exodus 4:22 And thou shalt say unto Pharaoh,
+Thus saith the LORD, Israel is my son, even my firstborn:) The phrase
+"make up my jewels" may refer to the crown that some believer's will
+receive.
+
+(Malachi 3:18 Then shall ye return, and discern between the righteous
+and the wicked, between him that serveth God and him that serveth him
+not.) Malachi says God will one day return to judge the people which will
+be at the end of the great tribulation and he will separate the wicked
+from the righteous and those who serve God and who do not serve God. The
+people said that God did not bring judgment, but here God is saying the
+day will come when he does.
+
+(Malachi 4:1 For, behold, the day cometh, that shall burn as an oven;
+and all the proud, yea, and all that do wickedly, shall be stubble: and
+the day that cometh shall burn them up, saith the LORD of hosts, that it
+shall leave them neither root nor branch.) Malachi picks up from the last
+verse of chapter three in this chapter. The day will come when God will
+cast the wicked into hell after the end of the tribulation and a final
+casting into the lake of fire after the millennium at the great white
+throne judgment. Fire is used by God as a refining or purifier as only the
+pure things can survive the fire. We saw earlier in the study how those
+refining silver and gold use the heat to remove the impurities. One day
+God will burn up the earth to purify even the very elements to remove all
+sin. (II Peter 3:12 Looking for and hasting unto the coming of the day of
+God, wherein the heavens being on fire shall be dissolved, and the
+elements shall melt with fervent heat?)
+
+(Malachi 4:2 ¶ But unto you that fear my name shall the Sun of
+righteousness arise with healing in his wings; and ye shall go forth, and
+grow up as calves of the stall.) Those that fear the name of God and
+follow and obey him will have the Sun of righteousness heal their wings.
+The Sun of righteousness is Jesus who will heal (save) all of those who
+fear him and call upon him to be their Saviour. Jesus can heal even the
+vilest sinner who repents and calls upon him to save them. Jesus is
+referred to as the Sun as the sun is a type of Jesus and sunlight is
+necessary for the good health of people. Those who never get much sunlight
+have many health problems. We also need the sunlight of Jesus to remain
+spiritually healthy. Those who fear God will grow as Christians and play
+like calves who run with joy when released from the stall.
+
+(Malachi 4:3 And ye shall tread down the wicked; for they shall be
+ashes under the soles of your feet in the day that I shall do this, saith
+the LORD of hosts.) This verse seems to point to the Millennium when
+believers will reign with Jesus and the righteous will prevail over the
+wicked as if they were walked upon like walking on ashes. The people had
+said why should they serve God in Malachi 3:14 and here is the answer as
+those who do not serve God will be destroyed.
+
+(Malachi 4:4 ¶ Remember ye the law of Moses my servant, which I
+commanded unto him in Horeb for all Israel, with the statutes and
+judgments.) Malachi gives the last command in the old testament to his
+people by telling them to remember the law of Moses. God did not just mean
+to remember in to think about it, but also to remember to obey all of the
+laws given by God for those who do will be greatly rewarded and those who
+do not will be destroyed. Those who obeyed the law would pass this down
+and it was probably many of these people's descendants who were most of
+the people saved in Jesus' day as they more clearly understood scripture
+and obeyed it.
+
+(Malachi 4:5 ¶ Behold, I will send you Elijah the prophet before the
+coming of the great and dreadful day of the LORD:) God said he would sent
+Elijah before the great and dreadful day of the LORD. This verse speaks of
+Elijah who was taken by God in a whirlwind to heaven about 500 years
+earlier as a type of the rapture and who during the tribulation will along
+with Moses be one of the two witnesses who will be here on earth for three
+and a half years. (II Kings 2:11 And it came to pass, as they still went
+on, and talked, that, behold, there appeared a chariot of fire, and horses
+of fire, and parted them both asunder; and Elijah went up by
+a whirlwind into heaven.) (Revelation 11) Moses represented the law and
+Elijah the prophets. The day of the LORD refers to the second coming of
+Jesus at the end of the great tribulation when he will judge the wicked so
+it will be dreadful for them. Today the Jews look for Elijah every
+passover as they leave an empty chair for him not understanding his
+coming. Many people say this refers to the coming of John the Baptist
+about 400 years later to announce the coming of Jesus at his first coming,
+but John the Baptist only came in the spirit of Elijah and he himself said
+he was not Elijah as spoken of in this verse. (Luke 1:17 And he shall go
+before him in the spirit and power of Elias, to turn the hearts of the
+fathers to the children, and the disobedient to the wisdom of the just; to
+make ready a people prepared for the Lord.) (John 1:21 And they asked him,
+What then? Art thou Elias? And he saith, I am not. Art thou that prophet?
+And he answered, No.) The prophecy of this verse is the last given by God
+in the old testament.
+
+(Malachi 4:6 And he shall turn the heart of the fathers to the
+children, and the heart of the children to their fathers, lest I come and
+smite the earth with a curse.) This final verse of the old testament seems
+to speak of how Elijah and Moses as the two witnesses will turn the hearts
+of many of the Israelites during the tribulation so that finally when
+Jesus comes back at the end of the tribulation then the one third of Jews
+that are left will all be saved. (Zechariah 13:9 And I will bring
+the third part through the fire, and will refine them as silver is
+refined, and will try them as gold is tried: they shall call on my name,
+and I will hear them: I will say, It is my people: and they shall say, The
+LORD is my God.) This verse may also have a dual meaning in that John the
+Baptist who came in the spirit of Elijah also turned many Jews to Jesus at
+his first coming, though the entirety of the Jews as a nation being saved
+will only occur as mentioned under Elijah. The last word of the old
+testament is the word "curse" and God says that those who do not turn to
+him will be cursed. All who are not saved will be cursed to an eternity in
+hell. Whereas the old testament ends on curse, the new testament ends with
+the word Amen which means "so be it". This amen refers to the grace of the
+Lord Jesus Christ which it is only by the grace of the Lord Jesus Christ
+that we can end the curse by asking Jesus to save us. If you are not saved
+call upon Jesus now so that you will not be cursed to hell. With the end
+of this verse, God would be silent for about 400 years until John the
+Baptist came in order to prepare the way for his Son Jesus Christ. Thank
+God that he is not silent today as we have his complete word as found in
+the inspired inherent, infallible King James Bible and we can know how to
+be saved.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,2 +1,4 @@
+Refresh: nahum/index.html
+
 Click here...
 

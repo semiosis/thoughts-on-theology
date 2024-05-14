@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,467 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Word Became Flesh
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+As we prepare to celebrate Christmas as the birth of Jesus then I
+want to look at an often overlooked aspect of the Christmas story. We are
+told in scripture that Jesus is the Word and that the Word became flesh.
+(John 1:1-2 1 In the beginning was the Word, and the Word was with God,
+and the Word was God.
+2 The same was in the beginning with God.) (John 1:14 And the Word was
+made flesh, and dwelt among us, (and we beheld his glory, the glory as of
+the only begotten of the Father,) full of grace and truth.) We will look
+later at some more places that show Jesus as the Word. It is important to
+understand the significance of Jesus as the Word becoming flesh and what
+it really means. John 1:1-2 shows us that Jesus as the Word and the second
+person of the Godhead has always existed and has been there since the
+beginning. John 1:1 clearly shows the Word was with God the Father in the
+beginning and is God. Jesus would have to be God to have been around since
+God has. Jesus as God has no beginning. John 1:14 shows only the beginning
+of Jesus as the God-man in the womb of Mary. John 1:14 is really what the
+Christmas story is all about. Normally at Christmastime we always focus on
+Jesus as a baby in a manger, but do not fully understand that that baby
+was the Word who became flesh. You must understand that as I showed in
+John 1:1 that the Word is God and so 1:14 is showing us that Jesus has to
+be God as well and that when Jesus became flesh, then it was God in the
+flesh. One of Jesus' names is Immanuel which means "God in the flesh".
+(Matthew 1:23 Behold, a virgin shall be with child, and shall bring forth
+a son, and they shall call his name Emmanuel, which being interpreted is,
+God with us.) It is important to understand that the Messiah and the
+Saviour had to be God as only God could fulfill this role as a sinless
+man. God as the Word became flesh or a man for us in order to bring
+salvation to his creation. Jesus lowered himself even below angels.
+(Hebrews 2:9 But we see Jesus, who was made a little lower than the angels
+for the suffering of death, crowned with glory and honour; that he by the
+grace of God should taste death for every man.) Today cults, false
+religions, and too many people see Jesus not as God, but as just a man.
+Most as a good man, but a man none the less. Jesus as the Word is God and
+it was that Word who became flesh. If the Word is God and the Word became
+flesh then Jesus has to be God. When Jesus came on that first Christmas
+then his only purpose was to bring salvation to man. We have seen this in
+my study on the "I am statements of Jesus". (John 12:47 And if any man
+hear my words, and believe not, I judge him not: for I came not to judge
+the world, but to save the world.)  
 
-Username or email _____________________
+Jesus is mentioned as the Word a total of seven times in scripture.
+We have seen the first four times in John 1:1 and John 1:14. The next two
+are found in I John. (I John 1:1-2 1 That which was from the beginning,
+which we have heard, which we have seen with our eyes, which we have
+looked upon, and our hands have handled, of the Word of life;
+2 (For the life was manifested, and we have seen it, and bear witness, and
+shew unto you that eternal life, which was with the Father, and was
+manifested unto us;) Just as the gospel of John starts off by proclaim
+Jesus is the Word and God, so does I John 1. In I John 1:1-2 we see Jesus
+was there from the beginning. Again someone can only be at the beginning
+if they were God. John then says that he and the other disciples had heard
+and seen with their eyes and handled or touched the Word of life. This
+confirms John 1:14 that Jesus as the Word became flesh. Jesus as flesh
+could be touched and seen and be heard when he spoke. He was not spiritual
+and invisible like angels. It is important that Jesus was seen and could
+be heard, for this confirmed that he was flesh and he had to be flesh in
+order to take our place on the cross and die for our sins, but he also had
+to be the Word as God in order to bring that salvation. John confirms here
+that Jesus was the God-man. He never gave up his deity when he became
+flesh. Jesus could be heard and so as the Word people could hear God. As
+the Word, Jesus gave his seven "I am" statements in John confirming he is
+God. I John 1:2 goes along with John 1:14 showing that the Word became
+flesh. This verse says that Jesus or the Word of life was manifested which
+means made known to man. The Word became a man. The verse continues by
+saying that Jesus gives eternal life. Verse 1 calls him the Word of life.
+This shows that it is only Jesus who can give you life. As the Creator
+Jesus gave birth to us all, but as the Saviour he gives everlasting
+spiritual life to those who call upon him. No one can have life without
+Jesus. He holds the universe together and that includes our bodies, but
+more important than our physical bodies he gives us spiritual life as a
+person can only be born again and reunited with God by his Son Jesus who
+is the Word. (Colossians 1:17 And he is before all things, and by him all
+things consist.)  
 
-Reset password
+The next verse that shows Jesus as the Word is I John 5:7 which shows
+Jesus as a part of the Godhead and clearly as the second person of that
+Godhead. (I John 5:7 For there are three that bear record in heaven, the
+Father, the Word, and the Holy Ghost: and these three are one.) This verse
+shows Jesus as the Word is one with the other two persons of the Godhead
+showing there is one God.
+
+The final time we see Jesus as the Word is found in Revelation 19:13
+where he is called the Word of God. (Revelation 19:13 And he was clothed
+with a vesture dipped in blood: and his name is called The Word of God.)
+The very words that Jesus speak, show he is God. Jesus as the Word spoke
+the universe into existence. (Hebrews 11:3 Through faith we understand
+that the worlds were framed by the word of God, so that things which are
+seen were not made of things which do appear.) His very word will also end
+the Battle of Armageddon. The very words of God are compared to a sword.
+We see in Revelation 19:13 that the clothes Jesus is wearing is a vesture
+dipped in blood. That blood was the precious blood that Jesus shed for us
+on the cross at Calvary in order to bring us everlasting salvation. This
+blood was God's blood. This blood purchased the church as Acts 20:28 tells
+us. It is only this blood that can bring us salvation.
+
+Notice that all seven occurrences of Jesus and his name of the Word
+are all found in books written by the apostle John. This is probably
+because John saw more of Jesus in his full glory as God than anyone else
+when Jesus revealed himself to John while giving him the book of
+Revelation.
+
+Jesus is the living Word. He is alive today and seated at the right
+hand of God the Father. He arose from that grave on the third day. This
+sets Jesus apart from all other religious founders as they are all dead. I
+have already mentioned how the Word spoke the universe into existence.
+When Jesus was in the garden praying just before his death then when the
+men came to take Jesus as prisoner then Jesus asked them who they were
+looking for knowing full well it was him. They told Jesus they were
+looking for Jesus of Nazareth. Jesus said "I am he". Upon hearing these
+words from Jesus the men fell backward and to the ground. (John 18:6 As
+soon then as he had said unto them, I am he, they went backward, and fell
+to the ground.) This is how powerful the Word is as his very words show he
+is God and put fear into men.
+
+As I said, Jesus is the living Word. We are also told in scripture
+that scripture is called the word of God or the word. Scripture is the
+written word and Jesus is the living Word. It is important to understand
+that these two are connected and go hand in hand, but they are distinct
+just as the three persons of the Godhead are distinct one from another.
+Today most modern corrupt counterfeit bibles capitalize word of God when
+speaking of scripture. Most Christians do the same when writing and
+speaking of scripture as the word of God thinking they are being reverent.
+This corruption is wrong and needs to stop. Again, the written and living
+word are connected, but they are not the same. The King James Bible with
+its built-in dictionary and number patterns clearly show this as only the
+living Word is capitalized while word in referring to scripture is lower
+case. By capitalizing word for both, then you lose the distinction between
+the living Word and the written word. The King James Bible is the written
+word of God. While it is the living word of God and very much alive with
+its number patterns, built-in dictionary, and many other things to prove
+this, then it is still the written word. The King James Bible speaks to
+our hearts if we let it, but it does not speak to us literally or verbally
+the way the living Word did when Jesus walked on earth. Jesus became
+flesh, while scripture is always written and never becomes a person.
+Scripture is all about the living Word as we will see, but they still must
+be kept separate. It was the living Word that became flesh that first
+Christmas, not the written word which had not even been completed. Just as
+Jesus grew into a man, the word of God also grew as God the Holy Ghost
+revealed it to holy men of God until it was complete. Today scripture is
+alive in that it will change the heart of man if they will let it do so.
+We should treasure our King James Bibles, but never say our KJB is God
+whereas with the living Word Jesus is God. The King James Bible is the
+words of God, but not God. The words I speak are my words, but they are
+not me. They reflect who I am, but they are still not me and it is the
+same with the written word of God in the King James Bible and the living
+Word of God in Jesus.
+
+The living Word and the written word are very much connected and to
+curse the King James Bible is basically the same as if a person cursed
+Jesus to his face. Rejecting the King James Bible is rejecting the living
+Word, but they are distinct one from another. Scripture as found in the
+King James Bible speaks of Jesus throughout the Old Testament. Jesus was
+partly revealed in the Old Testament, but is clearly revealed in the New
+Testament. Jesus spoke about how the Jewish leaders did not recognize that
+the Old Testament spoke of him. Jesus told the Jewish leaders and the
+people to search the scriptures as they testified of him. (John 5:39 ¶
+Search the scriptures; for in them ye think ye have eternal life: and they
+are they which testify of me.) (John 5:46-47 46 For had ye believed Moses,
+ye would have believed me: for he wrote of me.
+47 But if ye believe not his writings, how shall ye believe my words?)
+Moses showed Jesus as the Creator and as the Word which spoke all into
+existence. Abraham told the rich man in hell that if his brothers did not
+believe the written word as written by Moses and the prophets then they
+would not believe if someone came back from the dead. (Luke 16:31 And he
+said unto him, If they hear not Moses and the prophets, neither will they
+be persuaded, though one rose from the dead.) The word of God is far more
+powerful than a person coming back from the dead. If someone does not
+believe the written word which speaks of the living Word, then there is
+nothing that will convince them, even a miracle of the dead coming back to
+life. After Jesus' resurrection, he met two men on the road to Emmaus and
+told of himself throughout the entire Old Testament starting with the
+books of Moses and continuing on through the prophets. (Luke 24:27 And
+beginning at Moses and all the prophets, he expounded unto them in all the
+scriptures the things concerning himself.) This means he would have also
+gone through the psalms and all books since all of scripture as the
+written word points us to Jesus as the living Word.  
+
+Jesus' words are referred to as a sword in Revelation. (Revelation
+19:15 And out of his mouth goeth a sharp sword, that with it he should
+smite the nations: and he shall rule them with a rod of iron: and he
+treadeth the winepress of the fierceness and wrath of Almighty God.) It is
+this very sword or the very words of Jesus that will end the tribulation,
+cast people into the lake of fire, and later speak a new heavens and earth
+into existence. Just as a sword is deadly, so is the word of God as the
+very words of the Word will bring all to their knees one day to tell him
+he is Lord. This includes Satan. Scripture is also compared to a sword and
+described as being even sharper than a twoedged sword. Scripture as the
+written word of God will convict even the hardest of sinner if they will
+let it and it will bring them to their knees and to salvation by Jesus the
+living Word. The written word convicts us and shows us our need for a
+Saviour, but it is the living Word that saves us. (Hebrews 4:12 For the
+word of God is quick, and powerful, and sharper than any twoedged sword,
+piercing even to the dividing asunder of soul and spirit, and of the
+joints and marrow, and is a discerner of the thoughts and intents of the
+heart.) The written word of God is called the sword of the Spirit.
+(Ephesians 6:17 And take the helmet of salvation, and the sword of the
+Spirit, which is the word of God:)         
+
+The written word is referred to as holy scriptures just as Jesus is
+the holy child of God. (II Timothy 3:15 And that from a child thou hast
+known the holy scriptures, which are able to make thee wise unto salvation
+through faith which is in Christ Jesus.) (Acts 4:30 By stretching forth
+thine hand to heal; and that signs and wonders may be done by the name of
+thy holy child Jesus.) Scripture is holy because it is the very written
+words of God and Jesus is holy because he is the living Word.  
+
+Scripture as the word of God is pure. The King James Bible is God's
+pure words, not the modern corrupt counterfeits that try to imitate the
+written word of God. (Psalm 12:6 The words of the LORD are pure words: as
+silver tried in a furnace of earth, purified seven times.) (Proverbs 30:5
+Every word of God is pure: he is a shield unto them that put their trust
+in him.) Jesus as the sinless Lamb of God and living Word is also pure
+having never been defiled by sin.
+
+Just as we all need Jesus the living Word for life, then we also need
+the written word of God for life. Jesus said we are to live by every word
+of God. (Luke 4:4 And Jesus answered him, saying, It is written, That man
+shall not live by bread alone, but by every word of God.) It is this
+written word of God that will lead us to the living Word of God.  
+
+We see the connection between the written and living word of God in
+how the tribulation saints will be slain for the word of God. (Revelation
+6:9 And when he had opened the fifth seal, I saw under the altar the souls
+of them that were slain for the word of God, and for the testimony which
+they held:) Here it speaks of the written word of God, but they were also
+slain for their testimony of Jesus. The two go hand in hand. Another
+example of this connection between the two can be seen in I John 2:14. (I
+John 2:14 I have written unto you, fathers, because ye have known him that
+is from the beginning. I have written unto you, young men, because ye are
+strong, and the word of God abideth in you, and ye have overcome the
+wicked one.) John speaks of the word of God abiding in believers. Jesus
+the living Word of God abides in us, but so does the written word of God
+if we read scripture. It is the written word that shows us we have
+overcome the wicked one by receiving the living Word.
+
+Scripture or the written word of God will never pass away just as the
+living Word will always exist. (Matthew 24:35 Heaven and earth shall pass
+away, but my words shall not pass away.) The written word cannot pass away
+since it is the written words of God and since God cannot pass away then
+neither can his words.
+
+The living Word and the written word are inseparable, just as the
+Godhead is inseparable, but they are distinct one from the other just as
+the three persons of the Godhead are one from another, but are one. The
+living and written word are also one in that the written word is alive as
+we saw in Hebrews 4:12 in its ability to split soul and spirit asunder.
+Only the living God could do that. Other scriptures show the connection
+between the living Word and written word, but also how they are not the
+same. The living Word is Jesus and the written word is the words of God or
+scripture. Please show this distinction in your writing just as God does
+in his written word, the King James Bible.   
+
+As we celebrate Christmas and the birth of Jesus, let us look at the
+baby in the manger as more than just a baby. That baby was none other than
+the living Word that became flesh and dwelt among us. This baby was God in
+the flesh who fulfilled the written word so that he might come and bring
+salvation to man. Let us see the inseparability of the living Word and the
+written word, but do not make them the same. Thank God that the Word
+became flesh for if Jesus had not become the God-man on that first
+Christmas then we would have never been given the salvation that the
+written word promised us. Make this coming Christmas a day that we give
+thanks to the living Word. If you are not saved, then please call upon
+Jesus today and receive the living Word so that he may abide in you. 
+
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

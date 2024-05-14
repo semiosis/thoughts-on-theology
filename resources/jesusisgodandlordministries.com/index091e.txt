@@ -1,2 +1,4 @@
+Refresh: malachi/index.html
+
 Click here...
 

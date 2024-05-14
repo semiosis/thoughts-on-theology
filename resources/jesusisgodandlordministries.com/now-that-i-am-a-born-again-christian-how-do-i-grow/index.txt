@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,1275 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Now that I am a born again Christian, how do I grow (mature)?
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The first thing is to make sure that you are truly saved. Satan likes
+to try and deceive people into believing they are saved even when they are
+not or places doubt into people who are truly saved. If need be, review
+What must I do to be saved (be born again), have eternal life and go to
+heaven? and read the entire book of I John and especially chapter 5. (I
+John 5:13 These things have I written unto you that believe on the name of
+the Son of God; that ye may know that ye have eternal life, and that ye
+may believe on the name of the Son of God.) Jesus truly knows and will not
+be deceived. (Matthew 7:21-23 ¶ Not every one that saith unto me, Lord,
+Lord, shall enter into the kingdom of heaven; but he that doeth the will
+of my Father which is in heaven. 22 Many will say to me in that day, Lord,
+Lord, have we not prophesied in thy name? and in thy name have cast out
+devils? and in thy name done many wonderful works? 23 And then will I
+profess unto them, I never knew you: depart from me, ye that work
+iniquity. [iniquity is sin]) (II Corinthians 13:5 Examine yourselves,
+whether ye be in the faith; prove your own selves. Know ye not your own
+selves, how that Jesus Christ is in you, except ye be reprobates?) True
+Christians will keep his commandments. (I John 2:3-6 And hereby we do know
+that we know him, if we keep his commandments.
+4 He that saith, I know him, and keepeth not his commandments, is a liar,
+and the truth is not in him.
+5 But whoso keepeth his word, in him verily is the love of God perfected:
+hereby know we that we are in him.
+6 He that saith he abideth in him ought himself also so to walk, even as
+he walked.)
 
-Username or email _____________________
+I once heard a preacher say one may be saved and going to heaven, but
+they are not a Christian. He went on to explain that we say all who are
+saved are Christians, but the original people called Christians were in
+Antioch. (Acts 11:26 And when he had found him, he brought him unto
+Antioch. And it came to pass, that a whole year they assembled themselves
+with the church, and taught much people. And the disciples were called
+Christians first in Antioch.) They were called Christians because they
+were disciples of Christ and followed Christ and were like him. If one is
+saved, then follow Christ and obey his commands, so that you can without
+guilt say you are a Christian. Tradition says the name Christian was
+originally meant to be an insult because they were like Jesus and the
+people were trying to mock God (Jesus). May we all be honored to be called
+Christians because we are like Jesus Christ.
 
-Reset password
+As a Christian, God commands us to be holy and blameless before him
+because he is holy. People do watch us. We are to live in the world, but
+not be of the world. We are to be separate and holy from the world just as
+God's word preserved in the King James Bible is separate and holy from
+other bibles. Our language as in the King James Bible should be holy and
+not the everyday language one hears on the street or is heard in a bar,
+though a Christian should not be in a bar. There should be a difference
+seen in a Christian. (Ephesians 1:4 According as he hath chosen us in him
+before the foundation of the world, that we should be holy and without
+blame before him in love:) (I Peter 1:15-16 15 But as he which hath called
+you is holy, so be ye holy in all manner of conversation;
+16 Because it is written, Be ye holy; for I am holy.) (Philippians 2:15
+That ye may be blameless and harmless, the sons of God, without rebuke, in
+the midst of a crooked and perverse nation, among whom ye shine as lights
+in the world;) (John 17:15-16 15 I pray not that thou shouldest take them
+out of the world, but that thou shouldest keep them from the evil. 
+16 They are not of the world, even as I am not of the world.)
+
+The following two paragraphs are repeated from What must I do to be
+saved (be born again), have eternal life and go to heaven?, but is helpful
+information for those who may have not read the other page.
+
+Some helpful things for a new Christian to have if they have access
+and can afford them are a King James Bible (a must if at all possible,
+either printed or online), a good hymnal (such as Living Hymns or the
+Baptist Hymnal), and a concordance such as Strong's Concordance. Use the
+concordance only to help you find words in the King James Bible. You can
+also go to Purebiblesearch.com to use a program for free with a King James
+Bible and a concordance in one. An 1828 Webster's Dictionary can also be
+helpful.
+
+After salvation (being born again) read your Holy Bible (scriptures)
+{King James Bible} every day (Romans 10:17 So then faith cometh by
+hearing, and hearing by the word of God.), pray to God in Jesus' name,
+confess your sins daily and try to serve the Lord. Make Jesus Lord of your
+life. (not every Christian does, most do not, but it is vital for growth
+as a Christian) [II Corinthians 5:17 Therefore if any man be in Christ, he
+is a new creature: old things are passed away; behold, all things are
+become new.] If one is truly saved, there should be a change in the way
+they think, talk, act, see life, treat others, and they should hate sin
+and be convicted when they do sin. They should want to see people saved
+and tell others about Jesus. Others should notice something is different.
+You should want to read God's word and know him. Jesus knows and will not
+be deceived. Find you a good Bible believing King James Bible church (I
+would recommend a Baptist or independent church, as they usually follow
+scripture the closest, though you will still need to be wary of some
+Baptist and independent churches doctrines and beliefs) and then be
+baptized by immersion. Attend all church services (Sunday School, Sunday
+Morning Worship, Sunday Evening Worship, and the Wednesday Night Bible
+Study and prayer time.) God should and needs to always come first in your
+life. If the church you attend does not have all of these services,
+encourage the pastor to start having them. (Revival in this nation or
+world will not happen if we are never at church or are always finding a
+reason not to have a service.) The church I went to growing up also had a
+Bible Training Hour just before the Sunday Evening Service. This was
+similar to an evening Sunday School class. Then fulfill the commandment of
+Jesus in the Great Commission by telling your family, friends and all that
+you meet about Jesus so that they may be saved as well. Never fear to
+stand up for Jesus. I John 4:4 says Ye are of God, little children, and
+have overcome them: because greater is he that is in you, than he that is
+in the world. (This refers to Jesus who is in the saved person being
+greater than Satan who is in the world.) Never be ashamed of Jesus or deny
+him. (Mark 8:38 Whosoever therefore shall be ashamed of me and of my words
+in this adulterous and sinful generation; of him also shall the Son of man
+be ashamed, when he cometh in the glory of his Father with the holy
+angels.) (Luke 9:26 For whosoever shall be ashamed of me and of my words,
+of him shall the Son of man be ashamed, when he shall come in his own
+glory, and in his Father's, and of the holy angels.) Do not deny Jesus.
+(Matthew 10:33 But whosoever shall deny me before men, him will I also
+deny before my Father which is in heaven.) Do something for the Lord. Find
+a way to serve him and grow from a milk Christian to a meat Christian. A
+milk Christian is a new Christian or one who is carnal (worldly) and just
+as a baby drinks milk and cannot handle real food as an adult or mature
+meat Christian can [one who has grown mature in Jesus Christ, not
+necessarily their physical age as some young children are more mature in
+Christ than some elderly Christians]. (I Corinthians 3:1-3 And I,
+brethren, could not speak unto you as unto spiritual, but as unto carnal,
+even as unto babes in Christ.
+2 I have fed you with milk, and not with meat: for hitherto ye were not
+able to bear it, neither yet now are ye able.
+3 For ye are yet carnal: for whereas there is among you envying, and
+strife, and divisions, are ye not carnal, and walk as men?) [Paul is
+referring here to most Christians who only want to be saved to keep them
+out of hell, but want to still live as the world and not make Jesus their
+Lord. These are carnal Christians and will not grow until they have a
+change of heart. They will stay milk Christians. They just want to have
+fire insurance.] (Hebrews 5:12-13 For when for the time ye ought to be
+teachers, ye have need that one teach you again which be the first
+principles of the oracles of God; and are become such as have need of
+milk, and not of strong meat.
+13 For every one that useth milk is unskilful in the word of
+righteousness: for he is a babe), and (I Peter 2:2 As newborn babes,
+desire the sincere milk of the word, that ye may grow thereby:).
+
+All new Christians or any Christian no matter how long they have been
+saved, who want to grow, must tell others about Jesus and make this a
+priority in their life. Do not worry about being made fun of, losing your
+job or your life. Jesus is worth it all and will never give you more than
+you can handle. (I Corinthians 10:13 There hath no temptation taken you
+but such as is common to man: but God is faithful, who will not suffer you
+to be tempted above that ye are able; but will with the temptation also
+make a way to escape, that ye may be able to bear it.) Jesus will give you
+a new job. Many Christians in Muslim nations or places like China and
+India put their lives on the line to tell others, but understand how
+important it is to tell others about Jesus so that they do not spend
+eternity in the lake of fire and care more about the souls of the lost
+than they do about their own earthly lives. We all should have that
+attitude. If one is truly saved, we will be in heaven with Jesus when we
+die, so we should not fear death. If you put soul winning above yourself,
+you will be rewarded by God in eternity, will be blessed in this life, and
+will naturally grow as a Christian as you will want to read and study
+scripture to learn more and will want to live a godly life so that others
+may see Jesus in you and ask how they may be saved. God calls soul winners
+wise. (Proverbs 11:30 The fruit of the righteous is a tree of life; and he
+that winneth souls is wise.) Soul winners will be awarded a crown of
+rejoicing. (I Thessalonians 2:19 For what is our hope, or joy, or crown of
+rejoicing? Are not even ye in the presence of our Lord Jesus Christ at his
+coming?) For Christians who are martyred, they will receive from God a
+crown of life. (Revelation 2:10 Fear none of those things which thou shalt
+suffer: behold, the devil shall cast some of you into prison, that ye may
+be tried; and ye shall have tribulation ten days: be thou faithful unto
+death, and I will give thee a crown of life.) Remember Jesus who lives in
+you is greater than Satan who is in the world. (I John 4:4 Ye are of God,
+little children, and have overcome them: because greater is he that is in
+you, than he that is in the world.) Never fear to serve God and witness
+for Jesus. Remember the gospel means good news. It is too good to keep to
+ourselves. Someone had the courage and boldness to share the gospel with
+you and tell you about Jesus, now it is your turn to tell others about
+Jesus. If they had not shared Jesus with you, you would be on your way to
+an eternity in hell and the lake of fire. You should not want that for
+anyone else, so share the gospel with them, even your worst enemy. Jesus
+commanded us to love our enemy, even when it is not easy. (Matthew 5:43-44
+¶ Ye have heard that it hath been said, Thou shalt love thy neighbour, and
+hate thine enemy.
+44 But I say unto you, Love your enemies, bless them that curse you, do
+good to them that hate you, and pray for them which despitefully use you,
+and persecute you;) The torment of hell and the lake of fire are forever
+and such an awful place, not to be wished upon on anyone. There is no
+escape. The thought of over 153,000 people dying every day and most of
+those without Jesus going to hell for eternity should motivate one to tell
+others about Jesus. It is okay and we should weep over the lost. If more
+of us wept over the lost and over sin in general (our own and our nations)
+then maybe we would be more motivated to witness to others and spread the
+gospel and try and win souls for the Lord. Revival will never happen
+without tears over sin and without use of the King James Bible.
+
+Make sure you read and study scripture every day with your King James
+Bible. Just as our physical bodies need water every day to live, our
+spiritual bodies need to be watered with the word of God every day to
+live. (II Timothy 2:15 Study to shew thyself approved unto God, a workman
+that needeth not to be ashamed, rightly dividing the word of truth.) It is
+very important that it is a King James Bible as it is the word of God (II
+Timothy 3:16-17 All scripture is given by inspiration of God, and is
+profitable for doctrine, for reproof, for correction, for instruction in
+righteousness:
+17 That the man of God may be perfect, throughly furnished unto all good
+works.) and the other bible versions (including the New King James
+version) are the words of man influenced by Satan and the Roman Catholic
+Church. See the articles on the King James Bible. The more you read and
+learn, the more you will want to read and learn more. Do not try and speed
+read scripture. In order to get the most out of scripture, you need to
+make sure you are reading at a pace that allows absorption. One should be
+reading scripture because they love God's word and want to learn and not
+just to be able to mark off ones list that they read the Holy Bible that
+day. Always pray and have your sins confessed prior to reading so that
+your mind and heart are clear to understand scripture and sin is not in
+the way. Always ask God the Holy Ghost to give you an understanding of
+what you are reading, teach you new things, and allow you to remember it
+and use it to teach and tell others about Jesus. The Holy Ghost wrote
+scripture and gave the words to holy men to write down for us, so he knows
+the meaning and proper interpretation of all scripture. (II Peter 1:21 For
+the prophecy came not in old time by the will of man: but holy men of God
+spake as they were moved by the Holy Ghost.) When studying scripture
+always take it literally as it says unless it tells you otherwise that it
+is metaphoric such as in Revelation 1:20 we are given the meaning of the
+stars and candlesticks. (Revelation 1:20 The mystery of the seven stars
+which thou sawest in my right hand, and the seven golden candlesticks. The
+seven stars are the angels of the seven churches: and the seven
+candlesticks which thou sawest are the seven churches.) Always compare
+scripture with scripture and see what it means in other places. God said
+in the mouth of two or three witnesses every word may be established.
+(Matthew 18:16 But if he will not hear thee, then take with thee one or
+two more, that in the mouth of two or three witnesses every word may be
+established.) This verse is not directly referring to the fact that if two
+or three verses say the same thing they establish a fact, but I do think
+it does apply here as well. Scripture never contradicts other scripture.
+If it seems it is, then one or both are being misinterpreted. Scripture
+must be rightly divided as we saw in the above verse in II Timothy 2:15.
+Scripture is inspired (God-breathed), inerrant (complete without error),
+infallible (without defect and trustworthy and reliable and impossible to
+contain any errors), plenary (even all the words and punctuation, and
+pilcrows [paragraph markings] are inspired, as are the chapter and verse
+divisions), and preserved for all eternity in the King James Bible.
+Studying scripture is different from reading scripture. Do as the Bereans
+did in Acts 17 and search the scriptures yourself to see what they say.
+(Acts 17:10-11 ¶ And the brethren immediately sent away Paul and Silas by
+night unto Berea: who coming thither went into the synagogue of the Jews.
+11 These were more noble than those in Thessalonica, in that they received
+the word with all readiness of mind, and searched the scriptures daily,
+whether those things were so.) Never take the word of man for granted
+including mine. Search the scriptures yourself. Scripture is always right
+even if it contradicts your favorite preacher. To learn and understand
+scripture, learning the customs and culture of the times of the Holy Bible
+helps understand some of the meanings, which are foreign to many of us
+today, especially Americans. Also many of the things in scripture such as
+the Jewish temple and its furnishings are a shadow of things found in
+heaven. (Hebrews 8:5 Who serve unto the example and shadow of heavenly
+things, as Moses was admonished of God when he was about to make the
+tabernacle: for, See, saith he, that thou make all things according to the
+pattern shewed to thee in the mount.) Another thing is learning the feasts
+of Israel and how Jesus is represented by all of them. Many of the things
+in the Old testament were types of Jesus such as Noah's ark. Another thing
+when studying scripture is to know that all directions in scripture are in
+relation to Jerusalem and that if it does not relate to the Jews, God does
+not tell us much, such as animals not found in Israel. Ultimately all
+scripture is to point us to Jesus.
+
+A Christian wanting to grow must pray every day. To really learn how
+to pray, it takes much daily practice. They need to confess their own sin
+each day (name them to God and not just say sin to cover all of them) and
+learn to pray for others, preferably more than for themselves. (I John 1:9
+If we confess our sins, he is faithful and just to forgive us our sins,
+and to cleanse us from all unrighteousness.) Learn to thank God for
+allowing you another day and allowing you to breath. Pray for spiritual,
+mental, and physical health so that you may fulfil the Great Commission.
+Always give thanks for your food and drink prior to eating or drinking it.
+Thank God for a roof over your head. Many people do not even have these
+basics every day. Pray for the lost of the world, not just your family and
+friends. Have compassion (empathy) on the sick and poor and learn to pray
+for those you know that need the healing touch of Jesus or are in nursing
+homes or hospitals. (Prayer does work.) (James 5:15 And the prayer of
+faith shall save the sick, and the Lord shall raise him up; and if he have
+committed sins, they shall be forgiven him.) Pray for your pastor
+(including me) and those in your church, missionaries, godly ministries
+(pray for Jesus is God and Lord Ministries and others), your nations
+military, your nation, and its leaders, (God commands us to pray for our
+leaders, even evil leaders for their salvation. See all of Romans chapter
+13, but especially (Romans 13:1-2 Let every soul be subject unto the
+higher powers. For there is no power but of God: the powers that be are
+ordained of God.
+2 Whosoever therefore resisteth the power, resisteth the ordinance of God:
+and they that resist shall receive to themselves damnation.) [leaders are
+only there because God allows it, such as he told Nebuchadnezzar in Daniel
+chapter 4], victims of floods, fires, shootings or other disasters you see
+on television (tv), wars in other nations, et cetera and whatever the Holy
+Ghost leads you to pray about. There is no set pattern and does not have
+to be exact as I have above. Those were just examples, just do not make it
+a ritual repetition of words such as Roman Catholics and others as the
+heathen do. Pray as you are led by God. Jesus gave an example in Matthew
+6:5-15 ¶ And when thou prayest, thou shalt not be as the hypocrites are:
+for they love to pray standing in the synagogues and in the corners of the
+streets, that they may be seen of men. Verily I say unto you, They have
+their reward.
+6 But thou, when thou prayest, enter into thy closet, and when thou hast
+shut thy door, pray to thy Father which is in secret; and thy Father which
+seeth in secret shall reward thee openly.
+7 But when ye pray, use not vain repetitions, as the heathen do: for they
+think that they shall be heard for their much speaking.
+8 Be not ye therefore like unto them: for your Father knoweth what things
+ye have need of, before ye ask him.
+9 After this manner therefore pray ye: Our Father which art in heaven,
+Hallowed be thy name.
+10 Thy kingdom come. Thy will be done in earth, as it is in heaven.
+11 Give us this day our daily bread.
+12 And forgive us our debts, as we forgive our debtors.
+13 And lead us not into temptation, but deliver us from evil: For thine is
+the kingdom, and the power, and the glory, for ever. Amen.
+14 For if ye forgive men their trespasses, your heavenly Father will also
+forgive you:
+15 But if ye forgive not men their trespasses, neither will your Father
+forgive your trespasses. [trespasses are sins] Jesus gives an example to
+his apostles in Luke 11:1-4. These are examples and does not mean you pray
+these exact words every time. Ask people what their prayer needs are and
+pray for them if they are according to God's word. Never pray for
+something you know is a sin or not the will of God. Prayer will only be
+answered how you want it if it is the will of God. Never stop praying. God
+may require you to pray for something for awhile to see how sincere you
+are, before answering your prayer. Remember, your prayers are not always
+answered with a yes. God may say no to you about a job for example and
+then open the door instead to an even better job. Do not get discouraged
+if the answer is no. God will not heal everyone. Prayer warriors are a
+great asset to any godly Biblical church and will grow a Christian and
+encourage them. Always pray in the name of Jesus or you will not be heard
+and waste your time. (John 14:13-14 And whatsoever ye shall ask in my
+name, that will I do, that the Father may be glorified in the Son.
+14 If ye shall ask any thing in my name, I will do it.) It will only be
+granted if it is the will of God, not yours. He will not grant a sinful
+request and you must believe Jesus can and will answer your prayer, not
+asking, but not truly believing. Jesus said in (Matthew 21:22 And all
+things, whatsoever ye shall ask in prayer, believing, ye shall receive.)
+Always pray to God the Father in Jesus's name through the power of the
+Holy Ghost. The Holy Ghost will help you pray. (Romans 8:26-28 26 Likewise
+the Spirit also helpeth our infirmities: for we know not what we should
+pray for as we ought: but the Spirit itself maketh intercession for us
+with groanings which cannot be uttered.
+27 And he that searcheth the hearts knoweth what is the mind of the
+Spirit, because he maketh intercession for the saints according to the
+will of God.
+28 And we know that all things work together for good to them that love
+God, to them who are the called according to his purpose.) Thank God each
+day for his mercy and grace that allowed you to be saved. Mercy is God not
+punishing us for our sins as we deserve and grace is God blessing us when
+we do not deserve it. One goes before a judge if they are guilty and asks
+for mercy such as a murderer gets life or ten years in prison, but should
+have been put to death. We are all sinners that are guilty of death, but
+God's mercy and grace allows us to choose his Son Jesus and live.
+[Ephesians 2:5 Even when we were dead in sins, hath quickened us together
+with Christ, (by grace ye are saved;)] (Ephesians 2:8 For by grace are ye
+saved through faith; and that not of yourselves: it is the gift of God:)
+(Titus 3:5 Not by works of righteousness which we have done, but according
+to his mercy he saved us, by the washing of regeneration, and renewing of
+the Holy Ghost;)
+
+Pray every day that God will put the whole armour of God on you to
+protect you from Satan and his angels. Spiritual warfare is real and will
+only get worse for you the more you spiritually grow (mature as a
+Christian) and try to serve Jesus. Let us pray as Paul did to be
+ambassadors for Jesus and boldly proclaim him to all. (Ephesians 6:10-20
+Finally, my brethren, be strong in the Lord, and in the power of his
+might.
+11 Put on the whole armour of God, that ye may be able to stand against
+the wiles of the devil.
+12 For we wrestle not against flesh and blood, but against principalities,
+against powers, against the rulers of the darkness of this world, against
+spiritual wickedness in high places.
+13 Wherefore take unto you the whole armour of God, that ye may be able to
+withstand in the evil day, and having done all, to stand.
+14 Stand therefore, having your loins girt about with truth, and having on
+the breastplate of righteousness;
+15 And your feet shod with the preparation of the gospel of peace;
+16 Above all, taking the shield of faith, wherewith ye shall be able to
+quench all the fiery darts of the wicked.
+17 And take the helmet of salvation, and the sword of the Spirit, which is
+the word of God:
+18 Praying always with all prayer and supplication in the Spirit, and
+watching thereunto with all perseverance and supplication for all saints;
+19 And for me, that utterance may be given unto me, that I may open my
+mouth boldly, to make known the mystery of the gospel,
+20 For which I am an ambassador in bonds: that therein I may speak boldly,
+as I ought to speak.) (I Thessalonians 5:8 But let us, who are of the day,
+be sober, putting on the breastplate of faith and love; and for an helmet,
+the hope of salvation.)
+
+Get yourself a mature Christian to be your accountability partner.
+You both need to pray for each other and try to keep each other from sin.
+If one sees another sin, they need to point it out to the other, so they
+can confess it and try to eliminate it from their lives. We do not
+criticize them, but love them and have compassion on them as we will also
+sin, though it may be a different sin. Let your accountability partner,
+know what sins you struggle with and have them tell you theirs. This way
+each of you can try and keep the other out of situations where they may be
+vulnerable or susceptible to the sin they struggle with. Have others pray
+for both of you as well.
+
+Learn to forgive, if you want to grow as a Christian. If you do not
+forgive others, Jesus will not forgive you. It is not always easy, but
+must be done. (See above Matthew 6:14-15) If you do not forgive someone
+for some wrong you feel was done to you, it will eat you alive. You will
+not be able to sleep, eat, and it will affect your health. It will most
+likely not even bother the other person and they will sleep well. God says
+vengeance is his alone. Never try to get back at the person. God will
+handle it in his timing, even if it is in the next life. (Life in heaven
+or hell, not reincarnation which is false.) (Deuteronomy 32:35 To me
+belongeth vengeance, and recompence; their foot shall slide in due time:
+for the day of their calamity is at hand, and the things that shall come
+upon them make haste.) (Psalm 94:1 O LORD God, to whom vengeance
+belongeth; O God, to whom vengeance belongeth, shew thyself.) (Hebrews
+10:30 For we know him that hath said, Vengeance belongeth unto me, I will
+recompense, saith the Lord. And again, The Lord shall judge his people.)
+
+A Christian wanting to grow must try to eliminate sin in their life
+and change the way they think, act, live, the people they hang around, the
+things they say and do, music they listen to, and organizations they
+belong to. Avoid situations or people that are involved in the sins you
+are trying to no longer commit. Examples include hanging around your old
+"friends" that use drugs, hanging around bars or drinkers for those who
+are trying to quit alcohol, porn shops for people with a problem with
+pornography [destroy pornographic magazines, books, movies or any other
+sinful magazines (rock and roll, et cetera), books, or movies], casinos
+for gamblers, the routine that made you want to smoke, hanging around a
+person you are sexually attracted to that might lead you to commit
+adultery or what ever sin you need to avoid because it has a stronghold on
+you. Growth as a Christian is not overnight, but takes time and is a daily
+thing. One must work at it every day, so that strides made will not be
+lost and the Christian backslides. Christians should not cuss (swear,
+curse), use drugs, smoke (tobacco in any form or other drugs smoked),
+vape, or drink alcohol. (Proverbs 20:1 Wine is a mocker, strong drink is
+raging: and whosoever is deceived thereby is not wise.) A Christian is not
+to be a stumbling block to the lost or weak Christians and lead them into
+more sin. (See Romans 14:13 and I Corinthians 8:9) We are supposed to be
+setting the examples for the lost and not living as carnal Christians do
+(those living as the world does, with no noticeable difference showing
+they are Christians). Also a Christian's body is a temple of the Holy
+Ghost, so we are not to harm it with drugs, smoking, or alcohol. We also
+need to try to eat healthy and get sleep, and dress modestly, especially
+females. (I Timothy 2:9 In like manner also, that women adorn themselves
+in modest apparel, with shamefacedness and sobriety; not with broided
+hair, or gold, or pearls, or costly array;) (I Corinthians 3:16-17 Know ye
+not that ye are the temple of God, and that the Spirit of God dwelleth in
+you?
+17 If any man defile the temple of God, him shall God destroy; for the
+temple of God is holy, which temple ye are.) (I Corinthians 6:19-20 What?
+know ye not that your body is the temple of the Holy Ghost which is in
+you, which ye have of God, and ye are not your own?
+20 For ye are bought with a price: therefore glorify God in your body, and
+in your spirit, which are God's.) [A Christian is bought with the
+tremendous price of the death of Jesus for us at Calvary.] Christians
+should not have premarital sex and boyfriends and girlfriends should not
+be living together until they are married. A Christian wanting to grow
+must get out of the Roman Catholic Church or Mormon church or other cults
+[Jehovah's Witnesses, et cetera] if they were saved while in them. If one
+is a Free Mason, get out or any other ungodly organizations. This includes
+the Boy Scouts and Girl Scouts as they support sodomy (homosexuality and
+the LGBTQ [lesbian, gay, bisexual, transgender, queer] Pride community and
+girls in Boy Scouts). (Do not fly, carry, or display the rainbow flag for
+the LGBTQ Pride community.) Get out of this lifestyle if you are in it and
+do not support it. You were not born this way, this is how you choose to
+live. God calls it an abomination. (Leviticus 18:22 Thou shalt not lie
+with mankind, as with womankind: it is abomination.) (Romans 1:24-27
+Wherefore God also gave them up to uncleanness through the lusts of their
+own hearts, to dishonour their own bodies between themselves:
+25 Who changed the truth of God into a lie, and worshipped and served the
+creature more than the Creator, who is blessed for ever. Amen.
+26 For this cause God gave them up unto vile affections: for even their
+women did change the natural use into that which is against nature:
+27 And likewise also the men, leaving the natural use of the woman, burned
+in their lust one toward another; men with men working that which is
+unseemly, and receiving in themselves that recompence of their error which
+was meet.) (Deuteronomy 22:5 ¶ The woman shall not wear that which
+pertaineth unto a man, neither shall a man put on a woman's garment: for
+all that do so are abomination unto the LORD thy God.) (I Corinthians 6:9
+Know ye not that the unrighteous shall not inherit the kingdom of God? Be
+not deceived: neither fornicators, nor idolaters, nor adulterers, nor
+effeminate, nor abusers of themselves with mankind,) Children can join the
+Christian version for scouting in Trail Life USA for boys. They teach
+Christian values. If there is not one in your nation, start one. If you
+are a child in one of them, get out and if a parent with a child in one of
+them, get them out. See links on these things of Satan. The following
+things of Satan should be avoided and burned if one owns them: ouji
+boards, magic cards, Harry Potter books and movies, and rock and roll
+music, rap, (including so called "Christian" rock, "Christian" metal, and
+"Christian" rap) [Deuteronomy 32:31 For their rock is not as our Rock,
+even our enemies themselves being judges.] and mostly any other kinds as
+well. Rock and rollers themselves have said the music comes from Satan.
+These things are open doors to Satan. See links on these things. Harry
+Potter is all about witchcraft (as are Sabrina the Teenage Witch, Wizard
+of Oz, Bewitched and others) and there is no such thing as white and black
+or good and evil witchcraft. It is all evil in God's eyes and is compared
+to rebellion. (I Samuel 15:23a For rebellion is as the sin of witchcraft,
+...) (Acts 19:19-20 Many of them also which used curious arts brought their
+books together, and burned them before all men: and they counted the price
+of them, and found it fifty thousand pieces of silver.
+20 So mightily grew the word of God and prevailed.) One will never grow
+with these or other sinful belongings in their lives. One should listen to
+and sing hymns or other godly music. Godly music is an important part of a
+worship service. See Hymns. A growing Christian should not celebrate Santa
+Claus (he is Satan), the Easter bunny, Tooth Fairy, or the other false
+things of the world. Satan tries to use days we celebrate for Jesus and
+secularize them so Jesus is removed and forgotten. Also when children find
+out they are not "real" then when they are told about Jesus, they will
+doubt him as well. Say Merry Christmas, not Happy Holidays. Do not be
+politically correct, Jesus was not. Political correctness is from Satan to
+try and silence Jesus and anything associated with him. Christians should
+not participate in the Satanic holiday of Halloween except to use it to
+hand out tracts to people or in some other way to present trick or
+treaters with the gospel. Do not dress up in costumes, especially witches,
+devils, ghosts, elves, et cetera. Replace these sinful things with reading
+your King James Bible, other good Christian books to learn and such things
+as the magazine Voice of the Martyrs that tells of the persecution of our
+Christian brothers and sisters. (Romans 12:1-2 I beseech you therefore,
+brethren, by the mercies of God, that ye present your bodies a living
+sacrifice, holy, acceptable unto God, which is your reasonable service.
+2 And be not conformed to this world: but be ye transformed by the
+renewing of your mind, that ye may prove what is that good, and
+acceptable, and perfect, will of God.) (Romans 6:6-7 Knowing this, that
+our old man is crucified with him, that the body of sin might be
+destroyed, that henceforth we should not serve sin.
+7 For he that is dead is freed from sin.) (Psalm 111:10 The fear of the
+LORD is the beginning of wisdom: a good understanding have all they that
+do his commandments: his praise endureth for ever.)
+
+Christians should avoid most movies and television that comes out of
+Hollywood. Most of Hollywood is anti-God and pushes views contrary to
+scripture such as swearing, smoking, drinking, evolution, drugs, divorce,
+premarital sex, adultery, yoga (part of Hinduism), talking to the dead,
+atheism, polytheism (many gods), pantheism (all is god), witchcraft, the
+many false religions, homosexuality, bestiality, murder, rebellion against
+parents and authority, hating America, and anything that is against true
+Christianity, including the promotion of Satan and rock and roll music. An
+example is the Star Wars films which were produced to push Buddhism (the
+Force is a part of Buddhism) on the United States of America and the West.
+(George Lucas who produced these movies, is a Buddhist and admitted as
+such that this was the case.) Another example is Disney which is said to
+be a family oriented company, yet promotes homosexuality (including its
+theme parks), witchcraft (including a Harry Potter addition in their theme
+parks) [An example is Escape to Witch Mountain], bestiality (Beauty and
+the Beast), and many other sins. A Christian's time and money can be
+better spent on reading and studying scripture or witnessing or
+fellowshipping with their fellow believers. Most of Hollywood also
+supports the liberal agenda as well such as promoting the homosexual
+agenda (LGBTQ Pride), anti-America, socialism, abortion (murder in all
+cases), and other anti-God views. The same can be said of most music
+studios out there which produce mostly anti-God music or push music
+promoting views that go against scripture. Unfortunately, the United
+States exports its sinful movies, television programs, and music around
+the world to corrupt other nations.
+
+Many "games and toys" should also be avoided by Christians such as
+ouija boards, tarot cards, Magic:The Gathering cards, Dungeons and
+Dragons, Pokémon (short for pocket monsters) [Scripture connects monsters
+with evil. This game promotes the Eastern religions such as Hinduism,
+Buddhism, and Shintoism and their beliefs such as reincarnation. Some of
+the characters are their gods as worshipped in Japan.], and many other
+things. These are all related to the occult and open the door to Satan and
+devils. All of these things should be burned or destroyed in some way to
+prevent them from being found and used by another person. (Acts 19:19 Many
+of them also which used curious arts brought their books together, and
+burned them before all men: and they counted the price of them, and found
+it fifty thousand pieces of silver.) "Playing" with these things can lead
+to possession by devils for the unsaved and influence from devils by the
+saved. This also includes such things as palm readings, psychic readings,
+crystal balls, communicating with the dead, astrology, and reading
+horoscopes. (Deuteronomy 18:9-12 ¶ When thou art come into the land which
+the LORD thy God giveth thee, thou shalt not learn to do after the
+abominations of those nations.
+10 There shall not be found among you any one that maketh his son or his
+daughter to pass through the fire, or that useth divination, or an
+observer of times, or an enchanter, or a witch,
+11 Or a charmer, or a consulter with familiar spirits, or a wizard, or a
+necromancer.
+12 For all that do these things are an abomination unto the LORD: and
+because of these abominations the LORD thy God doth drive them out from
+before thee.)
+
+Christians should not be getting divorced (rate is just as high among
+professing Christians as the world. Also the saved spouse may eventually
+lead the other to Jesus by their witness and example.) or having
+abortions. Abortion is always murder, even if the child (which it is a
+child in the womb, not a blob of tissue. If not a child, you are not
+pregnant.) is from rape or incest, or the health of the mother is
+endangered. God will let the mom and baby both live if that is his will.
+It is never okay to murder one person (a child) to save another. Physician
+assisted suicide is also murder and just a way for the government to
+eliminate the elderly. No Christian should support any of these things or
+organizations or politicians who support these things. (Matthew 18:6 But
+whoso shall offend one of these little ones which believe in me, it were
+better for him that a millstone were hanged about his neck, and that he
+were drowned in the depth of the sea.) See also Mark 9:42 and Luke 17:2.
+
+When a Christian goes on vacation, they must not forget God and be on
+vacation from being a Christian. One who is a Christian, is always a
+Christian. One must bring their Holy Bible or at least have it on their
+phone or somewhere or read the King James Bible placed in the motel/hotel
+by the Gideons and still read it every day. (Beware, some of the Gideons
+bibles are New King James Version and not Holy Bibles [King James Bibles])
+Make sure you still pray every day and make sure you pray for your travels
+and safety. Bring tracts with you and witness to people that you meet.
+Vacation is the time that you often meet people from different nations and
+cultures getting a rare opportunity to reach these people with the gospel.
+If at all possible, attend a godly Biblical church to allow you to
+continue to worship and fellowship while you are gone. Make sure you still
+give your tithes and offerings to the church you attend when you get back.
+This also applies to any time you miss any Sunday due to illness, weather
+or other reason. Do not rob God of what is due him simply because you are
+on vacation or miss a Sunday.
+
+Another area to grow is in tithing and supporting missions. One
+should make sure they give tithes (10% of one's gross income) to their
+church. (Leviticus 27:32 And concerning the tithe of the herd, or of the
+flock, even of whatsoever passeth under the rod, the tenth shall be holy
+unto the LORD.) We are to tithe on everything we own. (Genesis 14:20 And
+blessed be the most high God, which hath delivered thine enemies into thy
+hand. And he gave him tithes of all.) Any given above the 10% is
+offerings. God commands this. (Malachi 3:8-10 ¶ Will a man rob God? Yet ye
+have robbed me. But ye say, Wherein have we robbed thee? In tithes and
+offerings.
+9 Ye are cursed with a curse: for ye have robbed me, even this whole
+nation.
+10 Bring ye all the tithes into the storehouse, that there may be meat in
+mine house, and prove me now herewith, saith the LORD of hosts, if I will
+not open you the windows of heaven, and pour you out a blessing, that
+there shall not be room enough to receive it.) God was not just referring
+to Israel here. God commands and will bless all those who tithe, even if
+they think they cannot afford it. God blessed Abraham who gave tithes to
+Melchizedek (Genesis 14:20 And blessed be the most high God, which hath
+delivered thine enemies into thy hand. And he gave him tithes of all.) and
+the widow woman who gave all she had (two mites). She cared more about God
+than herself, as we all should. (Mark 12:42 And there came a certain poor
+widow, and she threw in two mites, which make a farthing.) (Luke 21:2 And
+he saw also a certain poor widow casting in thither two mites.) (II
+Corinthians 9:6 But this I say, He which soweth sparingly shall reap also
+sparingly; and he which soweth bountifully shall reap also bountifully.)
+You cannot out give God. He will bless you far more than if you kept the
+money for yourself thinking you cannot afford it. If you give a little,
+God will give you little. The more you give, the more God will reward you.
+He will give you your money back in some form if done willingly and not
+grudgingly or in hopes of getting rich. If you can afford it, support
+missionaries who are doing God's work as well as Godly ministries. Make
+sure the money is not being misused by missionaries or ministries. Not all
+are "true Christians". Avoid them. If you do it with a giving and loving
+heart willingly and not out of guilt, god will reward you in heaven. (II
+Corinthians 9:7 Every man according as he purposeth in his heart, so let
+him give; not grudgingly, or of necessity: for God loveth a cheerful
+giver.) Your money and prayers will help lead others to Jesus Christ. If
+one cannot afford monetary support, one can always pray. All true
+Christians can pray. The Holy Ghost knows what we want to pray for even
+before we ask and will teach us. (Romans 8:26-28 Likewise the Spirit also
+helpeth our infirmities: for we know not what we should pray for as we
+ought: but the Spirit itself maketh intercession for us with groanings
+which cannot be uttered.
+27 And he that searcheth the hearts knoweth what is the mind of the
+Spirit, because he maketh intercession for the saints according to the
+will of God.
+28 And we know that all things work together for good to them that love
+God, to them who are the called according to his purpose.)
+
+To grow, you need to love and honor Israel and the Jewish people. God
+commands it. They are God's chosen people. Do not make jokes about them.
+Just because they are God's chosen people does not mean they get
+automatically into heaven. They still need to be saved as everyone else
+(Gentiles) and in the same way by receiving Jesus as their Saviour. That
+does not mean we have to agree with all they stand for, but we must
+support them and their right to exist, defend themselves, and have
+Jerusalem as their capital as that is where God ordained as their capital
+and realize that the land they live on along with all the surrounding land
+now controlled by the Muslims actually belongs to Israel and will be
+theirs during the Millennium. God gave them that land and set their
+boundaries in scripture. They are the only nation that God has
+specifically given their land to and acknowledged their right to exist.
+(Exodus 23:31 And I will set thy bounds from the Red sea even unto the sea
+of the Philistines, and from the desert unto the river: for I will deliver
+the inhabitants of the land into your hand; and thou shalt drive them out
+before thee.) (Ezekiel 47:13-21 ¶ Thus saith the Lord GOD; This shall be
+the border, whereby ye shall inherit the land according to the twelve
+tribes of Israel: Joseph shall have two portions. [Ephraim and Manasseh]
+14 And ye shall inherit it, one as well as another: concerning the which I
+lifted up mine hand to give it unto your fathers: and this land shall fall
+unto you for inheritance.
+15 And this shall be the border of the land toward the north side, from
+the great sea [Mediterranean sea], the way of Hethlon, as men go to Zedad;
+16 Hamath, Berothah, Sibraim, which is between the border of Damascus and
+the border of Hamath; Hazar-hatticon, which is by the coast of Hauran.
+17 And the border from the sea shall be Hazar-enan, the border of
+Damascus, and the north northward, and the border of Hamath. And this is
+the north side.
+18 And the east side ye shall measure from Hauran, and from Damascus, and
+from Gilead, and from the land of Israel by Jordan, from the border unto
+the east sea. And this is the east side.
+19 And the south side southward, from Tamar even to the waters of strife
+in Kadesh, the river to the great sea. And this is the south side
+southward.
+20 The west side also shall be the great sea from the border, till a man
+come over against Hamath. This is the west side.
+21 So shall ye divide this land unto you according to the tribes of
+Israel.) (Genesis 15:18 In the same day the LORD made a covenant with
+Abram, saying, Unto thy seed have I given this land, from the river of
+Egypt unto the great river, the river Euphrates:) Christian's need to
+realize that Jesus himself was a Jew as well as all of the writers and
+prophets in scripture. We also have the Jews to thank for us having the
+scriptures, not only writing them, but also preserving them for us today.
+Never join or support the boycotts against Israel or fight against them.
+God said if we bless Israel, he will bless us and if we curse Israel, he
+will curse us. (Genesis 12:3 And I will bless them that bless thee, and
+curse him that curseth thee: and in thee shall all families of the earth
+be blessed.) Spread the gospel to the Jews. Tell them of their Messiah
+(Jesus Christ). Pray for the peace of Jerusalem. (Psalm 122:6 Pray for the
+peace of Jerusalem: they shall prosper that love thee.)
+
+As I mentioned above, we need to pray for our brothers and sisters in
+Christ. We need to love our brothers and sisters in Christ. We need to
+have empathy and hurt with them when they suffer and rejoice with them
+when they rejoice. If one commits sin, we need to pray for them to get out
+of this sin, not rejoice over their sin. The true church is one body made
+up of many believers from around the world, so we need to support them,
+pray for them, and suffer with them. (I Corinthians 12:12-13 For as the
+body is one, and hath many members, and all the members of that one body,
+being many, are one body: so also is Christ.
+13 For by one Spirit are we all baptized into one body, whether we be Jews
+or Gentiles, whether we be bond or free; and have been all made to drink
+into one Spirit.) Do not be jealous of a brother or sister in Christ for
+their success in serving the Lord. Rejoice for them. Pray for Christians
+in bonds (because of stand for Jesus, not sin, except that they get out of
+that sin) and for those being persecuted for preaching or standing up for
+Jesus. (Hebrews 13:3 Remember them that are in bonds, as bound with them;
+and them which suffer adversity, as being yourselves also in the body.)
+Pray for those in persecuted nations to have the courage and boldness to
+preach the gospel and stay in the fight. Pray they will win many souls for
+Jesus. Again as mentioned above, read the stories of persecuted Christians
+from such places as Voice of the Martyrs or other places. Often times,
+attempts are made to hide and deny the persecution of Christians by the
+media and governments.
+
+Be thankful for all that you have and all that happens in your life.
+Do not covet what someone else has. (Deuteronomy 5:21 Neither shalt thou
+desire thy neighbour's wife, neither shalt thou covet thy neighbour's
+house, his field, or his manservant, or his maidservant, his ox, or his
+ass, or any thing that is thy neighbour's.) God always is right and makes
+no mistakes. I know it is hard to be thankful for the death or illness of
+a loved one or pet or the ill health of yourself, the loss of a job, being
+imprisoned for Jesus or other situations, but God commands us to be. If we
+pray, God will comfort us during these times. When a saved love one dies,
+we know we will see them again in glory. (heaven) Praise God if you are
+persecuted for his sake, even though it is hard. Remember there is usually
+always someone having it worse than you. Be like the example of Job.
+Praise God and do not be like his wife and curse him. Do not lose your
+testimony at this time. People are and will watch you as you go through
+trials and tribulations. (Psalm 107:1 O give thanks unto the LORD, for he
+is good: for his mercy endureth for ever.) (I Thessalonians 5:18 In every
+thing give thanks: for this is the will of God in Christ Jesus concerning
+you.) (II Timothy 3:12 Yea, and all that will live godly in Christ Jesus
+shall suffer persecution.)
+
+One can start their own ministry or website to help spread the gospel
+as I have done with this website and ministry or make YouTube videos. Gail
+Riplinger and another man she knows answers the solicitors when they call
+and starts giving them the gospel before they get a chance to speak. Gail
+and the other man also make random phone calls in the phonebook and when
+they answer, they just start giving the gospel without giving the person a
+chance to talk. Many will listen because they feel it is rude to hang up.
+They have led many to the Lord this way. Gail even led a man and his crew
+over in India. Praise God for people like them. One can start a tract
+ministry as I have. Everyone can place tracts in areas, even if they are
+too shy to give them to people. Many good churches will have tracts at the
+church that the people can take and hand out. If you can afford your own,
+that is even better. I would recommend Chick tracts or at least one using
+King James Bible verses. Chick tracts are small comic book stories that
+present the gospel. They have great art and stories and I know many people
+who will take and read one of them, when they would not read a regular
+tract. They come in many languages. Tracts can be placed almost anyway
+such as in public bathrooms, on fuel pumps, on shelves in stores or inside
+items such as shoe boxes, inside books [library or store] especially ones
+related to the tract such as Harry Potter books and also in non King James
+Bible versions or in King James Bibles, left on public transportation,
+mailed with your bills, in dressing rooms, around school, at laundromats,
+handed to cashiers, or left with your tip at a restaurant. One Chick tract
+user mails a tract with a response card if they get saved to random
+addresses all over the nation. He has had replies from 18,000 people
+saying they got saved after reading the tract. Praise God. The
+possibilities are endless. Your imagination is the only limit. Some
+websites for King James Bible tracts are chick.com,
+http://baptisttracts.org/, http://libertygospeltracts.com/, and
+http://store.kjv1611.org/sale/. There are other places to buy tracts using
+the King James Bible. You can also support missionaries who use Chick
+Tracts by sending a check to the Chick Missions Fund from Chick
+Publications. They use the money to send Chick Tracts for free to the
+missionaries asking for them. People around the world love to read them
+and it allows you to support reaching and winning souls in nations you
+will never have the opportunity to go to. The Holy Ghost will help you
+start a ministry if that is your calling or you can try and join one that
+already exists. Besides starting a ministry, one should try to go on
+mission trips. If you cannot afford to go, try and raise money, or some
+local churches will pay for you to go [either all of it or partial
+payment]. Always make it your main point while on a mission trip to tell
+others about Jesus. Witnessing should be the main point of the trip with
+the secondary purpose of assisting the locals. Tracts and Holy Bibles
+(King James Bibles) are great things to bring along to pass out to the
+people you are witnessing to. If called into the ministry fulltime as a
+preacher or otherwise, praise God and obey. The harvest is plenty, but few
+to serve God. (Matthew 9:37-38 Then saith he unto his disciples, The
+harvest truly is plenteous, but the labourers are few;
+38 Pray ye therefore the Lord of the harvest, that he will send forth
+labourers into his harvest.)
+
+The Holy Ghost gives a true born again believer at least one
+spiritual gift when they are saved. As a new Christian, you will have to
+pray and ask the Holy Ghost what yours is (are). Different gifts are given
+to different Christians. Some may have more than one. Often the more you
+grow and show you use and can handle the first gift the Holy Ghost gave
+you, then you may get more gifts. No one Christian has all gifts and that
+is why the church is a body of all true Christians who must work together
+just as you need all parts of your physical body to function properly. No
+one part or Christian is more important than another. One should always
+use the gifts and talents to serve God and not for their purpose just to
+get rich or fame or other reason. If your gift is music, sing for the
+Lord, write music for the Lord or whatever other way you can use what God
+has given to you to glorify him. This applies to any gift you have. They
+should be used to win souls and serve their fellow Christians. Some gifts
+are listed in Romans 12 and I Corinthians 12. Other gifts are listed in
+other places. (Romans 12:4-8 For as we have many members in one body, and
+all members have not the same office:
+5 So we, being many, are one body in Christ, and every one members one of
+another.
+6 Having then gifts differing according to the grace that is given to us,
+whether prophecy, let us prophesy according to the proportion of faith;
+7 Or ministry, let us wait on our ministering: or he that teacheth, on
+teaching;
+8 Or he that exhorteth, on exhortation: he that giveth, let him do it with
+simplicity; he that ruleth, with diligence; he that sheweth mercy, with
+cheerfulness.) (I Corinthians 12:1-31 Now concerning spiritual gifts,
+brethren, I would not have you ignorant.
+2 Ye know that ye were Gentiles, carried away unto these dumb idols, even
+as ye were led.
+3 Wherefore I give you to understand, that no man speaking by the Spirit
+of God calleth Jesus accursed: and that no man can say that Jesus is the
+Lord, but by the Holy Ghost.
+4 Now there are diversities of gifts, but the same Spirit.
+5 And there are differences of administrations, but the same Lord.
+6 And there are diversities of operations, but it is the same God which
+worketh all in all.
+7 But the manifestation of the Spirit is given to every man to profit
+withal.
+8 For to one is given by the Spirit the word of wisdom; to another the
+word of knowledge by the same Spirit;
+9 To another faith by the same Spirit; to another the gifts of healing by
+the same Spirit;
+10 To another the working of miracles; to another prophecy; to another
+discerning of spirits; to another divers kinds of tongues; to another the
+interpretation of tongues:
+11 But all these worketh that one and the selfsame Spirit, dividing to
+every man severally as he will.
+12 For as the body is one, and hath many members, and all the members of
+that one body, being many, are one body: so also is Christ.
+13 For by one Spirit are we all baptized into one body, whether we be Jews
+or Gentiles, whether we be bond or free; and have been all made to drink
+into one Spirit.
+14 For the body is not one member, but many.
+15 If the foot shall say, Because I am not the hand, I am not of the body;
+is it therefore not of the body?
+16 And if the ear shall say, Because I am not the eye, I am not of the
+body; is it therefore not of the body?
+17 If the whole body were an eye, where were the hearing? If the whole
+were hearing, where were the smelling?
+18 But now hath God set the members every one of them in the body, as it
+hath pleased him.
+19 And if they were all one member, where were the body?
+20 But now are they many members, yet but one body.
+21 And the eye cannot say unto the hand, I have no need of thee: nor again
+the head to the feet, I have no need of you.
+22 Nay, much more those members of the body, which seem to be more feeble,
+are necessary:
+23 And those members of the body, which we think to be less honourable,
+upon these we bestow more abundant honour; and our uncomely parts have
+more abundant comeliness.
+24 For our comely parts have no need: but God hath tempered the body
+together, having given more abundant honour to that part which lacked:
+25 That there should be no schism in the body; but that the members should
+have the same care one for another.
+26 And whether one member suffer, all the members suffer with it; or one
+member be honoured, all the members rejoice with it.
+27 Now ye are the body of Christ, and members in particular.
+28 And God hath set some in the church, first apostles, secondarily
+prophets, thirdly teachers, after that miracles, then gifts of healings,
+helps, governments, diversities of tongues.
+29 Are all apostles? are all prophets? are all teachers? are all workers
+of miracles?
+30 Have all the gifts of healing? do all speak with tongues? do all
+interpret?
+31 But covet earnestly the best gifts: and yet shew I unto you a more
+excellent way.) I do believe that gifts and talents are not exactly the
+same. One can be talented in sports and that talent comes from God, but
+they may not be a Christian (saved). One who is a Christian, should use
+that talent for the Lord. I do believe that it may be possible that if a
+Christian does not use the gift or gifts given to them by the Holy Ghost
+at the time they are saved, that they do not lose their gift or gifts, but
+that they may become ineffective.
+
+Make Jesus Lord of your life and pray before making decisions and
+always put Jesus first. Not all Christians have Jesus as their Lord, in
+fact most do not. (Luke 6:46-49 ¶ And why call ye me, Lord, Lord, and do
+not the things which I say?
+47 Whosoever cometh to me, and heareth my sayings, and doeth them, I will
+shew you to whom he is like:
+48 He is like a man which built an house, and digged deep, and laid the
+foundation on a rock: and when the flood arose, the stream beat vehemently
+upon that house, and could not shake it: for it was founded upon a rock.
+49 But he that heareth, and doeth not, is like a man that without a
+foundation built an house upon the earth; against which the stream did
+beat vehemently, and immediately it fell; and the ruin of that house was
+great.)
+
+To Grow, a Christian must keep their faith and do not doubt it.
+Believe God's word is true. Do not lose faith when college professors try
+to tell you the Holy Bible is wrong and evolution, not creation is true.
+Hold strong in your faith when people tell you the King James Bible is
+wrong and one of the false bibles is true and that none of the versions
+are the word of God and have been fully preserved and that only the
+originals were inspired, not the King James Bible which was inspired. Do
+not lose the faith when they tell you that their was no global flood or
+other things in scripture are wrong. Do not lose faith when persecuted.
+(Matthew 5:10 Blessed are they which are persecuted for righteousness'
+sake: for theirs is the kingdom of heaven.) God is always in control and
+if you stay in his word using a King James Bible and do the things
+mentioned on this page, you will not lose your faith. No matter what you
+do for God, without faith you cannot and will not please him. Having faith
+is the only way to please God. (Hebrews 11:6 But without faith it is
+impossible to please him: for he that cometh to God must believe that he
+is, and that he is a rewarder of them that diligently seek him.) (Hebrews
+11:1 Now faith is the substance of things hoped for, the evidence of
+things not seen.) [II Corinthians 5:7 (For we walk by faith, not by
+sight:)]
+
+Growing as a Christian is not always easy. It takes dedication and
+you need to work at it every day. One is to pick up their cross daily.
+This is not a literal cross, just that we need to work on not sinning each
+day and when we do to confess them and not deny our Saviour or be ashamed
+of him. (Luke 9:23 ¶ And he said to them all, If any man will come after
+me, let him deny himself, and take up his cross daily, and follow me.)
+(Luke 14:27 And whosoever doth not bear his cross, and come after me,
+cannot be my disciple.) Note that change is not and will not be
+instantaneous for most sins. Some changes should occur immediately when
+you are saved. One should be convicted of a sin they have always done if
+they commit it now that they are saved. Growth and change should continue
+over a lifetime, but try to strive for perfection and no sin in your life
+as soon as you can [one will never be perfect and without sin which is why
+we need to be saved, but we should still try to be as much as we can.)
+When one gets saved, life does not get perfect. In fact the more you try
+to serve the Lord, Satan will attack you more. We should thank God for
+that as it means we are pleasing God and making Satan angry. Spiritual
+growth as a Christian has three main stages of growth. See I John 2 (read
+entire chapter which has three stages, little children, young men, and
+fathers). When one is saved that is called salvation or some say
+redemption or justification. All true believers are saints in God's eyes,
+unlike in the Roman Catholic Church were only certain individuals are made
+saints and only after they die. The process of growing as a Christian is
+known as sanctification and when we get to heaven and get our new
+glorified bodies and no more sin in us, that is known as glorification.
+Old people can be babes in Christ and young children can be mature in
+Christ, so physical age does not determine how much you have grown as a
+Christian since you were saved. (I Corinthians 5:7 Purge out therefore the
+old leaven, that ye may be a new lump, as ye are unleavened. For even
+Christ our passover is sacrificed for us:) [leaven represents sin, which
+we need to remove in order to grow spiritually] Galatians 5:19-21 lists
+many sins which are of the flesh and will prevent spiritual growth. For
+true growth, one needs to bring forth the nine fruits of the Spirit listed
+in Galatians 5:22-23 (Galations 5:22-25 But the fruit of the Spirit is
+love, joy, peace, longsuffering, gentleness, goodness, faith,
+23 Meekness, temperance: against such there is no law.
+24 And they that are Christ's have crucified the flesh with the affections
+and lusts.
+25 If we live in the Spirit, let us also walk in the Spirit.) Ask
+spiritually mature Christians to pray for you as you strive to spiritually
+grow. Never stop or give up on striving to grow. Do not be discouraged.
+You will have your good days and bad days. I still sin everyday and have
+done many things I am not proud of, but God can still use one who truly is
+seeking God to rule their lives and confesses their sins and strives to
+serve God. If you have read here to the end, you probably truly do want to
+spiritually grow as a Christian and I believe God will help you achieve
+that. Congratulations. As you grow as a Christian and witness to others
+about Jesus, you will suffer persecution. Do not fear and do not stop
+trying to grow. Thank God for the persecution as God said it would come
+and ye would be blessed. You are being persecuted because people see Jesus
+in you and hate God who you represent and not you. (II Timothy 3:12 Yea,
+and all that will live godly in Christ Jesus shall suffer persecution.)
+Jesus said in (Luke 6:22 Blessed are ye, when men shall hate you, and when
+they shall separate you from their company, and shall reproach you, and
+cast out your name as evil, for the Son of man's sake.) (John 15:18 If the
+world hate you, ye know that it hated me before it hated you.)
+
+One final word for those who want to grow. If one refuses to grow and
+stay in their sins, God will sometimes take that individual home to him
+early. They will not lose their salvation if they are truly saved, but
+will have an early death. This is known as a sin unto death. We are not to
+pray for these people. (I John 5:16-17 If any man see his brother sin a
+sin which is not unto death, he shall ask, and he shall give him life for
+them that sin not unto death. There is a sin unto death: I do not say that
+he shall pray for it.
+17 All unrighteousness is sin: and there is a sin not unto death.) Two
+examples in scripture is the early death of Moses who was not allowed to
+go into the Promised Land because he smote (struck) the rock instead of
+speaking to it as commanded by God. (Numbers 20:7-13 ¶ And the LORD spake
+unto Moses, saying,
+8 Take the rod, and gather thou the assembly together, thou, and Aaron thy
+brother, and speak ye unto the rock before their eyes; and it shall give
+forth his water, and thou shalt bring forth to them water out of the rock:
+so thou shalt give the congregation and their beasts drink.
+9 And Moses took the rod from before the LORD, as he commanded him.
+10 And Moses and Aaron gathered the congregation together before the rock,
+and he said unto them, Hear now, ye rebels; must we fetch you water out of
+this rock?
+11 And Moses lifted up his hand, and with his rod he smote the rock twice:
+and the water came out abundantly, and the congregation drank, and their
+beasts also.
+
+12 ¶ And the LORD spake unto Moses and Aaron, Because ye believed me not,
+to sanctify me in the eyes of the children of Israel, therefore ye shall
+not bring this congregation into the land which I have given them.
+13 This is the water of Meribah; because the children of Israel strove
+with the LORD, and he was sanctified in them.) This Rock was Jesus. (I
+Corinthians 10:4 And did all drink the same spiritual drink: for they
+drank of that spiritual Rock that followed them: and that Rock was
+Christ.) The first time the people murmured and cried for water, Moses was
+told to smite the rock. This was a type or symbol of the first coming of
+Jesus as a beaten, scorned, and despised Saviour. Moses was told to speak
+to the rock the second time as this was a type of the second coming of
+Jesus in all his might and glory as King of kings and Lord of lords. Moses
+destroyed this type for the Israelites as well as disobeyed God and smote
+the Rock of Jesus. He smote our Saviour and therefore God took his life
+early. Another example is seen in the New Testament where Ananias and his
+wife Sapphira lied to the Holy Ghost. (Acts 5:1-11 But a certain man named
+Ananias, with Sapphira his wife, sold a possession,
+2 And kept back part of the price, his wife also being privy to it, and
+brought a certain part, and laid it at the apostles' feet.
+3 But Peter said, Ananias, why hath Satan filled thine heart to lie to the
+Holy Ghost, and to keep back part of the price of the land?
+4 Whiles it remained, was it not thine own? and after it was sold, was it
+not in thine own power? why hast thou conceived this thing in thine heart?
+thou hast not lied unto men, but unto God.
+5 And Ananias hearing these words fell down, and gave up the ghost: and
+great fear came on all them that heard these things.
+6 And the young men arose, wound him up, and carried him out, and buried
+him.
+7 And it was about the space of three hours after, when his wife, not
+knowing what was done, came in.
+8 And Peter answered unto her, Tell me whether ye sold the land for so
+much? And she said, Yea, for so much.
+9 Then Peter said unto her, How is it that ye have agreed together to
+tempt the Spirit of the Lord? behold, the feet of them which have buried
+thy husband are at the door, and shall carry thee out.
+10 Then fell she down straightway at his feet, and yielded up the ghost:
+and the young men came in, and found her dead, and, carrying her forth,
+buried her by her husband.
+11 And great fear came upon all the church, and upon as many as heard
+these things.) It was not required that they had to give all the money to
+the apostles, but they lied about the money they kept back and said they
+gave it all. This was early in the growth of the church and in order for
+the church to grow, God could not tolerate lying to the Holy Ghost.
+Therefore they remained saved, but had an early death.
+
+"Those who fear only God are a terror to the interests and kingdoms of
+darkness." (Quote by Richard Wurmbrand, a Romanian pastor who spent many
+years in a communist prison in Romania for preaching Jesus and later
+founded Voice of the Martyrs, a ministry to help persecuted Christians.
+His story can be read in his book Tortured for Christ published and found
+at Voice of the Martyrs website persecution.com.) He was saying if we fear
+committing sin before God more than anything else, we have no need to fear
+man. Man and Satan can only do what God allows them to do to a Christian.
+See the book of Job. Let us all grow (including me) to be like those who
+are willing to die for Jesus.
+
+A good book for a growing Christian is The Next Step for Growing
+Christians by Jack Chick, published by Chick Publications and available at
+their website www.chick.com. 
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,514 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Water in Scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Water in scripture can have several meanings as most things in
+scripture have multiple meanings. The main meaning of water is life as
+seen with Jesus being the living water. Cultures throughout the world even
+today see water as representative of life. Many wars have been fought over
+water. Most large cities (such as New York City, Los Angeles, Chicago, St.
+Louis, London, Paris, and Shanghai) are located next to a body of water
+such as the ocean, lake or river. Water is made of hydrogen and oxygen and
+as we all know we need oxygen to live. Water can also represent cleansing,
+destruction, healing, fear, sin, people, and many other things.
 
-Username or email _____________________
+One meaning of water in scripture is seen as a cleansing agent. We
+know water cleans and see that even today when we use water to bathe or to
+wash our eyes if something gets in them or wash our hands before we eat.
+Scripture refers to the word of God as cleansing by water. Jesus mentions
+cleansing of the church in (Ephesians 5:26-27 That he might sanctify and
+cleanse it with the washing of water by the word, That he might present it
+to himself a glorious church, not having spot, or wrinkle, or any such
+thing; but that it should be holy and without blemish.) In Nehemiah's day
+they were repairing the gates to Jerusalem and we see they repaired the
+water gate which represents the word of God or the Holy Bible. (Nehemiah
+3:26 Moreover the Nethinims dwelt in Ophel, unto the place over against
+the water gate toward the east, and the tower that lieth out.) Nehemiah
+reads the word of God at the water gate (had twelve to choose from).
+(Nehemiah 8:3 And he read therein before the street that was before the
+water gate from the morning until midday, before the men and the women,
+and those that could understand; and the ears of all the people were
+attentive unto the book of the law.) See also (Ezekiel 36:25 ¶ Then will I
+sprinkle clean water upon you, and ye shall be clean: from all your
+filthiness, and from all your idols, will I cleanse you.) and (Hebrews
+10:22 Let us draw near with a true heart in full assurance of faith,
+having our hearts sprinkled from an evil conscience, and our bodies washed
+with pure water.).
 
-Reset password
+We see how water was used to cleanse people when they were unclean
+such as lepers or other diseases. Remember how Naaman the captain of the
+king of Syria was cleansed of leprosy after dipping himself seven times in
+the Jordan river. If any man had a running issue out of his flesh, he was
+to wash in water and be clean at evening time or a man whose seed of
+copulation go out of him. (Leviticus 15:5 And whosoever toucheth his bed
+shall wash his clothes, and bathe himself in water, and be unclean until
+the even.) (Leviticus 15:16-17 16 And if any man's seed of copulation go
+out from him, then he shall wash all his flesh in water, and be unclean
+until the even. 17 And every garment, and every skin, whereon is the seed
+of copulation, shall be washed with water, and be unclean until the even.)
+Those who touched the dead had to wash. We now know washing helps kill
+germs. The cleansing of lepers and their houses required a clean bird be
+used in the cleansing process. (Leviticus 14:50 And he shall kill the one
+of the birds in an earthen vessel over running water:)
+
+Prior to sacrifices being made, the animals and the priests had to be
+washed in water. Ten lavers of brass were filled with water for the
+priests to use to wash themselves. (Exodus 30:20 When they go into the
+tabernacle of the congregation, they shall wash with water, that they die
+not; or when they come near to the altar to minister, to burn offering
+made by fire unto the LORD:) The water represented being cleansed by
+Jesus. (Leviticus 1:13 But he shall wash the inwards and the legs with
+water: and the priest shall bring it all, and burn it upon the altar: it
+is a burnt sacrifice, an offering made by fire, of a sweet savour unto the
+LORD.) (Leviticus 8:21 And he washed the inwards and the legs in water;
+and Moses burnt the whole ram upon the altar: it was a burnt sacrifice for
+a sweet savour, and an offering made by fire unto the LORD; as the LORD
+commanded Moses.)
+
+Water is seen healing in John 5:4 (man with infirmity at the pool of
+Betheseda) and in John 9:7 (blind man at pool of Siloam that Jesus
+anointed his eyes with clay he had spit on). (John 5:4 For an angel went
+down at a certain season into the pool, and troubled the water: whosoever
+then first after the troubling of the water stepped in was made whole of
+whatsoever disease he had.) [John 9:7 And said unto him, Go, wash in the
+pool of Siloam, (which is by interpretation, Sent.) He went his way
+therefore, and washed, and came seeing.] Even the water in the spittle of
+Jesus has cleansing and healing powers. [Note also that man was made from
+the dust of the ground and Jesus used clay to heal him.]
+
+In Solomon's Temple there was a molten sea that separated the Holy of
+Holies from the rest of the temple. I believe this sea was a type or
+symbol of the sea that is between the second (outer space) and third
+heavens (God's throne).  There is still water in outer space and there
+used to be a water layer between the first (atmosphere) heaven and the
+second heaven that was destroyed in the flood. See (Genesis 1:6-8 6 ¶ And
+God said, Let there be a firmament in the midst of the waters, and let it
+divide the waters from the waters. 7 And God made the firmament, and
+divided the waters which were under the firmament from the waters which
+were above the firmament: and it was so.  8 And God called the firmament
+Heaven. And the evening and the morning were the second day.) (Psalm 148:4
+Praise him, ye heavens of heavens, and ye waters that be above the
+heavens.) I also believe this is the sea of glass John sees in Revelation
+4:6 and Revelation 15:2. (Revelation 4:6 And before the throne there was a
+sea of glass like unto crystal: and in the midst of the throne, and round
+about the throne, were four beasts full of eyes before and behind.)
+(Revelation 15:2 And I saw as it were a sea of glass mingled with fire:
+and them that had gotten the victory over the beast, and over his image,
+and over his mark, and over the number of his name, stand on the sea of
+glass, having the harps of God.) I believe it appears as glass since it is
+frozen ice and is calm and reflects Jesus. This sea along with the earthly
+sea will be no more with the new heaven and new earth. (Revelation 21:1
+And I saw a new heaven and a new earth: for the first heaven and the first
+earth were passed away; and there was no more sea.) I believe God removes
+it since there is no reason to keep separation from people as sin is no
+longer around. The sea of glass separated sin from heaven and seas here on
+earth divide people from other lands. We see water is blue such as the
+saying "sailed the ocean blue". Blue represents division or separation.
+This is seen in priests clothes separated for God or the blue veil in the
+temple separating the holy of holies or the blue sky separating us from
+outer space. No longer needed with Jesus. The word blue is not mentioned
+in the New Testament.
+
+Seas often time represented evil in olden times. I think that is why
+when Jesus walked on the water, he not only showed he was God and his
+control over the world, but also represented his triumph over evil. I
+believe God allowed Satan to bring forth this storm to try and destroy his
+Apostles. This is also seen when the Israelites crossed the Red sea and
+the flooded Jordan river. The water (evil) tried to separate God's people
+from the Promised Land.
+
+Water quenches fire, but not the fires of hell. The people of hell
+have rejected the living water of Jesus and therefore cannot even get a
+drop of water to quench their thirst as seen in the true story of the rich
+man in Luke 16:19-31. (Luke 16:19-31 19 ¶ There was a certain rich man,
+which was clothed in purple and fine linen, and fared sumptuously every
+day:
+
+20 And there was a certain beggar named Lazarus, which was laid at his
+gate, full of sores,
+
+21 And desiring to be fed with the crumbs which fell from the rich man's
+table: moreover the dogs came and licked his sores.
+22 And it came to pass, that the beggar died, and was carried by the
+angels into Abraham's bosom: the rich man also died, and was buried;
+23 And in hell he lift up his eyes, being in torments, and seeth Abraham
+afar off, and Lazarus in his bosom.
+24 And he cried and said, Father Abraham, have mercy on me, and send
+Lazarus, that he may dip the tip of his finger in water, and cool my
+tongue; for I am tormented in this flame.
+25 But Abraham said, Son, remember that thou in thy lifetime receivedst
+thy good things, and likewise Lazarus evil things: but now he is
+comforted, and thou art tormented.
+26 And beside all this, between us and you there is a great gulf fixed: so
+that they which would pass from hence to you cannot; neither can they pass
+to us, that would come from thence.
+27 Then he said, I pray thee therefore, father, that thou wouldest send
+him to my father's house:
+28 For I have five brethren; that he may testify unto them, lest they also
+come into this place of torment.
+29 Abraham saith unto him, They have Moses and the prophets; let them hear
+them.
+30 And he said, Nay, father Abraham: but if one went unto them from the
+dead, they will repent.
+31 And he said unto him, If they hear not Moses and the prophets, neither
+will they be persuaded, though one rose from the dead.) This is not a
+parable. The rich man is still in hell desiring a drop of water he will
+never get. 
+
+Water can be destructive as seen in the global flood of Noah's day as
+seen in Genesis 6-10. All life was destroyed except the eight people on
+board (Noah, his three sons and their wives) and the animals on board. The
+water of the flood also cleansed the earth by removing the sin and
+wickedness covering the earth. The earth was given a new birth and
+beginning with those on the ark. This is similar to when true Christians
+are baptized in water by immersion. (There is also baptism by fire when
+one receives the Holy Ghost. This was seen on the day of Pentecost. See
+(Matthew 3:11 I indeed baptize you with water unto repentance: but he that
+cometh after me is mightier than I, whose shoes I am not worthy to bear:
+he shall baptize you with the Holy Ghost, and with fire:) and (Acts 1:5
+For John truly baptized with water; but ye shall be baptized with the Holy
+Ghost not many days hence.) and (Acts 2:3 And there appeared unto them
+cloven tongues like as of fire, and it sat upon each of them.) Being
+baptized represents the death, burial, and resurrection of Jesus and shows
+publicly we are followers of him. It shows when we are submerged the death
+of our old sinful nature and the rising out of the water represents the
+resurrection of our new born again bodies. Just as washing with water
+washes dirt away, baptism washes away symbolically our sins. It does not
+save anyone, but represents our new birth just as a baby is born from
+water in the mother's womb. When the water sac breaks, the birth of the
+baby is near. [Side note that abortion is always murder as it is a baby in
+the womb. It is murder even if the child is from rape or incest or if the
+health of the mom is endangered. Rachel died giving birth to Benjamin as
+did Phinehas's wife when giving birth to Ichabod. God is in control if he
+wants them both to live. Killing one person to save another is still
+murder, as is physician assisted suicide.] Jesus told Nicodemus we must be
+born again. (John 3:3 Jesus answered and said unto him, Verily, verily, I
+say unto thee, Except a man be born again, he cannot see the kingdom of
+God.) (I Peter 1:23 Being born again, not of corruptible seed, but of
+incorruptible, by the word of God, which liveth and abideth for ever.)
+This is why baptism must be by immersion and not sprinkling. One does not
+drown or die by sprinkling and the word baptizo from which baptism comes
+from, means immersion. John also mentions again that we must be born twice
+(natural and spiritual). (John 3:5 Jesus answered, Verily, verily, I say
+unto thee, Except a man be born of water and of the Spirit, he cannot
+enter into the kingdom of God.) One must be born twice and die once for
+eternal life. Those who are born once and die twice will spend eternity in
+hell and the lake of fire.
+
+We see Jesus in the cloud (made of rain drops) that led the
+Israelites by day in the wilderness and kept them cool in the heat of the
+day by giving them shade and gave them life by helping prevent
+dehydration. We also see Jesus in the Rock that Moses struck when the
+children of Israel murmured while wandering in the wilderness. I
+Corinthians tells us that Rock was Jesus. (I Corinthians 10:4 And did all
+drink the same spiritual drink: for they drank of that spiritual Rock that
+followed them: and that Rock was Christ.) The people murmured again and
+this time Moses was told to speak to the Rock, but in his anger with the
+people he struck the Rock. God did bring forth water, but because of his
+disobedience God did not allow Moses to enter the Promised Land. The Rock
+as Jesus represented the first time Moses struck it as the first coming of
+Jesus as a beaten and scorned man. The second time Moses was to speak to
+the Rock as it represented the Second Coming of Jesus in all his glory as
+King of kings. Moses destroyed the image of the type for the people and
+thus brought about his premature death. We see when Jesus was pierced on
+the cross, water and blood came out.
+
+We see water representing life. Our physical bodies need water to
+survive, even more frequently than food. We see in scripture how the
+people wandering in the wilderness or desert searched for water and the
+cities such as Jerusalem had elaborate water canals to collect water. Our
+bodies are made of about 57-60% water. A lack of water causes many
+illnesses and disease as well as hunger and fatigue and even death if too
+little. Severe dehydration may cause one to see a mirage of water such as
+in a desert. Just as one needs to drink approximately 64 ounces of water a
+day for their physical body, they need to water their spiritual bodies
+daily by reading the word of God.
+
+Water reflects light such as seen in a rainbow. Jesus is the light of
+the world and the colors of the rainbow represent the gospel and the
+salvation message of Jesus that the light represents. (John 8:12 ¶ Then
+spake Jesus again unto them, saying, I am the light of the world: he that
+followeth me shall not walk in darkness, but shall have the light of
+life.) Frozen water or ice is also reflective.
+
+We see the abundance of life in the sea, far more than on land and
+notice that sea animals were created a day before the land animals. Flood
+waters once receded bring forth great crops as seen in such places as in
+Dutchtown in our local floods and allow food for life by regenerating the
+soil. Rain brings forth life by bringing forth food to live.
+
+Ice (frozen water) freezes from top to bottom, whereas all other
+liquids freeze from bottom to top. God did this so that animals living in
+water may have life. If it froze from the bottom up, the animals would
+die. Again water represents life.
+
+Snow which is another form of frozen water often represents purity
+and cleanliness in scripture. Fresh snow is pure white and is nature's way
+of showing the purity and cleanliness of Jesus and as a form of water it
+also represents Jesus as the living water. The blood of Jesus makes us
+whiter than snow. The blood of Jesus can make the filthiest person clean
+and whiter than snow. (Isaiah 1:18 Come now, and let us reason together,
+saith the LORD: though your sins be as scarlet, they shall be as white as
+snow; though they be red like crimson, they shall be as wool.) Wool of
+sheep is also white and pure of which Jesus is our passover lamb. God the
+Father's garment was white as snow and his hair like pure wool. (Daniel
+9:7 ¶ I beheld till the thrones were cast down, and the Ancient of days
+did sit, whose garment was white as snow, and the hair of his head like
+the pure wool: his throne was like the fiery flame, and his wheels as
+burning fire.) We see the raiment (clothing) of Jesus is also white as
+snow when he was transfigured on the mount before Peter, James, and John
+as well as when John saw him in Revelation 1 the hair of Jesus is white as
+snow. (Mark 9:3 And his raiment became shining, exceeding white as snow;
+so as no fuller on earth can white them.) (Revelation 1:14 His head and
+his hairs were white like wool, as white as snow; and his eyes were as a
+flame of fire;) The angel that appeared after the resurrection of Jesus
+was also in white raiment like snow. Jesus makes one pure. (Matthew 28:3
+His countenance was like lightning, and his raiment white as snow:)
+
+Jesus told the Samaritan woman at the well in John chapter 4 (four
+represents the gospel) who came looking to fulfill her physical thirst
+that what she needed was living water which he would give her if she
+asked. Jesus said he would give a well of water springing up into
+everlasting life. Jesus told her she would thirst again with her water,
+but with the water he would give, she would never thirst again, nor will
+anyone else who drinks of it. (John 4:10 Jesus answered and said unto her,
+If thou knewest the gift of God, and who it is that saith to thee, Give me
+to drink; thou wouldest have asked of him, and he would have given thee
+living water.) (John 4:13-14 Jesus answered and said unto her, Whosoever
+drinketh of this water shall thirst again:
+14 But whosoever drinketh of the water that I shall give him shall never
+thirst; but the water that I shall give him shall be in him a well of
+water springing up into everlasting life.) Just as water quenches your
+thirst, Jesus quenches your soul. Jesus said those who believe in him
+shall have rivers of the living water. [John 7:38-39 38 He that believeth
+on me, as the scripture hath said, out of his belly shall flow rivers of
+living water. 39 (But this spake he of the Spirit, which they that believe
+on him should receive: for the Holy Ghost was not yet given; because that
+Jesus was not yet glorified.)] The Holy Ghost is the living water that
+Jesus gives us. We see the Holy Ghost moving over the water in Genesis 1:2
+bringing forth life. (Genesis 1:2 And the earth was without form, and
+void; and darkness was upon the face of the deep. And the Spirit of God
+moved upon the face of the waters.) (Isaiah 12:3 Therefore with joy shall
+ye draw water out of the wells of salvation.)
+
+We see in the Old Testament that the Jews rejected the living water
+of Jesus. (Jeremiah 2:13 For my people have committed two evils; they have
+forsaken me the fountain of living waters, and hewed them out cisterns,
+broken cisterns, that can hold no water.) and (Jeremiah 17:13 O LORD, the
+hope of Israel, all that forsake thee shall be ashamed, and they that
+depart from me shall be written in the earth, because they have forsaken
+the LORD, the fountain of living waters.)
+
+The new heaven has a pure river of water of life flowing from God's
+throne, just as God provided rivers of water for Adam and Eve in the
+garden of Eden. God is the living water and he is pure. (Revelation 22:1
+And he shewed me a pure river of water of life, clear as crystal,
+proceeding out of the throne of God and of the Lamb.) Jesus told John that
+all who thirst for the living water will receive it. (Revelation 21:6 And
+he said unto me, It is done. I am Alpha and Omega, the beginning and the
+end. I will give unto him that is athirst of the fountain of the water of
+life freely.) The Holy Ghost sends one last plea for the lost to come and
+receive of this living water (Jesus) (Revelation 22:17 And the Spirit and
+the bride say, Come. And let him that heareth say, Come. And let him that
+is athirst come. And whosoever will, let him take the water of life
+freely.) Just as our physical bodies need water; our spiritual bodies need
+the living water of Jesus.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

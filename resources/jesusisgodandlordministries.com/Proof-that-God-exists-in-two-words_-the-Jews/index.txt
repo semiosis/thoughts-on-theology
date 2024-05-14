@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,606 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Proof that God exists in two words: the Jews
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+People ask if God exists. God has shown that he exists by his very
+creation yet many atheists ignore what is in front of them. I am going to
+show how even if you ignore God's creation and changed lives in Christians
+then there is one thing that you will not be able to deny and ignore even
+if you hate them. (Romans 1:20 For the invisible things of him from the
+creation of the world are clearly seen, being understood by the things
+that are made, even his eternal power and Godhead; so that they are
+without excuse:) This sermon will show that God does exist and I can prove
+it with just two words: The Jews. The Jewish people are God's chosen
+people and have been since they were founded as a nation and will remain
+God's chosen people forever. The Jews have not been replaced by the church
+in what is known as replacement theology which many falsely teach. The
+Jews and the church each have their own place with the Jews as the
+firstborn son of God and the church as the bride of Jesus. (Exodus 4:22
+And thou shalt say unto Pharaoh, Thus saith the LORD, Israel is my son,
+even my firstborn:) (Revelation 21:9 And there came unto me one of the
+seven angels which had the seven vials full of the seven last plagues, and
+talked with me, saying, Come hither, I will shew thee the bride, the
+Lamb's wife.) The Lamb is Jesus as seen in John. (John 1:29 ¶ The next day
+John seeth Jesus coming unto him, and saith, Behold the Lamb of God, which
+taketh away the sin of the world.) (John 1:36 And looking upon Jesus as he
+walked, he saith, Behold the Lamb of God!)
 
-Username or email _____________________
+God has been with Israel from the beginning and is still with Israel
+today and will be in the future as well. God said many times that Israel
+needed to be destroyed due to their sins just as he had done with other
+nations that no longer exist, but because he had made a promise to
+preserve them he never did and never will. This does not give Israel free
+reign to sin as God many times has allowed Israel to be taken captive by
+heathen Gentile nations, but he never let the nation be completely
+destroyed. Every time they repented then God freed them, but Israel soon
+went back into sin and then God would allow a nation to control Israel and
+this cycle would continue. Finally God had the people disbursed among the
+nations and Israel only became a nation once again in 1948. By the time of
+the formation of Israel as a nation again in 1948 the Jews had been
+dispersed to every continent. No people had ever been so scattered and yet
+still retained their heritage, culture, language, religion, and other
+things. Many people tried to prevent Israel from becoming a nation, but
+God intervened. For such a small nation Israel has been greatly blessed.
+Israel has had far more Nobel prize winners than should be for such a
+small nation. Israel blossoms in the desert with many crops when her Arab
+nations languish. No other people group has been dispersed for so many
+years the way Israel was and then became a nation once again almost 1900
+years later. The same applies to the Hebrew language which they still
+speak yet many other leading languages died off. No other dead language
+has ever become alive again the way Hebrew which seemed dead has survived.
+God has blessed many Jews with wealth, businesses and other success. Many
+physicians, lawyers, and businessmen are Jews far more than what should be
+for how many exist. The very fact that they even exist after how much they
+have been attacked shows God exists, let alone how God has also let many
+of them prosper.
 
-Reset password
+Many times over the years right from the start of Israel then nation
+after nation has wanted and tried to destroy Israel. Satan hates Israel
+since they are God's chosen people and the Messiah Jesus would and did
+come from Israel. Satan has led leaders to try and destroy Israel, but God
+would never allow it. This is the same reason Satan instills in people to
+hate the Jews when they do not even know why they hate them. Israel grew
+as a nation from just seventy people as they settled in Egypt due to
+famine at the time of Joseph. As the nation grew, the Egyptian pharaoh
+feared they would one day overthrow him so the Israelites were made
+slaves. The pharaoh around the time of the birth of Moses ordered all male
+children killed yet God protected many of them including Moses and allowed
+the Jewish women to have many more babies than the Egyptians. This
+Egyptian control lasted for four hundred years until God sent Moses to
+free the people and lead them out of Egypt. God brought the ten plagues
+against Egypt before pharaoh finally gave in and released the Israelites.
+Many of these plagues only affected the Egyptians and not the Israelites.
+As they departed, pharaoh changed his mind and chased after the
+Israelites. When the Israelites got to the Red sea and were surrounded by
+water and the Egyptians with what seemed no hope, then God opened up the
+Red sea to allow the Israelites to cross over on dry ground and after they
+had finished crossing over then he drowned all of the Egyptians. Before
+crossing the Red sea the people were told by Moses that God would fight
+for them. (Exodus 14:14 The LORD shall fight for you, and ye shall hold
+your peace.) God then led them through the wilderness for forty years
+before finally bringing them into the Promised Land. Only Israel has land
+guaranteed to them by God. No other nation does or ever has or ever will,
+except Israel.
+
+During Israel's time in the wilderness, God had them defeat giants
+such as Og who was the king of Bashan as well as other nations. God
+provided water for them on more than one occasion by sending forth water
+from a rock as well as fed them with manna from heaven. God never did this
+with anyone else. Their clothes and shoes never wore out for the forty
+years they wandered in the wilderness and God led them by day by clouds to
+keep the heat off of them and fire by night. One time while in the
+wilderness when they were fighting the Amelekites, then God was with
+Israel as whenever they held Moses' hands up they prevailed and if they
+did not then they were losing. God was showing Israel to trust in him and
+not in themselves. (Exodus 17:11 And it came to pass, when Moses held up
+his hand, that Israel prevailed: and when he let down his hand, Amalek
+prevailed.)  
+
+One time the Israelites under the leadership of Joshua were fighting
+the Amorites when God lengthened the day so that Israel could defeat their
+enemy the Amorites in the daylight. These verses clearly show God fought
+for Israel. (Joshua 10:12-14 12 ¶ Then spake Joshua to the LORD in the day
+when the LORD delivered up the Amorites before the children of Israel, and
+he said in the sight of Israel, Sun, stand thou still upon Gibeon; and
+thou, Moon, in the valley of Ajalon.
+13 And the sun stood still, and the moon stayed, until the people had
+avenged themselves upon their enemies. Is not this written in the book of
+Jasher? So the sun stood still in the midst of heaven, and hasted not to
+go down about a whole day.
+14 And there was no day like that before it or after it, that the
+LORD hearkened unto the voice of a man: for the LORD fought for Israel.)
+There were five kings among the Amorites fighting against Israel, but
+Israel defeated them all since God was fighting for them. (Joshua 10:8 ¶
+And the LORD said unto Joshua, Fear them not: for I have delivered them
+into thine hand; there shall not a man of them stand before thee.) (Joshua
+10:42 And all these kings and their land did Joshua take at one time,
+because the LORD God of Israel fought for Israel.)
+
+We are told in Deuteronomy 33:29 that God is the shield of Israel.
+Time and again God has defended Israel from enemies. (Deuteronomy 33:29
+Happy art thou, O Israel: who is like unto thee, O people saved by the
+LORD, the shield of thy help, and who is the sword of thy excellency! and
+thine enemies shall be found liars unto thee; and thou shalt tread upon
+their high places.)
+
+God brought the fear of him upon the people of the nations in the
+Promised Land and allowed the Israelites under Joshua to conquer the
+nations. The people had heard of the exploits that God had done for Israel
+before the Israelites arrived and they feared Israel. (Joshua 4:24 That
+all the people of the earth might know the hand of the LORD, that it is
+mighty: that ye might fear the LORD your God for ever.) God told Joshua
+not to fear to take Ai as he had delivered the people into their hands.
+God did the fighting for Israel. (Joshua 8:1 And the LORD said unto
+Joshua, Fear not, neither be thou dismayed: take all the people of war
+with thee, and arise, go up to Ai: see, I have given into thy hand the
+king of Ai, and his people, and his city, and his land:)
+
+God had predicted that the Jews would be scattered and that they
+would also be brought back to their land as has been done today. Many Jews
+continue to return to Israel. There are over seven million Jews in Israel
+today out of a little over fifteen million Jews worldwide. (Jeremiah 30:11
+For I am with thee, saith the LORD, to save thee: though I make a full end
+of all nations whither I have scattered thee, yet will I not make a full
+end of thee: but I will correct thee in measure, and will not leave thee
+altogether unpunished.) We see in this verse in Jeremiah that even when
+God allowed Israel to be punished and scattered then he was still with
+them. He will never leave them, but God does allow Israel to be punished.
+(Isaiah 11:12 And he shall set up an ensign for the nations, and shall
+assemble the outcasts of Israel, and gather together the dispersed of
+Judah from the four corners of the earth.) The fact that prophecy is
+fulfilled is one thing that not only shows that scripture is from God, but
+that God exists and is in control. Only God could know the future
+especially far in advance as seen in many verses related to Israel and the
+Jewish people. God said that as long as the sun comes up then the Jews
+would exist showing that he will never let them be destroyed. (Jeremiah
+31:35-37 35 ¶ Thus saith the LORD, which giveth the sun for a light by
+day, and the ordinances of the moon and of the stars for a light by night,
+which divideth the sea when the waves thereof roar; The LORD of
+hosts is his name:
+36 If those ordinances depart from before me, saith the LORD, then the
+seed of Israel also shall cease from being a nation before me for ever.
+37 Thus saith the LORD; If heaven above can be measured, and the
+foundations of the earth searched out beneath, I will also cast off all
+the seed of Israel for all that they have done, saith the LORD.)
+
+Jesus who is God predicted that Jerusalem would be under the rule of
+the Gentiles until he allowed Israel to regain control of it. (Luke 21:24
+And they shall fall by the edge of the sword, and shall be led away
+captive into all nations: and Jerusalem shall be trodden down of the
+Gentiles, until the times of the Gentiles be fulfilled.) The Jews lost
+control of Jerusalem around AD 70-72 when the Romans destroyed it and took
+control and kicked the Jews out. Israel only regained control in 1967
+following the Six Day War against the Arabs.
+
+Many Jewish prophecies concerning the Jewish Messiah were fulfilled
+in Jesus Christ. Scripture itself was written by Jews and still exists
+today as the all-time bestselling book even though many have tried to
+destroy it over the years. 
+
+After God brought the Israelites out of the wilderness into the
+Promised Land then under the leadership of Joshua they fought against
+Jericho and destroyed it by God having them march around the city. God had
+the walls fall outward so that the Israelites could climb up the debris
+into the city. Normally walls fall inward during an attack. This was
+clearly the hand of God. (Joshua 6:20 So the people shouted when the
+priests blew with the trumpets: and it came to pass, when the people heard
+the sound of the trumpet, and the people shouted with a great shout, that
+the wall fell down flat, so that the people went up into the city, every
+man straight before him, and they took the city.)
+
+God used Gideon and his 300 man army to go against 135,000 Midianites
+and they killed 120,000 of them. God said he intentionally had Gideon's
+army small to show that he would do the fighting for Israel. No one could
+defeat an army that outnumbers you by this great a margin unless God is in
+control fighting for you. (Judges 7:7 And the LORD said unto Gideon, By
+the three hundred men that lapped will I save you, and deliver the
+Midianites into thine hand: and let all the other people go every man unto
+his place.) (Judges 8:10 ¶ Now Zebah and Zalmunna were in Karkor, and
+their hosts with them, about fifteen thousand men, all that were left of
+all the hosts of the children of the east: for there fell an hundred and
+twenty thousand men that drew sword.)
+
+God not only protected the nation of Israel, but also many individual
+Israelites. God protected the three Hebrew boys of Shadrach, Meshach, and
+Abednego when they were cast into the fiery furnace by Nebuchadnezzar.
+Jesus himself was in the fiery furnace with them. They came out without
+any injuries or even a smell of smoke on them. (Daniel 3:25 He answered
+and said, Lo, I see four men loose, walking in the midst of the fire, and
+they have no hurt; and the form of the fourth is like the Son of God.) You
+cannot be in a fire without getting burned or be around smoke without
+smelling like smoke unless God is fighting for you. God also protected
+Daniel when he was cast into the den of lions filled with hungry lions.
+Daniel also came out without any harm done yet those cast in after were
+torn apart. (Daniel 6:23-24 23 Then was the king exceeding glad for him,
+and commanded that they should take Daniel up out of the den. So Daniel
+was taken up out of the den, and no manner of hurt was found upon him,
+because he believed in his God.
+
+24 ¶ And the king commanded, and they brought those men which had accused
+Daniel, and they cast them into the den of lions, them, their children,
+and their wives; and the lions had the mastery of them, and brake all
+their bones in pieces or ever they came at the bottom of the den.)
+
+Israel has seen many miracles by God throughout its history such as
+the drying up of the Jordan River to allow the Israelites to cross into
+the Promised Land. God was with them in the ark of the covenant as it was
+taken into battle. God allowed a single man David to kill a giant in
+Goliath and then allowed the Israelites to destroy the Philistines. God
+was with Judah as Judah was surrounded by the Assyrian army. God sent the
+angel of the LORD who was the pre-incarnate Jesus who killed 185,000
+Assyrians and saved Jerusalem which had been besieged so the people were
+starving. (II Kings 19:35 ¶ And it came to pass that night, that the angel
+of the LORD went out, and smote in the camp of the Assyrians an hundred
+fourscore and five thousand: and when they arose early in the morning,
+behold, they were all dead corpses.) God had the Philistines suffer with
+emerods (hemorrhoids) after they captured the ark of the covenant and he
+destroyed the idol of their god Dagon who fell before the true God of
+Israel in Jehovah. Bad things happen to those who fight against Israel. (I
+Samuel 5:4 And when they arose early on the morrow morning, behold, Dagon
+was fallen upon his face to the ground before the ark of the LORD; and the
+head of Dagon and both the palms of his hands were cut off upon the
+threshold; only the stump of Dagon was left to him.) It is clear God
+showed the false god Dagon who was the true God. Even when God allows
+Israel to be punished by enemies, God always punishes the enemies as well
+such as following the seventy year captivity of the Jews by Israel then
+God had Babylon captured by the Medo-Persian Empire.
+
+The Syrians had besieged Samaria which was the capital of Israel so
+that people were eating their children to survive. God made a noise so
+that the Syrians believed they were under attack by the Hittites and
+Egyptians and so they fled and left all of their weapons and clothes and
+food. Two lepers found all of it and then the people had food once again.
+(II Kings 7:6 For the Lord had made the host of the Syrians to hear a
+noise of chariots, and a noise of horses, even the noise of a great host:
+and they said one to another, Lo, the king of Israel hath hired against us
+the kings of the Hittites, and the kings of the Egyptians, to come upon
+us.)
+
+The entire book of Esther is about how God fought and saved the Jews
+from the wicked Haman.
+
+For those who refuse to believe anything found in scripture then
+believe secular history that still shows the intervention by God in the
+lives of the Jews. People have long sought to destroy the Jews. Many
+nations placed the Jews in ghettos or had them wear markings showing they
+were Jews. Many nations such as England and Spain at one time expelled all
+Jews. When that happened the nation that expelled them always went down.
+Spain lost her empire and the United Kingdom would as well as she had
+fought to keep Israel from becoming its own nation. It was the fact that
+the United Kingdom had turned her back on Israel and toward her enemies
+the Arabs that the British Empire began to crumble and basically no longer
+exists today except for a few small territories. God said if you bless
+Israel he would bless you and curse those who cursed Israel. This has been
+seen over and over throughout secular history as well as biblical history.
+(Genesis 12:3 And I will bless them that bless thee, and curse him that
+curseth thee: and in thee shall all families of the earth be blessed.) The
+Moabite king Balak asked Balaam to curse Israel, but God instead placed
+the curse on Moab and blessed Israel. (Numbers 24:10 ¶ And Balak's anger
+was kindled against Balaam, and he smote his hands together: and Balak
+said unto Balaam, I called thee to curse mine enemies, and, behold, thou
+hast altogether blessed them these three times.)
+
+Over the years many laws have been passed by nations against the Jews
+that were meant to destroy them yet God instead prospered them so that
+many of the rich people were Jews. The more nations have tried to get rid
+of them then it seems the more they thrive. Nations forbid Jews to observe
+their religion and customs, but did not forbid other groups theirs yet
+these things still survive today. The Roman Catholic Church tried to
+destroy many Jews in the Crusades and the Inquisitions. Hitler and others
+during World War II tried to destroy all of the Jews killing over six
+million yet they did not succeed with there being over fifteen million in
+the world today. Many nations including the United States of America have
+suffered because they have tried to force Israel to give up land for a
+Palestinian state. These nations have often seen the wrath of God against
+them within twenty four hours. This never happens with other nations
+whereas with Israel it happens over and over again. God will have storms
+pop up out of nowhere or other means to wreak his havoc. Many have tried
+to kill the Jews, but they cannot as God fights for them.
+
+The Maccabees were Jews who fought against the Seleucid Empire to
+gain freedom then after they cleansed the temple they lit a menorah and
+only had enough oil for one day yet God miraculously kept it lit for the
+full eight days of the feast. Jesus celebrated the feast of Hanukah which
+came from this where in scripture it is called the feast of the
+dedication. (John 10:22 ¶ And it was at Jerusalem the feast of the
+dedication, and it was winter.)
+
+Israel has seen many miracles by God in her modern wars as well. In
+May 1948 Israel was reformed as a nation in one day just as God had
+predicted. (Isaiah 66:8-10 8 Who hath heard such a thing? who hath seen
+such things? Shall the earth be made to bring forth in one day? or shall a
+nation be born at once? for as soon as Zion travailed, she brought forth
+her children.
+9 Shall I bring to the birth, and not cause to bring forth? saith the
+LORD: shall I cause to bring forth, and shut the womb? saith thy God.
+10 Rejoice ye with Jerusalem, and be glad with her, all ye that love her:
+rejoice for joy with her, all ye that mourn for her:) No other nation has
+ever become one in one day. Normally you have to fight for it. Almost
+immediately all of the Arab nations around Israel attacked. Israel was
+vastly outnumbered and had very few weapons and should have suffered a
+quick defeat yet God brought victory time and again as well as in Israel's
+following wars where Israel also should have been easily destroyed. In the
+Independence War in 1948 an Israeli platoon fought against Jordan on Mt.
+Zion and was down to 25 rounds of ammunition left and was resorting to
+throwing rocks. Just as all hope seemed gone the Jordanians suddenly ran
+off. Years later it was discovered that they had seen a giant image of
+what they said was Abraham who was protecting Israel. Just as God had
+spread rumors to Israel's enemies in the past so did he in this war.
+Israel had gotten a weapon known as the Davidka which was very
+ineffective, but was very noisy. It was being used in the battle for Safed
+where the Arabs believed the noise was from an atomic bomb so they quickly
+left giving the city to Israel.
+
+During the Six Day War during a tank battle in a minefield God
+brought a wind storm that soon uncovered all of the Arabs mines which
+allowed the Israeli tanks and troops to safely get through the mine field.
+Also during this war in the Battle for the Golan Heights then Israel
+expected over 35,000 casualties against over 70,000 Syrians yet God gave
+them victory in seven hours with few casualties. The Israelis also fought
+in Shechem where the Arabs vowed the day before to fight to the death
+bringing much blood shed to Israel. It was said that every house had
+weapons yet God placed a fear of him upon the Arabs and they all fled and
+Israel took control of the city.
+
+Israel was attacked during the Yom Kippur War while most of the
+troops were off duty celebrating. This surprise attack when Israel was
+defenseless should have led to a quick victory for the Arabs yet God
+quickly turned it into an Israeli victory including Israel going about 12
+miles into Syrian enemy territory by wars end. During this war during a
+tank battle in the Golan Heights in which three Israeli tanks fought
+against 150 Syrian tanks then a miracle happened. The Israeli tanks were
+out of shells and just when all hope seemed loss the Syrians scrambled. It
+was later told by Syrian soldiers that angels were behind the Israeli
+tanks guarding them.
+
+During the Persian Gulf War in 1991 Saddam Hussein the Iraqi leader
+had threatened to gas Israel. The gas attacks never came as God sent
+unusual weather at this time when he had the wind which usually blew from
+Iraq to Israel reverse itself and blow from Israel to Iraq. Any gas attack
+on Israel would have also been on Iraq.
+
+Israel will be attacked in the future by Russia and Arab nations in
+the Battle of Gog and Magog and God will once again intervene
+supernaturally destroying two thirds of the enemy. (Ezekiel 39:2 And I
+will turn thee back, and leave but the sixth part of thee, and will cause
+thee to come up from the north parts, and will bring thee upon the
+mountains of Israel:) God will also intervene when Satan by the antichrist
+tries to destroy Israel during the tribulation, but God will
+supernaturally protect them in what is believed to most likely be Petra,
+Jordan.
+
+Over and over again throughout history people and nations have tried
+to destroy both the nation of Israel as well as the Jewish people. No
+people have suffered more than them yet God continues to protect them and
+they continue to not only survive, but thrive. For a nation and a people
+that should have been destroyed long ago and been a part of history they
+continue to exist as God has and does continue to fight for them. If God
+is on your side then you cannot lose. God has done many more miracles for
+Israel then I have shown. God has many plans still for Israel and these
+will all be fulfilled as well. Israel in her modern wars has normally been
+vastly outnumbered yet has never been defeated and has suffered very few
+deaths and injuries compared to not only her enemies, but also compared to
+being so outnumbered and the wars were never that long. Israel has been
+surrounded by enemies throughout most of its history yet survives. No
+nation has seen so many miracles as has Israel and that have been
+throughout her history even up till today. No explanation could be for the
+many miracles that have occurred involving the nation and the Jewish
+people except for it being that God exists and fights for his chosen
+people. Those who deny the obvious that God exists which can be clearly
+seen in the Jews are as God says fools. (Psalm 53:1 The fool hath said in
+his heart, There is no God. Corrupt are they, and have done abominable
+iniquity: there is none that doeth good.) I have shown that God exists in
+just two words in the Jews. God must exist or else the Jews would not
+exist today. No other group of people has endured so much attack by Satan
+yet still survives. The Jews exist and so does God. The proof is in the
+Jews. The fact the Jews exist also shows that God keeps his promises. Let
+us pray for the Jews, Israel, and the peace of Jerusalem and worship a God
+that does exist with evidence seen in the existence of the Jews. (Psalm
+122:6 Pray for the peace of Jerusalem: they shall prosper that love thee.)
+For any Jews that may be listening, please realize that the God that has
+protected you and fought for you all of these years is none other than the
+Lord Jesus Christ who is your Messiah whom your forefathers rejected. Turn
+to Jesus today and be saved. Read Isaiah 53 and my sermons Proof that
+Jesus is God and Prophecies fulfilled by Jesus at his first coming. 
+
+Post navigation
+← Previous Page
+Next Page →
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

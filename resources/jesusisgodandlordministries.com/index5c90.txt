@@ -1,2 +1,4 @@
+Refresh: contact/index.html
+
 Click here...
 

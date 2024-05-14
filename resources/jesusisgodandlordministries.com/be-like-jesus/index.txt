@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,457 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Be like Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Jesus lived like he preached. Each of us needs to be like Jesus and
+the example he set for us. This sermon especially applies to pastors,
+chaplains, missionaries, Sunday School teachers, seminary professors, or
+anyone else who preaches or teaches the word of God, but it also applies
+to every Christian who witnesses for Jesus or makes a public profession of
+being a Christian. When I preach this sermon, I am preaching as much to
+myself as to those who are listening, to remind myself to be like Jesus.
+Whether Christians like it or not, people are watching us, listening to
+us, and seeing if we live what we tell others to do. If Christians are
+going to win souls for Jesus we need to live what we preach. Unsaved
+people hate hypocrites and this has turned many away from becoming
+Christians. Never let our lives be the cause of a person remaining
+unsaved. When at work or elsewhere do not steal. This includes on your
+timesheet or even stealing a so called small item as a pen. In God's eyes
+and in the eyes of the unsaved, this is a big deal as it should be.
+Parents do not tell your children to not do some sin when you do it
+yourself. Be the example to them just as Jesus was the example for us.
 
-Username or email _____________________
+Jesus set the examples for all Christians and especially preachers.
+Jesus always lived what he preached. He never preached one thing and did
+another as we often do. Do not preach against abortion and the LGBTQ
+movement (things we should preach against) and then vote for liberal
+politicians who not only support both of these issues, but promote and
+push them on the people. Many have the philosophy to do as I preach, not
+as I do. Jesus did not believe this, but rather believed do as I preach
+and I will as well. Jesus himself said that he was an example to them that
+they should do as he had done. (John 13:15 For I have given you an
+example, that ye should do as I have done to you.) Jesus made this
+statement following the Last Supper before his death for us on the cross.
+Jesus took his towel and washed the feet of the disciples as their
+servant. (John 13:12-17 12 So after he had washed their feet, and had
+taken his garments, and was set down again, he said unto
+them, Know ye what I have done to you?
+13 Ye call me Master and Lord: and ye say well; for so I am.
+14 If I then, your Lord and Master, have washed your feet; ye also ought
+to wash one another's feet.
+15
+For I have given you an example, that ye should do as I have done to you.
+16 Verily, verily, I say unto you, The servant is not greater than his
+lord; neither he that is sent greater than he that sent him.
+17 If ye know these things, happy are ye if ye do them.) If Jesus who is
+God can humble himself to be a servant to Christians, we ought to be able
+to do the same. We as Christians need to look out for each other
+especially as we get closer to the end times and the dark days we live in.
+Persecution is coming to all Christians, so we need to be ready.
 
-Reset password
+Jesus taught that our prayers should not be seen of men. This does
+not mean we cannot pray in public such as when I pray before the start of
+the service. Jesus was condemning the Pharisees who were praying "that
+they may be seen of men" and for much show and glory of man rather than to
+pray to God as humble individuals. We can and should pray publicly in
+church and at other times such as when we go out to eat, it just should
+not be done to purposely have people watch you to get glory for yourself
+rather than God. Jesus prayed publicly such as the time when he fed the
+five thousand. (Matthew 14:19 And he commanded the multitude to sit down
+on the grass, and took the five loaves, and the two fishes, and looking up
+to heaven, he blessed, and brake, and gave the loaves to his disciples,
+and the disciples to the multitude.) Jesus does want people to spend time
+alone with God the Father just as he did. (Matthew 6:5-6 ¶ And when thou
+prayest, thou shalt not be as the hypocrites are: for they love to pray
+standing in the synagogues and in the corners of the streets, that they
+may be seen of men. Verily I say unto you, They have their reward.
+6 But thou, when thou prayest, enter into thy closet, and when thou hast
+shut thy door, pray to thy Father which is in secret; and thy Father which
+seeth in secret shall reward thee openly.) Jesus did not mean that a
+person has to literally shut themselves in a closet, but they do need to
+have time each day to be alone with God in prayer where they are not
+disturbed. A person can pray while driving for example, but they still
+need time to be set aside to be alone with God. Jesus obeyed his own
+teachings and many times went off alone to pray away from even his
+disciples. (Mark 1:35 And in the morning, rising up a great while before
+day, he went out, and departed into a solitary place, and there prayed.)
+(Mark 6:46 And when he had sent them away, he departed into a mountain to
+pray.)
+
+Jesus taught that a man's life consisteth not in the abundance of the
+things which he possesseth. (Luke 12:15 And he said unto them, Take heed,
+and beware of covetousness: for a man's life consisteth not in the
+abundance of the things which he possesseth.) Our life should not be
+controlled by our belongings. Jesus followed his own teaching as he was so
+poor that he did not even have a place to lay his head. (Luke 9:58 And
+Jesus said unto him, Foxes have holes, and birds of the air have nests;
+but the Son of man hath not where to lay his head.)
+
+Jesus taught us to care for the legitimate poor. (Luke 14:13 But when
+thou makest a feast, call the poor, the maimed, the lame, the blind:)
+Jesus was referring to the poor that have done everything they could and
+are still poor, not lazy people who are poor because they do not want to
+work and just expect a free government handout or are wasting it all on
+drugs and other sinful means. Scripture says you do not work, you do not
+eat. (II Thessalonians 3:10 For even when we were with you, this we
+commanded you, that if any would not work, neither should he eat.) This
+verse is referring to those who are physically able to. I understand there
+are some who legitimately cannot work. We also need to look after
+Christian poor first and then the unsaved to try and reach them. When we
+help the poor we need to give them the gospel at the same time as food.
+Not giving them the gospel along with the help is a waste of time. The old
+saying applies here that you can feed a man a fish and he will eat for a
+day, but you teach a man to fish and he will eat for a lifetime. By not
+giving the poor the gospel, we are not really helping them. We also need
+to give the gospel to all people including the rich and elite. (Matthew
+11:5 The blind receive their sight, and the lame walk, the lepers are
+cleansed, and the deaf hear, the dead are raised up, and the poor have the
+gospel preached to them.) Jesus himself helped the poor even though he did
+not have much money himself. Jesus fed the five thousand as seen in
+Matthew 14:13-21. (Matthew 14:13-21 13 ¶ When Jesus heard of it, he
+departed thence by ship into a desert place apart: and when the people had
+heard thereof, they followed him on foot out of the cities.
+14 And Jesus went forth, and saw a great multitude, and was moved with
+compassion toward them, and he healed their sick.
+
+15 ¶ And when it was evening, his disciples came to him, saying, This is a
+desert place, and the time is now past; send the multitude away, that they
+may go into the villages, and buy themselves victuals.
+16 But Jesus said unto them, They need not depart; give ye them to eat.
+17 And they say unto him, We have here but five loaves, and two fishes.
+18 He said, Bring them hither to me.
+19 And he commanded the multitude to sit down on the grass, and took the
+five loaves, and the two fishes, and looking up to heaven, he blessed, and
+brake, and gave the loaves to his disciples, and the disciples to the
+multitude.
+20 And they did all eat, and were filled: and they took up of the
+fragments that remained twelve baskets full.
+21 And they that had eaten were about five thousand men, beside women and
+children.) 
+
+Jesus said to pay taxes by rendering under Caesar what was his. (Mark
+12:17 And Jesus answering said unto them, Render to Cæsar the things that
+are Cæsar's, and to God the things that are God's. And they marvelled at
+him.) Jesus obeyed his own preaching when he told Peter to pay the tax for
+him and Peter when they were in Capernaum. Peter got money from the mouth
+of a fish. (Matthew 17:27 Notwithstanding, lest we should offend them, go
+thou to the sea, and cast an hook, and take up the fish that first cometh
+up; and when thou hast opened his mouth, thou shalt find a piece of money:
+that take, and give unto them for me and thee.) Jesus set the example that
+even the poor need to pay taxes. This can also be seen in the old
+testament how the poor brought turtle doves or pigeons instead of a lamb,
+but they still had to offer sacrifices. They were not excused just because
+they were poor. Our nation needs to follow this example. (Leviticus 12:8
+And if she be not able to bring a lamb, then she shall bring two turtles,
+or two young pigeons; the one for the burnt offering, and the other for a
+sin offering: and the priest shall make an atonement for her, and she
+shall be clean.) Mary the mother of Jesus who was poor still had to bring
+the poor offering to the temple. (Luke 2:24 And to offer a sacrifice
+according to that which is said in the law of the Lord, A pair of
+turtledoves, or two young pigeons.)
+
+Jesus loved little children and said adults need to be like them in
+innocence in order to be saved. (Matthew 18:2-6 2 And Jesus called a
+little child unto him, and set him in the midst of them,
+3 And said, Verily I say unto you, Except ye be converted, and become as
+little children, ye shall not enter into the kingdom of heaven.
+4 Whosoever therefore shall humble himself as this little child, the same
+is greatest in the kingdom of heaven.
+5 And whoso shall receive one such little child in my name receiveth me.
+6 But whoso shall offend one of these little ones which believe in me, it
+were better for him that a millstone were hanged about his neck, and that
+he were drowned in the depth of the sea.) Jesus followed his own preaching
+by always calling little children to him even when his disciples tried to
+get rid of them. (Matthew 19:13-15 13 ¶ Then were there brought unto him
+little children, that he should put his hands on them, and pray: and the
+disciples rebuked them.
+14 But Jesus said, Suffer little children, and forbid them not, to come
+unto me: for of such is the kingdom of heaven.
+15 And he laid his hands on them, and departed thence.) We also need to
+place great value on children and try to bring them to the Lord. Not only
+do they need to be saved as everyone else, but churches including this one
+will eventually close if there are no young children to replace the older
+people.
+
+Jesus preached that we need to talk to unsaved people and love them
+just as we love our brothers and sisters in Christ such as neighbors. We
+can be friends with the unsaved and do nice things for them, though I do
+believe that our closest friends should be Christians. We need to be nice
+to unsaved people and include them in some things and then maybe we can
+win them for Jesus. (Matthew 5:47 And if ye salute your brethren only,
+what do ye more than others? do not even the publicans so?) Jesus himself
+ate with unsaved people and was nice to them. We can do some activities
+with unsaved people and should in order to show them love, but they should
+not be our only friends or acquaintances or even our closest ones that we
+do everything with. That should be reserved for Christians, but it is not
+like some people claim that we cannot even go to their house and play a
+game with them. Jesus set the example as always. Jesus ate with the hated
+publicans. This he did to show them love and to show them their need for
+salvation. (Luke 15:2 And the Pharisees and scribes murmured, saying, This
+man receiveth sinners, and eateth with them.) This is an example for
+school children or others when you go to an event with a meal and someone
+is sitting all alone because they are not popular, go and sit with them
+and show them the love of Jesus.
+
+Just as Jesus preached to us to associate with unsaved people we may
+meet, Jesus also commanded us to love our enemies and pray for those who
+persecute us and despitefully use us. Associating with an unsaved person
+of like mind is easy, but loving your enemy is hard. I myself struggle
+with this sometimes as our evil politicians destroy our once blessed and
+great nation, but I still pray for them and love them enough that I pray
+for their salvation as I do not wish hell even on them. We all need to do
+the same. (Matthew 5:44 But I say unto you, Love your enemies, bless them
+that curse you, do good to them that hate you, and pray for them which
+despitefully use you, and persecute you;) Jesus said even the unsaved love
+those who love them. Jesus said if we only love those who love us then we
+are no different than them. (Matthew 5:46 For if ye love them which love
+you, what reward have ye? do not even the publicans the same?) We as
+Christians should be better than that and love our enemies as well. The
+U.S. military does this in war. When they capture the enemy they feed and
+care for them unlike some other evil nations do and have done. We need to
+be like Christians who have been put in prison for preaching Jesus and
+persecuted. They often pray for their enemy that they might be saved.
+Persecution is coming to America in greater amounts than is already here
+and we need to be ready to pray for our persecutors and our enemies. Jesus
+followed his own preaching to love his enemies and those who persecute you
+when he forgave those who scourged and beat him and crucified him on the
+cross. Jesus prayed not only for those who were crucifying him, but he was
+praying for people he had created yet they were still crucifying him.
+Jesus suffered and died on that cross for all people including his enemies
+that they might have everlasting life with him if they called upon him to
+be their Saviour. It is easy to die for a loved one, but very hard as
+Jesus did for your enemy. Jesus said a person had no greater love than he
+who gave his life for his friends. Jesus did much more than that. He went
+above his preaching and gave his life for his enemies. May we be willing
+to do the same so that they might have a chance to come to Jesus before
+they die. (Luke 23:34 ¶ Then said Jesus, Father, forgive them; for they
+know not what they do. And they parted his raiment, and cast lots.) (John
+15:13 Greater love hath no man than this, that a man lay down his life for
+his friends.) May we all have the love of Jesus.
+
+Jesus preached that we need to forgive people. Jesus told Peter he
+needed to forgive a person seventy times seven if they sinned against him.
+Jesus did not mean literally only 490 times, but an infinite number of
+times. (Matthew 18:21-22 ¶ Then came Peter to him, and said, Lord, how oft
+shall my brother sin against me, and I forgive him? till seven times?
+22 Jesus saith unto him, I say not unto thee, Until seven times: but,
+Until seventy times seven.) Jesus followed his own preaching when he
+forgave Peter after he cursed and denied Jesus three times after the
+arrest of Jesus. When the women came to the grave of Jesus on that Sunday
+three days after his death, they found he was risen and an angel told them
+to go and tell his disciples and Peter that Jesus was risen from the
+grave. Jesus made sure that the angel specifically mentioned Peter to show
+he was forgiven. (Mark 16:7 But go your way, tell his disciples and Peter
+that he goeth before you into Galilee: there shall ye see him, as he said
+unto you.) Jesus would also tell Peter to feed his sheep as one of his
+continued apostles. (John 21:17 He saith unto him the third time, Simon,
+son of Jonas, lovest thou me? Peter was grieved because he said unto him
+the third time, Lovest thou me? And he said unto him, Lord, thou knowest
+all things; thou knowest that I love thee. Jesus saith unto him, Feed my
+sheep.) Peter was also blessed in his ministry. Jesus also forgave those
+who crucified him as we just read. May we all learn to forgive like Jesus.
+
+Jesus preached many other things that he always did himself. Jesus
+always did as he preached. Let us do the same. Jesus' life matched his
+teachings, and so must ours. The life of Jesus followed his preaching and
+so must ours if we are going to win lost souls. May God grant us the
+strength to follow not only our own preaching that is scriptural, but
+Jesus' preaching as well. Let us all strive to be like Jesus.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

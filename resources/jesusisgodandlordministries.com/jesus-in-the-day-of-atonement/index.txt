@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,425 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the day of atonement
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The day of atonement, or Yom Kippur as it is known in Israel today,
+is considered the holiest day of the year by Jews. Jews who never go to
+synagogue will go on this day. Yom means day and Kippur means atonement or
+covering. The day of atonement is on 10 Tishri the seventh month on the
+Jewish calendar or in September or October of our calendar. (Leviticus
+23:27 Also on the tenth day of this seventh month there shall be a day of
+atonement: it shall be an holy convocation unto you; and ye shall afflict
+your souls, and offer an offering made by fire unto the LORD.) The ten
+days from the feast of trumpets to the day of atonement are considered
+high holy days and are supposed to be days of repentance. These days are
+known as the Days of Awe. The Jews believe the day of atonement is the day
+that God will judge them and see if their good deeds or works outweighs
+their bad deeds. If they do, the Jews believe their name will remain in
+the book of life for another year. I mentioned in my sermon Jesus in the
+feast of trumpets how a Jew or anyone can have their name written in the
+book of life for all eternity just by calling on Jesus to save them and be
+their Saviour. (Romans 10:13 For whosoever shall call upon the name of the
+Lord shall be saved.) The day of atonement was to be a day of fasting and
+prayer. There is debate on if fasting is required. Acts speaks of the day
+of atonement as "fast", but this could just be that it was so common to
+fast due to tradition that the day became known as the fast. (Acts 27:9
+Now when much time was spent, and when sailing was now dangerous, because
+the fast was now already past, Paul admonished them,) It was a holy day in
+which no work was done. The soul that worked was to be cut off and
+destroyed from his people. This was a serious day. (Leviticus 23:26-32 ¶
+And the LORD spake unto Moses, saying,
+27 Also on the tenth day of this seventh month there shall be a day of
+atonement: it shall be an holy convocation unto you; and ye shall afflict
+your souls, and offer an offering made by fire unto the LORD.
+28 And ye shall do no work in that same day: for it is a day of atonement,
+to make an atonement for you before the LORD your God.
+29 For whatsoever soul it be that shall not be afflicted in that same day,
+he shall be cut off from among his people.
+30 And whatsoever soul it be that doeth any work in that same day, the
+same soul will I destroy from among his people.
+31 Ye shall do no manner of work: it shall be a statute for ever
+throughout your generations in all your dwellings.
+32 It shall be unto you a sabbath of rest, and ye shall afflict your
+souls: in the ninth day of the month at even, from even unto even, shall
+ye celebrate your sabbath.) It was important that the day of atonement was
+a day of rest as only those who were resting in Christ's righteousness by
+faith alone would experience the true rest of Jesus. Only those who truly
+trust in Jesus as their Saviour by faith alone will have rest as they have
+been redeemed of their sins. (Hebrews 4:10-11 For he that is entered into
+his rest, he also hath ceased from his own works, as God did from his.
+11 Let us labour therefore to enter into that rest, lest any man fall
+after the same example of unbelief.) (Ephesians 2:8-9 For by grace are ye
+saved through faith; and that not of yourselves: it is the gift of God:
+9 Not of works, lest any man should boast.)   
 
-Username or email _____________________
+Today Jews read the book of Jonah at the synagogue as a reminder of
+God's mercy and forgiveness. When the temple was destroyed in A.D. 70 the
+Jews could no longer do animal sacrifices. They replaced the animal
+sacrifices with prayer, good works, and charitable donations thinking this
+will save them. It will not. Only the shed blood of Jesus Christ will save
+the Jew and everyone else. Even today most Jews spend most of the day in
+prayer asking God to forgive them, but without any true repentance that is
+needed for salvation. Scripture is clear that blood is needed for the
+sacrifice in order to be forgiven. This is why the animal sacrifices were
+done as representative of the blood of Jesus for our sins. (Leviticus
+17:11 For the life of the flesh is in the blood: and I have given it to
+you upon the altar to make an atonement for your souls: for it is the
+blood that maketh an atonement for the soul.) (Hebrews 9:22 And almost all
+things are by the law purged with blood; and without shedding of blood is
+no remission.) Jews need to realize that there is one greater than the
+temple by the name Jesus (Yeshua) who is the only one who can save you.
+(Matthew 12:6 But I say unto you, That in this place is one greater than
+the temple.)
 
-Reset password
+In Biblical days the high priest would enter the most holy place
+[holy of holies] on the day of atonement. This was the only day of the
+year that the high priest or anyone could enter the most holy place.
+Before entering the most holy place, the high priest had to wash himself
+and put on holy garments. The high priest would take two goats and casts
+lots to see which one would be sacrificed. The other one was put aside and
+was known as the scapegoat. The high priest had to sacrifice a bullock for
+his own sins and then would sacrifice the goat for the LORD as a sin
+offering for the people of Israel. This blood was placed on the mercy seat
+of the ark of the covenant. The scapegoat was released into the wilderness
+and it was said that the sins of the people were placed on this goat never
+to return back to the people. (Leviticus 16:4-19 He shall put on the holy
+linen coat, and he shall have the linen breeches upon his flesh, and shall
+be girded with a linen girdle, and with the linen mitre shall he be
+attired: these are holy garments; therefore shall he wash his flesh in
+water, and so put them on.
+5 And he shall take of the congregation of the children of Israel two kids
+of the goats for a sin offering, and one ram for a burnt offering.
+6 And Aaron shall offer his bullock of the sin offering, which is for
+himself, and make an atonement for himself, and for his house.
+7 And he shall take the two goats, and present them before the LORD at the
+door of the tabernacle of the congregation.
+8 And Aaron shall cast lots upon the two goats; one lot for the LORD, and
+the other lot for the scapegoat.
+9 And Aaron shall bring the goat upon which the LORD'S lot fell, and offer
+him for a sin offering.
+10 But the goat, on which the lot fell to be the scapegoat, shall be
+presented alive before the LORD, to make an atonement with him, and to let
+him go for a scapegoat into the wilderness.
+11 And Aaron shall bring the bullock of the sin offering, which is for
+himself, and shall make an atonement for himself, and for his house, and
+shall kill the bullock of the sin offering which is for himself:
+12 And he shall take a censer full of burning coals of fire from off the
+altar before the LORD, and his hands full of sweet incense beaten small,
+and bring it within the vail:
+13 And he shall put the incense upon the fire before the LORD, that the
+cloud of the incense may cover the mercy seat that is upon the testimony,
+that he die not:
+14 And he shall take of the blood of the bullock, and sprinkle it with his
+finger upon the mercy seat eastward; and before the mercy seat shall he
+sprinkle of the blood with his finger seven times.
+
+15 ¶ Then shall he kill the goat of the sin offering, that is for the
+people, and bring his blood within the vail, and do with that blood as he
+did with the blood of the bullock, and sprinkle it upon the mercy seat,
+and before the mercy seat:
+16 And he shall make an atonement for the holy place, because of the
+uncleanness of the children of Israel, and because of their transgressions
+in all their sins: and so shall he do for the tabernacle of the
+congregation, that remaineth among them in the midst of their uncleanness.
+17 And there shall be no man in the tabernacle of the congregation when he
+goeth in to make an atonement in the holy place, until he come out, and
+have made an atonement for himself, and for his household, and for all the
+congregation of Israel.
+18 And he shall go out unto the altar that is before the LORD, and make an
+atonement for it; and shall take of the blood of the bullock, and of the
+blood of the goat, and put it upon the horns of the altar round about.
+19 And he shall sprinkle of the blood upon it with his finger seven times,
+and cleanse it, and hallow it from the uncleanness of the children of
+Israel.) A thick veil [curtain] separated the holy place from the most
+holy place to keep people out of the most holy place except for the high
+priest and only on the day of atonement. This veil tore at the death of
+Jesus on the cross for our sins as now true believers who are priests can
+have access to Jesus every day and not just on the day of atonement.
+(Matthew 27:51 And, behold, the veil of the temple was rent in twain from
+the top to the bottom; and the earth did quake, and the rocks rent;) (Mark
+15:38 And the veil of the temple was rent in twain from the top to the
+bottom.) Jesus Christ is our High Priest. (Hebrews 3:1 Wherefore, holy
+brethren, partakers of the heavenly calling, consider the Apostle and High
+Priest of our profession, Christ Jesus;) Jesus as the High Priest placed
+his blood on the mercy seat in heaven as the final sacrifice for our sins
+and full forgiveness for all who will call upon Jesus as their Saviour.
+(Hebrews 9:12 Neither by the blood of goats and calves, but by his own
+blood he entered in once into the holy place, having obtained eternal
+redemption for us.) Jesus not only offered the sacrifice, but he was the
+sacrifice. (Hebrews 7:27 Who needeth not daily, as those high priests, to
+offer up sacrifice, first for his own sins, and then for the people's: for
+this he did once, when he offered up himself.) I mentioned this in a
+previous sermon how a Christian man Ron Wyatt had found the ark of the
+covenant buried under the location of Jesus' cross and how the blood of
+Jesus went through the cracks in the ground from the earthquake at his
+death and landed on the mercy seat of the ark of the covenant. Jesus not
+only completed things in heaven, but also as High Priest here on earth by
+placing his blood on the mercy seat here as well just as the Israelite
+high priest did on the day of atonement. Jesus completed the work of
+forgiveness for our sins and no more animal sacrifices were needed. Unlike
+the Israelite high priest who had to make a sacrifice for his sins first
+and then the peoples, Jesus never needed to make a sacrifice for himself
+since he was sinless. (Hebrews 4:15 For we have not an high priest which
+cannot be touched with the feeling of our infirmities; but was in all
+points tempted like as we are, yet without sin.) All believers may now
+enter the holy place in heaven due to the blood of Jesus. (Hebrews 10:19
+Having therefore, brethren, boldness to enter into the holiest by the
+blood of Jesus,) Jesus made one sacrifice never to be repeated unlike the
+Israelite priest who had to make them every year on the day of atonement.
+(Hebrews 9:25 Nor yet that he should offer himself often, as the high
+priest entereth into the holy place every year with blood of others;)
+(Hebrews 9:28 So Christ was once offered to bear the sins of many; and
+unto them that look for him shall he appear the second time without sin
+unto salvation.) Jesus is the High Priest in heaven in the real holy place
+unlike the Israelite high priest. (Hebrews 9:24 For Christ is not entered
+into the holy places made with hands, which are the figures of the true;
+but into heaven itself, now to appear in the presence of God for us:)
+Jesus as God humbled himself for us on the cross in order to pay for our
+sins. (Philippians 2:8 And being found in fashion as a man, he humbled
+himself, and became obedient unto death, even the death of the cross.)
+None of us can pay for our own sins whether by good works or living right
+or any other means, therefore Jesus died for us.
+
+All of Israel will be saved on the day of atonement at the end of the
+tribulation, which is also the end of the 70^th week of Daniel, when they
+look upon Jesus whom they have pierced. (Zechariah 12:10 And I will pour
+upon the house of David, and upon the inhabitants of Jerusalem, the spirit
+of grace and of supplications: and they shall look upon me whom they have
+pierced, and they shall mourn for him, as one mourneth for his only son,
+and shall be in bitterness for him, as one that is in bitterness for his
+firstborn.) (Romans 11:25-27
+For I would not, brethren, that ye should be ignorant of this mystery,
+lest ye should be wise in your own conceits; that blindness in part is
+happened to Israel, until the fulness of the Gentiles be come in.
+26 And so all Israel shall be saved: as it is written, There shall come
+out of Sion the Deliverer, and shall turn away ungodliness from Jacob:
+27 For this is my covenant unto them, when I shall take away their sins.)
+All Israel will shout "Blessed is he that cometh in the name of the LORD"
+when they see Jesus. (Psalm 118:26 Blessed be he that cometh in the name
+of the LORD: we have blessed you out of the house of the LORD.) (Matthew
+23:39 For I say unto you, Ye shall not see me henceforth, till ye shall
+say, Blessed is he that cometh in the name of the Lord.)
+
+Just as the trumpet is sounded for the rapture of the bride of Jesus
+to meet him in the air on the feast of trumpets, the trumpet is sounded
+again on the day of atonement. The Israelites were to sound the trumpet on
+this day. (Leviticus 25:9 Then shalt thou cause the trumpet of the jubile
+to sound on the tenth day of the seventh month, in the day of atonement
+shall ye make the trumpet sound throughout all your land.) Two of the many
+reasons that the trumpet was sounded in Biblical days were for a call to
+assemble and another was for Israel to move out. The trumpet will sound
+once again to announce the coming of Jesus at the end of the tribulation
+on the day of atonement and Jesus will finally gather all of Israel to him
+as the whole nation gets saved as they look upon Jesus whom they have
+pierced. He will then move them into the literal thousand year Millennial
+kingdom.    
+
+In conclusion the day of atonement is the day to show all Jews that
+they are sinners in need of a Saviour and that Jesus is that Saviour. The
+day of atonement also points Jews to the second coming of Jesus at the
+conclusion of the tribulation. May all Jews as well as anyone listening
+who is not saved call upon Jesus today and have Jesus be the atonement for
+your sins and to come back with him at his second coming to meet the now
+repentant saved Jewish nation. (Revelation 19:14 And the armies which were
+in heaven followed him upon white horses, clothed in fine linen, white and
+clean.) The feast of trumpets and the day of atonement remind us that
+Jesus is coming soon.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

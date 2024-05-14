@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,590 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus is the Light of the World and Christians Should Reflect that Light
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+What the Holy Ghost has given me today I pray that I will do well and
+he speaks through me.
 
-Username or email _____________________
+We see in scripture that Jesus is the light of the world.
 
-Reset password
+John 1:1-9 1 IN the beginning was the Word, and the Word was with God, and
+the Word was God.
+
+2 The same was in the beginning with God.
+
+3 All things were made by him; and without him was not any thing made that
+was made.
+
+4 In him was life; and the life was the light of men.
+
+5 And the light shineth in darkness; and the darkness comprehended it not.
+
+6 ¶ There was a man sent from God, whose name was John.
+
+7 The same came for a witness, to bear witness of the Light, that all men
+through him might believe. (notice Light is capitalized)
+
+8 He was not that Light, but was sent to bear witness of that Light.
+
+9 That was the true Light, which lighteth every man that cometh into the
+world.
+
+John 3:19-21 19 And this is the condemnation, that light is come into the
+world, and men loved darkness rather than light, because their deeds were
+evil.
+
+20 For every one that doeth evil hateth the light, neither cometh to the
+light, lest his deeds should be reproved.
+
+21 But he that doeth truth cometh to the light, that his deeds may be made
+manifest, that they are wrought in God.
+
+John 8:12 ¶ Then spake Jesus again unto them, saying, I am the light of
+the world: he that followeth me shall not walk in darkness, but shall have
+the light of life.
+
+John 9:5 As long as I am in the world, I am the light of the world.
+
+John 12:35-36 35 Then Jesus said unto them, Yet a little while is the
+light with you. Walk while ye have the light, lest darkness come upon you:
+for he that walketh in darkness knoweth not whither he goeth.
+
+36 While ye have light, believe in the light, that ye may be the children
+of light. These things spake Jesus, and departed, and did hide himself
+from them.
+
+John 12:46 I am come a light into the world, that whosoever believeth on
+me should not abide in darkness.
+
+Matthew 4:12-16 12 ¶ Now when Jesus had heard that John was cast into
+prison, he departed into Galilee;
+
+13 And leaving Nazareth, he came and dwelt in Capernaum, which is upon the
+sea coast, in the borders of Zabulon and Nephthalim:
+
+14 That it might be fulfilled which was spoken by Esaias the prophet,
+saying,
+
+15 The land of Zabulon, and the land of Nephthalim, by the way of the sea,
+beyond Jordan, Galilee of the Gentiles;
+
+16 The people which sat in darkness saw great light; and to them which sat
+in the region and shadow of death light is sprung up. (refers to Jesus.
+Only Jesus can bring us light)
+
+Luke 2:28-32 28 Then took he him up in his arms, and blessed God, and
+said,
+
+29 Lord, now lettest thou thy servant depart in peace, according to thy
+word:
+
+30 For mine eyes have seen thy salvation,
+
+31 Which thou hast prepared before the face of all people;
+
+32 A light to lighten the Gentiles, and the glory of thy people Israel.
+
+(Simeon said this when Mary came to bring her sacrifice after her
+purification after the birth of Jesus. This proves she was not born
+without sin as the Roman Catholics say. Jesus needed no sacrifice for
+himself.)
+
+Psalm 97:10-11 10 Ye that love the LORD, hate evil: he preserveth the
+souls of his saints; he delivereth them out of the hand of the wicked.
+
+11 Light is sown for the righteous, and gladness for the upright in heart.
+
+Acts 26:17-18 17 Delivering thee from the people, and from the Gentiles,
+unto whom now I send thee,
+
+18 To open their eyes, and to turn them from darkness to light, and from
+the power of Satan unto God, that they may receive forgiveness of sins,
+and inheritance among them which are sanctified by faith that is in me.
+(Paul was recounting his encounter with Jesus on the road to Damascus)
+(Paul was to tell the people about the light of Jesus)
+
+Paul spoke of seeing a bright light from heaven brighter than the sun
+that shone on him and those with him and they were afraid and then Jesus
+spoke out of that light. Jesus was that light. (Acts chapters 9, 22 and
+26)
+
+I John 1:5 This then is the message which we have heard of him, and
+declare unto you, that God is light, and in him is no darkness at all. (We
+know Jesus is God) [See John 1:1 In the beginning was the Word, and the
+Word was with God, and the Word was God.]
+
+II Samuel 22:29 For thou art my lamp, O LORD: and the LORD will lighten my
+darkness.
+
+Psalm 119:105 Thy word is a lamp unto my feet, and a light unto my path.
+
+(John 1:1 and John 1:14 tells us the Word became flesh and dwelt among us.
+The Word is Jesus)
+
+Romans 10:17 So then faith cometh by hearing, and hearing by the word of
+God.
+
+Genesis 1:3-4 3 And God said, Let there be light: and there was light.
+
+4 And God saw the light, that it was good: and God divided the light from
+the darkness.
+
+Jesus was the light on earth before the sun was created. He created
+darkness. (Isaiah 45:7 I form the light, and create darkness: I make
+peace, and create evil: I the LORD do all these things.) The sun was
+created on day four, but plants on day three. They had light from Jesus.
+This contradicts evolution. The sun is a type of Jesus and the moon is a
+type of Christians. 
+
+Revelation 21:23 And the city had no need of the sun, neither of the moon,
+to shine in it: for the glory of God did lighten it, and the Lamb is the
+light thereof. (refers to new Jerusalem) (There are many more verses that
+show Jesus is the light of the world)
+
+II Corinthians 4:6 For God, who commanded the light to shine out of
+darkness, hath shined in our hearts, to give the light of the knowledge of
+the glory of God in the face of Jesus Christ.
+
+The transfiguration of Jesus showed Jesus's true nature.
+
+Matthew 17:1-2  1 AND after six days Jesus taketh Peter, James, and John
+his brother, and bringeth them up into an high mountain apart,
+
+2 And was transfigured before them: and his face did shine as the sun, and
+his raiment was white as the light.
+
+Hanukkah is the Jewish Festival of Lights. Jesus celebrated it where
+it is referred to as the feast of dedication. If you study the scriptures,
+Jesus was most likely born on the feast of tabernacles (John 1:14 says And
+the Word was made flesh, and dwelt among us, (and we beheld his glory, the
+glory as of the only begotten of the Father,) full of grace and truth.) We
+know the Word is Jesus and the word dwelt in Greek means to tabernacle.
+This is like someone who is born on Christmas and we say he Christmased
+with us. I believe the Holy Ghost was giving us a clue that Jesus was born
+on the feast of tabernacles and if you go back 9 months for gestation then
+Jesus was most likely conceived on Hanukkah which is appropriate as Jesus
+is the light of the world conceived on the festival of lights or feast of
+dedication as Jesus is dedicated to the world.
+
+Luke 23:44 And it was about the sixth hour, and there was a darkness over
+all the earth until the ninth hour. (noon until 3 pm) There was darkness
+because the light of the world was dying for the whole worlds sins
+including mine and yours and God the Father could not look at him. Without
+the light of Jesus there is no light on earth.
+
+Many examples in the Old Testament such as the candlestick in the
+tabernacle (which gives off light) are a type of Jesus.
+
+Many numbers in scripture have meaning such as five means grace,
+three is divine completeness, seven is perfection (even the casual reader
+of scripture sees a significance in the number seven), 16 means love for
+you romantics, 50 represents the Holy Ghost. The number 22 means light.
+The number 14 means salvation and 8 is new beginning or new birth. 14
+(salvation) + 8 (new birth) = 22 (light) or Jesus.
+
+There are seven types of light in nature: visible light, infrared,
+x-rays, gamma rays, microwaves, radio waves and ultraviolet light.
+
+The colors also have meanings such as green means life, purple
+royalty and blue means separation or division. This is seen in the Old
+Testament priests robes which were blue as they were separated for service
+to God and the veil in the temple was also blue which separated the holy
+of holies from the rest of the temple. We know the rainbow represents
+God's promise to never destroy the world with a global flood again
+(Genesis 9:12-16), but the colors of the rainbow together represent the
+story of redemption of our salvation. The rainbow is seen behind God's
+throne in Revelation 4:3. (Revelation 4:3 And he that sat was to look upon
+like a jasper and a sardine stone: and there was a rainbow round about the
+throne, in sight like unto an emerald.) The rainbow reflects refracted
+light just as Christians should reflect the light of Jesus and his story
+of salvation. Genesis 9:14 says And it shall come to pass, when I bring a
+cloud over the earth, that the bow (rainbow) shall be seen in the cloud:
+(All clouds have a rainbow and can be seen with the right equipment or
+conditions though we see very few, but God sees a rainbow and remembers
+his covenant each time there is a cloud. The Holy Bible is proven right
+again). Each individual Christian should be a cloud that tells the story
+of redemption to the lost world. 
+
+Light has different properties that represent the Godhead. X-rays,
+gamma rays, radio waves, and ultraviolet light cannot be seen or felt just
+as God the Father cannot be seen or felt. Visible light can be seen and
+felt just as Jesus could be seen and felt. Infrared light cannot be seen
+but can be felt just as the Holy Ghost cannot be seen but can be felt. Not
+sure on microwaves. They are not seen and some say not felt, but others
+say they can burn you, but they still may not be felt before burning you.
+Not sure.
+
+The unsaved often like the night time such as thieves as seen in many
+places in scripture.  Light is compared to good and God and darkness to
+evil throughout scripture. Light represents truth.
+
+An example of good is evil and evil is good and truth is twisted is
+seen by the Hindus of India who celebrate Diwali every October or
+November. Satan always tries to copy God. Diwali symbolizes the spiritual
+"victory of light over darkness, good over evil and knowledge over
+ignorance". Businesses are closed and candles and lights lit and it lasts
+five days. Let us pray Hindus get true victory over darkness and turn to
+the true light of Jesus.
+
+Jesus said he is God when he said his seven I am statements such as
+he said I am the door, I am the way, the truth and the life, and I am the
+light of the world. Moses was told to tell the people I AM sent him.
+
+Jesus tells us in plain English that even a child or one uneducated
+can understand that he is the light of the world. (John 8:12 ¶ Then spake
+Jesus again unto them, saying, I am the light of the world: he that
+followeth me shall not walk in darkness, but shall have the light of
+life.)
+
+Through these verses and illustrations we see Jesus is the light of
+the world.
+
+We as Christians are to represent and reflect the light of Jesus to
+others and be a lighthouse unto the lost and dying world.
+
+As I read earlier in John 12:36 While ye have light, believe in the
+light, that ye may be the children of light.
+
+Matthew 5:14-16 14 Ye are the light of the world. A city that is set on an
+hill cannot be hid.
+
+15 Neither do men light a candle, and put it under a bushel, but on a
+candlestick; and it giveth light unto all that are in the house.
+
+16 Let your light so shine before men, that they may see your good works,
+and glorify your Father which is in heaven.
+
+Luke 16:8 And the lord commended the unjust steward, because he had done
+wisely: for the children of this world are in their generation wiser than
+the children of light. (here in the parable of the unjust steward
+Christians are referred to as children of light, but are not wise as they
+should be)
+
+I Thessalonians 5:5 Ye are all the children of light, and the children of
+the day: we are not of the night, nor of darkness.
+
+The following are some things that keep a Christian from growing and
+their light shining brightly.  All of these things apply to me as well. I
+am preaching to myself at the same time as all of you.  When you point a
+finger at someone, three are pointing back at yourself.
+
+Christians need to live their lives in a way that reflects Jesus
+(Light).  Christians should be putting God first in all that we do. Like
+it or not the world watches anyone who professes to be a Christian.
+Christians should not be using alcohol, tobacco, gambling including buying
+lottery tickets, going to the casinos (even eating there which only
+supports an ungodly establishment) or getting tattoos or piercings all
+over their body. Christians should not be cursing and also need to be
+careful how they speak such as being rude. They are not to be politically
+correct, but need to be tactful and gentler as not to hurt our Christian
+brothers or sisters. Do not give evil looks and watch the tone of your
+voice when speaking. Christians need to act their age both physically and
+spiritually whether 8 or 80. One who professes to have been a Christian
+for 50 years should not still be drinking milk, but should be eating meat
+and teaching babes in Christ. Christians should not be watching or looking
+at pornography, telling or listening to dirty jokes, lusting after the
+opposite sex, watching television shows or movies that mock sin and
+blasphemy God. Christians should not watch or read books and movies that
+promote witchcraft such as Harry Potter (the spells in the stories are
+real with only a few words supposedly left out and these books are
+supposedly written by a professing Christian) and the Wizard of Oz. God
+hates witchcraft. There is no white or black witchcraft. It is all evil
+from Satan. God compares rebellion to witchcraft. (I Samuel 15:23 For
+rebellion is as the sin of witchcraft, and stubbornness is as iniquity and
+idolatry. Because thou hast rejected the word of the LORD, he hath also
+rejected thee from being king.) Christians should not be Masons (All of
+the top Masons worship Satan). Christians should be in church whenever
+possible and not make excuses not to come. Do not put sports, family,
+money or anything else before God. Vote according to what scriptures says
+on issues and not our personal feelings. Christians need to use their
+money wisely and spend more for the Lord and need to tithe. (The word
+tithe means 10% and people need to tithe based on their gross income, not
+net. Do not try to steal or cheat God. He only asks for 10% when it all
+belongs to him. God told the Jews in Malachi 3:8 that they had robbed him.
+They said where and God said in tithes and offerings. Offerings is
+anything above the 10%). Even if one is poor they still need to tithe. God
+will bless them just like the poor widow who threw in all she had with her
+last mite. God does not need our money, he wants our obedience. (Malachi
+3:8 ¶ Will a man rob God? Yet ye have robbed me. But ye say, Wherein have
+we robbed thee? In tithes and offerings.) Christians need to do more than
+live their lives as an example. People need to see Christians in action
+and not just talk. We all need to tell others about Jesus, invite people
+especially the lost to church. Offer to drive them there. Christians need
+to use the King James Bible and avoid all other versions including the New
+King James Version as all others have been corrupted and influenced by
+man, the Roman Catholic Church and Satan. Christians should not commit
+adultery (Jesus said in Matthew 5:28 That whosever looketh on a woman to
+lust after her hath committed adultery with her already in his heart.)
+[Many women are guilty as well]. Christians should not be getting divorced
+(this is unacceptable, rate as high as the unsaved and you took an oath
+before God), living together when not married, dating and marrying unsaved
+people as scripture says we are not to be unequally yoked one to another.
+(II Corinthians 6:14 Be ye not unequally yoked together with unbelievers:
+for what fellowship hath righteousness with unrighteousness? and what
+communion hath light with darkness?) Christians should not be gossiping,
+should not be listening to Rock and Roll or rap music including so called
+Christian rock and Christian rap and most of the contemporary Christian
+music. This kind of music is from Satan and does not honor or please God.
+One should dress up for God. It need not be a suit, but wear the best that
+you have. Women make sure you are not wearing revealing clothing.
+
+Matthew 5:13 ¶ Ye are the salt of the earth: but if the salt have lost his
+savour, wherewith shall it be salted? it is thenceforth good for nothing,
+but to be cast out, and to be trodden under foot of men.
+
+All of us are guilty of one or more of these sins or some other sins
+and need to confess them before Jesus, repent and try to not repeat them.
+
+The following will help Christians to grow and shine brightly:
+
+Christians need to read and study (these are not the same) scripture
+everyday (no excuses). Christians need to pray every day for the lost as
+well as for our church family, nation, Christians in bonds and those being
+persecuted for Jesus, etc. Christians should not be lying and should be
+examples to the lost. Love our neighbors and enemies even when difficult.
+
+All Christians should find a way to serve Jesus and reach the lost.
+One is never to old or young to serve Jesus. Moses was 80 when God called
+him to stand before Pharaoh and free his people from Egypt, cross the Red
+sea, receive the ten commandments and lead the people in the wilderness
+for forty years. He served until his death at 120. Aaron was 83 when he
+was called by God to be a priest and served until is death at 123. Noah
+was 600 when he went aboard the ark. Abraham was 75 when he departed out
+of Haran. Jack Chick continued to serve the Lord and reach the lost by
+writing and drawing new tracts until his death at 92. Tim Lahaye of the
+Left Behind book series, continued to write books for God until his death
+at age 90. Neither are you too young to serve. Samuel served with Eli the
+priest from a very young age and Samson also served from a young age.
+There are no excuses, even if you are in bad health. (Tell story of lady
+with polio and in iron lung who led a Sunday School or bus ministry).
+Whether through giving out tracts (tell of my ministry), telling people
+about Jesus, giving people Holy Bibles, starting a website, a ministry, or
+using social media such as Facebook. One can teach, give out cd's or
+dvd's  of stories of Jesus as well. One can serve on mission trips, give
+money to missionaries or support various Christian ministries. There are
+many ways to serve. Every Christian is given a gift or gifts from the Holy
+Ghost and needs to use it to honor and serve the Lord such as if you are
+an artist, writer or musician use it all for the glory of God. Just as in
+the military there are those who serve on the front lines, those in the
+rear that support those on the front and then those who serve in factories
+to make the weapons for those on the front. Christians can also serve in
+one of those three spots. All Christians can at least pray for those who
+are serving. Christians should be kind, gentle and caring and should show
+the fruit of the Spirit of Galatians 5:22-23. The people around you at
+work, school, family or friends should know you are a Christian and what
+you believe. Christians should not be ashamed of Jesus and should not be
+embarrassed to pray in public or around coworkers, schoolmates or others
+for our food or other reasons for praying.
+
+Satan was originally Lucifer which means light bearer. Satan was
+meant to reflect the light of God (of Jesus I believe), but failed when he
+rebelled against God. We as Christians must not fail to reflect and shine
+the light of God. If Christians truly want revival, then just as the moon
+reflects the light of the sun, they need to make sure they are reflecting
+the light of the Son of God Jesus Christ. As the sign above the sanctuary
+as you exit at Southside Baptist Church says "Go Forth To Serve." 
+
+If one is not saved, today is the day of salvation, repent, admit
+that you are a sinner, realize you need a Saviour and that Jesus died in
+your place for your sins, was buried, and rose again on the third day and
+ask Jesus to save you so you too may come out of the darkness into the
+light and can reflect the light of Jesus.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

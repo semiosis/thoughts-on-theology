@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,931 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Angels and spiritual beings
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Angels are spiritual beings created by God. (Psalm 148:2 Praise ye
+him, all his angels: praise ye him, all his hosts.) (Psalm 148:5 Let them
+praise the name of the LORD: for he commanded, and they were created.)
+There are many types of spiritual beings though they are all usually
+referred to as angels. Some angels are loyal to God and some are loyal to
+Satan. Both God's and Satan's angels are ranked in a military hierarchy
+with some being more powerful than others. Some angels are warriors and
+some are messengers. Angels are invisible creatures that live in the
+spiritual realm. God only allows angels to be seen at certain times.
+Angels live in the real world, not us.  
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+Scripture does not say when God created angels. It does say God
+breathed them into existence. (Psalm 33:6 By the word of the LORD were the
+heavens made; and all the host of them by the breath of his mouth.) The
+host is the angels. Many theologians believe that God created angels prior
+to the six days of creation and that Satan ruled the world and then God
+destroyed it and started over again. This is known as the Lucifer flood.
+No scripture backs that up. I disagree and believe that angels were
+created during the six days of creation. God said he made everything in
+these six days and everything would include angels. (Exodus 20:11 For in
+six days the LORD made heaven and earth, the sea, and all that in them is,
+and rested the seventh day: wherefore the LORD blessed the sabbath day,
+and hallowed it.) These same theologians say that angels were here before
+the foundations of the earth so they had to be created before the six
+days. This also is not true. The earth was originally covered by water and
+then on day three God let the dry land appear so this would be the
+foundations of the earth most likely. Angels may have been made on day 1
+or 2 then to see day three. (Job 38:4-7 Where wast thou when I laid the
+foundations of the earth? declare, if thou hast understanding.
+5 Who hath laid the measures thereof, if thou knowest? or who hath
+stretched the line upon it?
+6 Whereupon are the foundations thereof fastened? or who laid the corner
+stone thereof;
+7 When the morning stars sang together, and all the sons of God shouted
+for joy?) The morning stars and sons of God refer to angels. It is also
+possible that angels were created on day four when the stars were created
+as angels are often compared to stars. (Genesis 1:16 And God made two
+great lights; the greater light to rule the day, and the lesser light to
+rule the night: he made the stars also.) (Genesis 1:19 And the evening and
+the morning were the fourth day.) I just read in Job 38:7 where angels are
+referred to as morning stars. (Revelation 1:20 The mystery of the seven
+stars which thou sawest in my right hand, and the seven golden
+candlesticks. The seven stars are the angels of the seven churches: and
+the seven candlesticks which thou sawest are the seven churches.) Another
+example is seen in Isaiah 14:13 when Lucifer fell and became Satan he said
+he would exult himself above the stars of God. This refers to angels, not
+actual stars. (Isaiah 14:13 For thou hast said in thine heart, I will
+ascend into heaven, I will exalt my throne above the stars of God: I will
+sit also upon the mount of the congregation, in the sides of the north:)
+Some other verses comparing angels to stars are Revelation 9:1 and
+Revelation 12:4. Angels could not have been created long before the six
+days of creation with Satan already have fallen because God said all of
+his creation was very good after day six and if sin was already here from
+Satan, it would not be very good. (Genesis 1:31 And God saw every thing
+that he had made, and, behold, it was very good. And the evening and the
+morning were the sixth day.) One thing many theologians do to justify
+their belief of Satan having been here on earth and God destroying it and
+then remaking it during the six days is by saying the terms create and
+made are not the same. They are the same and this is seen in verses that
+say man was created and also made.
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+The sons of God mentioned in the old testament in Genesis 6 and in
+Job always refer to angels. In the new testament, sons of God refers to
+true Christians.
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+All angels were created at the same time and no more have been made
+since. Scripture never says how many angels there are, but Jesus could
+have called on twelve legions or twenty four thousand when he was getting
+ready to be crucified. (Matthew 26:53 Thinkest thou that I cannot now pray
+to my Father, and he shall presently give me more than twelve legions of
+angels?) (Revelation 5:11 And I beheld, and I heard the voice of many
+angels round about the throne and the beasts and the elders: and the
+number of them was ten thousand times ten thousand, and thousands of
+thousands;) There are many, many angels well in the trillions or more as
+Revelation 5:11 shows there are more angels than we can count. This also
+shows that Satan has plenty of angels as well. Angels never die as they
+are eternal beings. There are no baby angels and all angels are male.
+Every mention of angels in scripture is in the male reference so when
+churches have girls playing angels in plays this is unscriptural. Angels
+of God in heaven do not marry. (Matthew 22:30 For in the resurrection they
+neither marry, nor are given in marriage, but are as the angels of God in
+heaven.) Some of Satan's angels did marry women and produced the giants as
+we saw in our study on Genesis 6. (Genesis 6:2-4 That the sons of God saw
+the daughters of men that they were fair; and they took them wives of all
+which they chose.
+3 And the LORD said, My spirit shall not always strive with man, for that
+he also is flesh: yet his days shall be an hundred and twenty years.
+4 There were giants in the earth in those days; and also after that, when
+the sons of God came in unto the daughters of men, and they
+bare children to them, the same became mighty men which were of old, men
+of renown.) These angels are locked up whereas the rest of Satan's angels
+are free to roam and cause chaos. (Jude 6 And the angels which kept not
+their first estate, but left their own habitation, he hath reserved in
+everlasting chains under darkness unto the judgment of the great day.)
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+Many angels are chariots of God, some of which he rides around in.
+Satan most likely also has angels that are chariots. I believe these
+chariots are the supposed UFO's that people see. (Psalm 68:17 The chariots
+of God are twenty thousand, even thousands of angels: the Lord is among
+them, as in Sinai, in the holy place.) Elijah was taken up in a chariot of
+fire. (II Kings 2:11 And it came to pass, as they still went on, and
+talked, that, behold, there appeared a chariot of fire, and horses of
+fire, and parted them both asunder; and Elijah went up by a whirlwind into
+heaven.) Elisha saw chariots of fire protecting him. (II Kings 6:17 And
+Elisha prayed, and said, LORD, I pray thee, open his eyes, that he may
+see. And the LORD opened the eyes of the young man; and he saw: and,
+behold, the mountain was full of horses and chariots of fire round about
+Elisha.)
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+There are various classes of angels. Not much is said about most of
+them. Scripture never actually says there is an angelic hierarchy or lists
+one, but does mention different spiritual beings. Many theologians rank
+the angels as seraphim, cherubims, thrones, dominions, virtues, powers,
+principalities, archangels, and angels. This may be correct, but I tend to
+differ in places. The highest are the cheribums (cherub is singular).
+Satan as Lucifer was the highest angel ever created and he is a cherub.
+(Ezekiel 28:14 Thou art the anointed cherub that covereth; and I have set
+thee so: thou wast upon the holy mountain of God; thou hast walked up and
+down in the midst of the stones of fire.) The cherubims cover God's throne
+with their wings. This is replicated by the Israelites in the mercy seat
+of the ark of the covenant which is a pattern of the real throne and mercy
+seat in heaven. The mercy seat had a cherub on each end facing each other.
+(Exodus 25:19-20 And make one cherub on the one end, and the
+other cherub on the other end: even of the mercy seat shall ye make
+the cherubims on the two ends thereof.
+20 And the cherubims shall stretch forth their wings on high, covering the
+mercy seat with their wings, and their faces shall look one to another;
+toward the mercy seat shall the faces of the cherubims be.) Cherubims have
+four wings and four faces. (Ezekiel 10:20 Every one had four faces apiece,
+and every one four wings; and the likeness of the hands of a man was under
+their wings.) (Ezekiel 10:14 And every one had four faces: the first face
+was the face of a cherub, and the second face was the face of a man, and
+the third the face of a lion, and the fourth the face of an eagle.)
+Similar celestial creatures are described in Ezekiel 1 called living
+creatures with some differences. These may both be types of cherubims or
+they may be different creatures. (Ezekiel 1:10 As for the likeness of
+their faces, they four had the face of a man, and the face of a lion, on
+the right side: and they four had the face of an ox on the left side; they
+four also had the face of an eagle.) The creature in Ezekiel 1:10 has a
+face of an ox instead of a cherub. Both this creature and the cherubims in
+Ezekiel 10 have man's hands under their wings and wheels for feet. They
+move at the speed of thought wherever they look. Cherubims also have eyes
+all around them. (Ezekiel 10:12 And their whole body, and their backs, and
+their hands, and their wings, and the wheels, were full of eyes round
+about, even the wheels that they four had.) At least some cherubims are
+used as chariots by God for him to ride in. (II Samuel 22:11 And he rode
+upon a cherub, and did fly: and he was seen upon the wings of the wind.)
+Cherubim guarded the garden of Eden with flaming swords after Adam's sin
+and expulsion from the garden in order to prevent the eating of the tree
+of life. (Genesis 3:24 So he drove out the man; and he placed at the east
+of the garden of Eden Cherubims, and a flaming sword which turned every
+way, to keep the way of the tree of life.)
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+Seraphims are most likely the next highest rank of angels. Seraphim
+means "burning one". Seraphims have six wings and seem to be the heavenly
+priests in heaven that assist Jesus who is the High Priest. The Levitical
+priesthood is most likely a pattern of them. The seraphim (seraph
+singular) use two wings to cover their faces as not to see the glory of
+God, two to cover their feet, and two wings to fly. (Isaiah 6:1-3 In the
+year that king Uzziah died I saw also the Lord sitting upon a throne, high
+and lifted up, and his train filled the temple.
+2 Above it stood the seraphims: each one had six wings; with twain he
+covered his face, and with twain he covered his feet, and with twain he
+did fly.
+3 And one cried unto another, and said, Holy, holy, holy, is the LORD of
+hosts: the whole earth is full of his glory.) One seraph gave Isaiah a
+coal from the altar. (Isaiah 6:6 Then flew one of the seraphims unto me,
+having a live coal in his hand, which he had taken with the tongs from off
+the altar:)
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+Other types of angels mentioned are thrones, dominions,
+principalities, and powers though these may refer to Satan's angels only
+or maybe to both holy and unholy angels. (Colossians 1:16 For by him were
+all things created, that are in heaven, and that are in earth, visible and
+invisible, whether they be thrones, or dominions, or principalities, or
+powers: all things were created by him, and for him:) Many of these may be
+the title or function of the angels as they were created. Dominions and
+principalities are most likely the angels assigned to governments. We do
+know principalities are assigned to nations, both good and evil
+principalities. This is seen in Daniel 10 with the prince of Persia, the
+prince of Grecia, and Michael as the prince of Israel. (Daniel 10:20-21
+Then said he, Knowest thou wherefore I come unto thee? and now will I
+return to fight with the prince of Persia: and when I am gone forth, lo,
+the prince of Grecia shall come.
+21 But I will shew thee that which is noted in the scripture of truth:
+and there is none that holdeth with me in these things, but Michael your
+prince.) Angels also are assigned to all churches as seen in Revelation
+1-3. It is real angels referred to in Revelation and the seven churches,
+not pastors as many people preach and teach. Just as Jesus is in church
+with believers so are angels, both holy and evil. Thrones may refer to
+angels that are near the throne of God or Satan as well as some of Satan's
+angels that rule the various affairs of man. We as Christians wrestle
+against the angels of Satan. (Ephesians 6:12 For we wrestle not against
+flesh and blood, but against principalities, against powers, against the
+rulers of the darkness of this world, against spiritual wickedness in high
+places.) Just as both holy and evil angels have a hierarchy, true
+Christians also need to unite in prayer and in ways that together we are
+stronger in spiritual warfare. You cannot go it alone as a lone wolf.
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+Michael is the only angel referred to as an archangel. (Jude 9 Yet
+Michael the archangel, when contending with the devil he disputed about
+the body of Moses, durst not bring against him a railing accusation, but
+said, The Lord rebuke thee.)Michael means "who is like God". Many people
+say Gabriel and Satan are archangels, but scripture never says that.
+Daniel describes Michael as one of the chief princes so Michael may
+actually be a principality and archangel just describes his position/rank
+or title such as a general in an army who is an infantryman and soldier.
+General is just his rank and title, not who he is. (Daniel 10:13 But the
+prince of the kingdom of Persia withstood me one and twenty days: but, lo,
+Michael, one of the chief princes, came to help me; and I remained there
+with the kings of Persia.) Arch in archangel means chief. The built in
+dictionary in the King James Bible even shows this in Daniel 10:13 where
+it says Michael is "one of the chief princes". Michael is one of only four
+angels mentioned by name in scripture. The Roman Catholic Church has
+others but gets them from the apocryphal books. Michael is the prince of
+Israel. (Daniel 10:21 But I will shew thee that which is noted in the
+scripture of truth: and there is none that holdeth with me in these
+things, but Michael your prince.) Michael is a warrior angel who most
+likely is in charge just below Jesus as the head of the heavenly army.
+Michael and his angels will fight against Satan and his angels as they
+will be permanently cast out of heaven during the midpoint of the great
+tribulation. (Revelation 12:7-9 And there was war in heaven: Michael and
+his angels fought against the dragon; and the dragon fought and his
+angels,
+8 And prevailed not; neither was their place found any more in heaven.
+9 And the great dragon was cast out, that old serpent, called the Devil,
+and Satan, which deceiveth the whole world: he was cast out into the
+earth, and his angels were cast out with him.) Michael also fought against
+the prince of Persia to help Gabriel get to Daniel as we read in Daniel
+10:13. It is possible that Michael is now the highest holy angel or at
+least near the top.
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Gabriel is another angel mentioned in scripture. Unlike Michael who
+is a warrior angel, Gabriel is a messenger angel. The word angel means
+messenger. Gabriel is always announcing things. His most important
+announcement was the coming of Jesus to earth as the God-man. Gabriel told
+Mary she would give birth to Christ and to name him Jesus which means he
+who saves. (Luke 1:26-33 And in the sixth month the angel Gabriel was sent
+from God unto a city of Galilee, named Nazareth,
+27 To a virgin espoused to a man whose name was Joseph, of the house of
+David; and the virgin's name was Mary.
+28 And the angel came in unto her, and said, Hail, thou that art highly
+favoured, the Lord is with thee: blessed art thou among women.
+29 And when she saw him, she was troubled at his saying, and cast in her
+mind what manner of salutation this should be.
+30 And the angel said unto her, Fear not, Mary: for thou hast found favour
+with God.
+31 And, behold, thou shalt conceive in thy womb, and bring forth a son,
+and shalt call his name JESUS.
+32 He shall be great, and shall be called the Son of the Highest: and the
+Lord God shall give unto him the throne of his father David:
+33 And he shall reign over the house of Jacob for ever; and of his kingdom
+there shall be no end.) Gabriel also appeared to Zacharias to announce the
+coming conception of John the Baptist. (Luke 1:19 And the angel answering
+said unto him, I am Gabriel, that stand in the presence of God; and am
+sent to speak unto thee, and to shew thee these glad tidings.) Gabriel
+also came to Daniel after Daniel had prayed to God. We saw how Michael
+came to help Gabriel in his fight against the prince of Persia. This shows
+how some angels are more powerful than others. I also read in Jude 9 how
+even Michael did not challenge Satan directly, but had the help of God. We
+see how both Michael and Gabriel are around in both the old and new
+testaments showing they are immortal.
+
+Michael and Gabriel are both holy angels. The next two angels
+mentioned in scripture are both fallen angels. The first is Satan who has
+other names as well. We will discuss him later. The second is Apollyon.
+(Revelation 9:11 And they had a king over them, which is the angel of the
+bottomless pit, whose name in the Hebrew tongue is Abaddon, but in the
+Greek tongue hath his name Apollyon.) Many people claim that Apollyon is
+Satan. I believe this is incorrect. Apollyon is the chief angel of the
+bottomless pit and was the leader of the angels that rebelled against God
+and mated with females in Genesis 6 to produce the giants. Satan is not
+yet in the bottomless pit. Apollyon is one of the angels locked up in
+chains of darkness. (II Peter 2:4 For if God spared not the angels that
+sinned, but cast them down to hell, and delivered them into chains of
+darkness, to be reserved unto judgment;) I have in previous sermons
+explained that the angels locked up are the angels of Genesis 6. The
+angels that rebelled along with Satan are still free.
+
+Lucifer is the fourth angel mentioned in scripture. Lucifer was
+originally the top angel who rebelled against God as his pride got to him.
+Lucifer wanted to be like the most high. He wanted to be God and still
+does. (Isaiah 14:12-14 How art thou fallen from heaven, O Lucifer, son of
+the morning! how art thou cut down to the ground, which didst weaken the
+nations!
+13 For thou hast said in thine heart, I will ascend into heaven, I will
+exalt my throne above the stars of God: I will sit also upon the mount of
+the congregation, in the sides of the north:
+14 I will ascend above the heights of the clouds; I will be like the most
+High.) Lucifer rebelled and convinced one third of the angels to rebel
+with him. (Revelation 12:4 And his tail drew the third part of the stars
+of heaven, and did cast them to the earth: and the dragon stood before the
+woman which was ready to be delivered, for to devour her child as soon as
+it was born.) After Lucifer rebelled, God changed his name to Satan which
+means accuser or adversary. He is also referred to as the devil, the
+dragon, Beelzebub, the tempter, and many other names. As Lucifer, he was
+created in perfection and he had built in instruments into his body and
+most likely led the heavenly worship services. This is why Satan has so
+controlled music such as rock and roll and rap, and all the others. His
+body was also covered with precious stones. (Ezekiel 28:13 Thou hast been
+in Eden the garden of God; every precious stone was thy covering, the
+sardius, topaz, and the diamond, the beryl, the onyx, and the jasper, the
+sapphire, the emerald, and the carbuncle, and gold: the workmanship of thy
+tabrets and of thy pipes was prepared in thee in the day that thou wast
+created.) Notice this is verse 13 with the number thirteen meaning
+rebellion. Satan is a cherub as seen in this verse and once covered the
+throne of God. As Lucifer, he was to have reflected the light of Jesus as
+seen in his name meaning light bearer. Satan is the one who deceived Eve
+and got her and Adam to sin. He appeared as a serpent which he indwelled.
+(Revelation 20:2 And he laid hold on the dragon, that old serpent, which
+is the Devil, and Satan, and bound him a thousand years,) Satan was
+jealous of man who was made in the image of God and angels are not. God
+also gave Adam dominion of the earth which Satan wanted. After Adam
+sinned, Satan gained control of the world and today is the prince of this
+world and the prince of the power of the air. This means Satan is in
+charge of all of the evil angels and devils. (John 16:11 Of judgment,
+because the prince of this world is judged.) (Ephesians 2:2 Wherein in
+time past ye walked according to the course of this world, according to
+the prince of the power of the air, the spirit that now worketh in the
+children of disobedience:) Satan and his angels still have access to
+heaven and God. This is seen in Job in more than one verse. (Job 1:6 ¶ Now
+there was a day when the sons of God came to present themselves before the
+LORD, and Satan came also among them.) Satan goes to and fro in the earth
+looking to devour people especially Christians as he already has the
+unsaved. Because of Adam's sin, all people are now born with a sin nature
+and need to call upon Jesus to save them to change this. Because of this
+sin nature all people are born the children of Satan rather than God.
+Satan wanted to devour Peter as a roaring lion. (I Peter 5:8 Be sober, be
+vigilant; because your adversary the devil, as a roaring lion, walketh
+about, seeking whom he may devour:) Satan has given much power to people
+such as rock and roll stars and politicians. He will also do the same with
+the antichrist. (Revelation 13:2 And the beast which I saw was like unto a
+leopard, and his feet were as the feet of a bear, and his mouth as the
+mouth of a lion: and the dragon gave him his power, and his seat, and
+great authority.) Satan will mate with a woman to produce the antichrist
+as Genesis 3:15 shows. (Genesis 3:15 And I will put enmity between thee
+and the woman, and between thy seed and her seed; it shall bruise thy
+head, and thou shalt bruise his heel.) The antichrist will be his literal
+seed just as the giants were of the angels of Genesis 6. Satan has been a
+liar and murderer from the beginning. The first words he said in scripture
+were a lie to Eve. (John 8:44 Ye are of your father the devil, and the
+lusts of your father ye will do. He was a murderer from the beginning, and
+abode not in the truth, because there is no truth in him. When he speaketh
+a lie, he speaketh of his own: for he is a liar, and the father of
+it.)Satan is behind all lies such as evolution.Satan has tried to kill
+Jesus many times and prevent his coming, both the first and second
+comings. Satan always tries to copy everything God does. Satan has tried
+to steal the rainbow from God and has produced his own false bibles. Satan
+is the most powerful being after God, but he can only do what God allows
+him to do. Satan as a created being does not have the attributes of God
+such as omnipotence (all powerful), omniscience (all knowing), or
+omnipresence (present everywhere at the same time). This is why Satan must
+rely on the assistance of the other fallen angels and devils for
+information. Satan is behind the coming New World Order and the chaos in
+this world. Satan has been worshipped under many names such as Baphomet by
+the Freemasons. Satan will be locked in the bottomless pit for a thousand
+years during the millennium to show that people are wicked and rebellious
+even without Satan. He will be loosed for a short bit and will lead one
+last great rebellion against God before being cast into the lake of fire.
+All of the evil angels will join him there for all eternity. Hell and the
+lake of fire were created for Satan and his angels. Hell and the lake of
+fire were never intended for man. People only go there because they reject
+Jesus as their Saviour and choose to spend eternity with Satan. (Matthew
+25:41 Then shall he say also unto them on the left hand, Depart from me,
+ye cursed, into everlasting fire, prepared for the devil and his angels:)
+Satan can appear as an angel of light in order to deceive people. (II
+Corinthians 11:14 And no marvel; for Satan himself is transformed into an
+angel of light.) Satan is behind all of the evil in the world. God does
+allow Satan's angels to do work for him. God has four angels bound in the
+Euphrates. We do not know why they are bound, but they will be released on
+God's timing and they will dry up the Euphrates river to allow the 200
+million man army to cross over on dry ground to confront the antichrist
+during the tribulation. These angels will kill a third of all people.
+(Revelation 9:14-16 Saying to the sixth angel which had the trumpet, Loose
+the four angels which are bound in the great river Euphrates.
+15 And the four angels were loosed, which were prepared for an hour, and a
+day, and a month, and a year, for to slay the third part of men.
+16 And the number of the army of the horsemen were two hundred thousand
+thousand: and I heard the number of them.) People often say the devil made
+me do it. It is true that Satan and his angels do heavily influence
+people, but not all sin is caused by them as man is wicked himself. This
+will be seen at the end of the millennium with the number of people as the
+sand of the sea rebelling against God with Satan after Satan is loosed for
+a short time. Satan had been locked up for a thousand years for God to
+show how wicked man is on their own. (Revelation 20:3 And cast him into
+the bottomless pit, and shut him up, and set a seal upon him, that he
+should deceive the nations no more, till the thousand years should be
+fulfilled: and after that he must be loosed a little season.) (Revelation
+20:8 And shall go out to deceive the nations which are in the four
+quarters of the earth, Gog and Magog, to gather them together to battle:
+the number of whom is as the sand of the sea.) Satan and his angels were
+defeated when Jesus rose from the grave. They will ultimately be cast into
+the lake of fire. (Revelation 20:10 And the devil that deceived them was
+cast into the lake of fire and brimstone, where the beast and the false
+prophet are, and shall be tormented day and night for ever and ever.)
+Notice the beast (antichrist) and the false prophet who were cast into the
+lake of fire before the start of the millennium are still there when Satan
+is cast in a thousand years later. No one gets annihilated in hell or the
+lake of fire, but will burn and be in torment for all eternity. Satan
+along with fallen angels and devils can bring disease to people such as is
+seen in Job when God allowed Satan to inflict Job with disease. (Job 2:7 ¶
+So went Satan forth from the presence of the LORD, and smote Job with sore
+boils from the sole of his foot unto his crown.) They can also take it
+away to deceive people believing they performed a miracle and are from
+God.
+
+Devils are part of Satan's kingdom. Many theologians say they are the
+same as the evil fallen angels that rebelled with Satan. I disagree and
+believe they are the spirits of the giants who died in the flood. Angels
+have a spiritual body, but devils were always looking for a body, even an
+animal body. The giants had angel dads and so they were part angel and
+part man. When they died in the flood they did not go directly to hell
+like people since they had angel DNA. I believe this is why they always
+sought a body, even swine when they were cast out of a person. (Matthew
+8:31 So the devils besought him, saying, If thou cast us out, suffer us to
+go away into the herd of swine.) Devils possessed many people and as many
+as 2,000 possessed a man and called themselves Legion because they were so
+many. (Mark 5:9 And he asked him, What is thy name? And he answered,
+saying, My name is Legion: for we are many.) (Mark 5:13 And forthwith
+Jesus gave them leave. And the unclean spirits went out, and entered into
+the swine: and the herd ran violently down a steep place into the sea,
+(they were about two thousand;) and were choked in the sea.) It is true
+that angels can possess people such as Satan possessed Judas Iscariot and
+will the future antichrist, but I still believe they are different
+creatures. Devils are the ones behind all idols and it was devils that
+people sacrificed to when they thought they were sacrificing to gods.
+(Psalm 106:37 Yea, they sacrificed their sons and their daughters unto
+devils,) (Deuteronomy 32:17 They sacrificed unto devils, not to God; to
+gods whom they knew not, to new gods that came newly up, whom your fathers
+feared not.) The devils know God is real and tremble. This is why people
+need to believe in Jesus as their Saviour, not just believe that God is
+real and Satan is real. (James 2:19 Thou believest that there is one God;
+thou doest well: the devils also believe, and tremble.) They also know
+their coming fate in hell. Some devils just as angels are more wicked than
+another. (Matthew 12:5 Then goeth he, and taketh with himself seven other
+spirits more wicked than himself, and they enter in and dwell there: and
+the last state of that man is worse than the first. Even so shall it be
+also unto this wicked generation.) Most likely unclean spirits are the
+same as devils. Ghosts seen by people are devils.
+
+Angels are the spiritual beings most often mentioned in scripture.
+Angels are ministering spirits. (Hebrews 1:14 Are they not all ministering
+spirits, sent forth to minister for them who shall be heirs of salvation?)
+Angels protect those who will become Christians. Angels as spirits have a
+spiritual body. (Hebrews 1:7 And of the angels he saith, Who maketh his
+angels spirits, and his ministers a flame of fire.) (Psalm 104:4 Who
+maketh his angels spirits; his ministers a flaming fire:) We see angels
+compared to fire. I have already shown how angels are compared to stars
+and stars are balls of fire. Angels often appeared to people as men. Some
+examples are the two angels who came with Jesus to destroy Sodom or the
+angels who guarded the tomb of Jesus. (Luke 24:4 And it came to pass, as
+they were much perplexed thereabout, behold, two men stood by them in
+shining garments:) These angels in scripture did not take on the body of a
+man, but rather this is their spiritual body that resembles a man. (I
+Corinthians 15:40 There are also celestial bodies, and bodies terrestrial:
+but the glory of the celestial is one, and the glory of the terrestrial is
+another.) The verses around this one show there is a body for each type of
+animal, person, star, moon, et cetera and also for angels. Jesus as God is
+a Spirit who has always looked like man as man got the look because he was
+made in the image of God. Angels eat food just like people or animals. If
+angels did not have a body angels could not eat. They eat manna. (Psalm
+78:23-25 Though he had commanded the clouds from above, and opened the
+doors of heaven,
+24 And had rained down manna upon them to eat, and had given them of the
+corn of heaven.
+25 Man did eat angels' food: he sent them meat to the full.) An angel got
+Peter out of prison and appeared to many others. Angels were around Jesus
+throughout his life. They were at his birth singing to the shepherds.
+(Luke 2:13-14 And suddenly there was with the angel a multitude of the
+heavenly host praising God, and saying,
+14 Glory to God in the highest, and on earth peace, good will toward men.)
+Angels are the host of heaven. Angels ministered to Jesus after spending
+forty days in the wilderness. (Matthew 4:11 Then the devil leaveth him,
+and, behold, angels came and ministered unto him.) An angel ministered to
+Jesus after he sweat drops of blood before going to the cross. (Luke 22:43
+And there appeared an angel unto him from heaven, strengthening him.) Two
+angels appeared at the ascension of Jesus to let the disciples know that
+Jesus would return some day. (Acts 1:10 And while they looked stedfastly
+toward heaven as he went up, behold, two men stood by them in white
+apparel;) These angels are always in white as they represent the purity of
+God. Angels along with Christians will return with Jesus at his second
+coming. (Revelation 19:14 And the armies which were in heaven followed him
+upon white horses, clothed in fine linen, white and clean.) Angels
+appeared in many other aspects of Jesus' life. Angels will carry
+Christians to heaven when they die. (Luke 16:22 And it came to pass, that
+the beggar died, and was carried by the angels into Abraham's bosom: the
+rich man also died, and was buried;) Angels are higher beings then people,
+but one day we will become higher than them and we will judge them.
+(Hebrews 2:9 But we see Jesus, who was made a little lower than the angels
+for the suffering of death, crowned with glory and honour; that he by the
+grace of God should taste death for every man.) (I Corinthians 6:3 Know ye
+not that we shall judge angels? how much more things that pertain to this
+life?) Angels look into salvation as it intrigues them as there is no
+salvation for the evil angels. (I Peter 1:12 Unto whom it was revealed,
+that not unto themselves, but unto us they did minister the things, which
+are now reported unto you by them that have preached the gospel unto you
+with the Holy Ghost sent down from heaven; which things the angels desire
+to look into.) Jesus took on the nature of man, not angels. Jesus died as
+a man, not an angel. (Hebrews 2:16 For verily he took not on him the
+nature of angels; but he took on him the seed of Abraham.) I believe all
+angels were given free will just like Adam and Eve were and once they
+sinned they were permanently locked in as evil angels and the holy angels
+are locked in as holy angels. Holy angels rejoice over one sinner who
+repents. (Luke 15:10 Likewise, I say unto you, there is joy in the
+presence of the angels of God over one sinner that repenteth.) Angels are
+powerful beings as they open prison doors, moved the rock at Jesus' grave,
+and performed many other acts. (II Thessalonians 1:7 And to you who are
+troubled rest with us, when the Lord Jesus shall be revealed from heaven
+with his mighty angels,) Angels are referred to as sons of the mighty in
+reference to God as mighty. (Psalm 89:6 For who in the heaven can be
+compared unto the LORD? who among the sons of the mighty can be likened
+unto the LORD?) Angels are mightier than people, but do not speak evil of
+dignitaries as they are placed there by God. (II Peter 2:11 Whereas
+angels, which are greater in power and might, bring not railing accusation
+against them before the Lord.) Angels are not only God's messengers, but
+some also bring some of God's wrath to man. This will be seen during the
+great tribulation as 14 angels pore out on man the trumpet and vial
+judgments. Children at least have guardian angels and I believe all adult
+believers do as well. (Matthew 18:10 Take heed that ye despise not one of
+these little ones; for I say unto you, That in heaven their angels do
+always behold the face of my Father which is in heaven.) Peter was
+released from jail by an angel and when he went to John Mark's mom's house
+Rhoda saw Peter at the gate but thought he was Peter's angel. (Acts 12:15
+And they said unto her, Thou art mad. But she constantly affirmed that it
+was even so. Then said they, It is his angel.) This shows people believed
+that Christians at least had guardian angels and they may have even been
+taught this by Jesus. Angels are never to be worshipped including Satan.
+This is what Satan has always wanted. (Colossians 2:18 Let no man beguile
+you of your reward in a voluntary humility and worshipping of angels,
+intruding into those things which he hath not seen, vainly puffed up by
+his fleshly mind,) An angel told John not to worship him, but to worship
+God. (Revelation 19:10 And I fell at his feet to worship him. And he said
+unto me, See thou do it not: I am thy fellowservant, and of thy brethren
+that have the testimony of Jesus: worship God: for the testimony of Jesus
+is the spirit of prophecy.) (Revelation 22:8-9 And I John saw these
+things, and heard them. And when I had heard and seen, I fell down to
+worship before the feet of the angel which shewed me these things.
+9 Then saith he unto me, See thou do it not: for I am thy fellowservant,
+and of thy brethren the prophets, and of them which keep the sayings of
+this book: worship God.) God shares his worship with no one including
+angels. If an angel accepts worship he is one of Satan's angels. Some
+people have seen angels and never knew it. (Hebrews 13:2 Be not forgetful
+to entertain strangers: for thereby some have entertained angels
+unawares.) Normally God only allows people the honor to tell other people
+the gospel, but during the great tribulation an angel will fly around the
+world proclaiming the everlasting gospel. This will be because God will
+have called all believers home to him in the rapture and he promised to
+always have a witness for him. (Revelation 14:6-7 And I saw another angel
+fly in the midst of heaven, having the everlasting gospel to preach unto
+them that dwell on the earth, and to every nation, and kindred, and
+tongue, and people,
+7 Saying with a loud voice, Fear God, and give glory to him; for the hour
+of his judgment is come: and worship him that made heaven, and earth, and
+the sea, and the fountains of waters.) The gospel this angel preaches is
+the same gospel preached by Paul and other godly men of the death, burial,
+and resurrection of Jesus for a sinful mankind in need of a Saviour. God
+warned that even if an angel from heaven proclaimed a gospel different
+from this, then we were to ignore it. Both Islam and Mormonism where
+founded this way by a supposed angel giving the men new revelations.
+(Galatians 1:8 But though we, or an angel from heaven, preach any other
+gospel unto you than that which we have preached unto you, let him be
+accursed.) When God creates the new heaven and new earth, angels will
+still live in heaven and people on earth just as it is now. Heaven was
+made for the angels and earth for people. I already mentioned how angels
+are immortal. Angels never are killed while engaged in spiritual warfare
+unlike what is taught by some theologians in some books such as This
+Present Darkness and the other in the series. Angels are often depicted
+with wings, but scripture only says the cherubims and seraphims have
+wings. All of the angels seen by people in scripture always looked like
+ordinary men with no wings. Angels also do not have halos as they are
+often painted with. Scripture never says a thing about them. Holy angels
+are usually seen dressed in white to represent the purity of Jesus and
+often times they glow reflecting a small portion of the glory of God. The
+Sadducees denied the existence of angels, but scripture clearly shows they
+are real.
+
+Often times in the old testament the angel of the LORD or the angel
+of God is mentioned. This angel was none other than the pre-incarnate Lord
+Jesus Christ and not just an angel. These appearances are known as
+theophanies.  
+
+Many theologians believe a heavenly divine council exists in heaven
+with both holy and evil angels on it with God ruling over it. They believe
+God allows the angels to help make decisions that affect man and the
+earth. They believe the sons of God mentioned in Job refer to Satan coming
+to this council. They get the idea of a divine council from Psalm 89:5-7.
+(Psalm 89:5-7 And the heavens shall praise thy wonders, O LORD: thy
+faithfulness also in the congregation of the saints.
+6 For who in the heaven can be compared unto the LORD? who among the sons
+of the mighty can be likened unto the LORD?
+7 God is greatly to be feared in the assembly of the saints, and to be had
+in reverence of all them that are about him.) Sons of the mighty in verse
+6 refers to angels. It appears that saints, which are saved people, may
+also be on this council as angels are not referred to as saints. Jesus
+will allow Christians to help him rule during the millennium so it is
+possible that he also allows the angels to assist him in ruling though he
+will always have the final say. Some believe when God wanted Ahab to die
+he had the council decide how to do it. One evil angel spoke up and said
+he would be a lying spirit to deceive Ahab and God allowed him to do so.
+(I Kings 22:19-23 And he said, Hear thou therefore the word of the LORD: I
+saw the LORD sitting on his throne, and all the host of heaven standing by
+him on his right hand and on his left.
+20 And the LORD said, Who shall persuade Ahab, that he may go up and fall
+at Ramoth-gilead? And one said on this manner, and another said on that
+manner.
+21 And there came forth a spirit, and stood before the LORD, and said, I
+will persuade him.
+22 And the LORD said unto him, Wherewith? And he said, I will go forth,
+and I will be a lying spirit in the mouth of all his prophets. And he
+said, Thou shalt persuade him, and prevail also: go forth, and do so.
+23 Now therefore, behold, the LORD hath put a lying spirit in the mouth of
+all these thy prophets, and the LORD hath spoken evil concerning thee.)
+Psalm 82:1 also seems to mention the heavenly congregation or council.
+(Psalm 82:1 God standeth in the congregation of the mighty; he judgeth
+among the gods.) Watchers are angels that watch over the affairs of men.
+Daniel speaks of them and possibly may refer to these watchers being on
+this divine council to determine the affairs of men. (Daniel 4:17 This
+matter is by the decree of the watchers, and the demand by the word of the
+holy ones: to the intent that the living may know that the most High
+ruleth in the kingdom of men, and giveth it to whomsoever he will, and
+setteth up over it the basest of men.) Daniel 4:17 is in reference to the
+decision to have Nebuchadnezzar lose his kingdom and live outside like an
+animal for seven years. It appears that the watchers assisted God with
+this decision with the phrase "This matter is by the decree of the
+watchers".  Elsewhere in Daniel 4 we see a watcher came down to
+Nebuchadnezzar to tell him of his doom as the watchers had decreed or
+decided. Jewish tradition says the sons of God that mated with women in
+Genesis 6 had been watchers.
+
+Revelation mentions four beasts around the throne of God. They have
+similar features to both the cherubims and seraphims but appear to be
+different creatures. (Revelation 4:6-9 And before the throne there was a
+sea of glass like unto crystal: and in the midst of the throne, and round
+about the throne, were four beasts full of eyes before and behind.
+7 And the first beast was like a lion, and the second beast like a calf,
+and the third beast had a face as a man, and the fourth beast was like a
+flying eagle.
+8 And the four beasts had each of them six wings about him;
+and they were full of eyes within: and they rest not day and night,
+saying, Holy, holy, holy, Lord God Almighty, which was, and is, and is to
+come.
+9 And when those beasts give glory and honour and thanks to him that sat
+on the throne, who liveth for ever and ever,) These beasts have eyes all
+around and six wings like the seraphims. They worship God all the time.
+Unlike the cherubims which have four faces, the beasts seem to only have
+one face with each one a different face. This is similar to the living
+creatures mentioned in Ezekiel 1 that have similar features to the
+cherubims and may be the same but there are some differences so they are
+at least a slight variation of the cherubims.   
+
+Satanic creatures that are locked in the bottomless pit with the
+angels that sinned with the women in Genesis 6 are released during the
+great tribulation. These creatures are locusts with many unusual features.
+(Revelation 9:7-10 And the shapes of the locusts were like unto horses
+prepared unto battle; and on their heads were as it were crowns like gold,
+and their faces were as the faces of men.
+8 And they had hair as the hair of women, and their teeth were
+as the teeth of lions.
+9 And they had breastplates, as it were breastplates of iron; and the
+sound of their wings was as the sound of chariots of many horses running
+to battle.
+10 And they had tails like unto scorpions, and there were stings in their
+tails: and their power was to hurt men five months.) These locusts have
+long hair like a woman and teeth of a lion, faces of a man, and wings. It
+makes you wonder if these were from mating of angels with animals or God
+originally made them this way. Strange satanic creatures.
+
+When people die they do not become angels and angels do not get
+wings. They either have wings or they do not. Angels never age or die.
+
+People often ask if angels live in the same dimension as us or in a
+supposed fourth dimension. Scripture does not give us an exact answer. We
+do know that angels are normally invisible but that God does allow them to
+be seen by us at times.
+
+Angels have their own language or languages. (I Corinthians 13:1
+Though I speak with the tongues of men and of angels, and have not
+charity, I am become as sounding brass, or a tinkling cymbal.)  
+
+It is possible that animals can see spiritual beings such as when
+Balaam's ass saw the angel of the LORD or it just may be only at certain
+times just like people. This may be why sometimes cats and dogs act the
+way they do. (Numbers 22:25 And when the ass saw the angel of the LORD,
+she thrust herself unto the wall, and crushed Balaam's foot against the
+wall: and he smote her again.)
+
+Nothing can separate us from the love of God, not even angels.
+(Romans 8:38-39 For I am persuaded, that neither death, nor life,
+nor angels, nor principalities, nor powers, nor things present, nor things
+to come,
+39 Nor height, nor depth, nor any other creature, shall be able to
+separate us from the love of God, which is in Christ Jesus our Lord.)
+
+Angels just as men are attracted to women's long hair. This is one
+reason why women can cover their head while praying, but not men.
+According to Jewish tradition this is one of the things that determined
+which female was chosen by the angels in Genesis 6. (I Corinthians 11:10
+For this cause ought the woman to have power on her head because of the
+angels.) 
+
+Just as angels are often compared to stars, they are also compared to
+birds. They even have wings and fly like birds. More often than not the
+relation to birds is of evil angels and devils such as in Revelation 18:2.
+(Revelation 18:1-2 And after these things I saw another angel come down
+from heaven, having great power; and the earth was lightened with his
+glory.
+2 And he cried mightily with a strong voice, saying, Babylon the great is
+fallen, is fallen, and is become the habitation of devils, and the hold of
+every foul spirit, and a cage of every unclean and hateful bird.) Owls are
+seen throughout scripture compared to devils and throughout history owls
+and other birds have long been associated with Satan. Owls are often
+compared in scripture with dragons with Satan being called the dragon.
+(Isaiah 34:13-15 And thorns shall come up in her palaces, nettles and
+brambles in the fortresses thereof: and it shall be an habitation of
+dragons, and a court for owls.
+14 The wild beasts of the desert shall also meet with the wild beasts of
+the island, and the satyr shall cry to his fellow; the screech owl also
+shall rest there, and find for herself a place of rest.
+15 There shall the great owl make her nest, and lay, and hatch, and gather
+under her shadow: there shall the vultures also be gathered, every one
+with her mate.) This comparison of angels to birds may even be seen in how
+birds are divided into clean and unclean birds though beasts are as well
+and the unclean birds often eat dead animals such as the vulture and
+raven.    
+
+Satyrs are creatures associated with Satan. It is not known exactly
+what they are except that they are evil. Greek mythology said they are
+part man and part horse. Roman mythology said they were part man and part
+goat. Goats have long been associated with Satan. Whatever they are they
+are not good. (Isaiah 13:21 But wild beasts of the desert shall lie there;
+and their houses shall be full of doleful creatures; and owls shall dwell
+there, and satyrs shall dance there.) The cockatrice is another creature
+that is associated with Satan and it is not exactly clear what it is.
+Supposedly it was a dragon or some say snake with a rooster head. That is
+possible as strange creatures referred to as beasts are mentioned in
+Revelation. (Jeremiah 8:17 For, behold, I will send serpents, cockatrices,
+among you, which will not be charmed, and they shall bite you, saith the
+LORD.) Revelation 9:17 speaks of horses breathing fire and with heads of
+lions. (Revelation 9:17 And thus I saw the horses in the vision, and them
+that sat on them, having breastplates of fire, and of jacinth, and
+brimstone: and the heads of the horses were as the heads of lions; and out
+of their mouths issued fire and smoke and brimstone.) We see unclean
+spirits that looked like frogs. (Revelation 16:13 And I saw three unclean
+spirits like frogs come out of the mouth of the dragon, and out of the
+mouth of the beast, and out of the mouth of the false prophet.)   
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +952,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

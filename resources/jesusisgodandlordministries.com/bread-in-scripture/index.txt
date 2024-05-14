@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,466 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Bread in Scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Bread is seen throughout scripture with various meanings. The most
+important is that Jesus is the bread of life. Various examples as seen in
+scripture were a type of Jesus as the bread of life.
 
-Username or email _____________________
+Bread is a staple throughout the world. Bread is one of those foods
+that provide enough nutrition that you can survive on it along with water
+for days. (Some say in theory for three weeks or up to six months, though
+you would have health problems.) It was common to feed prisoners only
+bread and water. When people have a meal together, it is often said "let
+us break bread" meaning let us eat or have a meal together. A great hymn
+telling of the bread of life of Jesus is "Break Thou the Bread of Life".
+Bread was seen in the temple as well as the home. We see bread and water
+given to Hagar and Ishmael. This was not only for their physical survival,
+but was a type and symbolic of Jesus as the bread of life and the living
+water. Abraham gave her the two things she needed for life. (Genesis 21:14
+And Abraham rose up early in the morning, and took bread, and a bottle of
+water, and gave it unto Hagar, putting it on her shoulder, and the child,
+and sent her away: and she departed, and wandered in the wilderness of
+Beer-sheba.)
 
-Reset password
+We see in Egypt where the people were spiritually dead, they had a
+famine and no bread. They had a real physical famine and no bread for
+their physical bodies, but they also had a spiritual famine in their
+hearts and souls and spiritual bodies as they had rejected the bread of
+life of Jesus. There was no bread without Jesus. (Genesis 47:30 ¶ And
+there was no bread in all the land; for the famine was very sore, so that
+the land of Egypt and all the land of Canaan fainted by reason of the
+famine.) Egypt will end their spiritual famine one day and receive that
+bread. (Isaiah 19:19-21)
+
+You all remember the story of Lot being captured in Sodom by kings
+fighting the king of Sodom. After Abraham and his men helped rescue Lot
+after the slaughter of Chedorlaomer and the kings with him, Melchizedek
+brought him bread and wine. (Genesis 14:18 And Melchizedek king of Salem
+brought forth bread and wine: and he was the priest of the most high God.)
+(Hebrews 7:1-3 For this Melchisedec, king of Salem, priest of the most
+high God, who met Abraham returning from the slaughter of the kings, and
+blessed him;
+2 To whom also Abraham gave a tenth part of all; first being by
+interpretation King of righteousness, and after that also King of Salem,
+which is, King of peace;
+3 Without father, without mother, without descent, having neither
+beginning of days, nor end of life; but made like unto the Son of God;
+abideth a priest continually.) I believe Melchizedek was the pre-incarnate
+Jesus. He is best described in Hebrews chapter 7. I believe the giving of
+the bread and wine was Melchizedek (Jesus) showing that you only need the
+bread and blood of Jesus for eternal life. I also believe it was a type of
+the future command of Jesus to celebrate communion or the Lord's Supper of
+which it represented.
+
+We see the bread of life represented in communion or the Lord's
+Supper. The bread was his flesh that he told the people they needed to eat
+of him, not his literal body. Jesus celebrated communion the first time
+with his apostles the night before he died in the upper room in Jerusalem
+during his passover meal. It was at this time that he told his disciples
+that the bread that he broke was given to them and in remembrance of him.
+(Luke 22:19-20 ¶ And he took bread, and gave thanks, and brake it, and
+gave unto them, saying, This is my body which is given for you: this do in
+remembrance of me. 20 Likewise also the cup after supper, saying, This cup
+is the new testament in my blood, which is shed for you.) The bread
+represented his body that would be broken on the cross for all of mankind
+and we are to celebrate communion to remember what Jesus did for us on the
+cross at Calvary. (I Corinthians 10:16-17 The cup of blessing which we
+bless, is it not the communion of the blood of Christ? The bread which we
+break, is it not the communion of the body of Christ?
+17 For we being many are one bread, and one body: for we are all partakers
+of that one bread.) We as Christians are all one body and all partake of
+the same Jesus. Paul explains more about communion in (I Corinthians
+11:23-30 For I have received of the Lord that which also I delivered unto
+you, That the Lord Jesus the same night in which he was betrayed took
+bread:
+24 And when he had given thanks, he brake it, and said, Take, eat: this is
+my body, which is broken for you: this do in remembrance of me.
+25 After the same manner also he took the cup, when he had supped, saying,
+This cup is the new testament in my blood: this do ye, as oft as ye drink
+it, in remembrance of me.
+26 For as often as ye eat this bread, and drink this cup, ye do shew the
+Lord's death till he come.
+27 Wherefore whosoever shall eat this bread, and drink this cup of the
+Lord, unworthily, shall be guilty of the body and blood of the Lord.
+28 But let a man examine himself, and so let him eat of that bread, and
+drink of that cup.
+29 For he that eateth and drinketh unworthily, eateth and drinketh
+damnation to himself, not discerning the Lord's body.
+30 For this cause many are weak and sickly among you, and many sleep.)
+Christians are not to partake of communion lightly. It is a serious solemn
+occasion as we celebrate and remember the Lord's death for us until he
+comes back again for us. (I Corinthians 10:21 Ye cannot drink the cup of
+the Lord, and the cup of devils: ye cannot be partakers of the Lord's
+table, and of the table of devils.) I believe we should use unleavened
+bread in our partaking of communion as representative of the sinless body
+of Jesus, our Lord and Saviour.
+
+We see the Jews celebrated the feast of unleavened bread which
+remembered the Hebrews quick departure from Egypt after the ten plaques.
+The Hebrews did not have time to let their bread rise and therefore it had
+no leaven (yeast) (leaven represents sin). During the feast of unleavened
+bread, the Jews are to cleanse their house of all leaven which is symbolic
+of removing sin. The bread could not have leaven since it represents Jesus
+and Jesus was sinless. (II Corinthians 5:21 For he hath made him to be sin
+for us, who knew no sin; that we might be made the righteousness of God in
+him.) (I Peter 2:22 Who did no sin, neither was guile found in his mouth:)
+The first day of this feast is passover, where Jesus became our passover
+lamb. (I Corinthians 5:7 Purge out therefore the old leaven, that ye may
+be a new lump, as ye are unleavened. For even Christ our passover is
+sacrificed for us:) This was one of the three mandatory feasts required by
+God for all Jewish males to come to the temple and make a sacrifice, the
+others being Pentecost and the feast of tabernacles.  
+
+The shewbread in the tabernacle and temple was another type of Jesus.
+This was to be placed fresh every sabbath on the table of shewbread and
+was to be done always. (I Chronicles 9:32 And other of their brethren, of
+the sons of the Kohathites, were over the shewbread, to prepare it every
+sabbath.) One needs to worship Jesus weekly. He should never become stale
+in our lives. (Exodus 25:30 And thou shalt set upon the table shewbread
+before me alway.) II Chronicles 2;4 tells us it is to be a continual
+showbread. We are to never forget Jesus and his sacrifice for us. (Numbers
+4:7 And upon the table of shewbread they shall spread a cloth of blue, and
+put thereon the dishes, and the spoons, and the bowls, and covers to cover
+withal: and the continual bread shall be thereon:) Notice that the table
+of shewbread was covered with a blue cloth, with blue again showing
+separation and how with Jesus we are to be set apart from the world. We
+remember the story of when David and his men ate the shewbread because
+they were hungry. It was intended only for the priests, but David knew he
+needed to not only satisfy his physical hunger, but only Jesus represented
+by the shewbread could satisfy his spiritual hunger. David knew where he
+needed to go to satisfy his hunger. We need to as well.
+
+The miracles of the feeding of the 5,000 and the 4,000 shows not only
+Jesus is God, but that bread represented Jesus. Jesus can take a little
+and feed all those who hunger for him. In the feeding of the 5,000, Jesus
+took five loaves and fed many. In the feeding of the 4,000, Jesus took
+seven loaves and fed 4,000. (Matthew 14:19-21 And he commanded the
+multitude to sit down on the grass, and took the five loaves, and the two
+fishes, and looking up to heaven, he blessed, and brake, and gave the
+loaves to his disciples, and the disciples to the multitude.
+20 And they did all eat, and were filled: and they took up of the
+fragments that remained twelve baskets full.
+21 And they that had eaten were about five thousand men, beside women and
+children.) (Matthew 15:33-38 And his disciples say unto him, Whence should
+we have so much bread in the wilderness, as to fill so great a multitude?
+34 And Jesus saith unto them, How many loaves have ye? And they said,
+Seven, and a few little fishes.
+35 And he commanded the multitude to sit down on the ground.
+36 And he took the seven loaves and the fishes, and gave thanks, and brake
+them, and gave to his disciples, and the disciples to the multitude.
+37 And they did all eat, and were filled: and they took up of the broken
+meat that was left seven baskets full.
+38 And they that did eat were four thousand men, beside women and
+children.) Notice that Jesus actually fed more than the 5,000 and 4,000 as
+the women and children were not counted, so there was probably as least
+double the number in each instance. Also note that Jesus blessed the food
+and gave thanks for it before distributing it. Let this be a lesson and
+example for us to always ask God to bless our food and give thanks for it
+before we eat. Jesus also broke the bread into pieces representing his
+future brokenness on the cross for our sins. In both feedings, they were
+in a desert place. Jesus will not only feed us in a desert, but if our
+spiritual life is a desert, he will feed those who seek him and hunger for
+him and ask to be fed.
+
+The manna that the people ate daily in the wilderness for forty
+years, is a type of Jesus. (Exodus 16:35 And the children of Israel did
+eat manna forty years, until they came to a land inhabited; they did eat
+manna, until they came unto the borders of the land of Canaan.) This was
+food given to the people from heaven. (Exodus 16:15 And when the children
+of Israel saw it, they said one to another, It is manna: for they wist not
+what it was. And Moses said unto them, This is the bread which the LORD
+hath given you to eat.) Manna is what angels eat. (Psalm 78:25 Man did eat
+angels' food: he sent them meat to the full.) Just as the manna came from
+heaven, Jesus also came from heaven to feed us. Unlike with the manna,
+where the people ate of it and still died, when one eats of the bread of
+life of Jesus, they will never die. (John 6:31 Our fathers did eat manna
+in the desert; as it is written, He gave them bread from heaven to eat.)
+(John 6:58 This is that bread which came down from heaven: not as your
+fathers did eat manna, and are dead: he that eateth of this bread shall
+live for ever.) Manna as a type of Jesus was one of three things along
+with the ten commandments and Aaron's budding rod that was placed in the
+ark of the covenant. (Hebrews 9:4 Which had the golden censer, and the ark
+of the covenant overlaid round about with gold, wherein was the golden pot
+that had manna, and Aaron's rod that budded, and the tables of the
+covenant;) Manna as seen above was intended to be food for angels given to
+them by Jesus and they too have eternal life.
+
+In Jesus's sermon on the mount in Matthew chapter 6, Jesus teaches
+the people how to pray. This prayer is often called the Lord's Prayer, but
+I believe the pray of Jesus seen in all of John chapter 17 when he prayed
+for himself, the apostles, and all future Christians should better be
+referred to as the Lord's Prayer. In the Lord 's Prayer in Matthew, Jesus
+mentions pray for God to give us our daily bread. This is more than for
+the physical bread we need to eat to survive everyday, we also need the
+bread of life of Jesus daily in our lives. We should pray to God everyday
+and read the word of God daily. (Mathew 6:11 Give us this day our daily
+bread.) Jesus was telling the people to pray for him in their lives.
+
+Paul gave thanks and broke bread and ate it after his ship was
+wrecked while he was a prisoner being taken to Rome. (Acts 27:35) Paul
+broke the bread symbolic of communion. Paul knew he needed bread for this
+life and his spiritual life.
+
+Satan always tries to take what Jesus gives us and make it evil.
+Satan tempted Jesus in the wilderness by trying to get him to turn the
+stones into bread to satisfy his physical hunger. Satan tried to entice
+Jesus with the lust of the flesh. We need to always reject what Satan has
+to offer. It will only bring temporary satisfaction, but will always bring
+death. (See Hebrews 11:25) (Matthew 4:2-4 And when he had fasted forty
+days and forty nights, he was afterward an hungred.
+3 And when the tempter came to him, he said, If thou be the Son of God,
+command that these stones be made bread.
+4 But he answered and said, It is written, Man shall not live by bread
+alone, but by every word that proceedeth out of the mouth of God.) When
+tempted of Satan, use the example of Jesus and quote scripture back to
+him. The devil will flee. One irony in this tempting of Jesus is that even
+Satan knows Jesus can and does bring forth life and always will. Jesus
+warned his disciples and us not to partake of the bread of the Pharisees
+and Sadducees. (Matthew 16:12 Then understood they how that he bade them
+not beware of the leaven of bread, but of the doctrine of the Pharisees
+and of the Sadducees.) The Pharisees represented sin and tradition as do
+the false teachers of today. Satan always presents the false doctrine and
+offers the false bread. The bread of Satan always leads to eternal death.
+
+Jesus is the bread of life that we all need. Without it, one cannot
+have eternal life. Jesus told the people he was the bread from heaven and
+with his bread, one would never hunger again unlike the manna he was
+compared to. (John 6:35 And Jesus said unto them, I am the bread of life:
+he that cometh to me shall never hunger; and he that believeth on me shall
+never thirst.) (John 6:48 I am that bread of life.) (John 6:51 I am the
+living bread which came down from heaven: if any man eat of this bread, he
+shall live for ever: and the bread that I will give is my flesh, which I
+will give for the life of the world.) Jesus is all we need to supply both
+our spiritual thirst and our spiritual hunger. He is there for those who
+hunger and thirst for righteousness. Jesus is the bread of life and living
+water people hunger and thirst for. (Mathew 5:6 Blessed are they which do
+hunger and thirst after righteousness: for they shall be filled.)
+
+Jesus was born in Bethlehem Ephratah in Judaea (Micah 5:2 But thou,
+Beth-lehem Ephratah, though thou be little among the thousands of Judah,
+yet out of thee shall he come forth unto me that is to be ruler in Israel;
+whose goings forth have been from of old, from everlasting.) (Matthew 2:1
+Now when Jesus was born in Bethlehem of Judaea in the days of Herod the
+king, behold, there came wise men from the east to Jerusalem,). Bethlehem
+means "House of Bread." Jesus is the bread of life. (John 6:35 And Jesus
+said unto them, I am the bread of life: he that cometh to me shall never
+hunger; and he that believeth on me shall never thirst.) (John 6:51 I am
+the living bread which came down from heaven: if any man eat of this
+bread, he shall live for ever: and the bread that I will give is my flesh,
+which I will give for the life of the world.) It is no coincidence that
+Jesus as the bread of life would be born in the house of bread in order to
+satisfy our spiritual hunger. Just as physical bread satisfies us and
+gives us physical energy, Jesus as the bread of life satisfies, gratifies,
+and strengthens us spiritually. Jesus is the only bread we need for
+spiritual life and spiritual satisfaction. Jesus was born in the house of
+bread and died during the feast of unleavened bread (bread without leaven
+[sin]).
+
+Just as we need the living water of Jesus for spiritual eternal life,
+we also need the bread of life of Jesus for eternal life. Let us be like
+the people who searched and followed him to the other side of the sea at
+Capernaum after the miracles of the feeding of the 5,000 and Jesus walking
+on the water when they said (John 6:34 Then said they unto him, Lord,
+evermore give us this bread.) Let us not be like them after Jesus told
+them he was that bread and to eat of it, when they walked no more with
+him. (John 6:66 ¶ From that time many of his disciples went back, and
+walked no more with him.) Let us believe and have eternal life.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

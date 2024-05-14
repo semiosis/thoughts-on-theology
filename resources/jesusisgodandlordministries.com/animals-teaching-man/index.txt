@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,495 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Animals Teaching Man  
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Man originally walked with God in Adam and Eve and God taught them
+everything they needed to know as he walked with them. Following Adam's
+sin then man turned from God and eventually turned to idols made by their
+hands. Many of these idols (actually devils) were made in the image of
+birds, fourfooted beasts and creeping creatures. (Romans 1:21-23 21
+Because that, when they knew God, they glorified him not as God, neither
+were thankful; but became vain in their imaginations, and their foolish
+heart was darkened.
+22 Professing themselves to be wise, they became fools,
+23 And changed the glory of the uncorruptible God into an image made like
+to corruptible man, and to birds, and fourfooted beasts, and creeping
+things.) Today many people place the creature above the Creator as they
+worship them. (Romans 1:25 Who changed the truth of God into a lie, and
+worshipped and served the creature more than the Creator, who is blessed
+for ever. Amen.) People will protect a mouse at the expense of man's
+growth. Due to sin man now had lost wisdom from God and sought false
+wisdom from Satan and their idols of animals. God now tells foolish man to
+learn from these very creatures that they worship since they have rejected
+his wisdom. These animals are wiser than people as we will see and God
+says to learn from them.
 
-Username or email _____________________
+God says to go to the ant and consider her ways and be wise and do
+not be a sluggard. (Proverbs 6:6-11 6 ¶ Go to the ant, thou sluggard;
+consider her ways, and be wise:
+7 Which having no guide, overseer, or ruler,
+8 Provideth her meat in the summer, and gathereth her food in the harvest.
+9 How long wilt thou sleep, O sluggard? when wilt thou arise out of thy
+sleep?
+10 Yet a little sleep, a little slumber, a little folding of the hands to
+sleep:
+11 So shall thy poverty come as one that travelleth, and thy want as an
+armed man.) Throughout history many people have been lazy (sluggard) and
+fail to work for their food and to take care of themselves and their
+family. They fail to plant crops at the right time so when harvest comes
+they have nothing to harvest and therefore no food and so they expect the
+government or other people to bail them out. This sluggardness or laziness
+is especially prevalent in today's society as everyone wants a free
+handout without doing any work for it. This even includes many professing
+Christians and then they say we are uncaring if we do not help them. God
+said that if you do not work then you do not eat. (II Thessalonians 3:10
+For even when we were with you, this we commanded you, that if any would
+not work, neither should he eat.) God said that those who do not provide
+for their own are worse than an infidel. This is how serious that God
+expects people not to be lazy. (I Timothy 5:8 But if any provide not for
+his own, and specially for those of his own house, he hath denied the
+faith, and is worse than an infidel.)
 
-Reset password
+God says to consider her ways when speaking of the ant. All ants that
+we see and that are doing the work of gathering food are female ants so we
+see the accuracy of the King James Bible whereas other bibles say its
+ways. God said those who follow the ways of the ant are wise. Think about
+this that a little tiny ant that is much smaller than man is wiser than
+most people. Even God's small parts of creation can teach man. These
+verses continue to show how the ant will mobilize to gather food during
+harvest in order to have food for the summer. These ants do all of this
+without having a ruler tell them what to do. Ants do not need to be told
+to work they just do it as they know what needs to be done and they know
+if they do not do it then they will not survive. Too many people today
+have no initiative to do anything unless they are told to do it. Ants can
+carry up to twenty times their weight. God created them this way, but this
+also shows how ants will more than literally carry their own weight rather
+than relying on another source to do the work for them as people often do.
+Today people even if they do work will do the bare minimum necessary to
+keep their job and no more. Many do not "carry their own weight" and do
+their share of work, but rather expect their coworkers to do all of the
+work while they sit back and rest. The ant is smart enough and wise enough
+to store food away so that when they cannot gather food then they can eat
+of the reserves that have been saved away. This is what Joseph was
+teaching the Egyptians to save food during the seven plenteous years so
+that they would have food during the seven years of famine. Ants will work
+together in order to carry larger food sources than they could carry alone
+and they will spread out to search for food. Christians can learn to work
+together rather than against one another. Ants are always on the move and
+they move fast, not slowly (sluggish) like most people. They have a job
+that needs to get done and they do it. Some are worker ants and others are
+soldier ants. Some will provide protection to the ant hill from predators
+whereas many people just sit back and never guard their homes or their
+eternal souls for that matter. God says that those who want to sleep away
+their days and be a sluggard then this will lead to poverty. We see this
+today yet these people are still not wise enough to go and get a job in
+order to survive. These people just sit back waiting for someone to feel
+sorry for them and hoping for a free hand out. The ant can teach man that
+hard work will reap rewards.
+
+God again says the ant is wise along with three other animals.
+(Proverbs 30:24-28 24 There be four things which are little upon the
+earth, but they are exceeding wise:
+25 The ants are a people not strong, yet they prepare their meat in the
+summer;
+26 The conies are but a feeble folk, yet make they their houses in the
+rocks;
+27 The locusts have no king, yet go they forth all of them by bands;
+28 The spider taketh hold with her hands, and is in kings' palaces.) God
+gives four small animals that we can once again learn from. One thing we
+can learn is that people do not have to be big people in order to
+accomplish God's work. God can even use small things to accomplish his
+goals and purposes and this includes people if they will let him. When a
+small Christian feels too small to do God's work that he has called them
+to do then they need to remember these four small animals of God's. The
+first of the four animals that are little upon the earth is the ant. God
+once again in verse 25 says that the ants are not a strong people yet they
+are wise enough to prepare their food in the summer so that when it gets
+cold and it is harder to gather food then they will have food to survive.
+Many animals never store food, but ants are wise enough to do so. God next
+lists the conies which he says are feeble (weak) yet they are wise enough
+to make their houses in rocks. The coney is a rabbit. Jesus spoke of the
+same principle in his sermon on the mount when he said we needed to build
+our houses upon rock which will last when the storm hits whereas those who
+build upon sand will have their house destroyed when the storm comes.
+(Matthew 7:24-27 24 ¶ Therefore whosoever heareth these sayings of mine,
+and doeth them, I will liken him unto a wise man, which built his house
+upon a rock:
+25 And the rain descended, and the floods came, and the winds blew, and
+beat upon that house; and it fell not: for it was founded upon a rock.
+
+26 And every one that heareth these sayings of mine, and doeth them not,
+shall be likened unto a foolish man, which built his house upon the sand:
+27 And the rain descended, and the floods came, and the winds blew, and
+beat upon that house; and it fell: and great was the fall of it.) Many
+people today have not learned this as they build houses on the beach. I
+remember a person who built his house on stilts in the ocean in South or
+North Carolina and it was destroyed when a hurricane came through. This
+was an unwise individual who did not learn from the coney. The Rock that
+all people need to build upon is Jesus who is the only one who can provide
+a solid foundation. If you are not saved and are building upon any other
+foundation such as a false god then you will be destroyed and spend
+eternity in hell and the lake of fire.
+
+God next speaks of the locust who has no king just like the ant. The
+locusts which are swarming grasshoppers normally are solitary and will do
+their business without a king, but at times they form large swarms that
+can be up to 200 million per square mile. These swarms form on their own
+without a king putting them together. The swarms are formed for their
+survival and they form bands or groups. They do not need a king to get
+them organized and form these bands; they just know what needs to be done
+for survival. These locust swarms will work together to destroy large
+areas of farmland very quickly and God even used them as one of the ten
+plagues against Egypt. (Exodus 10) God is showing man what they can do if
+they work together yet man is always fighting against one another. This
+same principle applies to the church. If all who profess to be Christians
+would truly work together for the survival of the church then they could
+win many souls for the Lord by going out in swarms to spread the word of
+God.
+
+God speaks of the spider that as little as she is lives in king's
+palaces. We see how God is accurate here again by saying her hands as all
+spiders seen are females and spiders do not have eight legs as is taught
+by man, but has hands as well. The spider will use these hands to make
+silk in a king's palace. Modern bibles remove the wise spider and change
+it to lizard so that people lose the teaching of the spider. The spider
+will go wherever it is necessary for her to survive and Christians should
+be doing the same by going wherever God sends them so that many souls
+might be won for the Lord. God says all four of these animals are wise in
+their ways. If only man was.
+
+God told Israel to learn from the ox and ass. (Isaiah 1:3 The ox
+knoweth his owner, and the ass his master's crib: but Israel doth not
+know, my people doth not consider.) God told Israel that the ox knew its
+owner and the ass where his master lives. The ass understands he has a
+master yet Israel did not and people today do not realize that we all have
+a Master as well in Jesus. (Matthew 23:10 Neither be ye called masters:
+for one is your Master, even Christ.) Jesus is still Master whether a
+person is saved or not; he is just not treated as Master by the unsaved,
+but many professing Christians do not give him his due as Master either.
+Israel and many Christians have forgotten who their owner and Master is.
+If a person is a Christian then their body is the temple of the Holy Ghost
+and does not belong to them. (I Corinthians 6:19 What? know ye not that
+your body is the temple of the Holy Ghost which is in you, which ye have
+of God, and ye are not your own?)
+
+(Proverbs 6:4-5 4 Give not sleep to thine eyes, nor slumber to thine
+eyelids.
+5 Deliver thyself as a roe from the hand of the hunter, and as a bird from
+the hand of the fowler.) We see in Proverbs again how God says not to be
+lazy and full of sleep. God says for us to be awake so that we can be
+aware of our surroundings just like the roe (female red deer) who escapes
+from the hand of the hunter who is trying to kill her. Often times deer
+seem to know when hunting season is and they move around much more in
+order to escape becoming a dead deer yet man never seems to learn from
+animals and when God gives them insight in order to avoid danger they
+ignore it. Man will almost always continue towards that danger. This is
+why many people today are on a path to hell as they ignore the danger that
+their spiritual house is on fire and yet they refuse to leave. These
+people want to continue in their sins and avoid God in their lives. God
+also mentions the bird that escapes from the hand of the fowler. These
+animals escape death because they remain vigilant rather than sleep their
+lives away as sluggards. 
+
+God says to ask the beasts, the fowls of the air, and the fishes of
+the sea and they will teach us since we do not want to learn from God.
+(Job 12:7-8 7 But ask now the beasts, and they shall teach thee; and the
+fowls of the air, and they shall tell thee:
+8 Or speak to the earth, and it shall teach thee: and the fishes of the
+sea shall declare unto thee.) God says all of the animals can teach man if
+we ask them to just like God will teach us if we ask him to teach us. We
+then need to listen when we are taught. Notice verse 8 has fishes which
+shows the accuracy of the King James Bible as fishes means different kinds
+of fish showing that they all can teach us if we are willing to learn from
+them. (Proverbs 30:19 The way of an eagle in the air; the way of a serpent
+upon a rock; the way of a ship in the midst of the sea; and the way of a
+man with a maid.) God says to see the way of the eagle in the air. The
+eagle will fly around to search below for prey. It does not just sit back
+hoping something will come to it. The eagle places its nest high in trees
+so that it can see far away in the search for food. By being high in the
+sky the eagle is also well protected from predators. (Job 39:27-29 27 Doth
+the eagle mount up at thy command, and make her nest on high?
+28 She dwelleth and abideth on the rock, upon the crag of the rock, and
+the strong place.
+29 From thence she seeketh the prey, and her eyes behold afar off.) Notice
+how an eagle will often times make its nest in the crag (crevice) of a
+rock just like Jesus said to build upon rock. This will make a strong nest
+that will survive the storms of life. This should be a lesson for
+Christians who should be like the eagle that nests high for visual
+discernment and safety as Christians should also always be on the lookout
+for danger from Satan as well as be on the high ground by being right with
+God so they have spiritual discernment to see the danger coming and have
+safety in the nest of Jesus. These lessons can help keep a Christian safe
+and on the right path with God. The serpent gets upon rocks to stay warm
+in the sun. God says we are to be wise like the serpent yet as harmless as
+the dove. (Matthew 10:16 ¶ Behold, I send you forth as sheep in the midst
+of wolves: be ye therefore wise as serpents, and harmless as doves.) Lions
+are strong animals that fear nothing and we as Christians who are walking
+with God have no need to fear either. (Proverbs 30:30 A lion which is
+strongest among beasts, and turneth not away for any;) Just as the hart
+(male red deer) pants after water when it is thirsty, we as Christians
+should pant after God. For those who are not saved they need to have their
+souls convicted so that they might pant after the living water of Jesus so
+that they too might be saved. (Psalm 42:1 As the hart panteth after the
+water brooks, so panteth my soul after thee, O God.) Sheep are dumb
+animals yet they follow the voice of the shepherd. They will easily go
+astray so the shepherd must always keep an eye on them. Jesus compares us
+to sheep who need Jesus as our Shepherd. We like sheep will quickly wander
+towards sin and this is why we need to hear the voice of Jesus the
+Shepherd so that those who are not saved will get saved and for those who
+are saved we need to hear his voice so that we will stay on the path of
+righteousness. (Isaiah 53:6 All we like sheep have gone astray; we have
+turned every one to his own way; and the LORD hath laid on him the
+iniquity of us all.) (John 10:27 My sheep hear my voice, and I know them,
+and they follow me:)
+
+Besides what is found in scripture, nature itself teaches us. Sharks
+are able to sense when a hurricane is coming and they will swim out to
+deeper water to protect themselves yet man will try to go surfing during a
+hurricane in order to catch the big wave. Animals in the forest will run
+away from a forest fire yet man will stay and try to protect private
+property that will one day perish anyway and many lose their lives.
+Animals can sense when a volcano is about to erupt. Prior to Mt. St.
+Helens erupting in 1980 the deer and other wildlife began to leave as they
+could sense the danger. They left to protect their lives yet one man Harry
+Truman (not the president) was not even as wise as these animals and he
+refused to evacuate his home and he perished when the volcano erupted.
+
+Scripture also uses some animals to show us how not to be. The fox is
+a clever, but deceitful animal and this should be a lesson for Christians
+not to try and trick people especially their fellow believers. Too many
+professing Christians are deceitful like the fox. Jesus called Herod a
+fox. (Luke 13:31-32) False prophets as well as those who try to destroy
+the church are compared to wolves. (Acts 20:29 For I know this, that after
+my departing shall grievous wolves enter in among you, not sparing the
+flock.) Just as swine (pigs) enjoy wallowing in the mud, people enjoy
+wallowing in sin. Just like the swine who is cleaned up will return to the
+mud so will the sinner unless they are washed in the blood of Jesus and
+given proper teaching by God. Just as the swine will return to mud so does
+the dog to its vomit, again representing the unrepentant unsaved sinner as
+well as backslidden Christians. Dogs in scripture are always negative and
+represent unholy sinners. We do not want to be like dogs or swine. (II
+Peter 2:22 But it is happened unto them according to the true proverb, The
+dog is turned to his own vomit again; and the sow that was washed to her
+wallowing in the mire.) Fowls in scripture represent devils that snatch
+away the word of God when it is planted by a Christian. (Matthew 13:4, et
+cetera) We need to be aware of such birds who will do this. Many are
+professing Christians in the church who do not want to see people saved.
+Goats in scripture often represent the unsaved such as the unsaved nations
+in the sheep and goat judgment that Jesus will divide the nations into
+after the end of the great tribulation.
+
+We see how God uses animals to teach man as they have rejected the
+teachings of God. God tries to show how foolish man is in that animals are
+wiser than people. God is not condoning worshipping animals. It is just
+the opposite in that God wants man to see how he needs to learn from the
+animals and listen to God instead of themselves. These animals all have
+the wisdom that they have because God created them with it. God also gave
+man wisdom, but he rejected it. God wants all people to turn to his Son
+Jesus and be saved and once again receive the wisdom that was intended by
+God. Animals listen to God and now man needs to. Even the lowest of God's
+creation are wiser than most men. It is complete foolishness to reject the
+wisdom of God. For those who lack wisdom ask God for it and he will give
+it to you willingly and liberally in abundance. He will not hold back.
+(James 1:5 If any of you lack wisdom, let him ask of God, that giveth to
+all men liberally, and upbraideth not; and it shall be given him.) Call
+upon Jesus today if you have learned from the animals and what scripture
+has to say.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

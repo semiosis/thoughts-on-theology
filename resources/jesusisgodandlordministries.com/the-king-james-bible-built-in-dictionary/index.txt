@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,436 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The King James Bible Built-in Dictionary
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The King James Bible is the inspired, inerrant, infallible, plenary,
+preserved word of God. Because the King James Bible is inspired by God
+then he has left many indelible proofs that God is the author. There are
+many number patterns and other things that prove the inspiration of the
+King James Bible. Another thing that proves the inspiration of the King
+James Bible is the built-in dictionary that God has placed in it. No other
+bible has this built-in dictionary since they are not inspired from God,
+but are rather the work of man. No other religious book or any book for
+that matter does as well. Today we are going to look at some examples of
+this built-in dictionary and show you how to use it and find it. My new
+book Meaning of King James Bible Words and Phrases gives examples of this
+built-in dictionary as well as examples of the proper grammar that is
+found only in the King James Bible.
 
-Username or email _____________________
+God placed this built-in dictionary so that his words that are found
+in the King James Bible would be defined the way he defines them and not
+the way man does. Just as there is only one proper interpretation of
+scripture, there is only one proper meaning of a word as it is found in a
+particular verse. Note that a word can have multiple meanings, but not for
+that particular verse. The other reason that God provided this built-in
+dictionary in the King James Bible was because he knew many people around
+the world who were reading his word would not have access to a dictionary.
+God never required that a person had to carry around the Hebrew and Greek
+to understand his word and he does not expect people to have to have
+access to a dictionary either. God as the great provider, has already
+provided a dictionary with his word. God also knew that the meanings of
+words would change over time and so he wants people to be able to
+understand them with the same meaning as when he wrote them. The final
+reason for the built-in dictionary was to prove that the King James Bible
+is inspired and God is the author. No man could place a dictionary in a
+bible the way God has and still maintain the meaningful text as well as
+keeping the number and word patterns that are also found in the King James
+Bible.
 
-Reset password
+It is this very built-in dictionary that is one of the reasons that
+the King James Bible is an easier reading level than modern corrupt
+counterfeit bibles. It is because of this built-in dictionary that many
+prisoners, children, and others who either did not know how to read or
+where not very good readers became good readers. The built-in dictionary
+defines words so that a poor reader can quickly become a good reader. They
+may not even be aware of this built-in dictionary, but their subconscious
+notices it and allows them to learn. This is one reason that school
+children read the King James Bible to learn how to read. The King James
+Bible also always uses proper grammar as we will look at later.
+
+The built-in dictionary defines words with a synonym or other word
+that shows its meaning. The definition can often times be found in the
+same verse as the word being defined. Many times the two words are only
+separated by the word "and". Here are a few examples. The word abhor has
+multiple meanings. One of the meanings is hate. Psalm 119:163 shows its
+meaning with the word hate that is only separated by the word "and".
+(Psalm 119:163 I hate and abhor lying: but thy law do I love.) Sometimes
+the definition is found in the same verse, but is separated by more than
+the word "and". Amos 5:10 is an example. (Amos 5:10 They hate him that
+rebuketh in the gate, and they abhor him that speaketh uprightly.) Abhor
+can also mean to despise or neglect. Psalm 22:24 shows this meaning with
+the word despised. (Psalm 22:24 For he hath not despised nor abhorred the
+affliction of the afflicted; neither hath he hid his face from him; but
+when he cried unto him, he heard.) We see in this case how the word and
+its definition are only separated by the word "nor". A third meaning for
+the word abhor is to cast off or reject. This definition can be found in
+Psalm 89:38 with the words cast off. (Psalm 89:38 But thou hast cast off
+and abhorred, thou hast been wroth with thine anointed.) We see in this
+case how the word and definition are once again only separated by the word
+"and". Just as a secular dictionary gives multiple meanings to a word, so
+does God's built-in dictionary as we saw with abhor having three different
+meanings and each of these defined by God.
+
+Another example of a word that has multiple meanings with each
+defined by God is the word abominable. Abominable can mean unclean as seen
+in Leviticus 11:43 which shows unclean. (Leviticus 11:43 Ye shall not make
+yourselves abominable with any creeping thing that creepeth, neither shall
+ye make yourselves unclean with them, that ye should be defiled thereby.)
+A second meaning of abominable is detestable as seen in Jeremiah 16:18.
+(Jeremiah 16:18 And first I will recompense their iniquity and their sin
+double; because they have defiled my land, they have filled mine
+inheritance with the carcases of their detestable and abominable things.)
+We see here again how only the word "and" separates the word and its
+definition. Two other definitions for this word that are defined by the
+King James bible can be found in my book.
+
+Please note that not every time the word and is used shows a word and
+its definition, but many times it does and you must use the context as
+found in the verse to see whether it does or not.
+
+Sometimes a word or phrase and its definition are only separated by a
+comma. One example can be seen in Leviticus 19:12. (Leviticus 19:12 ¶ And
+ye shall not swear by my name falsely, neither shalt thou profane the name
+of thy God: I am the LORD.) Other times it is only a semicolon that
+separates the word or phrase and its meaning. One example is seen in Psalm
+102:26. (Psalm 102:26 They shall perish, but thou shalt endure: yea, all
+of them shall wax old like a garment; as a vesture shalt thou change them,
+and they shall be changed:)
+
+Sometimes the definition of a word is not found in the same verse,
+but one next to it. An example is the word anon as found in Mark 1:30. The
+definition for this word is found in Mark 1:31 as immediately. (Mark
+1:30-31 30 But Simon's wife's mother lay sick of a fever, and anon they
+tell him of her.
+31 And he came and took her by the hand, and lifted her up; and
+immediately the fever left her, and she ministered unto them.) If the
+definition is not found in the same verse or the verse before or after it,
+then it is oftentimes found at least in a verse in the same chapter. Here
+is one example as seen in John 4:37 for the word herein which means in
+this. Verse 20 shows "in this". (John 4:37 And herein is that saying true,
+One soweth, and another reapeth.) (John 4:20 Our fathers worshipped in
+this mountain; and ye say, that in Jerusalem is the place where men ought
+to worship.) If the definition is not found in the same chapter then it is
+often found in the chapter before or after or at least in the same book.
+One example is the word betwixt found in Isaiah 5:3. Betwixt means
+between. The definition for the word is given later in Isaiah 22:11 as
+between. (Isaiah 5:3 And now, O inhabitants of Jerusalem, and men of
+Judah, judge, I pray you, betwixt me and my vineyard.) (Isaiah 22:11 Ye
+made also a ditch between the two walls for the water of the old pool: but
+ye have not looked unto the maker thereof, neither had respect unto him
+that fashioned it long ago.) On some occasions when the definition is not
+found in any of these cases then God has placed it in another book.
+Sometimes the books may be next to each other or very far apart and
+sometimes one even has to go from the Old Testament to the New Testament
+for the definition. Normally a word will be defined somewhere in
+scripture. The reason that some definitions are found so far from the word
+being defined is not so that God can be mean. God does this so that people
+will learn to read and study his word. If God just gives the meaning all
+of the time without doing much reading then people will get lazy and stop
+reading the rest of the verses. God expects us to read, study, and search
+out his word and in order to do that he forces us to if we truly want to
+know all of the meanings to the different words. One example of a word and
+definition that are found in different books is the word wilily as seen in
+Joshua 9:4 which means deceitfully. This word is defined in Exodus 8:29 as
+deceitfully. (Joshua 9:4 They did work wilily, and went and made as if
+they had been ambassadors, and took old sacks upon their asses, and wine
+bottles, old, and rent, and bound up;) (Exodus 8:29 And Moses said,
+Behold, I go out from thee, and I will intreat the LORD that the swarms of
+flies may depart from Pharaoh, from his servants, and from his people, to
+morrow: but let not Pharaoh deal deceitfully any more in not letting the
+people go to sacrifice to the LORD.)
+
+Many times the first time a word is used in the King James Bible then
+God will give the definition in a nearby location. One example is the word
+virgin which is found for the first time in scripture in Genesis 24:16.
+The word virgin has its definition of neither had any man know her given
+immediately after the word with the definition only separated by a comma.
+(Genesis 24:16 And the damsel was very fair to look upon, a virgin,
+neither had any man known her: and she went down to the well, and filled
+her pitcher, and came up.)
+
+Sometimes the definition of a word is found within the word itself.
+The word vinegar contains the word vine. In scripture the word vine is
+always a reference to grapes showing that vinegar is made from grapes.
+Tetrarch was one of four rulers of a Roman province with each ruler
+controlling one quarter of it. Tetra means four and arch means ruler
+showing the meaning of the word. Sometimes the word contains most of, but
+not all of the definition within the word being defined. One example is
+the word brasen which means something made of brass. The word brass is
+nearly found within the word. Other times the definition of a word can be
+figured out by the word itself. One example is the word looking glass
+which is a mirror. Mirrors are made of glass and are used to look into and
+thus a looking glass. Menstealers is another example and shows its own
+definition of those who steal men such as kidnappers and slave traders. If
+the definition cannot be figured out that way, then sometimes just the
+context on how the word is used in scripture can give you its meaning.
+Another thing is how the word king is only capitalized for Jesus except in
+a few cases which are obvious. The fact that king is only capitalized for
+Jesus can soon be figured out by the studious Bible student as they read
+through scripture many times.   
+
+Sometimes a definition for a word can be found by looking at the
+letters around a word such as in Acts 19:13 which shows that devils are
+really evil spirits. Devils can be seen by taking the letter d from the
+word had and then adding that to the word evil and the adding the s from
+spirits. (Acts 19:13 ¶ Then certain of the vagabond Jews, exorcists, took
+upon them to call over them which had evil spirits the name of the Lord
+Jesus, saying, We adjure you by Jesus whom Paul preacheth.)
+
+There are times that the definition can be known as God gives the
+opposite of the word. Usually it is obvious or at least one word is a
+known.
+
+Sometimes a definition can be found by comparing the parallel or
+companion verse to that verse. This is known as the cross reference for
+that verse. The gospels contain many of the same stories with slightly
+different wording and here you can at times see this built-in dictionary.
+Here is an example. Matthew 3:8 has the word meet and the same verse in
+Luke 3:8 shows its definition with worthy. Notice how God also combines
+his number pattern as both verses are found in the same chapter and verse
+number. God is so amazing how he thinks of everything. (Matthew 3:8 Bring
+forth therefore fruits meet for repentance:) (Luke 3:8 Bring forth
+therefore fruits worthy of repentance, and begin not to say within
+yourselves, We have Abraham to our father: for I say unto you, That God is
+able of these stones to raise up children unto Abraham.)    
+
+The King James Bible uses the proper grammar and spelling for words.
+One example is how the King James Bible uses the proper spelling for a
+word when it is used as a noun and as a verb. The King James Bible uses
+plough when used as a noun and plow when used as a verb just like in
+proper British English. This distinction is lost in modern corrupt bibles.
+Just by seeing the spelling of the word a person can know if it is being
+used as a noun or a verb. A similar example is how the King James Bible
+uses the word hundred when it is used as a noun and hundredfold when used
+as an adjective. The King James Bible also uses proper spelling and verb
+endings to let you know if a word is singular or plural or whether it is
+being used in first, second, or third person. This can be very helpful in
+understanding the context of a verse.    
+
+I have only given a few examples of various ways that show you how to
+use the King James Bible's built-in dictionary. There are other ways that
+God uses to define his words and some involve number patterns and so forth
+or reversing the spelling of a word. I am not going to get into those
+things here. Pray that the Holy Ghost will open your eyes to see his
+built-in dictionary. Some of these examples and others like them can be
+found in my book. I would appreciate your support with the purchase of my
+book and then please tell others about it.      
+
+Many Christians are not aware that God in his infinite wisdom has
+placed a built-in dictionary in the King James Bible. While many people
+may not realize it they use it anyway subconsciously as they will soon
+notice that it seems words define themselves or are found elsewhere. The
+next time you read your King James Bible, praise God for placing his
+built-in dictionary within it so that we can have a proper understanding
+of his word. Please share this knowledge with other people so that they
+too can grow in the Lord. We also want to use this to convert people from
+corrupt bibles to the King James Bible. The fact that the King James Bible
+has its own built-in dictionary also disproves the lie that the King James
+Bible is too hard to understand. The built-in dictionary proves just the
+opposite that the King James Bible is actually written at a lower grade
+level. Often times a harder word with more syllables will be defined by a
+simple word.
+
+For those who are not saved, today is the day of salvation. Ask Jesus
+to save you and then get yourself a King James Bible and you too will
+quickly grow in the Lord as you learn how to use the built-in dictionary
+that God has given us. Thank you Lord for this built-in dictionary and
+showing that only you wrote the King James Bible.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

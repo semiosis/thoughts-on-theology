@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,395 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Unscriptural Flat Earth Theory
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The false flat earth theory is making a comeback today including
+among some professing Christians. I have spoken with some professing
+Christians who believe this false theory. Many ancient heathen taught
+this. The modern flat earth theory was founded by John William Draper and
+Andrew Dickson White in the 1800's, but really began to pick up steam in
+the 1950's. This theory is completely unscriptural and is dangerous
+thinking as if you do not believe what scripture says as well as what can
+be clearly observed by our eyes then how can you believe what is in
+scripture that we cannot see? The flat earthers do not all agree on
+everything, but there are some basics to the theory. Most believe the
+earth is a flat disc while others believe it is a flat square. Most
+believe that the earth does not move (rotate or revolve) and that the sun
+and moon are only 3,000 miles away and revolve in circles in the sky with
+stars at 3,100 miles away. They say this revolving in circles is why we
+have daylight and nighttime as the light only hits certain spots on earth
+at a time. It has long been proven that except the moon, the planets
+revolve around the sun including the earth and that many planets have
+their own satellites that revolve around them. Some believe the sun and
+moon are spheres, but deny the earth is one. Some believe in an invisible
+antimoon that must exist to create lunar eclipses. They deny we ever
+landed on the moon. Many deny gravity saying it is only an illusion yet I
+bet if I dropped a hammer above their head they would. Many of those say
+the earth moves up rather than the object falls. There are many flat
+earthers who believe the earth and the stars are all just in some giant
+snow globe with the stars hanging from the top. Many believe the earth is
+held up by four pillars. This idea is even mentioned in the Roman Catholic
+bible the Christian Community Bible. Some change firmament to vault or
+dome or something else to try and support this false belief. They say that
+the windows in heaven that opened up at the time of the Genesis flood
+refer to the top of this globe which is supposedly surrounded by water
+being opened up to allow some of this water in. They say the firmament in
+scripture refers to this dome. They say the sky looks blue because you can
+see the waters outside the dome. Some flat earthers believe the arctic
+circle is in the center of the earth with Antarctica being a wall of ice
+150 feet tall that surrounds the earth's edge and say NASA has people
+there to keep people from falling off. They believe all NASA or other
+space agencies such as those on Japan, China, or Europe are all in the lie
+to continue to promote a round earth and the pictures are a fake. None
+believe that man has ever been to space. Most flat earthers believe in the
+false global warming with much of the data coming from NASA yet they deny
+NASA when it comes to proof that the earth is a sphere. Some flat earthers
+believe the earth is diamond shape. Many believe all world governments are
+hiding the truth about a flat earth and among professing Christian
+believers they say this is to deny God and mock scripture yet they are the
+ones making a mockery of God and scripture and denying commonsense.
+Professing Christian believers say the missile tests being done are ways
+for Satan to try and find a way to get back out of the dome and back to
+heaven since he was kicked out and sent here by God. Scripture shows that
+for now Satan does still have access to heaven though one day he no longer
+will. We see in Job how Satan as one of the sons of God came before God
+twice and that is when God gave Satan permission to test Job. Sons of God
+in Job refers to angels of which Satan is one. The verses in Job clearly
+show that Satan is not trapped inside the supposed dome. (Job 1:6 ¶ Now
+there was a day when the sons of God came to present themselves before the
+LORD, and Satan came also among them.) There are many other crazy beliefs
+among the flat earth believers.  
 
-Username or email _____________________
+When Christopher Columbus left Spain to find India and landed in
+North America instead, he had faced much criticism by those who believed
+Christopher would sail off the edge of the earth. Most people then
+believed in a flat earth which was taught by the Roman Catholic Church.
+The question is if the ship could fall off then why does the water not
+fall off? Christopher was a man who believed God's word that the earth was
+round so he did not fear falling off. Scripture tells us the earth is
+round. (Isaiah 40:22 It is he that sitteth upon the circle of the earth,
+and the inhabitants thereof are as grasshoppers; that stretcheth out the
+heavens as a curtain, and spreadeth them out as a tent to dwell in:)
+Notice Isaiah says the circle of the earth showing it is round. Why would
+the sun and moon be spheres, but the earth flat? This verse also says God
+stretcheth out the heavens showing that the sun, planets, and stars are
+not nearby and the earth is not inside a giant snow globe. Other verses
+also speak of God stretching out the heavens. Here are a couple more
+verses. (Psalm 104:2 Who coverest thyself with light as with a garment:
+who stretchest out the heavens like a curtain:) (Job 9:8 Which alone
+spreadeth out the heavens, and treadeth upon the waves of the sea.) One
+way to clearly see the earth is a sphere or globe and not flat is to watch
+ships leave a port in the ocean. As the ships leave they will eventually
+start to disappear at the bottom and then finally the top. If you have
+multiple ships in view, the farthest ones away will only show the top of
+the ship with the closer ones the whole ship. This effect is caused by the
+ships going below the horizon proving the earth is a globe. This can also
+be seen while flying in an airplane where you can look down on the ground
+and actually see the curvature of the earth. The earth's dimension was
+first measured by a Greek in the 200 BC's and he measured the length of a
+shadow in two locations that was known how far away they were. The fact
+that shadow lengths vary by location shows the earth is a sphere. Round
+tires are compared to the moon showing the moon is round. (Isaiah 3:18 In
+that day the Lord will take away the bravery of their tinkling ornaments
+about their feet, and their cauls, and their round tires like the moon,)
+Many stars can only be seen in either the northern or southern hemisphere.
+If the earth were flat then you would not see certain stars in only
+certain locations, but they would be visible everywhere.  
 
-Reset password
+Many flat earthers say the earth has four corners proving it is a
+flat earth as told in Revelation 7:1. (Revelation 7:1 And after these
+things I saw four angels standing on the four corners of the earth,
+holding the four winds of the earth, that the wind should not blow on the
+earth, nor on the sea, nor on any tree.) This verse is not speaking of
+four literal corners, but rather the north, south, east, and west winds.
+Often times people speak metaphorically such as I am so hungry I could eat
+a horse yet even if you had not eaten for a week then you could not eat a
+whole horse. Everyone knows that the person is speaking figuratively that
+he is just very hungry and the same is with this verse that is just
+referring to the four cardinal directions and not four literal corners on
+the earth. A sphere does not have corners as we saw in Isaiah. Revelation
+20:8 is another verse they often use to support their false belief.
+(Revelation 20:8 And shall go out to deceive the nations which are in the
+four quarters of the earth, Gog and Magog, to gather them together to
+battle: the number of whom is as the sand of the sea.) Many modern bibles
+change quarters to corners so they like to quote from them. All this verse
+means is that Satan would go to every place on earth where man is living
+and will deceive them. It again has nothing to do with a flat earth.   
+
+Some flat earthers say that Genesis 13:17 speaks of a flat earth.
+(Genesis 13:17 Arise, walk through the land in the length of it and in the
+breadth of it; for I will give it unto thee.) This verse has to do with
+the Promised Land that God gave to Abraham and walking through it. The
+verse speaks of a breadth and a length, but all it means is that it has a
+certain area that can be measured. Any plot of land would be the same. If
+you have a one acre plot of land you can walk the length of it as well as
+the width, but this has nothing to do with a flat earth. Other verses that
+speak of breadth are also used by them such as Job 38:18 which again is
+speaking of how the earth has a width which we know as the circumference.
+Even a sphere such as the earth has an "edge" before circling on. When we
+measure our waist we just go from edge to edge even though it is round and
+the same applies in this verse. Psalm 104:5 is another verse used by flat
+earthers who say the earth does not move just like they say it does not
+and it just sits in this snow globe dome. (Psalm 104:5 Who laid the
+foundations of the earth, that it should not be removed for ever.) This
+verse does not imply any such false belief. This verse says the
+foundations of the earth should not be moved. Jesus as the Creator has
+made the earth so that no one can destroy it unless he does as he will one
+day by fire. (II Peter 3:10 But the day of the Lord will come as a thief
+in the night; in the which the heavens shall pass away with a great noise,
+and the elements shall melt with fervent heat, the earth also and the
+works that are therein shall be burned up.) It just means the earth is a
+firm foundation, but it does move as seen in earthquakes. This verse has
+nothing to do with the earth rotating on its axis or revolving around the
+sun where it does move all the time. Part of the problem with many of the
+professing Christians who believe in a flat earth is they do not use a
+King James Bible. Modern bibles often change Psalm 104:5 to say fixed the
+earth on its foundation and cannot be shaken. These changes support the
+flat earth theory and this is yet another reason to stick with the
+inspired King James Bible. The King James Bibles in this verse says laid
+the foundation not fixed which is much more accurate as I already said how
+the earth does move and is not in a fixed spot and we also have
+earthquakes. They also use Psalm 93:1 to try and say the earth does not
+move. (Psalm 93:1 The LORD reigneth, he is clothed with majesty; the LORD
+is clothed with strength, wherewith he hath girded himself: the world also
+is stablished, that it cannot be moved.) This verse just means that again
+Satan cannot destroy this earth as it has been established by God.      
+
+Flat earth believers believe the earth is set upon four pillars which
+hold up the flat earth. They say I Samuel 2:8 speaks of these pillars. (I
+Samuel 2:8 He raiseth up the poor out of the dust, and lifteth up the
+beggar from the dunghill, to set them among princes, and to make them
+inherit the throne of glory: for the pillars of the earth are the LORD'S,
+and he hath set the world upon them.) This verse is not speaking of
+literal pillars holding up the earth. This verse and the verses around it
+are speaking of how God is in control of every situation and also how he
+gives security to his saints. God uses the pillars to show how it is he
+who holds up the earth and we do not need to worry about anything. Job
+26:7 shows us how the earth hangs upon nothing which includes it is not
+supported by pillars. Flat earthers also often use Psalm 75:3 to try and
+support their false view.
+
+There are also various verses that speak of the "ends of the earth"
+and flat earthers say this shows the earth is flat as a flat object has
+ends, but a globe does not. If you look at the different verses then in
+every case it is just referring to God can see the whole earth or we are
+to preach the gospel to every person on earth no matter where they live.
+In every case it is just referring to the whole earth and never that it
+has literally an end that we could fall off of.  
+
+Some flat earthers say the moon is only a light as shadows can be
+seen on it or some even say it is just a projection. God says that he
+created it on day four as the lesser light. (Genesis 1:16 And God made two
+great lights; the greater light to rule the day, and the lesser light to
+rule the night: he made the stars also.)
+
+Belief in the flat earth theory leads to denial of what God's word
+says about his creation. If you cannot believe what he says about his
+creation then how can you believe what he says about a person's need for
+salvation? A professing Christian who believes in a flat earth will never
+grow but will always stay a milk Christian assuming they are a true
+Christian as Genesis 1-11 is the foundation for John 3:16. Jesus spoke of
+a time when even the very elect could be deceived if he let it happen.
+(Matthew 24:24 For there shall arise false Christs, and false prophets,
+and shall shew great signs and wonders; insomuch that, if it were
+possible, they shall deceive the very elect.) I believe here is a case
+showing people being deceived by believing in a flat earth contrary to
+what the word of God teaches.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

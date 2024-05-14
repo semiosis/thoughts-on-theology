@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,404 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Christian Martyrs for Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+June 29 is said to be the day that Paul was martyred on. Today it is
+a day that is set aside to remember all Christians martyred for Jesus. I
+previously mentioned some martyrs from scripture in my sermon Martyrs in
+the Lord's Army on Memorial Day weekend. Today I would like to share just
+a small handful of the millions who have been martyred for Jesus. It is
+important that their names and stories are not forgotten. Many Christians
+are still martyred today and many more will be in the future. I wonder how
+many of us would be willing to die for Jesus. Most if not all of these men
+were also severely beaten or otherwise tortured many times before their
+actual deaths. Often times they were intended to have been killed by their
+persecutors, but God kept them alive for a little longer until he decided
+to call them home.
 
-Username or email _____________________
+Every one of the apostles with the exception of John was martyred for
+Jesus and they tried to kill John as well. James is mentioned in scripture
+as having been martyred for Jesus. He was beheaded by king Herod. (Acts
+12:1-2 1 Now about that time Herod the king stretched forth his hands to
+vex certain of the church.
+2And he killed James the brother of John with the sword.) James was the
+first of the apostles martyred. I also previously mentioned how Peter was
+crucified on a cross just as Jesus had predicted. (John 21:18-19 18
+Verily, verily, I say unto thee, When thou wast young, thou girdedst
+thyself, and walkedst whither thou wouldest: but when thou shalt be old,
+thou shalt stretch forth thy hands, and another shall gird thee, and carry
+thee whither thou wouldest not.
+19 This spake he, signifying by what death he should glorify God. And when
+he had spoken this, he saith unto him, Follow me.) Scripture does not
+mention the deaths of the rest of the apostles but their deaths have been
+passed down through the centuries. Matthew was a missionary to Ethiopia
+where he was beheaded, though some sources say he was speared to death.
+Thomas was a missionary to India where he was slain with a dart. Simon the
+Zealot preached in Mauritania, throughout Africa, and in Britain. He was
+crucified. Andrew, the brother of Peter, was crucified in Ethiopia by
+Egeas the governor of the Edessenes. Andrew boldly destroyed the idols of
+the people as he proclaimed Jesus. Philip was crucified and then stoned to
+death while preaching in Hierapolis, a city in Phrygia. Bartholomew was a
+missionary to the Indians and translated the gospel of Matthew into their
+language. He was beaten with staves, then crucified, and then had part of
+his skin removed and was beheaded. Thaddaeus was a missionary to Armenia
+where he was killed either by arrows or a javelin. James the son of
+Alphaeus was a missionary to Syria where he was stoned to death for
+preaching Jesus. The apostle Paul was once stoned and left for dead. (II
+Corinthians 11:25 Thrice was I beaten with rods, once was I stoned, thrice
+I suffered shipwreck, a night and a day I have been in the deep;) God kept
+him alive to later be beheaded by a sword at the command of Nero, the
+Roman emperor.  
 
-Reset password
+Others from scripture where also martyred. I mentioned Stephen being
+stoned to death in my previous sermon. (Acts 7:59 And they stoned Stephen,
+calling upon God, and saying, Lord Jesus, receive my spirit.) Mark was the
+first bishop of Alexandria, Egypt. He was tied up by ropes and burnt with
+fire. James, the brother of Jesus, was thrown down to the ground from the
+top of the temple. He did not die from the fall and prayed that Jesus
+would forgive them who tried to kill him. He was then stoned to death.
+Matthias who was chosen to replace Judas Iscariot as an apostle, though
+not chosen by God, that would be Paul, is said to have preached around the
+Black Sea, but came back to Jerusalem where he was stoned to death. Luke,
+the beloved Physician is said to have continued Paul's ministry after his
+death and was himself hanged on an olive tree in Greece.
+
+The Waldensians were a group of Christians that were persecuted by
+the Roman Catholic Church for centuries. They had been in the Roman
+Catholic Church but after reading scripture were saved and strictly
+adhered to the Holy Bible. They were excommunicated by the pope as
+heretics. In 1211 more than 80 Waldensians were burned as heretics at
+Strasbourg by the Roman Catholic Church. The Roman Catholic Church tried
+to force the Waldensians to return to Roman Catholicism. When they refused
+they were ordered to be massacred. On April 24, 1655 at 4 a.m. on Easter
+morning in France, over 1,700 Waldensians were killed by the Roman
+Catholic Church. The Waldensians were raped, tortured, killed, and had
+their belongings looted. Peter Liege said of the massacre "Little children
+were torn from the arms of their mothers, clasped by their tiny feet, and
+their heads dashed against the rocks; or were held between two soldiers
+and their quivering limbs torn up by main force. Their mangled bodies were
+then thrown on the highways or fields, to be devoured by beasts. The sick
+and the aged were burned alive in their dwellings. Some had their hands
+and arms and legs lopped off, and fire applied to the severed parts to
+staunch the bleeding and prolong their suffering. Some were flayed alive,
+some were roasted alive, some disemboweled; or tied to trees in their own
+orchards, and their hearts cut out. Some were horribly mutilated, and of
+others the brains were boiled and eaten by these cannibals. Some were
+fastened down into the furrows of their own fields, and ploughed into the
+soil as men plough manure into it. Others were buried alive. Fathers were
+marched to death with the heads of their sons suspended round their necks.
+Parents were compelled to look on while their children were first outraged
+[raped], then massacred, before being themselves permitted to die." Pope
+Francis in 2015 admitted that the Roman Catholic Church did this. Does
+this sound like a Christian church?
+
+The Huguenots were French Protestants when France was controlled by
+the Roman Catholic Church. They were constantly persecuted by the Roman
+Catholic Church. One of these persecutions is known as the St.
+Bartholomew's Day massacre. Many Huguenots had gathered in Paris for the
+wedding between the king's sister and the Protestant Henry of Navarre who
+later became the king of France as Henry IV. About five days later on
+August 23 at night, the massacre began. The massacre spread to the other
+provinces of France and lasted until October 3. Estimates on the number
+killed vary greatly with low estimates at 3,000 in Paris on the first
+night with another 7,000 in the provinces and a final total of 25,000 to
+30,000 killed. A Roman Catholic apologist admits to 2,000 killed. The head
+of the leader of the Huguenots, Coligny was sent to the pope, though it is
+claimed by some that he never received it. The pope approved of the
+massacre and sent the king of France a Golden Rose which is a golden
+ornament given by the pope to people as a token of affection or in this
+case approval. The pope also had three paintings made depicting the death
+of the Huguenot leader Coligny, a medal struck showing an angel with a
+sword killing the Huguenots, and a Te Deum [Roman Catholic hymn] was to be
+sung as a thanksgiving for the massacre. Does this again sound like a
+Christian church, especially the actions of the pope who supposedly
+represents and speaks for Jesus here on Earth? Would Jesus do these
+things? No he would not.
+
+William Tyndale was an Englishman who translated the Holy Bible into
+English. His desire was that all people would be able to read God's word
+themselves and discover the truth. John Wycliffe's translation, the only
+other English translation had been banned by the Roman Catholic Church
+which controlled England, ninety years earlier. No one in the church in
+England supported Tyndale translating the scriptures into English. He had
+to leave England to avoid persecution. A bounty was put out on him and he
+was betrayed by a man who pretended to be his friend in order to get the
+bounty. He was placed in a cold, dark prison for almost two years before
+being condemned to death. He was hanged and hung above a fire. His dying
+prayer "Lord, open the king of England's eyes." was to ask God to open the
+eyes of the king [king Henry VIII] to allow scripture in English. Tyndale
+was martyred in 1536, but in 1538 God answered Tyndale's prayer when Henry
+VIII allowed the translation of the Matthew Bible in English which was
+mostly Tyndale's translation. In 1539 the king ordered all printers and
+sellers of the Holy Bible to offer it free to all in the English language.
+This answer to pray would later bring us the King James Bible, God's
+preserved word.  
+
+Dulal Sarkar was a lay pastor of the Bangladesh Free Baptist Church.
+This area was mostly Muslims. Dulal had recently won several Muslims to
+the Lord. For doing this he was attacked and killed by ten Muslims who
+slit his throat so deep that his head was separated from his body. Prior
+to his execution, he was told not to preach anymore or they would kill him
+that moment. Dulal said "I will not stop the ministry God has called me to
+perform." When he finished saying that, they beheaded him. He was martyred
+on March 8, 2005.
+
+Bill Koehn, Kathy Gariety and Martha Myers, were Baptist medical
+missionaries, who were killed Dec. 30, 2002, at Jibla Baptist Hospital in
+Yemen by a Muslim militant. Bill Hyde was a Baptist missionary who was
+killed in a terrorist bombing in the Philippines on March 4, 2004. David
+McDonnall, Larry and Jean Elliott and Karen Watson were all Baptist
+humanitarian relief workers who were killed by insurgents on March 15,
+2004, while driving in Iraq in a drive by shooting.
+
+Immanuel Andergeresgh and Kibrom Firemichel were two evangelical
+Christians in Eritrea who secretly met with others to worship Jesus as
+open worship was forbidden. The only churches allowed in Eritrea were the
+Orthodox, Roman Catholic, and Lutheran churches along with the religion of
+Islam. These two men were captured during a nighttime bible study.
+Immanuel who was 23 and Kibrom who was 30 were arrested along with 38
+others. They were tortured for two days before these two men died due to
+the beatings and dehydration for worshipping Jesus and not being a part of
+the three recognized denominations. These men were willing to take the
+risk of their lives to worship Jesus. I pray every one here is willing to
+do the same if it ever comes to that. Many Christians in Eritrea have
+suffered severe persecution for following scripture and not being a part
+of one of the three state recognized denominations. This includes being
+kept in shipping containers with freezing temperatures in the winter and
+well over a hundred degrees in the summer.
+
+Pastor Vincentor was a pastor of a church in Nigeria. He had been
+warned of Muslims who were attacking Christians in the area near the
+church where he pastored. He was willing to risk his life to go to the
+church to preach to his flock. He was shot and killed by Muslims.  
+
+Many Christians in Orissa, a state of India, have been killed as the
+Hindus try to force Christians to become Hindus. During attacks in August
+2008 at least 4,000 Christian homes were destroyed, 115 churches burned or
+destroyed and over 500 Christians killed.  
+
+A shooter came to the Sutherland Springs Baptist Church in Sutherland
+Springs, Texas on November 5, 2017 and shot and killed 26 people including
+a child in the womb and wounded 20 others. This man did not directly kill
+these people because they were Christians, but they were killed because
+they went to worship Jesus.
+
+Many more stories can be found in the books Foxe's Book of Martyrs
+and Foxe Voices of the Martyrs as well in other places such as Voice of
+the Martyrs magazine.  
+
+All of these people were martyred for believing in Jesus and keeping
+the faith. They did not deny Jesus when challenged. God said he would
+reward those who stand for him and die for him with a martyr's crown and
+everlasting life. (Revelation 2:10 Fear none of those things which thou
+shalt suffer: behold, the devil shall cast some of you into prison, that
+ye may be tried; and ye shall have tribulation ten days: be thou faithful
+unto death, and I will give thee a crown of life.) (Matthew 5:10 Blessed
+are they which are persecuted for righteousness' sake: for theirs is the
+kingdom of heaven.) We all must be willing to die for Jesus so that we may
+have everlasting life. (Matthew 16:25 For whosoever will save his life
+shall lose it: and whosoever will lose his life for my sake shall find
+it.) May all of us stay strong in the faith as we serve Jesus, even if it
+means the loss of our lives. Let us always keep our fellow Christians in
+prayer especially those who are in bonds as they may become the next
+Christian martyrs. (Hebrews 13:3 Remember them that are in bonds, as bound
+with them; and them which suffer adversity, as being yourselves also in
+the body.)   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

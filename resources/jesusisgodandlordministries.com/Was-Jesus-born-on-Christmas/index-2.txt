@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,516 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Was Jesus born on Christmas?
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+People often ask was Jesus born on Christmas? Everyone seems to agree
+that he was not. Scripture also agrees. Scripture says the shepherds were
+out in the field at the time of the birth of Jesus and angels appeared
+unto them. Notice angels were first sent to shepherds just as Jesus is the
+chief Shepherd. Shepherds were considered lowly in society and Jesus went
+to the lowliest first. Jesus always goes to what society thinks of as
+outcasts first. (Luke 2:7-20 And she brought forth her firstborn son, and
+wrapped him in swaddling clothes, and laid him in a manger; because there
+was no room for them in the inn.
+8 And there were in the same country shepherds abiding in the field,
+keeping watch over their flock by night.
+9 And, lo, the angel of the Lord came upon them, and the glory of the Lord
+shone round about them: and they were sore afraid.
+10 And the angel said unto them, Fear not: for, behold, I bring you good
+tidings of great joy, which shall be to all people.
+11 For unto you is born this day in the city of David a Saviour, which is
+Christ the Lord.
+12 And this shall be a sign unto you; Ye shall find the babe wrapped in
+swaddling clothes, lying in a manger.
+13 And suddenly there was with the angel a multitude of the heavenly host
+praising God, and saying,
+14 Glory to God in the highest, and on earth peace, good will toward men.
+15 And it came to pass, as the angels were gone away from them into
+heaven, the shepherds said one to another, Let us now go even unto
+Bethlehem, and see this thing which is come to pass, which the Lord hath
+made known unto us.
+16 And they came with haste, and found Mary, and Joseph, and the babe
+lying in a manger.
+17 And when they had seen it, they made known abroad the saying which was
+told them concerning this child.
+18 And all they that heard it wondered at those things which were told
+them by the shepherds.
+19 But Mary kept all these things, and pondered them in her heart.
+20 And the shepherds returned, glorifying and praising God for all the
+things that they had heard and seen, as it was told unto them.) Shepherds
+are not in the fields at night in December. It is too cold and the
+shepherds would find shelter for the sheep and themselves at night.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+Scripture tells us the Romans had ordered a census to be taken and
+this was the reason that Joseph and Mary were in Bethlehem at the time of
+the birth of Jesus. (Luke 2:1-7 And it came to pass in those days, that
+there went out a decree from Cæsar Augustus, that all the world should be
+taxed.
+2 (And this taxing was first made when Cyrenius was governor of Syria.)
+3 And all went to be taxed, every one into his own city.
+4 And Joseph also went up from Galilee, out of the city of Nazareth, into
+Judæa, unto the city of David, which is called Bethlehem; (because he was
+of the house and lineage of David:)
+5 To be taxed with Mary his espoused wife, being great with child.
+6 And so it was, that, while they were there, the days were accomplished
+that she should be delivered.
+7 And she brought forth her firstborn son, and wrapped him in swaddling
+clothes, and laid him in a manger; because there was no room for them in
+the inn.) The Romans never took a census in December because the weather
+could bring snow and other bad weather and it would defeat the purpose of
+the census if people could not travel and be counted especially since it
+was for tax purposes.  
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+If Jesus was not born on December 25, does scripture tells us when he
+was born? Scripture gives us clues to point out his date of birth showing
+a fall birth. We are told that Jesus was conceived when Elisabeth was six
+months pregnant with John the Baptist. (Luke 1:24-27 And after those days
+his wife Elisabeth conceived, and hid herself five months, saying,
+25 Thus hath the Lord dealt with me in the days wherein he looked on me,
+to take away my reproach among men.
+26 And in the sixth month the angel Gabriel was sent from God unto a city
+of Galilee, named Nazareth,
+27 To a virgin espoused to a man whose name was Joseph, of the house of
+David; and the virgin's name was Mary.) (Luke 1:36 And, behold, thy cousin
+Elisabeth, she hath also conceived a son in her old age: and this is the
+sixth month with her, who was called barren.) We can determine when John
+the Baptist was born. Zacharias was the dad of John the Baptist and was a
+priest of the order of Abijah. (Luke 1:5 ¶ There was in the days of Herod,
+the king of Judæa, a certain priest named Zacharias, of the course of
+Abia: and his wife was of the daughters of Aaron, and her name was
+Elisabeth.) Zacharias was told while he was performing his priestly duties
+by the angel Gabriel that his wife Elisabeth would become pregnant after
+his duties were done. (Luke 1:13 But the angel said unto him, Fear not,
+Zacharias: for thy prayer is heard; and thy wife Elisabeth shall bear thee
+a son, and thou shalt call his name John.) (Luke 1:23-25 And it came to
+pass, that, as soon as the days of his ministration were accomplished, he
+departed to his own house.
+24 And after those days his wife Elisabeth conceived, and hid herself five
+months, saying,
+25 Thus hath the Lord dealt with me in the days wherein he looked on me,
+to take away my reproach among men.) David had the priests divided into 24
+orders that would serve at certain times at the tabernacle and later the
+temple. We are told the order of Abia was the eighth order of priests. (I
+Chronicles 24:10 The seventh to Hakkoz, the eighth to Abijah,) All of the
+priests would serve on the major feast days of Passover and unleavened
+bread, Pentecost, and Feast of Tabernacles since every male was required
+to bring a sacrifice and help would be needed and then each was assigned a
+week of eight days from sabbath to sabbath that they served with Zacharias
+being of the eighth order. (II Chronicles 23:8 So the Levites and all
+Judah did according to all things that Jehoiada the priest had commanded,
+and took every man his men that were to come in on the sabbath, with them
+that were to go out on the sabbath: for Jehoiada the priest dismissed not
+the courses.) Each priest would have two cycles of duty throughout the
+year plus the three main feasts for a total of roughly five weeks of duty
+a year. The Jewish religious year starts with Nisan which is in the spring
+around March or April depending on the year since the Jews have a calendar
+based off of the lunar year of 360 days rather than ours based off of the
+solar year of 365 days. (Esther 3:7 ¶ In the first month, that is, the
+month Nisan, in the twelfth year of king Ahasuerus, they cast Pur, that
+is, the lot, before Haman from day to day, and from month to month, to the
+twelfth month, that is, the month Adar.) The first two orders would serve
+and then the third week would be the week of unleavened bread with all
+orders serving and then the third order would continue for a week and then
+the orders would continue with the other two main feasts also included.
+Zacharias would have served the tenth week of the Jewish year with the
+feasts of unleavened bread and Pentecost having already occurred. This
+would be the third Jewish month of Sivan around May or June of our
+calendar. Zacharias would have finished his week on the third sabbath of
+the month and then returned home with Elisabeth conceiving John the
+Baptist shortly afterwards. Jesus was conceived six months after John the
+Baptist as we read earlier. Six months from late in the third month of
+Sivan brings us to late in the ninth month of Kislev which is November to
+December of our calendar. Hanukkah is on 25 Kislev and is the festival of
+lights. It is also known as the feast of dedication. (John 10:22 ¶ And it
+was at Jerusalem the feast of the dedication, and it was winter.) Jesus
+most likely was conceived on Hanukkah as Jesus is the light of the world
+and would have been dedicated to the world. (John 12:8 ¶ Then spake Jesus
+again unto them, saying, I am the light of the world: he that followeth me
+shall not walk in darkness, but shall have the light of life.) John the
+Baptist would have been born around the following Passover or 15 Nissan
+after 40 weeks gestation. Jesus compared John the Baptist with Elijah and
+even today the Jews put out a plate for Elijah at passover waiting for his
+return. (Malachi 4:5 ¶ Behold, I will send you Elijah the prophet before
+the coming of the great and dreadful day of the LORD:) (Matthew 17:12-13
+But I say unto you, That Elias is come already, and they knew him not, but
+have done unto him whatsoever they listed. Likewise shall also the Son of
+man suffer of them.
+13 Then the disciples understood that he spake unto them of John the
+Baptist.) The angel Gabriel also compared John the Baptist with Elijah
+when he spoke with Zacharias. (Luke 1:17 And he shall go before him in the
+spirit and power of Elias, to turn the hearts of the fathers to the
+children, and the disobedient to the wisdom of the just; to make ready a
+people prepared for the Lord.) If you go six months from 15 Nisan for the
+birth of Jesus it places the birth of Jesus on 15 Tishri which is the
+first day of the feast of tabernacles around September or October of our
+calendar. (Leviticus 23:34 Speak unto the children of Israel, saying, The
+fifteenth day of this seventh month shall be the feast of tabernacles for
+seven days unto the LORD.) Jesus would have been circumcised on the eight
+and last day of the feast. (Luke 2:21 And when eight days were
+accomplished for the circumcising of the child, his name was called JESUS,
+which was so named of the angel before he was conceived in the womb.) The
+feast of tabernacles occurs just after the fall harvest. Jesus was born in
+Bethlehem which means house of bread and he represents this harvest as the
+living bread. (John 6:51 I am the living bread which came down from
+heaven: if any man eat of this bread, he shall live for ever: and the
+bread that I will give is my flesh, which I will give for the life of the
+world.) God gives another clue that Jesus was born on the feast of
+tabernacles in John 1:14. [John 1:14 And the Word was made flesh, and
+dwelt among us, (and we beheld his glory, the glory as of the only
+begotten of the Father,) full of grace and truth.] The word dwelt in this
+verse is equivalent to tabernacle and God is saying Jesus tabernacled with
+us or that he was born on the feast of tabernacles. This would be as if
+someone was born on Christmas and we said they Christmased with us to let
+people know when the person was born. Jesus was put into a temporary body
+of a man just as the Israelites were in temporary booths or succoths on
+the feast of tabernacles. The feast of tabernacles is today known as
+Succoth to represent these temporary booths. There was no room at the inn
+for Joseph and Mary because of all of the people in Bethlehem for the
+Roman census and also because of all of the people there to celebrate the
+feast of tabernacles as all Jewish males were required to attend. There
+were most likely many temporary booths set up for the feast in the fields.
+Jacob made booths or stables for his cattle and called them succoths.
+(Genesis 33:17 And Jacob journeyed to Succoth, and built him an house, and
+made booths for his cattle: therefore the name of the place is called
+Succoth.) Jesus was born in a manger in a stable since there was no room
+in the inn. (See Luke 2:7 and 2:12 which I read.) This may be another clue
+pointing to Jesus being born in a temporary booth or stable for the feast
+of tabernacles. Jesus may have transfigured on his birthday as Peter asked
+Jesus if he should build a tabernacle for him, Moses and Elijah not
+understanding that Moses and Elijah were already in their temporary bodies
+waiting for their glorified bodies. (Matthew 17:4 Then answered Peter, and
+said unto Jesus, Lord, it is good for us to be here: if thou wilt, let us
+make here three tabernacles; one for thee, and one for Moses, and one for
+Elias.) Peter would have asked since it was most likely the feast of
+tabernacles. It was at this time just after they returned from the
+mountain where Jesus was transfigured that Jesus made the comparison
+between Elijah and John the Baptist also showing how the transfiguration
+was most likely during the feast of tabernacles.
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+One more clue shows that Jesus was born on the feast of tabernacles.
+Daniel 9:25-26 says Jesus would be cut off or crucified 483 years after
+the order was given to rebuild Jerusalem. The people should have known
+when Jesus would be born. The wise men followed the star to find him just
+as scripture said Jesus a Star would come out of Jacob, but they were not
+at his birth. (Matthew 2:2 Saying, Where is he that is born King of the
+Jews? for we have seen his star in the east, and are come to worship him.)
+(Numbers 24:17 I shall see him, but not now: I shall behold him, but not
+nigh: there shall come a Star out of Jacob, and a Sceptre shall rise out
+of Israel, and shall smite the corners of Moab, and destroy all the
+children of Sheth.) They probably came to Jesus when he was closer to two
+years old as Herod had all of the children under two years old killed
+based on the timing of the wise men and they saw Jesus when he was a young
+child and living in a house. (Matthew 2:11 ¶ And when they were come into
+the house, they saw the young child with Mary his mother, and fell down,
+and worshipped him: and when they had opened their treasures, they
+presented unto him gifts; gold, and frankincense, and myrrh.) (Matthew
+2:16 ¶ Then Herod, when he saw that he was mocked of the wise men, was
+exceeding wroth, and sent forth, and slew all the children that were in
+Bethlehem, and in all the coasts thereof, from two years old and under,
+according to the time which he had diligently enquired of the wise men.)
+(Daniel 9:25-26 Know therefore and understand, that from the going forth
+of the commandment to restore and to build Jerusalem unto the Messiah the
+Prince shall be seven weeks, and threescore and two weeks: the street
+shall be built again, and the wall, even in troublous times.
+26 And after threescore and two weeks shall Messiah be cut off, but not
+for himself: and the people of the prince that shall come shall destroy
+the city and the sanctuary; and the end thereof shall be with a flood, and
+unto the end of the war desolations are determined.) Notice Daniel 9:26
+says the Messiah would be cut off, but not for himself. This shows that
+Jesus died for our sins not for his as he was sinless. Messiah means
+anointed one and Jesus was publicly anointed as the Messiah by the Holy
+Ghost at his baptism which started his ministry. (Matthew 3:16 And Jesus,
+when he was baptized, went up straightway out of the water: and, lo, the
+heavens were opened unto him, and he saw the Spirit of God descending like
+a dove, and lighting upon him:) (Luke 3:22 And the Holy Ghost descended in
+a bodily shape like a dove upon him, and a voice came from heaven, which
+said, Thou art my beloved Son; in thee I am well pleased.) Luke says Jesus
+was about 30 years old when he began his ministry. (Luke 3:23 And Jesus
+himself began to be about thirty years of age, being (as was supposed) the
+son of Joseph, which was the son of Heli,) A Levite male had to be thirty
+years old before he could become a priest and Jesus is our High Priest.
+(Numbers 4:3 From thirty years old and upward even until fifty years old,
+all that enter into the host, to do the work in the tabernacle of the
+congregation.) (Hebrews 3:1 Wherefore, holy brethren, partakers of the
+heavenly calling, consider the Apostle and High Priest of our profession,
+Christ Jesus;) Jesus died on passover 3 ½ years after he started his
+ministry just after his baptism. If you go back 3 ½ years to his baptism,
+then his baptism was on the feast of tabernacles and the thirty years
+before that his birth on the feast of tabernacles. Every major event in
+the life of Jesus in his first coming was on a Jewish feast so his
+conception and birth would have been as well rather than on Christmas.
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+Since I have shown that Jesus was born in the fall on the feast of
+tabernacles and not on Christmas on December 25, many Christians ask
+should Christians celebrate Christmas. Some Christians have started
+celebrating the birth of Jesus on the feast of tabernacles rather than on
+Christmas. Scripture never tells us to celebrate the birth of Jesus and
+there is no evidence any of the apostles or disciples of Jesus did, so if
+a Christian chooses not to they are not required to do so.
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+The origin of Christmas comes from pagan traditions. Christmas was
+made Christian by the Roman Catholic Church to attract the heathen. The
+Roman Catholic Church changed the pagan holiday Saturnia for the false
+Roman god Saturn to Christmas supposedly to celebrate his birth. Christmas
+means "Christ's Mass" with Mass meaning death not birth showing how the
+Roman Catholic Church really feels about Jesus. The Roman Catholic Church
+often took a heathen thing and renamed it for some Christian purpose in
+order to get the heathen to convert to Roman Catholicism. The Catholic
+Dictionary admits that December 25 was chosen to replace the pagan winter
+festival to the sun. Saturnia was in celebration of the supposed rebirth
+of the sun after the recent winter solstice, the shortest day of the year
+which was believed to be the death of the sun. It is also adapted from the
+Yule holiday celebrated on the winter solstice. The origin of Christmas
+really goes back even further to the Babylonians. The Christmas tree is
+also from Babylonian origins. The Babylonians believed an evergreen tree
+sprang out of a dead tree stump. The stump of the tree represented the
+dead Nimrod and the new evergreen tree symbolized that Nimrod came back to
+life as Tammuz. The Romans decorated fir trees with red berries for
+Saturnia. The Egyptians and others also had similar trees decorated with
+the Egyptians using the palm tree instead of evergreen trees and the
+Druids the oak tree. The Romans decorated their trees with metal fertility
+balls in honor of their fertility god Bacchus to represent male testicles
+and placed twelve candles on the tree for their sun god Sol. Jeremiah
+10:3-4 may speak of these heathen customs of the tree, especially the
+Egyptians which the Israelites would know as it mentions the palm tree.
+(Jeremiah 10:2-5 Thus saith the LORD, Learn not the way of the heathen,
+and be not dismayed at the signs of heaven; for the heathen are dismayed
+at them.
+3 For the customs of the people are vain: for one cutteth a tree out of
+the forest, the work of the hands of the workman, with the axe.
+4 They deck it with silver and with gold; they fasten it with nails and
+with hammers, that it move not.
+5 They are upright as the palm tree, but speak not: they must needs be
+borne, because they cannot go. Be not afraid of them; for they cannot do
+evil, neither also is it in them to do good.) Santa Claus and everything
+associated with Christmas is of pagan origin with Santa being Satan.
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+An interesting side note is the history of the candy cane. There are
+many stories and no one knows for sure which is correct. One story says an
+Indiana candy maker wanted a candy to represent Jesus to children as a
+witness. He supposedly made the candy cane with white and red stripes, the
+traditional candy cane we have today. The white was to represent the
+virgin birth of Jesus as well as his perfect sinless life who became our
+Saviour. The red stripes represent the shed blood of Jesus from his
+beatings and for our sins on the cross. The hardness of the candy cane
+represents Jesus as the solid Rock that our foundation is based upon as
+well as security of the church and security of our salvation. (Deuteronomy
+32:4 He is the Rock, his work is perfect: for all his ways are judgment: a
+God of truth and without iniquity, just and right is he.) (Deuteronomy
+32:15 ¶ But Jeshurun waxed fat, and kicked: thou art waxen fat, thou art
+grown thick, thou art covered with fatness; then he forsook God which made
+him, and lightly esteemed the Rock of his salvation.) The shape represents
+the "J" of the name Jesus as well as being in the shape of a shepherd's
+hook representing Jesus as the chief Shepherd and Shepherd of our souls.
+(I Peter 5:4 And when the chief Shepherd shall appear, ye shall receive a
+crown of glory that fadeth not away.) (I Peter 2:25 For ye were as sheep
+going astray; but are now returned unto the Shepherd and Bishop of your
+souls.) This is why the angels appeared to the shepherds first. This story
+may not be true, but I do believe we can use the candy cane in its
+original colors and flavor of peppermint as a way to teach children about
+Jesus.   
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
-
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
-
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Christmas is not the physical birth of Jesus though it is possible he
+was conceived on Christmas. I mentioned how Jesus was conceived on
+Hanukkah, but sometimes on rare occasions Christmas will fall during the
+time of Hanukkah and it could be Jesus was conceived on that day. Jesus
+would know that people would later celebrate his birth and it is possible
+that on the year of his birth the days were shared so Jesus could take
+Christmas from the heathen. Christians can celebrate Christmas if they
+want or they can choose not to as some Christians do. We are never
+commanded to do so. It is nice to have a day to celebrate the birth of
+Jesus as the God-man. If a Christian does celebrate it, keep the secular
+part out including secular decorations and music and anything to do with
+the satanic Santa Claus. The wise men gave gifts to Jesus, not each other.
+If you want to give gifts give them to Jesus since it is supposed to be
+his birthday, not ours and do not get carried away in your spending. Let
+us remember Jesus in Christmas, but remember he was really conceived on
+Hanukkah and born on the feast of tabernacles and there true meanings.
+Maybe we Christians should really be celebrating the birth of Jesus on
+Hanukkah since life begins at conception not birth. If Christians are
+going to celebrate Christmas let us remember we celebrate it for Jesus, so
+let us use this time of year when people are more open to hear the gospel
+to witness for Jesus and tell others about Jesus and his birth in
+Bethlehem so that he could later die for our sins. Let us win the lost at
+Christmas and take Christmas from Satan.      
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +537,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

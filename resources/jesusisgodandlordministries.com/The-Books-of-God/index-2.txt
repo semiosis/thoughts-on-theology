@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,565 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+The Books of God
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Most people do not realize that God has his own library full of books
+and that he is an author of many books. As an author God brings order
+whereas Satan is the author of confusion. (I Corinthians 14:33 For God is
+not the author of confusion, but of peace, as in all churches of the
+saints.) God also told others to write books such as Adam. God apparently
+had Adam write this book of his genealogy and other historical facts about
+creation that Moses used to write Genesis 1-11. (Genesis 5:1 This is the
+book of the generations of Adam. In the day that God created man, in the
+likeness of God made he him;) God also had Moses write a book that
+contained the events in his victory over Amelek as God gave the Israelites
+victory. This book contains the story of how Aaron and Hur held up the
+hands of Moses giving victory to Joshua. (Exodus 17:11-14 11 And it came
+to pass, when Moses held up his hand, that Israel prevailed: and when he
+let down his hand, Amalek prevailed.
+12 But Moses' hands were heavy; and they took a stone, and put it under
+him, and he sat thereon; and Aaron and Hur stayed up his hands, the one on
+the one side, and the other on the other side; and his hands were steady
+until the going down of the sun.
+13 And Joshua discomfited Amalek and his people with the edge of the
+sword.
+14 And the LORD said unto Moses, Write this for a memorial in a book, and
+rehearse it in the ears of Joshua: for I will utterly put out the
+remembrance of Amalek from under heaven.) God did not want the Israelites
+to forget this victory that God gave them over the Amalekites which were
+giants. God also told the Israelite priests to write curses dealing with
+the law of jealousies in a book. (Numbers 5:23 And the priest shall write
+these curses in a book, and he shall blot them out with the bitter water:)
+God had many prophets write books that are not in scripture. (I Chronicles
+29:29 Now the acts of David the king, first and last, behold, they are
+written in the book of Samuel the seer, and in the book of Nathan the
+prophet, and in the book of Gad the seer,) God also used over forty men to
+write 66 individual books which became one book. God calls this book the
+book of the LORD in Isaiah 34:16. (Isaiah 34:16 ¶ Seek ye out of the book
+of the LORD, and read: no one of these shall fail, none shall want her
+mate: for my mouth it hath commanded, and his spirit it hath gathered
+them.) This book of course is the holy scriptures which contain the words
+of God which God says to read. It is these books that God reveals to us
+his Son Jesus Christ so that we might be saved. Remember that God is the
+author of scripture, specifically the Holy Ghost, but he used holy men to
+write it down for us. (II Timothy 3:16-17 16 All scripture is given by
+inspiration of God, and is profitable for doctrine, for reproof, for
+correction, for instruction in righteousness:
+17 That the man of God may be perfect, throughly furnished unto all good
+works.) (II Peter 1:21 For the prophecy came not in old time by the will
+of man: but holy men of God spake as they were moved by the Holy Ghost.)
+Scripture was written for one purpose and that is to show that all of us
+are sinners and to point us to the only one who can redeem us from that
+sin. That person is the Lord Jesus Christ who is found in this book on
+every page. (Psalm 40:7 Then said I, Lo, I come: in the volume of the book
+it is written of me,) (Hebrews 10:7 Then said I, Lo, I come (in the volume
+of the book it is written of me,) to do thy will, O God.) Jesus of course
+wrote the ten commandments or the law which God also has a copy in heaven.
+(Deuteronomy 10:4 And he wrote on the tables, according to the first
+writing, the ten commandments, which the LORD spake unto you in the mount
+out of the midst of the fire in the day of the assembly: and the LORD gave
+them unto me.) In this study we are going to look at some of God's many
+books.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+God has a book of the wars of the LORD which contains the wars God
+fought against Satan. God has fought many wars. One of those wars was
+God's war against Egypt in refusing to let his chosen people, the
+Israelites, go. This book speaks of the miracle that God did at the Red
+sea in allowing the people to cross the sea on dry ground and killed all
+of the Egyptians. This book also tells of what God did for the Israelites
+in the brooks of Arnon and at the stream of the brooks that goeth down to
+the dwelling of Ar, and lieth upon the border of Moab. (Numbers 21:14-15
+14 Wherefore it is said in the book of the wars of the LORD, What he did
+in the Red sea, and in the brooks of Arnon,
+15 And at the stream of the brooks that goeth down to the dwelling of Ar,
+and lieth upon the border of Moab.) The brooks of Arnon seems to be
+speaking of Israel's victory over the Ammonites with God's help. If it
+refers to an earlier event then it does not seem to be recorded in
+scripture. This event and the next actually seem future to the time it was
+written in the book, but to God the future has already happened so he can
+write the victory in his book. The brooks that goeth down to the dwelling
+of Ar seems to speak of the fire that consumed Ar. (Numbers 21:28 For
+there is a fire gone out of Heshbon, a flame from the city of Sihon: it
+hath consumed Ar of Moab, and the lords of the high places of Arnon.) All
+of Israel's battles are written in this book of the wars of the LORD. This
+would include all of the modern wars that Israel has fought as well as her
+battles in the coming tribulation against the antichrist. More than likely
+it may include all wars and certainly the spiritual wars that saved people
+fight against Satan. There are many wars in this book.
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+God gave the book of the law which is the laws he gave to Moses and
+this was to be kept in the side of the ark of the covenant. (Deuteronomy
+31:26 Take this book of the law, and put it in the side of the ark of the
+covenant of the LORD your God, that it may be there for a witness against
+thee.) The book of the law was read by Joshua to the people. (Joshua 8:34
+And afterward he read all the words of the law, the blessings and
+cursings, according to all that is written in the book of the law.) The
+book of the law seems to also be called the book of the covenant. Some
+people say it is a different book, but II Chronicles 34:14-33 seems to
+show they are the same book. (II Chronicles 34:30 And the king went up
+into the house of the LORD, and all the men of Judah, and the inhabitants
+of Jerusalem, and the priests, and the Levites, and all the people, great
+and small: and he read in their ears all the words of
+the book of the covenant that was found in the house of the LORD.) I
+believe this may be because the Mosaic laws were only for the Jews and
+were never for the Gentiles or Christians and God made a covenant with
+Israel his chosen people, not the Gentiles and the two names shows the
+connection of the laws being for his covenanted people the Jews. One other
+name for it is the book of Moses since God used Moses to write the book,
+though it was the words of God. (Nehemiah 13:1 On that day they read in
+the book of Moses in the audience of the people; and therein was found
+written, that the Ammonite and the Moabite should not come into the
+congregation of God for ever;)
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+God has a book of tears. (Psalm 56:8 Thou tellest my wanderings: put
+thou my tears into thy bottle: are they not in thy book?) God keeps a
+bottle and a book that contains our tears. The book may contain the
+bottles of tears for each of us or give a description of the events that
+caused the tears. Of course those tears we have shed over our sins in
+repentance will be there, but it seems also all of our tears, but at least
+those we have shed over the unsaved and for our brothers and sisters in
+Christ who are being persecuted and suffered for Jesus Christ. God
+remembers our sorrows and sufferings when he sees our tears in his book.
+The book also contains those tears shed for fellow believers and their
+physical and spiritual health issues. One day this book will be complete
+as their will be no more tears so there will be none for God to put in the
+book. (Revelation 21:4 And God shall wipe away all tears from their eyes;
+and there shall be no more death, neither sorrow, nor crying, neither
+shall there be any more pain: for the former things are passed away.) This
+of course will happen when God creates the new heavens and the new earth.
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+God has a book of all of our members. (Psalm 139:16 Thine eyes did
+see my substance, yet being unperfect; and in thy book all my members were
+written, which in continuance were fashioned, when as yet there was none
+of them.) This book was written even before we were born. This book
+contains all of the members of our bodies which means the book contains
+all of our DNA code written down. DNA is in not only people, but also
+animals, and plants, and angels. All living things whether in the physical
+world or the spiritual world contain DNA. Plants are not scripturally
+considered living, but they do still have DNA as they eat, grow, and
+reproduce just like living things. For those Christians who have had their
+bodies destroyed by whatever means such as by fire, nuclear blast, eaten
+by animals, sucked into an airplane's jet engine, or whatever the means,
+there is no worry that your body will not be resurrected as God still has
+the written instructions to your DNA to reproduce you again. This book
+seems to contain all DNA instructions for everyone, but it is possible
+that each person has their own book, though I think it is one large book
+that contains all DNA from the beginning of creation until the end. Think
+about how God had already written the instructions for your DNA down in
+his book before you were even created. This shows the power of God and his
+awesomeness. DNA is the blueprint for everything and shows that God is all
+powerful and is real as DNA could never have evolved. The DNA written in
+this book is what is encoded in the mother's womb to form a baby. This
+book contains the parts of every person who has ever been conceived
+showing that it is a living person in the womb despite what abortionists
+believe. That dismembered aborted baby has all of its members written here
+in God's book and God will put them all back together again at the
+resurrection.
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+God has a book of remembrance for all of those who fear the LORD and
+think upon his name. (Malachi 3:16 ¶ Then they that feared the LORD spake
+often one to another: and the LORD hearkened, and heard it, and a book of
+remembrance was written before him for them that feared the LORD, and that
+thought upon his name.) It seems that this book is not just for the Jewish
+people who thought that God did not notice or care what they were doing
+for them, but is for all people who fear God and think upon his name and
+this would include Christians as well. Jesus seemed to confirm this in his
+teachings. People do not need to fear that God does not notice what they
+do for him since he has it written down in a book as a reminder. Remember
+that God as omniscient does not need books to remember who has feared him,
+or when a person cried over their sins, or a book to rebuild a person's
+DNA, but he has them as proof against us who do not remember and as a way
+to comfort us that God does remember and has everything written down. Just
+as earthly kings wrote things down in their chronicles in relation to a
+person doing good for the king, so does God. Earthly kings did not always
+reward a person at that time such as Mordecai, but with it written down
+then they would in the future get their reward. That is how God does. It
+may seem that you are forgotten by God now, but the day will come when he
+will pull out the book of remembrance and reward you for what is written
+in it. We all need to learn to fear the LORD and think upon his name so
+that we too may be written in the book of remembrance. The fear of the
+LORD is the beginning of wisdom and prolongeth life. (Proverbs 9:10
+The fear of the LORD is the beginning of wisdom: and the knowledge of the
+holy is understanding.) (Proverbs 10:27 The fear of the LORD prolongeth
+days: but the years of the wicked shall be shortened.)   
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+God has an unnamed book in Revelation that I call the book of
+judgments as this book which is sealed right now with seven seals contains
+the twenty one judgments that God will bring upon the earth during the
+seven year tribulation. These are the seven seal judgments, the seven
+trumpet judgments, and the seven vial judgments. Only Jesus is worthy
+enough to open this book. This is a book that God keeps sealed because he
+wishes it was never opened and read as it brings wrath upon the earth
+which God wishes he never had to do as he wishes for all to be saved and
+if they were then he could leave this book sealed. This book is related to
+the Lamb's book of life in that the judgments in this book are because the
+people's names on earth are not found in that book so God as a righteous
+judge must open this book. (Revelation 5:1-9 1 And I saw in the right hand
+of him that sat on the throne a book written within and on the backside,
+sealed with seven seals.
+2 And I saw a strong angel proclaiming with a loud voice, Who is worthy to
+open the book, and to loose the seals thereof?
+3 And no man in heaven, nor in earth, neither under the earth, was able to
+open the book, neither to look thereon.
+4 And I wept much, because no man was found worthy to open and to read
+the book, neither to look thereon.
+5 And one of the elders saith unto me, Weep not: behold, the Lion of the
+tribe of Juda, the Root of David, hath prevailed to open the book, and to
+loose the seven seals thereof.
+6 And I beheld, and, lo, in the midst of the throne and of the four
+beasts, and in the midst of the elders, stood a Lamb as it had been slain,
+having seven horns and seven eyes, which are the seven Spirits of God sent
+forth into all the earth.
+7 And he came and took the book out of the right hand of him that sat upon
+the throne.
+8 And when he had taken the book, the four beasts and four and twenty
+elders fell down before the Lamb, having every one of them harps, and
+golden vials full of odours, which are the prayers of saints.
+9 And they sung a new song, saying, Thou art worthy to take the book, and
+to open the seals thereof: for thou wast slain, and hast redeemed us to
+God by thy blood out of every kindred, and tongue, and people, and
+nation;) Maybe God will be able to remove this book from his library after
+the tribulation.
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+God has the book of life. This book contains the names of every
+person who has ever been conceived or will be conceived. This book is
+related to the Lamb's book of life, but is not the same. God will use
+these two books when people stand before him. Whether a person's name is
+found in them will determine whether they spend eternity in heaven or the
+lake of fire. A person's name has been written in here before the
+foundation of the earth as God knew you would be conceived long before you
+ever were. (Revelation 17:8 The beast that thou sawest was, and is not;
+and shall ascend out of the bottomless pit, and go into perdition: and
+they that dwell on the earth shall wonder, whose names were not written in
+the book of life from the foundation of the world, when they behold the
+beast that was, and is not, and yet is.) Notice that a person's name is
+written in the book of life whether they were born or not. All babies who
+have died in the womb whether from abortion or some medical condition
+still have their names written in the book of life even though they were
+never born. When a person dies in their sins as an unsaved person then
+their name is blotted out of the book of life. To blot out means to
+remove, erase, or destroy the name from the book. If a person's name is
+blotted out from the book of life then they will spend eternity in the
+lake of fire. (Revelation 20:15 And whosoever was not found written in
+the book of life was cast into the lake of fire.)
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+God also has the Lamb's book of life which is also known as the book
+of life of the Lamb. (Revelation 13:8 And all that dwell upon the earth
+shall worship him, whose names are not written in the book of life of the
+Lamb slain from the foundation of the world.) The Lamb of course is Jesus
+as shown in John 1:29. (John 1:29 ¶ The next day John seeth Jesus coming
+unto him, and saith, Behold the Lamb of God, which taketh away the sin of
+the world.) The Lamb's book of life is the most important book that God
+has. It contains all of the names of those who have been reborn and saved
+by being washed in the blood of the Lamb or Jesus. Everyone in this book
+will go to heaven when they die or are raptured. A person cannot have
+their name blotted out of the Lamb's book of life as salvation is eternal
+and cannot be lost. God in his omniscience knew who would receive Jesus as
+their Saviour before the foundation of the world and thus that person's
+name was written in this book long before they were born let alone before
+they were reborn. Saved people also have their names written in the book
+of life as all people who have ever lived. The saved person does not have
+their name blotted out of the book of life when they die, only the unsaved
+do. As the last of the unsaved die and their name is blotted out of the
+book of life this will leave the book of life only with the names of saved
+people. At this point the names in the book of life and the Lamb's book of
+life will match. This is why the book of life is often used almost
+synonymous with the Lamb's book of life because God sees the completed
+books that match in names. When the unsaved people stand before God at the
+great white throne judgment then God will open the books referring to
+these books. Notice it is plural. Many may claim they were good people and
+cast out devils in his name and deserve to go to heaven, but God will open
+the books to see if their names are written in them. (Matthew 7:22-23 22
+Many will say to me in that day, Lord, Lord, have we not prophesied in thy
+name? and in thy name have cast out devils? and in thy name done many
+wonderful works?
+23 And then will I profess unto them, I never knew you: depart from me, ye
+that work iniquity.) God uses these books to condemn the people against
+their own words. Daniel also spoke of there being plural books as he is
+speaking of the book of life and the Lamb's book of life and the judgment
+of the unsaved at the great white throne judgment. (Daniel 7:10 A fiery
+stream issued and came forth from before him: thousand thousands
+ministered unto him, and ten thousand times ten thousand stood before him:
+the judgment was set, and the books were opened.) God may use other books
+besides these. All of those at the great white throne judgment will not
+find their names written in the book of life. God will tell them that
+their names are not found and they will be cast into the lake of fire for
+all eternity. You do not want to be at this judgment and have your name
+blotted out of the book of life. Once it is blotted out then it can never
+be added again. The greatest decision that a person can make is to choose
+life by choosing Jesus as their Saviour. Jesus told his disciples not to
+rejoice in the fact that God allowed them to cast out devils, but rather
+that their names were written in heaven. (Luke 10:20 Notwithstanding in
+this rejoice not, that the spirits are subject unto you; but rather
+rejoice, because your names are written in heaven.) This refers to being
+written in the Lamb's book of life. This is the only book that matters and
+we all need to make sure our names are in it. The only way to be saved and
+to ensure that your name is written in the Lamb's book of life is to
+repent and admit that you are a sinner and believe that Jesus as God took
+your place on the cross, died and shed his blood for you in order to wash
+away your sins, he was buried, and rose again victoriously from that grave
+on the third day and now sits on the right hand of God. If you truly
+believe that Jesus is the only Saviour and call upon him to save you then
+your name will be written in the Lamb's book of life. We are told that
+Jesus is the author of our salvation. Jesus loved us so much that he was
+willing to take our place on the cross and die for us so that we might
+have salvation. Jesus bore the sins of the world so that all could have
+salvation for those who accept the free gift of salvation. (Hebrews 5:9
+And being made perfect, he became the author of eternal salvation unto all
+them that obey him;) We are also told that Jesus is the author and
+finisher of our faith. We must have faith in order to be saved, but it is
+only by God's grace that he allows us to have that faith which will then
+save us because of God's grace. Jesus is the one who gives us our faith so
+that by God's grace we can be saved. This makes sense since Jesus is the
+author of our salvation which comes by his grace through the faith that he
+gives us to believe and trust in him. (Hebrews 12:2 Looking unto Jesus the
+author and finisher of our faith; who for the joy that was set before him
+endured the cross, despising the shame, and is set down at the right hand
+of the throne of God.) [Ephesians 2:5 Even when we were dead in sins, hath
+quickened us together with Christ, (by grace ye are saved;)] (Ephesians
+2:8 For by grace are ye saved through faith; and that not of yourselves:
+it is the gift of God:) The Lamb's book of life is given the name book of
+the living in Psalm 69:28. (Psalm 69:28 Let them be blotted out of the
+book of the living, and not be written with the righteous.) The book is
+called the book of the living because only those who are spiritually born
+again are considered living by God. The unsaved are all spiritually dead
+and will see a second death besides the physical death. As this verse
+shows only the righteous will be in the book. The only way a person can
+become righteous is by being washed in the blood of Jesus who will wash
+away our sins and make them as white as snow. (Isaiah 1:18 Come now, and
+let us reason together, saith the LORD: though your sins be as scarlet,
+they shall be as white as snow; though they be red like crimson, they
+shall be as wool.) I believe God has a book that has written down all of
+the things we have said and have done and this book will also be brought
+out at the great white throne judgment and at the judgment seat of Christ
+which is for believers. The book will be used to condemn the unsaved as
+they will claim they did good works, but God will show that you can never
+do enough good works to earn salvation. The book will be used against
+believers, not for salvation, but for crowns and rewards to see if they
+burn up or will survive the fire. (I Corinthians 3:11-15 11 For other
+foundation can no man lay than that is laid, which is Jesus Christ.
+12 Now if any man build upon this foundation gold, silver, precious
+stones, wood, hay, stubble;
+13 Every man's work shall be made manifest: for the day shall declare it,
+because it shall be revealed by fire; and the fire shall try every man's
+work of what sort it is.
+14 If any man's work abide which he hath built thereupon, he shall receive
+a reward.
+15 If any man's work shall be burned, he shall suffer loss: but he himself
+shall be saved; yet so as by fire.) Only works done for Jesus will survive
+the fire. (Romans 14:10 But why dost thou judge thy brother? or why dost
+thou set at nought thy brother? for we shall all stand before the judgment
+seat of Christ.) (II Corinthians 5:10 For we must all appear before the
+judgment seat of Christ; that every one may receive the things done in his
+body, according to that he hath done, whether it be good or bad.) Isaiah
+warned the people to repent of their sins by reading what was written down
+in the book of the LORD which appears to have been a book God commanded
+Isaiah to write down that contained the sins of the people that would be
+used as a witness against them forever. (Isaiah 30:8 ¶ Now go, write it
+before them in a table, and note it in a book, that it may be for the time
+to come for ever and ever:) (Isaiah 34:16 ¶ Seek ye out of the book of the
+LORD, and read: no one of these shall fail, none shall want her mate: for
+my mouth it hath commanded, and his spirit it hath gathered them.) Let
+this be a lesson for us. Just as God has a book as a witness against the
+Jews of Isaiah's day, God also has a book as a witness against us. Think
+about this the next time you are thinking about sinning as it will be
+written in God's book to be used as a witness against you. This book
+should motivate you to get saved if you are not already so that you can
+ensure that your name is written in the Lamb's book of life and for those
+who are saved to live for God.
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+We have seen that God is quite the author of many books and has a
+large library. People often do not realize that God is an author or has a
+library, but we have shown how God's books are because he loves everyone
+and wishes that none should perish. God's books are so that we might be
+brought to his Son Jesus and be saved. They are also a reminder for God of
+our tears, his victories in his war with Satan, and as a witness against
+each of us as we stand before God on judgment day. We all need to
+understand that the one book we need to be written in is the Lamb's book
+of life if we want to one day live forever with God. I myself am an
+author, but God is the greatest author of all time and there is no
+comparison. Remember that God has a book for everything and that he cares
+about you and loves you and wants everyone to have their name in the
+Lamb's book of life which is his most important book. Pray today for life
+to ensure your name is written in that book.    
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +586,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

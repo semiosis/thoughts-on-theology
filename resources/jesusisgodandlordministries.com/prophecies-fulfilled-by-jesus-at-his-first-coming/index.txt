@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,641 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Prophecies Fulfilled by Jesus at his First Coming
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+It is estimated there are over 300 prophecies (some say 365)
+fulfilled by Jesus at his first coming. We will discuss a small select
+amount and show that only Jesus could fulfill the role and be the Jewish
+Messiah. It also shows he is God.
 
-Username or email _____________________
+The first prophecy mentioned in scripture of Jesus's first coming is
+in Genesis 3:15. It shows he would be of the seed of the woman. Normally
+the man provides the seed.
 
-Reset password
+Isaiah 53 is known as the Messianic prophecy chapter and is not read
+by the Jews since they know it refers to Jesus. Isaiah 52:13-15 should be
+read with that chapter. Psalm 22 is known as the Messianic Psalm.
+
+Over three times as many prophecies will be fulfilled at the second
+coming of Jesus, which will be soon. We know Jesus literally fulfilled all
+of the prophecies of his first coming, therefore we can have comfort
+knowing that Jesus will literally fulfill all of the prophecies of his
+second coming.
+
+(Many have other verses that also predict and/or fulfill the prophecies.)
+
+Seed of a woman: (Genesis 3:15 And I will put enmity between thee and the
+woman, and between thy seed and her seed; it shall bruise thy head, and
+thou shalt bruise his heel.) Fulfilled: (Galatians 4:4 But when the
+fulness of the time was come, God sent forth his Son, made of a woman,
+made under the law,)
+
+From the tribe of Judah: (Genesis 49:10 The sceptre shall not depart from
+Judah, nor a lawgiver from between his feet, until Shiloh come; and unto
+him shall the gathering of the people be.) Fulfilled: Genealogy of Jesus
+(Luke 3:33 Which was the son of Aminadab, which was the son of Aram, which
+was the son of Esrom, which was the son of Phares, which was the son of
+Juda,)
+
+Born in Bethlehem: (Micah 5:2 But thou, Beth-lehem Ephratah, though thou
+be little among the thousands of Judah, yet out of thee shall he come
+forth unto me that is to be ruler in Israel; whose goings forth have been
+from of old, from everlasting.) Fulfilled: (Luke 2:4 And Joseph also went
+up from Galilee, out of the city of Nazareth, into Judaea, unto the city
+of David, which is called Bethlehem; (because he was of the house and
+lineage of David:) (Luke 2:7 And she brought forth her firstborn son, and
+wrapped him in swaddling clothes, and laid him in a manger; because there
+was no room for them in the inn.)
+
+Be born of a virgin: (Isaiah 7:14 Therefore the Lord himself shall give
+you a sign; Behold, a virgin shall conceive, and bear a son, and shall
+call his name Immanuel.) Fulfilled: (Luke 1:27 To a virgin espoused to a
+man whose name was Joseph, of the house of David; and the virgin's name
+was Mary.) (Luke 1:31 And, behold, thou shalt conceive in thy womb, and
+bring forth a son, and shalt call his name JESUS.)
+
+Jesus will be declared the Son of God: (Psalm 2:7 I will declare the
+decree: the LORD hath said unto me, Thou art my Son; this day have I
+begotten thee.) Fulfilled: (Matthew 3:17 And lo a voice from heaven,
+saying, This is my beloved Son, in whom I am well pleased.)
+
+Jesus would be the Prophet like unto Moses: Moses talking to the people.
+(Deuteronomy 18:15 ¶ The LORD thy God will raise up unto thee a Prophet
+from the midst of thee, of thy brethren, like unto me; unto him ye shall
+hearken;) Fulfilled: (Acts 3:20 And he shall send Jesus Christ, which
+before was preached unto you:) (Acts 3:22 For Moses truly said unto the
+fathers, A prophet shall the Lord your God raise up unto you of your
+brethren, like unto me; him shall ye hear in all things whatsoever he
+shall say unto you.)
+
+Jesus would speak in parables: (Psalm 78:2 I will open my mouth in a
+parable: I will utter dark sayings of old:) (Matthew 13:34 All these
+things spake Jesus unto the multitude in parables; and without a parable
+spake he not unto them:)
+
+Priest after the order of Melchizedek: (Psalm 110:4 The LORD hath sworn,
+and will not repent, Thou art a priest for ever after the order of
+Melchizedek.) Fulfilled: (Hebrews 7:21-22 (For those priests were made
+without an oath; but this with an oath by him that said unto him, The Lord
+sware and will not repent, Thou art a priest for ever after the order of
+Melchisedec:)
+22 By so much was Jesus made a surety of a better testament.)
+
+Betrayed by a close friend: This speaks of Judas Iscariot. (Psalm 41:9
+Yea, mine own familiar friend, in whom I trusted, which did eat of my
+bread, hath lifted up his heel against me.) Fulfilled: (Matthew 26:47-50 ¶
+And while he yet spake, lo, Judas, one of the twelve, came, and with him a
+great multitude with swords and staves, from the chief priests and elders
+of the people.
+48 Now he that betrayed him gave them a sign, saying, Whomsoever I shall
+kiss, that same is he: hold him fast.
+49 And forthwith he came to Jesus, and said, Hail, master; and kissed him.
+50 And Jesus said unto him, Friend, wherefore art thou come? Then came
+they, and laid hands on Jesus, and took him.)
+
+Betrayed for thirty pieces of silver: (Zechariah 11:12 And I said unto
+them, If ye think good, give me my price; and if not, forbear. So they
+weighed for my price thirty pieces of silver.) Fulfilled: Speaking of
+Judas Iscariot. (Matthew 26:15 And said unto them, What will ye give me,
+and I will deliver him unto you? And they covenanted with him for thirty
+pieces of silver.)
+
+Jesus was silent to accusations: (Isaiah 53:7 He was oppressed, and he was
+afflicted, yet he opened not his mouth: he is brought as a lamb to the
+slaughter, and as a sheep before her shearers is dumb, so he openeth not
+his mouth.) (Mark 15:4-5 And Pilate asked him again, saying, Answerest
+thou nothing? behold how many things they witness against thee.
+5 But Jesus yet answered nothing; so that Pilate marvelled.)
+
+Hated without a cause: (Psalm 35:19 Let not them that are mine enemies
+wrongfully rejoice over me: neither let them wink with the eye that hate
+me without a cause.) Fulfilled: Jesus speaking. (John 15:24-25 If I had
+not done among them the works which none other man did, they had not had
+sin: but now have they both seen and hated both me and my Father.
+25 But this cometh to pass, that the word might be fulfilled that is
+written in their law, They hated me without a cause.)
+
+No bones broken: (Psalm 34:20 He keepeth all his bones: not one of them is
+broken.) Fulfilled: (John 19:32 But when they came to Jesus, and saw that
+he was dead already, they brake not his legs:) (John 19:36 For these
+things were done, that the scripture should be fulfilled, A bone of him
+shall not be broken.)
+
+His side pierced: (Zechariah 12:10 And I will pour upon the house of
+David, and upon the inhabitants of Jerusalem, the spirit of grace and of
+supplications: and they shall look upon me whom they have pierced, and
+they shall mourn for him, as one mourneth for his only son, and shall be
+in bitterness for him, as one that is in bitterness for his firstborn.)
+Fulfilled: (John 19:34 But one of the soldiers with a spear pierced his
+side, and forthwith came there out blood and water.)
+
+Buried with the rich: (Isaiah 53:9 And he made his grave with the wicked,
+and with the rich in his death; because he had done no violence, neither
+was any deceit in his mouth.) Fulfilled: (Matthew 27:57-60 When the even
+was come, there came a rich man of Arimathaea, named Joseph, who also
+himself was Jesus' disciple:
+58 He went to Pilate, and begged the body of Jesus. Then Pilate commanded
+the body to be delivered.
+59 And when Joseph had taken the body, he wrapped it in a clean linen
+cloth,
+60 And laid it in his own new tomb, which he had hewn out in the rock: and
+he rolled a great stone to the door of the sepulchre, and departed.)
+
+Crucified with malefactors [a criminal subject to public execution]:
+(Isaiah 53:12 Therefore will I divide him a portion with the great, and he
+shall divide the spoil with the strong; because he hath poured out his
+soul unto death: and he was numbered with the transgressors; and he bare
+the sin of many, and made intercession for the transgressors.) Fulfilled:
+(Mark 15:27-28 And with him they crucify two thieves; the one on his right
+hand, and the other on his left.
+28 And the scripture was fulfilled, which saith, And he was numbered with
+the transgressors.)
+
+Hands and feet would be pierced: (Psalm 22:16 For dogs have compassed me:
+the assembly of the wicked have inclosed me: they pierced my hands and my
+feet.) Fulfilled: (John 20:20 And when he had so said, he shewed unto them
+his hands and his side. Then were the disciples glad, when they saw the
+Lord.)
+
+Jesus would sit at the right hand of God the Father: (Psalm 110:1 The LORD
+said unto my Lord, Sit thou at my right hand, until I make thine enemies
+thy footstool.) Fulfilled: (Hebrews 12:2 Looking unto Jesus the author and
+finisher of our faith; who for the joy that was set before him endured the
+cross, despising the shame, and is set down at the right hand of the
+throne of God.)
+
+Be Forsaken by God: (Psalm 22:1 My God, my God, why hast thou forsaken me?
+why art thou so far from helping me, and from the words of my roaring?)
+Fulfilled: (Matthew 27:46 And about the ninth hour Jesus cried with a loud
+voice, saying, Eli, Eli, lama sabachthani? that is to say, My God, my God,
+why hast thou forsaken me?)
+
+Given vinegar to drink: (Psalm 69:21 They gave me also gall for my meat;
+and in my thirst they gave me vinegar to drink.) Fulfilled: (John 19:30
+When Jesus therefore had received the vinegar, he said, It is finished:
+and he bowed his head, and gave up the ghost.)
+
+Soldiers gamble for his garments: (Psalm 22:18 They part my garments among
+them, and cast lots upon my vesture.) Fulfilled: (Luke 23:34 ¶ Then said
+Jesus, Father, forgive them; for they know not what they do. And they
+parted his raiment, and cast lots.)
+
+Jesus prayed for his enemies: We need to follow his example. Even in death
+he asked God to forgive them. (Psalm 109:4 For my love they are my
+adversaries: but I give myself unto prayer.) Fulfilled: (Luke 23:34 ¶ Then
+said Jesus, Father, forgive them; for they know not what they do. And they
+parted his raiment, and cast lots.)
+
+Jesus as the Messiah would be rejected by his own people: (Isaiah 53:3 He
+is despised and rejected of men; a man of sorrows, and acquainted with
+grief: and we hid as it were our faces from him; he was despised, and we
+esteemed him not.) Fulfilled: (John 1:11 He came unto his own, and his own
+received him not.)
+
+Would be called Immanuel: (Isaiah 7:14 Therefore the Lord himself shall
+give you a sign; Behold, a virgin shall conceive, and bear a son, and
+shall call his name Immanuel.) Fulfilled: (Matthew 1:23 Behold, a virgin
+shall be with child, and shall bring forth a son, and they shall call his
+name Emmanuel, which being interpreted is, God with us.)
+
+Would be called a King: (Zechariah 9:9 ¶ Rejoice greatly, O daughter of
+Zion; shout, O daughter of Jerusalem: behold, thy King cometh unto thee:
+he is just, and having salvation; lowly, and riding upon an ass, and upon
+a colt the foal of an ass.) Fulfilled: (Matthew 27:37 And set up over his
+head his accusation written, THIS IS JESUS THE KING OF THE JEWS.)
+
+The throne of Jesus would be anointed and eternal: (Psalm 45:6 Thy throne,
+O God, is for ever and ever: the sceptre of thy kingdom is a right
+sceptre.) Fulfilled: (Luke 1:33 And he shall reign over the house of Jacob
+for ever; and of his kingdom there shall be no end.)
+
+Messiah was beaten and spat upon: (Isaiah 50:6 I gave my back to the
+smiters, and my cheeks to them that plucked off the hair: I hid not my
+face from shame and spitting.) Fulfilled: (Matthew 26:67 Then did they
+spit in his face, and buffeted him; and others smote him with the palms of
+their hands,)
+
+Messiah would come from the line of Abraham: (Genesis 12:3 And I will
+bless them that bless thee, and curse him that curseth thee: and in thee
+shall all families of the earth be blessed.) (Genesis 22:18 And in thy
+seed shall all the nations of the earth be blessed; because thou hast
+obeyed my voice.) Fulfilled: (Matthew 1:1 The book of the generation of
+Jesus Christ, the son of David, the son of Abraham.)
+
+Messiah would be a descendant of Isaac: (Genesis 17:19 And God said, Sarah
+thy wife shall bear thee a son indeed; and thou shalt call his name Isaac:
+and I will establish my covenant with him for an everlasting covenant, and
+with his seed after him.) (Genesis 21:12 ¶ And God said unto Abraham, Let
+it not be grievous in thy sight because of the lad, and because of thy
+bondwoman; in all that Sarah hath said unto thee, hearken unto her voice;
+for in Isaac shall thy seed be called.) (Luke 3:34 Which was the son of
+Jacob, which was the son of Isaac, which was the son of Abraham, which was
+the son of Thara, which was the son of Nachor,)
+
+Messiah would come from Jacob: (Numbers 24:17 I shall see him, but not
+now: I shall behold him, but not nigh: there shall come a Star out of
+Jacob, and a Sceptre shall rise out of Israel, and shall smite the corners
+of Moab, and destroy all the children of Sheth.) Fulfilled: (Luke 3:34
+Which was the son of Jacob, which was the son of Isaac, which was the son
+of Abraham, which was the son of Thara, which was the son of Nachor,)
+
+Messiah (Jesus) would not be believed: (Isaiah 53:1 Who hath believed our
+report? and to whom is the arm of the LORD revealed?) Fulfilled: (John
+12:37-38 37 ¶ But though he had done so many miracles before them, yet
+they believed not on him:
+38 That the saying of Esaias the prophet might be fulfilled, which he
+spake, Lord, who hath believed our report? and to whom hath the arm of the
+Lord been revealed?) Those who did not believe was Israel (The Jewish
+people).
+
+Messiah (Jesus) would make a triumphal entry into Jerusalem: (Zechariah
+9:9 ¶ Rejoice greatly, O daughter of Zion; shout, O daughter of Jerusalem:
+behold, thy King cometh unto thee: he is just, and having salvation;
+lowly, and riding upon an ass, and upon a colt the foal of an ass.)
+Fulfilled: (Matthew 21:4-11 All this was done, that it might be fulfilled
+which was spoken by the prophet, saying,
+5 Tell ye the daughter of Sion, Behold, thy King cometh unto thee, meek,
+and sitting upon an ass, and a colt the foal of an ass.
+6 And the disciples went, and did as Jesus commanded them,
+7 And brought the ass, and the colt, and put on them their clothes, and
+they set him thereon.
+8 And a very great multitude spread their garments in the way; others cut
+down branches from the trees, and strawed them in the way.
+9 And the multitudes that went before, and that followed, cried, saying,
+Hosanna to the Son of David: Blessed is he that cometh in the name of the
+Lord; Hosanna in the highest.
+10 And when he was come into Jerusalem, all the city was moved, saying,
+Who is this?
+11 And the multitude said, This is Jesus the prophet of Nazareth of
+Galilee.) (Mark 11:7-11 7 And they brought the colt to Jesus, and cast
+their garments on him; and he sat upon him.
+8 And many spread their garments in the way: and others cut down branches
+off the trees, and strawed them in the way.
+9 And they that went before, and they that followed, cried, saying,
+Hosanna; Blessed is he that cometh in the name of the Lord:
+10 Blessed be the kingdom of our father David, that cometh in the name of
+the Lord: Hosanna in the highest.
+11 And Jesus entered into Jerusalem, and into the temple: and when he had
+looked round about upon all things, and now the eventide was come, he went
+out unto Bethany with the twelve.) Jesus came to be the King of Israel and
+was proclaimed as such, but rejected by the same people and crucified less
+than a week later.
+
+Messiah would be accused by false witnesses: (Psalm 35:11 False witnesses
+did rise up; they laid to my charge things that I knew not.) Fulfilled:
+(Mark 14:57-59 And there arose certain, and bare false witness against
+him, saying,
+58 We heard him say, I will destroy this temple that is made with hands,
+and within three days I will build another made without hands.
+59 But neither so did their witness agree together.)
+
+Messiah would ascend to heaven to be at the right hand of God the Father:
+(Psalm 68:18 Thou hast ascended on high, thou hast led captivity captive:
+thou hast received gifts for men; yea, for the rebellious also, that the
+LORD God might dwell among them.) Fulfilled: (Mark 16:19 ¶ So then after
+the Lord had spoken unto them, he was received up into heaven, and sat on
+the right hand of God.) (Luke 24:51 And it came to pass, while he blessed
+them, he was parted from them, and carried up into heaven.) (I Corinthians
+15:4 And that he was buried, and that he rose again the third day
+according to the scriptures:) (Ephesians 4:8 Wherefore he saith, When he
+ascended up on high, he led captivity captive, and gave gifts unto men.)
+
+Messiah would be resurrected: (Psalm 16:10 For thou wilt not leave my soul
+in hell; neither wilt thou suffer thine Holy One to see corruption.)
+(Psalm 49:15 But God will redeem my soul from the power of the grave: for
+he shall receive me. Selah.) Fulfilled: (Mark 16:6-7 And he saith unto
+them, Be not affrighted: Ye seek Jesus of Nazareth, which was crucified:
+he is risen; he is not here: behold the place where they laid him.
+7 But go your way, tell his disciples and Peter that he goeth before you
+into Galilee: there shall ye see him, as he said unto you.) (I Corinthians
+15:4 And that he was buried, and that he rose again the third day
+according to the scriptures:) Thank God for Jesus' resurrection or we
+would still be dead in our sins. Messiah (Jesus) lives, unlike Mohammed or
+Buddha.
+
+Messiah would be in Egypt for a season: (Hosea 11:1 When Israel was a
+child, then I loved him, and called my son out of Egypt.) Fulfilled:
+(Matthew 2:14-15 When he arose, he took the young child and his mother by
+night, and departed into Egypt:
+15 And was there until the death of Herod: that it might be fulfilled
+which was spoken of the Lord by the prophet, saying, Out of Egypt have I
+called my son.)
+
+A messenger would prepare the way for the Messiah: (Isaiah 40:3-5 ¶ The
+voice of him that crieth in the wilderness, Prepare ye the way of the
+LORD, make straight in the desert a highway for our God.
+4 Every valley shall be exalted, and every mountain and hill shall be made
+low: and the crooked shall be made straight, and the rough places plain:
+5 And the glory of the LORD shall be revealed, and all flesh shall see it
+together: for the mouth of the LORD hath spoken it.) Fulfilled: (Luke
+3:2-6 Annas and Caiaphas being the high priests, the word of God came unto
+John the son of Zacharias in the wilderness.
+3 And he came into all the country about Jordan, preaching the baptism of
+repentance for the remission of sins;
+4 As it is written in the book of the words of Esaias the prophet, saying,
+The voice of one crying in the wilderness, Prepare ye the way of the Lord,
+make his paths straight.
+5 Every valley shall be filled, and every mountain and hill shall be
+brought low; and the crooked shall be made straight, and the rough ways
+shall be made smooth;
+6 And all flesh shall see the salvation of God.) John the Baptist was the
+messenger.
+
+Messiah would be preceded by a messenger (forerunner): (Malachi 3:1
+Behold, I will send my messenger, and he shall prepare the way before me:
+and the Lord, whom ye seek, shall suddenly come to his temple, even the
+messenger of the covenant, whom ye delight in: behold, he shall come,
+saith the LORD of hosts.) Fulfilled: (Luke 7:27 This is he, of whom it is
+written, Behold, I send my messenger before thy face, which shall prepare
+thy way before thee.) John the Baptist was the messenger (forerunner).
+
+Messiah would be preceded by Elijah: (Malachi 4:5-6 ¶ Behold, I will send
+you Elijah the prophet before the coming of the great and dreadful day of
+the LORD:
+6 And he shall turn the heart of the fathers to the children, and the
+heart of the children to their fathers, lest I come and smite the earth
+with a curse.) Fulfilled: (Matthew 11:13-14 For all the prophets and the
+law prophesied until John.
+14 And if ye will receive it, this is Elias, which was for to come.) Elias
+is the Greek form of Elijah. Elijah will come before the Second Coming of
+Jesus and will be one of the two witnesses along with Moses in Jerusalem
+during the tribulation. (Revelation 11:3-4 3 And I will give power unto my
+two witnesses, and they shall prophesy a thousand two hundred and
+threescore days, clothed in sackcloth.
+4 These are the two olive trees, and the two candlesticks standing before
+the God of the earth.) (Zechariah 4:11 ¶ Then answered I, and said unto
+him, What are these two olive trees upon the right side of the candlestick
+and upon the left side thereof?) (Zechariah 4:14 Then said he, These are
+the two anointed ones, that stand by the Lord of the whole earth.)
+
+There would be a slaughter of children: (Jeremiah 31:15 ¶ Thus saith the
+LORD; A voice was heard in Ramah, lamentation, and bitter weeping; Rahel
+weeping for her children refused to be comforted for her children, because
+they were not.) Rahel is Rachel. Fulfilled: (Matthew 2:16-18 ¶ Then Herod,
+when he saw that he was mocked of the wise men, was exceeding wroth, and
+sent forth, and slew all the children that were in Bethlehem, and in all
+the coasts thereof, from two years old and under, according to the time
+which he had diligently enquired of the wise men.
+17 Then was fulfilled that which was spoken by Jeremy the prophet, saying,
+18 In Rama was there a voice heard, lamentation, and weeping, and great
+mourning, Rachel weeping for her children, and would not be comforted,
+because they are not.) Jeremy is the prophet Jeremiah.
+
+Messiah would bind up the brokenhearted: (Isaiah 61:1-2 1 The Spirit of
+the Lord GOD is upon me; because the LORD hath anointed me to preach good
+tidings unto the meek; he hath sent me to bind up the brokenhearted, to
+proclaim liberty to the captives, and the opening of the prison to them
+that are bound;
+2 To proclaim the acceptable year of the LORD, and the day of vengeance of
+our God; to comfort all that mourn;) Fulfilled: (Luke 4:17-21 17 And there
+was delivered unto him the book of the prophet Esaias. And when he had
+opened the book, he found the place where it was written,
+18 The Spirit of the Lord is upon me, because he hath anointed me to
+preach the gospel to the poor; he hath sent me to heal the brokenhearted,
+to preach deliverance to the captives, and recovering of sight to the
+blind, to set at liberty them that are bruised,
+19 To preach the acceptable year of the Lord.
+20 And he closed the book, and he gave it again to the minister, and sat
+down. And the eyes of all them that were in the synagogue were fastened on
+him.
+21 And he began to say unto them, This day is this scripture fulfilled in
+your ears.) Esaias is the Greek form of Isaiah.
+
+Messiah would be praised by little children: (Psalm 8:2 Out of the mouth
+of babes and sucklings hast thou ordained strength because of thine
+enemies, that thou mightest still the enemy and the avenger.) Fulfilled:
+(Matthew 21:16 And said unto him, Hearest thou what these say? And Jesus
+saith unto them, Yea; have ye never read, Out of the mouth of babes and
+sucklings thou hast perfected praise?)
+
+Messiah would be heir to the throne of David: (II Samuel 7:12-13 ¶ And
+when thy days be fulfilled, and thou shalt sleep with thy fathers, I will
+set up thy seed after thee, which shall proceed out of thy bowels, and I
+will establish his kingdom.
+13 He shall build an house for my name, and I will stablish the throne of
+his kingdom for ever.) (Isaiah 9:7 Of the increase of his government and
+peace there shall be no end, upon the throne of David, and upon his
+kingdom, to order it, and to establish it with judgment and with justice
+from henceforth even for ever. The zeal of the LORD of hosts will perform
+this.) Fulfilled: (Luke 1:32-33 He shall be great, and shall be called the
+Son of the Highest: and the Lord God shall give unto him the throne of his
+father David:
+33 And he shall reign over the house of Jacob for ever; and of his kingdom
+there shall be no end.) (Romans 1:3 Concerning his Son Jesus Christ our
+Lord, which was made of the seed of David according to the flesh;)
+
+There are many other prophecies as well. Many say that Jesus had
+control over fulfilling these and other Messianic prophesies. Jesus did
+have control over a few, but one does not have control over many of these
+prophecies unless they are God as Jesus is. Many examples are one has no
+control over where they are born, being born of a virgin, the lineage you
+come from, where you are buried, who he was crucified with, being seated
+at the right hand of God, being pierced in his side, not having his bones
+broken, being betrayed by a friend and for thirty pieces of silver,
+soldiers gambling over his garment, being hated without a cause, being
+forsaken by God the Father, being the Prophet as foretold by Moses, and
+many other things. Only one man could and did fulfill all these things.
+The God man Jesus, who controls all things. Jesus is the Jewish Messiah.
+We await his Second Coming. If you have not received Jesus as your
+Saviour, please call upon him now before it is too late. Ye must be born.
+The evidence has been presented before you that Jesus is the Messiah. (See
+What must I do to be saved (be born again), have eternal life and go to
+heaven? and Why we must be born again)
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

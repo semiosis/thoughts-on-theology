@@ -1,2 +1,4 @@
+Refresh: cart/index.html
+
 Click here...
 

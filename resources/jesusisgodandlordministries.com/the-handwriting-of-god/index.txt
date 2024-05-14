@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,462 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Handwriting of God
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The handwriting or fingerprint of God is found all over scripture.
+Scripture is the inspired, infallible, inerrant word of God and can be
+found in English in the King James Bible. Inspired means God breathed or
+as he spoke. This is why scripture is called the word of God as it is the
+words spoken by God the Holy Ghost to holy men who put it down in writing.
+(II Timothy 3:16-17 All scripture is given by inspiration of God,
+and is profitable for doctrine, for reproof, for correction, for
+instruction in righteousness:
+17 That the man of God may be perfect, throughly furnished unto all good
+works.) (II Peter 1:20-21 Knowing this first, that no prophecy of the
+scripture is of any private interpretation.
+21 For the prophecy came not in old time by the will of man: but holy men
+of God spake as they were moved by the Holy Ghost.) Scripture is referred
+to as holy scriptures since it is the very words of God who is holy.
+[Romans 1:2 (Which he had promised afore by his prophets in the holy
+scriptures,)] We saw in II Timothy how scripture is where we get our
+doctrines from and scripture is what corrects us of our sins if we obey
+it. Inerrant and infallible both mean scripture is without error and is
+incapable of having error as it is the very words of God and God is
+perfect. II Peter showed how scripture is only the words of God and no
+added words of the writers. In fact over 40 different people wrote
+scripture over 1,500 years or so (some say close to 2,000 years) and no
+part contradicts another part and they all blend together and all of
+scripture by all of these men points to one person, the Lord Jesus Christ.
+Jesus can be found on every page of scripture if you look for him as the
+whole book points to him. All of these men over so many years could not
+have blended together the way they did if it was not the hand of God
+directing them. All scientific, medical, and historical facts mentioned in
+scripture are 100% accurate with no errors. We see how all of scripture
+has the handwriting of God on it, but we will see how God's handwriting
+goes much deeper than the surface.
 
-Username or email _____________________
+Prophecy is one of the things that show that scripture is the word of
+God. No other book including so called holy books such as the Koran have
+prophecy in them at least certainly on the scale of scripture. Nostradamus
+who was a fraud wrote some "prophecies", but they were so vague and never
+came to pass. God in scripture on the other hand has lots of prophecy. In
+fact 25% of scripture was prophetic at the time it was written. In
+scripture there are many prophecies that are so accurate that it appears
+as if they were written by someone after the fact. This is because God
+already knows the future so for him it has already passed. The Koran would
+never have prophecy like in scripture since Satan who is the author of it
+cannot see the future. All of prophecy in scripture that has been
+fulfilled so far is 100% accurate in every detail just as was written in
+scripture. Prophecies of Jesus speak of where he would be born and how he
+would be betrayed and many detailed aspects of his life. Cyrus was
+mentioned by name over 400 years before he was born that he would allow
+the Jews to return to Judah. (Isaiah 44:28 That saith of Cyrus, He is my
+shepherd, and shall perform all my pleasure: even saying to Jerusalem,
+Thou shalt be built; and to the temple, Thy foundation shall be laid.)
 
-Reset password
+I said that all historical facts in scripture are accurate. Daniel 8
+is so accurate that many people try to say that it was written hundreds of
+years later than claimed by another man. People just do not want to
+believe God. Daniel 8 describes the Medo-Persian Empire, with Persia as
+the greater half, conquering the Babylonian Empire and then continues with
+Alexander the Great and the Greeks conquering the Medo-Persian Empire and
+then the splitting of the Greek Empire into four kingdoms upon the death
+of Alexander the Great. This is exactly what happened in history.
+Scripture is so accurate on historical facts that archeologists have used
+it to search for cities and people mentioned in scripture that people said
+were not real. It was by these archeologists that they found historical
+evidence that king David, Caiaphas, and others were real as well as the
+Hittites and Hivites which people said never existed, but scripture was
+proved right. Many facts about Jerusalem and Israel have also been
+confirmed. The walls of Jericho were found to have fallen outward just as
+scripture says when all other ancient walled cities were found collapsed
+inward as the invading army entered. God had the walls of Jericho fall
+outward so they could climb over the walls and enter the city. Jesus said
+the stones would cry out if the people were silenced when he entered
+Jerusalem on Palm Sunday. (Luke 19:40 And he answered and said unto them,
+I tell you that, if these should hold their peace, the stones would
+immediately cry out.) They still cry out today providing evidence that
+confirms scripture is of God.  
+
+The Holy Bible speaks of many scientific facts that we now know are
+true, but many were not known by scientists until recently. Many early
+godly scientists because they believed scripture were able to discover the
+things they did. Job has many science facts in it. Job says the earth
+hangs upon nothing when people thought something held the earth up. We now
+know it hangs in space held up only by God who holds the whole universe
+together by Jesus. (Job 26:7 He stretcheth out the north over the empty
+place, and hangeth the earth upon nothing.) (Colossians 1:17 And he is
+before all things, and by him all things consist.) God said there is a
+rainbow in every cloud which we now know is true by using special
+equipment. (Genesis 9:14 And it shall come to pass, when I bring a cloud
+over the earth, that the bow shall be seen in the cloud:) God said the
+earth is round when scientists long thought the earth was flat. (Isaiah
+40:22 It is he that sitteth upon the circle of the earth, and the
+inhabitants thereof are as grasshoppers; that stretcheth out the heavens
+as a curtain, and spreadeth them out as a tent to dwell in:) This verse
+and many others also say God stretches or expands the heavens which
+scientists now know the universe is expanding just as God said. Scripture
+mentioned pathways in the oceans long before we knew they existed and
+spoke of the hydrological cycle of rain falling and evaporating, forming
+clouds, and falling as rain again. (Psalm 8:8 The fowl of the air, and the
+fish of the sea, and whatsoever passeth through the paths of the seas.)
+(Ecclesiastes 1:7 All the rivers run into the sea; yet the sea is not
+full; unto the place from whence the rivers come, thither they return
+again.) God said life was in the blood which we now know is true. (Genesis
+9:4 But flesh with the life thereof, which is the blood thereof, shall ye
+not eat.) Many more facts deal with lightning, the stars, and other things
+that man has only recently learned.
+
+Scripture spoke of germs long before we knew what they were. Even in
+the 1800's physicians would touch a dead person and then without washing
+their hands they would go and deliver a baby. A third of the moms and
+babies were dying. It was only after reading scripture that the start of
+washing hands began. The same occurred during the Bubonic Plague of the
+1300's in Europe as many were dying they realized the Jews did not seem to
+be as affected as non-Jews. The Jews read scripture and washed their
+hands. Eventually others followed suit and the plague ended. God spoke
+many times about washing in running water to the Israelites. This was to
+get rid of the germs. Scripture speaks of using hyssop as a healing agent
+which we know works and also of quarantining people with plague or other
+diseases so that it will not spread. The sick Israelites were placed
+outside of the camp. We now do the same to prevent spreading of diseases.
+
+
+Scriptures contains evidence of God as the great mathematician. The
+value of PI as 3.14 is found accurately in scripture in I Kings 7:23. (I
+Kings 7:23 ¶ And he made a molten sea, ten cubits from the one brim to the
+other: it was round all about, and his height was five cubits: and a line
+of thirty cubits did compass it round about.) Numbers in scripture have
+meanings as I have mentioned many times. Many of these meanings can be
+seen obviously, but many more are more discreet as God keeps things hidden
+to be found by those who truly want to learn and seek out scripture.
+(Proverbs 25:2 It is the glory of God to conceal a thing: but the honour
+of kings is to search out a matter.) (Isaiah 48:6 Thou hast heard, see all
+this; and will not ye declare it? I have shewed thee new things from this
+time, even hidden things, and thou didst not know them.) Sometimes God
+reveals a number by counting the items listed in a list or the number of
+times that God uses a word in scripture or where a word is found in a
+particular chapter or verse. God did inspire even the chapter and verse
+numbers as can be seen in the relationship in scripture. The number 23
+means death and this is seen in Genesis 23 which is about the death of
+Sarah. This chapter contains 23 words related to death. Psalm 23 is about
+the valley of the shadow of death. Numbers play a great role in scripture
+clearly seen in the number seven. Colors also play a role that often
+matches its corresponding number such as seen in Revelation. The color of
+a metal or object also reveals the meaning of the number.
+
+Inspired scripture as found in the Hebrew and Greek and including the
+King James Bible have a built in dictionary in them. This dictionary is
+not found in the modern corrupt bibles showing that it was placed there by
+the hand of God. Often times a harder word in scripture will later be
+defined again in the same verse using an easier word or the other word
+will often be found nearby such as a few verses away, the same chapter, or
+book. Occasionally God will make you search harder for it since God
+expects his children to study scripture and not just read it and this
+forces people to study it. God defines his own words, not man.
+
+The Hebrew scriptures have what is known as the ELS code. There is
+some evidence that the Greek scriptures and the King James Bible also
+contain them. ELS stands for Equidistant Letter Sequence. Throughout
+scripture God placed patterns where if you start with a letter in a word
+and count so many letters and continue this same counting pattern that
+words are formed that are related to the verse or verses where they are
+found. Large works of writing will have some random words, but nothing has
+ever been found with the pattern in scripture and the relevance of them to
+the surface text. The use of a computer helps find them easier. One
+example is Isaiah 53 which is the chapter of Jesus as the suffering
+servant who went to the cross for our sins. The ELS bible code reveals in
+this chapter the names of Jesus and his disciples as well as names and
+things associated with his crucifixion. There is no way these things could
+randomly appear and in the location they did. There are many, many ELS
+codes that reveal the handwriting of God.
+
+Scriptures contains other hidden codes for those who search them out
+such as the name code were God had the people named a certain name from
+Adam to Noah and even on down to Jesus. These names put together spell out
+the gospel. Another example is how the Israelites formed a cross when they
+encamped while wondering in the wilderness. This can be seen by comparing
+the census in Numbers with how the tribes were encamped. One other pattern
+can be seen in Genesis how the first time a word is mentioned sets the
+tone for the rest of scripture. There are other codes or patterns in
+scripture as well. The handwriting or signature of God is also found
+throughout nature such as DNA, but that is for another sermon.
+
+Three times in scripture the handwriting of God is specifically
+mentioned as being written by God besides the many I have just mentioned.
+The first time the finger of God wrote in scripture was when God wrote the
+ten commandments for Moses to give to the Israelites. God actually wrote
+them twice since Moses broke the first tablets. (Exodus 31:18 ¶ And he
+gave unto Moses, when he had made an end of communing with him upon mount
+Sinai, two tables of testimony, tables of stone, written with the finger
+of God.) (Exodus 32:16 And the tables were the work of God, and the
+writing was the writing of God, graven upon the tables.) (Exodus 34:1 And
+the LORD said unto Moses, Hew thee two tables of stone like unto the
+first: and I will write upon these tables the words that were in the first
+tables, which thou brakest.) We see here how God was able to write on
+stone as his fingers literally carved away the stone.
+
+The second time that God wrote with his finger was in Daniel 5 when
+the evil Babylonian king Belshazzar was having a big drunken party as he
+and the others were drinking wine from the holy objects from the temple
+and blaspheming God. The fingers of God appeared and wrote on the wall to
+foretell of the soon coming doom of the king and the Babylonian Empire.
+This is known as the handwriting on the wall and today we use this phrase
+to describe the impending end of something whether a business or a person.
+(Daniel 5:5 ¶ In the same hour came forth fingers of a man's hand, and
+wrote over against the candlestick upon the plaister of the wall of the
+king's palace: and the king saw the part of the hand that wrote.) (Daniel
+5:22-29 And thou his son, O Belshazzar, hast not humbled thine heart,
+though thou knewest all this;
+23 But hast lifted up thyself against the Lord of heaven; and they have
+brought the vessels of his house before thee, and thou, and thy lords, thy
+wives, and thy concubines, have drunk wine in them; and thou hast praised
+the gods of silver, and gold, of brass, iron, wood, and stone, which see
+not, nor hear, nor know: and the God in whose hand thy breath is, and
+whose are all thy ways, hast thou not glorified:
+24 Then was the part of the hand sent from him; and this writing was
+written.
+
+25 ¶ And this is the writing that was written, MENE, MENE, TEKEL,
+UPHARSIN.
+26 This is the interpretation of the thing: MENE; God hath numbered thy
+kingdom, and finished it.
+27 TEKEL; Thou art weighed in the balances, and art found wanting.
+28 PERES; Thy kingdom is divided, and given to the Medes and Persians.
+29 Then commanded Belshazzar, and they clothed Daniel with scarlet,
+and put a chain of gold about his neck, and made a proclamation concerning
+him, that he should be the third ruler in the kingdom.) God destroyed the
+king and the nation that very night.
+
+The third time that God wrote in scripture was by Jesus himself when
+he wrote on the ground with his finger to the men who brought the woman
+that was caught in the act of adultery to him at the temple. Scripture
+does not say what he wrote, but Jesus did say that he who was without sin
+was to cast the first stone. As Jesus wrote on the ground the older men
+left first until eventually they were all gone. It is possible that Jesus
+was writing the sins of the men on the ground and they left being
+convicted and wanting to leave before Jesus revealed more of their sins to
+the other men. Jesus may have shown how they were guilty of breaking the
+ten commandments as well or some have said maybe he was writing for them
+to reveal the man that sinned with her or he would reveal them as false
+witnesses. Whatever he wrote convicted the men. Jesus may have also been
+revealing himself as God by writing on the ground just as God wrote on the
+tables of stone for Moses. Jesus was at the temple and it is very likely
+he was writing on stone again just as he did for Moses. A normal person
+cannot write on stone with their finger, only God can. The gospel of John
+is also all about showing Jesus is God and this event is not recorded in
+any of the other gospels. (John 8:6-8 This they said, tempting him, that
+they might have to accuse him. But Jesus stooped down, and with his finger
+wrote on the ground, as though he heard them not.
+7 So when they continued asking him, he lifted up himself, and said unto
+them, He that is without sin among you, let him first cast a stone at her.
+8 And again he stooped down, and wrote on the ground.)
+
+Scripture points to the finger of God as scripture has the
+handwriting of God all over it and shows it is inspired of God. There are
+many more examples I could have given. The sole purpose of scripture is to
+point people to Jesus and their need as a sinner for Jesus as their
+Saviour and this is what God does by pointing to Jesus with his
+handwriting showing that Jesus is God and the only way of salvation.
+Search out the holy scriptures and find the handwriting of God. For those
+who are not saved, call upon Jesus today before he points a finger at you
+and casts you out of his sight with the words that no one wants to hear,
+"Depart from me into everlasting fire. I never knew you."    
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,725 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+King James Bible Words Defined
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+MEANING OF KING JAMES BIBLE WORDS AND PHRASES (Words can have more than
+one meaning depending on the context.)
 
-Username or email _____________________
+a little season- a short time
 
-Reset password
+Angel of the LORD-in the Old Testament refers to the pre-incarnate (prior
+to coming to earth in the flesh as Jesus) Christ.
+
+asswaged-abated, subsided, made less in intensity. This does not mean
+recede like modern translations use.
+
+asunder-apart
+
+Beelzebub-Devil or Satan
+
+beeves-plural of beef (cattle intended for meat).
+
+begat-preterit (past perfect tense) of beget. A child procreated by the
+father.
+
+begotten-past participle of beget. A child procreated by the father, not
+the mother.
+
+beguiled-deceive
+
+behold-look (at), see
+
+betwixt-between
+
+bewitched-cast a spell over
+
+bewray-betray, show
+
+blasphemeth-speaks of God in an irreverent, impious manner, curses
+
+brethren-brothers (plural of brother)
+
+brimstone-sulfur
+
+bullock-a castrated male bull steer used for beef
+
+bunches of camels-humps on camels
+
+by and by-immediately
+
+cattle-any domesticated animals used for labor including bulls, cows,
+oxen, horses, camels, donkeys, sheep, and goats. In the United States we
+call this livestock.
+
+Cephas-Peter
+
+charity-Christian love towards people, not just love that even unsaved
+have towards people. Charity is Christians doing things for other
+Christians in love since we are all brothers and sisters in Christ. These
+are things that most likely would not be done if we were not Christians. 
+
+chasteneth-discipline
+
+chode-old preterit of chide. To scold, find fault, contend with words of
+anger
+
+clave-preterit of cleave. Clung
+
+cock-rooster
+
+consecrate-to set apart for God such as one's life to service for the LORD
+such as preachers and missionaries.
+
+corn-referred to any grain (wheat, barley, oats, rie, and not necessarily
+maize or what we call corn. They still do in most parts of the old British
+Empire.).
+
+couch-bed such as in Genesis 49:4 and Luke 5:19 and Luke 5:24.
+
+council-the Sanhedrin (Jewish leaders, like our Congress). Example is Acts
+5:34
+
+crew-preterit of crow. We now use crowed.
+
+crisping Pins-a curling iron
+
+dale-a valley. Dale is used in poetry.
+
+dam-female of quadruped beasts
+
+damsel-young, unmarried woman
+
+devils-evil spirits, demons. I believe these are the giants (offspring of
+fallen angels when they procreated with females here on earth) spirits
+when they died in the flood of Noah's day. This is why they were always
+trying to seek a body, whether a person or animal such as swine.
+
+divers-different, various
+
+dragon-when speaking of an animal it refers to dinosaurs [land reptiles],
+plesiosaurs [sea reptiles], and pterosaurs [flying reptiles]. The word
+dinosaur was invented in 1841 after the King James Bible was first
+published in 1611. Two dinosaurs are mentioned: the behemoth which was a
+sauropod (largest ever land animal or as God calls him "chief of the ways
+of God") and leviathan which was a marine dinosaur (plesiosaur). Possibly
+the pterosaurs (flying dinosaurs) are also mentioned. Dragon is also used
+to refer to Satan (Devil).   
+
+draught house-an outhouse
+
+dumb person-refers to a mute person unable to speak
+
+dung-manure
+
+Easter-pagan festival. Not yet celebrated as the day of Jesus's
+resurrection. It is not Passover as the corrupt modern translations use.
+They are separate holidays and Easter came after Passover, but occurred
+about the same time, just as they do sometimes still today.
+
+edification- a building up in a moral sense
+
+effeminate-males acting like or having the characteristics or appearance
+of a female. This does not mean homosexual like many of the false modern
+bibles say. One can act and dress like a female and still not be a
+homosexual and homosexuals do not necessarily act or dress like a female,
+though some do, but most do not. Most people who are effeminate are not
+homosexuals.
+
+espoused-betrothed, promised in marriage
+
+eunuch-castrated male
+
+even-usually used to refer to evening. Even is used in poetry. Evening in
+prose (natural language of man) writing.
+
+ewe-female sheep
+
+fair-beautiful, pretty, attractive when referring to a person
+
+fell asleep-died or just sleeping depending on the context
+
+firmament-heaven
+
+fishes-when more than one kind of fish is spoken of
+
+fit-qualified or competent
+
+fornication-lewdness, adultery, incest, any sinful sexual act outside
+marriage, idolatry.
+
+forthwith-immediately 
+
+fowls- can refer to birds, bats, or flying insects (maybe also flying
+reptiles such as pterosaurs as well) depending on context
+
+gave up the ghost-died. A person's spirit and soul left their body.
+
+gay-fine (as in fine clothes)
+
+gendereth-begets (we now use engender)(such as cattle gender (breed) with
+a diverse kind)
+
+Gentile-non Jew
+
+Grecia-Greece 
+
+hallow-make holy, set apart
+
+hart-male red deer
+
+hearken-listen
+
+heifer- a young cow under three years old that has not given birth to a
+calf
+
+helve-ax handle
+
+heresy-doctrine that goes against established scriptural believes that
+most Christians accept and believe
+
+hinder-hind or rear
+
+hitherto-until this time
+
+Holy Ghost-Holy Spirit
+
+howbeit-be it as it may, nevertheless
+
+kine-plural of cow (today use cows)
+
+King-capitalized refers to Jesus with only four "exceptions" (They start a
+verse or quote). All earthly kings are a lower case king as Jesus is King
+of kings. (Revelation 17:14)
+
+knew her (him)- had sex with them depending on the context
+
+leaven-fermenting dough usually with yeast to make it rise. Often
+represents sin in the Holy Bible. To taint.
+
+let-to allow or hinder depending on the context
+
+lie-telling falsehoods or having sexual relations with a person or beast
+
+lo-look, see
+
+looking glass-mirror
+
+LORD-all capitals refers to JEHOVAH God
+
+Lucifer-Satan/Devil
+
+marishes-marshes
+
+maw-stomach of brutes (beasts, especially large beasts)
+
+Mazzaroth-the Zodiac
+
+meat-food
+
+midst-middle
+
+miry-deep mud
+
+ninth Hour-3 P.M.
+
+oblation-sacrifice or offering used in worship
+
+old cast clouts-discarded worn out clothing, rags
+
+paps-nipples of the breast
+
+pestilent-troublesome, mischievous, a pest
+
+pestilences-deadly contagious diseases, plague
+
+pitch-a sticky waterproofing substance made from tree sap used to
+waterproof boats just as spar varnish is used today.
+
+pourtray-draw such as a picture
+
+pulse-a porridge made of legumes usually peas, beans, and lentils
+
+rent-to tear
+
+replenish-to fill, populate. (Genesis 1:28 and others) It does not mean
+refill or fill again as the false translations say.
+
+revellings-feasting with loud merriment usually immorally
+
+salt sea-Dead Sea. Also known as east sea in Ezekiel 47:18.
+
+salute-greet
+
+score-twenty years
+
+seed- when referring to people refers to the man's children or his semen
+
+serpent-a snake or the devil (Satan) depending on the context
+
+settle-an object most likely similar to a table or bench the altar was
+placed on
+
+sheepcote-small shelter for sheep
+
+sixth Hour-noon
+
+skirt-bottom of a man or woman's long robe like garment or can refer to a
+man's wife and her nakedness such as in Deuteronomy 22:30 and Deuteronomy
+27:20
+
+sleep-died or sleeping depending on the context
+
+sodomite-homosexual (especially males)
+
+sojourneth-temporary place of living
+
+sons of God-in Old Testament refers to angels. In New Testament refers to
+true born again Christians.
+
+sorceries-magic, divination by assistance from evil spirits, witchcraft,
+enchantment
+
+sore-greatly (such as in Genesis 20:8 when the men were sore afraid)
+
+sottish-foolish
+
+stead-place
+
+strait-narrow
+
+suborned-bribed, procured (persuade) to take a false oath or do a bad
+action
+
+talebearer-one who tells tales (secrets that often hurt people), a
+gossiper
+
+talent-weight believed to be about 75 pounds
+
+tarry-delay (such as Jesus delaying his return).
+
+the deep-the sea or ocean (such as in Psalm 107:24)
+
+the great sea-Mediterranean Sea
+
+The Word-Lord Jesus Christ
+
+thence-from that place or time
+
+third Hour-9 A.M.
+
+tire-a head dress. A tire is a round headband or headdress often adorned
+with decorations that goes around the head. Modern corrupt versions call
+it a turban, but that is not correct.
+
+to and fro-back and forth
+
+transgressions-sin
+
+trespass-usually refers to sin
+
+turtles-in King James Bible it refers to turtledoves (type of bird) and
+not the reptile. The reptile is a tortoise just as the British call
+turtles even today.
+
+twain-two
+
+unfeigned-real, sincere
+
+vail-when referring to the tabernacle or temple in the Old Testament it
+means curtain.
+
+vale-a valley. Vale is used in poetry and valley in prose or common
+speech.
+
+verily-truly
+
+vexed-provoked, irritated, troubled, agitated, afflicted
+
+vial-small bottle of thin glass used for liquids such as for anointing oil
+
+victuals-food
+
+wanton-loose in your sexual morality
+
+warp-weaving term: the threads running lengthwise in the loom and crossed
+by the weft or woof
+
+waxen-grown
+
+whence-from what source, how, by what means
+
+wiles-deception
+
+winebibbers-drunks
+
+wit-know- become aware of (present indicative form) (wist is another form)
+
+woof-weaving term: weft-the yarns carried by the shuttle back and forth
+across the warp in weaving
+
+words in italic-these are words not found in original language that are
+added to make the English more clear. All English translations use these
+words or similar words except they do not distinguish them for you so they
+make you believe they were in the original language. This is necessary
+probably when translating to any language.
+
+wot-present tense, first and second person singular form of wit. (wotteth
+(knoweth) is another form)
+
+yesternight-last night
+
+(probably change the start of a word to lower case unless should be
+capitalized just like all dictionaries)
+
+BRITISH SPELLINGS VS AMERICAN SPELLINGS
+
+asswaged-assuage
+
+aul-awl
+
+cieled-ceiled (overlay with timber or plaster)
+
+ensamples-examples
+
+extra K on words-some words are spelt with a "K" on the end such as
+publick (public), heretick (heretic), musick (music), and lunatick
+(lunatic)
+
+extra U in words-many words in British English add a "u" in the ending of
+a word in between "or" seen in American English such as armour (armor),
+colour (color), endeavour (endeavor), favour (favor), honour (honor), and
+valour (valor)
+
+mitre-miter
+
+serjeants-sergeants
+
+shew-show
+
+spue-spew
+
+subtil-subtle (cunning, crafty)
+
+GREEK SPELLINGS USED INSTEAD OF HEBREW FROM OLD TESTAMENT
+
+Chanaan-Greek form of Canaan
+
+Charran-Greek form of Haran
+
+Core-Greek form of Korah
+
+Elias-Greek form of Elijah
+
+Eliseus-Greek form of Elisha
+
+Esaias-Greek form of Isaiah
+
+Jonas-Greek form of Jonah
+
+Melchisedec-Greek form of Melchizedek (pre-incarnate Christ)
+
+Messias-Greek form of Messiah which in Greek is translated Christ meaning
+Anointed One who is Jesus Christ
+
+Nineve-Greek form of Ninevah
+
+Noe-Greek form of Noah
+
+Osee-Greek form of Hosea
+
+Sion-Greek form of Zion (Temple Mount in Jerusalem)
+
+Sodoma-Greek form of Sodom
+
+Zabulon-Greek form of the tribe of Zebulun
+
+VERB ENDINGS (INFLECTIONS) EXPLAINED (From Dr. Gail Riplinger's work)
+
+Most -eth verb endings are today changed to end in s. Examples are:
+devoureth (devours), differeth (differs), lappeth (laps), etc.
+
+After certain letters such as (ss, sh, th, x, ch, o, and i) change the
+-eth to es. Examples are: passeth (passes), dresseth (dresses), doeth
+(does), goeth (goes), etc.
+
+Each ending of -th is changed to s. Examples are causeth (causes), ceaseth
+(ceases), etc.
+
+Drop every -est verb ending (together with any double consonant that
+precedes it) to form modern equivalent. Examples are: huntest (hunts),
+rebellest (rebel), runnest (runs).
+
+Drop every -st verb ending to form the modern equivalent. Examples are:
+troubledst-(trouble) and trustedst (trusted)
+
+-EST is second person (the one spoken to) (first person is the speaker)
+
+-ETH is third person (the one spoken about)
+
+Examples: I write (first person)
+
+Thou writest (second person)
+
+He writest (third person)
+
+-EST reminds you it is second person with its "s"
+
+-ETH reminds you it is third person with its "t"
+
+EXPLAINATION OF THEE, THOU, THY, THINE, AND YE (From Dr. Gail Riplinger's
+work)
+
+Thou, thee, thy, thine, and thyself are singular and always refer to only
+one person. The "T" is a singular stick.
+
+Ye, you, your, yours, and yourselves are plural and always refers to more
+than one person. The "Y" is more than one stick.
+
+Thou- used for the subject of the verb for the second person singular.
+(Thou art the man)
+
+Thee- used for the object of a verb for the second person singular. (I
+gave thee bread)
+
+Ye- used for the subject of a verb for the second person plural. (Praise
+ye the LORD)
+
+You- used for the object of a verb for the second person plural. (I give
+you that)
+
+Other Bible versions normally use "you" for all four cases.
+
+The singular forms are (parenthesis show what other Bible versions use):
+
+Nominative: thou (you)
+
+Objective: thee (you)
+
+Possessive adjective: thy (your)
+
+Possessive pronoun: thine (yours)
+
+The plural forms are:
+
+Nominative: ye (you)
+
+Objective: you (you)
+
+Possessive adjective: your (your)
+
+Possessive pronoun: yours (yours)
+
+
+
+David W. Daniels has written a great little book that will fit into your
+Holy Bible called The King James Bible Companion which defines over 600
+words. It can be purchased at
+https://www.chick.com/products/item?stk=1007&O=T for 49 cents. 
+
+Two books that may be helpful are The Dictionary Inside The King James
+Bible by Dr. Gail Riplinger and King James Bible's Built-in Dictionary by
+Barry Goddard, both which can be purchased at www.avpublications.com. The
+1828 Webster's dictionary can also be helpful.
+
+Remember the King James Bible defines its own words unlike the modern
+false bibles. God did this so you would not need a dictionary to read his
+word.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,582 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Books of God
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Most people do not realize that God has his own library full of books
+and that he is an author of many books. As an author God brings order
+whereas Satan is the author of confusion. (I Corinthians 14:33 For God is
+not the author of confusion, but of peace, as in all churches of the
+saints.) God also told others to write books such as Adam. God apparently
+had Adam write this book of his genealogy and other historical facts about
+creation that Moses used to write Genesis 1-11. (Genesis 5:1 This is the
+book of the generations of Adam. In the day that God created man, in the
+likeness of God made he him;) God also had Moses write a book that
+contained the events in his victory over Amelek as God gave the Israelites
+victory. This book contains the story of how Aaron and Hur held up the
+hands of Moses giving victory to Joshua. (Exodus 17:11-14 11 And it came
+to pass, when Moses held up his hand, that Israel prevailed: and when he
+let down his hand, Amalek prevailed.
+12 But Moses' hands were heavy; and they took a stone, and put it under
+him, and he sat thereon; and Aaron and Hur stayed up his hands, the one on
+the one side, and the other on the other side; and his hands were steady
+until the going down of the sun.
+13 And Joshua discomfited Amalek and his people with the edge of the
+sword.
+14 And the LORD said unto Moses, Write this for a memorial in a book, and
+rehearse it in the ears of Joshua: for I will utterly put out the
+remembrance of Amalek from under heaven.) God did not want the Israelites
+to forget this victory that God gave them over the Amalekites which were
+giants. God also told the Israelite priests to write curses dealing with
+the law of jealousies in a book. (Numbers 5:23 And the priest shall write
+these curses in a book, and he shall blot them out with the bitter water:)
+God had many prophets write books that are not in scripture. (I Chronicles
+29:29 Now the acts of David the king, first and last, behold, they are
+written in the book of Samuel the seer, and in the book of Nathan the
+prophet, and in the book of Gad the seer,) God also used over forty men to
+write 66 individual books which became one book. God calls this book the
+book of the LORD in Isaiah 34:16. (Isaiah 34:16 ¶ Seek ye out of the book
+of the LORD, and read: no one of these shall fail, none shall want her
+mate: for my mouth it hath commanded, and his spirit it hath gathered
+them.) This book of course is the holy scriptures which contain the words
+of God which God says to read. It is these books that God reveals to us
+his Son Jesus Christ so that we might be saved. Remember that God is the
+author of scripture, specifically the Holy Ghost, but he used holy men to
+write it down for us. (II Timothy 3:16-17 16 All scripture is given by
+inspiration of God, and is profitable for doctrine, for reproof, for
+correction, for instruction in righteousness:
+17 That the man of God may be perfect, throughly furnished unto all good
+works.) (II Peter 1:21 For the prophecy came not in old time by the will
+of man: but holy men of God spake as they were moved by the Holy Ghost.)
+Scripture was written for one purpose and that is to show that all of us
+are sinners and to point us to the only one who can redeem us from that
+sin. That person is the Lord Jesus Christ who is found in this book on
+every page. (Psalm 40:7 Then said I, Lo, I come: in the volume of the book
+it is written of me,) (Hebrews 10:7 Then said I, Lo, I come (in the volume
+of the book it is written of me,) to do thy will, O God.) Jesus of course
+wrote the ten commandments or the law which God also has a copy in heaven.
+(Deuteronomy 10:4 And he wrote on the tables, according to the first
+writing, the ten commandments, which the LORD spake unto you in the mount
+out of the midst of the fire in the day of the assembly: and the LORD gave
+them unto me.) In this study we are going to look at some of God's many
+books.
 
-Username or email _____________________
+God has a book of the wars of the LORD which contains the wars God
+fought against Satan. God has fought many wars. One of those wars was
+God's war against Egypt in refusing to let his chosen people, the
+Israelites, go. This book speaks of the miracle that God did at the Red
+sea in allowing the people to cross the sea on dry ground and killed all
+of the Egyptians. This book also tells of what God did for the Israelites
+in the brooks of Arnon and at the stream of the brooks that goeth down to
+the dwelling of Ar, and lieth upon the border of Moab. (Numbers 21:14-15
+14 Wherefore it is said in the book of the wars of the LORD, What he did
+in the Red sea, and in the brooks of Arnon,
+15 And at the stream of the brooks that goeth down to the dwelling of Ar,
+and lieth upon the border of Moab.) The brooks of Arnon seems to be
+speaking of Israel's victory over the Ammonites with God's help. If it
+refers to an earlier event then it does not seem to be recorded in
+scripture. This event and the next actually seem future to the time it was
+written in the book, but to God the future has already happened so he can
+write the victory in his book. The brooks that goeth down to the dwelling
+of Ar seems to speak of the fire that consumed Ar. (Numbers 21:28 For
+there is a fire gone out of Heshbon, a flame from the city of Sihon: it
+hath consumed Ar of Moab, and the lords of the high places of Arnon.) All
+of Israel's battles are written in this book of the wars of the LORD. This
+would include all of the modern wars that Israel has fought as well as her
+battles in the coming tribulation against the antichrist. More than likely
+it may include all wars and certainly the spiritual wars that saved people
+fight against Satan. There are many wars in this book.
 
-Reset password
+God gave the book of the law which is the laws he gave to Moses and
+this was to be kept in the side of the ark of the covenant. (Deuteronomy
+31:26 Take this book of the law, and put it in the side of the ark of the
+covenant of the LORD your God, that it may be there for a witness against
+thee.) The book of the law was read by Joshua to the people. (Joshua 8:34
+And afterward he read all the words of the law, the blessings and
+cursings, according to all that is written in the book of the law.) The
+book of the law seems to also be called the book of the covenant. Some
+people say it is a different book, but II Chronicles 34:14-33 seems to
+show they are the same book. (II Chronicles 34:30 And the king went up
+into the house of the LORD, and all the men of Judah, and the inhabitants
+of Jerusalem, and the priests, and the Levites, and all the people, great
+and small: and he read in their ears all the words of
+the book of the covenant that was found in the house of the LORD.) I
+believe this may be because the Mosaic laws were only for the Jews and
+were never for the Gentiles or Christians and God made a covenant with
+Israel his chosen people, not the Gentiles and the two names shows the
+connection of the laws being for his covenanted people the Jews. One other
+name for it is the book of Moses since God used Moses to write the book,
+though it was the words of God. (Nehemiah 13:1 On that day they read in
+the book of Moses in the audience of the people; and therein was found
+written, that the Ammonite and the Moabite should not come into the
+congregation of God for ever;)
+
+God has a book of tears. (Psalm 56:8 Thou tellest my wanderings: put
+thou my tears into thy bottle: are they not in thy book?) God keeps a
+bottle and a book that contains our tears. The book may contain the
+bottles of tears for each of us or give a description of the events that
+caused the tears. Of course those tears we have shed over our sins in
+repentance will be there, but it seems also all of our tears, but at least
+those we have shed over the unsaved and for our brothers and sisters in
+Christ who are being persecuted and suffered for Jesus Christ. God
+remembers our sorrows and sufferings when he sees our tears in his book.
+The book also contains those tears shed for fellow believers and their
+physical and spiritual health issues. One day this book will be complete
+as their will be no more tears so there will be none for God to put in the
+book. (Revelation 21:4 And God shall wipe away all tears from their eyes;
+and there shall be no more death, neither sorrow, nor crying, neither
+shall there be any more pain: for the former things are passed away.) This
+of course will happen when God creates the new heavens and the new earth.
+
+God has a book of all of our members. (Psalm 139:16 Thine eyes did
+see my substance, yet being unperfect; and in thy book all my members were
+written, which in continuance were fashioned, when as yet there was none
+of them.) This book was written even before we were born. This book
+contains all of the members of our bodies which means the book contains
+all of our DNA code written down. DNA is in not only people, but also
+animals, and plants, and angels. All living things whether in the physical
+world or the spiritual world contain DNA. Plants are not scripturally
+considered living, but they do still have DNA as they eat, grow, and
+reproduce just like living things. For those Christians who have had their
+bodies destroyed by whatever means such as by fire, nuclear blast, eaten
+by animals, sucked into an airplane's jet engine, or whatever the means,
+there is no worry that your body will not be resurrected as God still has
+the written instructions to your DNA to reproduce you again. This book
+seems to contain all DNA instructions for everyone, but it is possible
+that each person has their own book, though I think it is one large book
+that contains all DNA from the beginning of creation until the end. Think
+about how God had already written the instructions for your DNA down in
+his book before you were even created. This shows the power of God and his
+awesomeness. DNA is the blueprint for everything and shows that God is all
+powerful and is real as DNA could never have evolved. The DNA written in
+this book is what is encoded in the mother's womb to form a baby. This
+book contains the parts of every person who has ever been conceived
+showing that it is a living person in the womb despite what abortionists
+believe. That dismembered aborted baby has all of its members written here
+in God's book and God will put them all back together again at the
+resurrection.
+
+God has a book of remembrance for all of those who fear the LORD and
+think upon his name. (Malachi 3:16 ¶ Then they that feared the LORD spake
+often one to another: and the LORD hearkened, and heard it, and a book of
+remembrance was written before him for them that feared the LORD, and that
+thought upon his name.) It seems that this book is not just for the Jewish
+people who thought that God did not notice or care what they were doing
+for them, but is for all people who fear God and think upon his name and
+this would include Christians as well. Jesus seemed to confirm this in his
+teachings. People do not need to fear that God does not notice what they
+do for him since he has it written down in a book as a reminder. Remember
+that God as omniscient does not need books to remember who has feared him,
+or when a person cried over their sins, or a book to rebuild a person's
+DNA, but he has them as proof against us who do not remember and as a way
+to comfort us that God does remember and has everything written down. Just
+as earthly kings wrote things down in their chronicles in relation to a
+person doing good for the king, so does God. Earthly kings did not always
+reward a person at that time such as Mordecai, but with it written down
+then they would in the future get their reward. That is how God does. It
+may seem that you are forgotten by God now, but the day will come when he
+will pull out the book of remembrance and reward you for what is written
+in it. We all need to learn to fear the LORD and think upon his name so
+that we too may be written in the book of remembrance. The fear of the
+LORD is the beginning of wisdom and prolongeth life. (Proverbs 9:10
+The fear of the LORD is the beginning of wisdom: and the knowledge of the
+holy is understanding.) (Proverbs 10:27 The fear of the LORD prolongeth
+days: but the years of the wicked shall be shortened.)   
+
+God has an unnamed book in Revelation that I call the book of
+judgments as this book which is sealed right now with seven seals contains
+the twenty one judgments that God will bring upon the earth during the
+seven year tribulation. These are the seven seal judgments, the seven
+trumpet judgments, and the seven vial judgments. Only Jesus is worthy
+enough to open this book. This is a book that God keeps sealed because he
+wishes it was never opened and read as it brings wrath upon the earth
+which God wishes he never had to do as he wishes for all to be saved and
+if they were then he could leave this book sealed. This book is related to
+the Lamb's book of life in that the judgments in this book are because the
+people's names on earth are not found in that book so God as a righteous
+judge must open this book. (Revelation 5:1-9 1 And I saw in the right hand
+of him that sat on the throne a book written within and on the backside,
+sealed with seven seals.
+2 And I saw a strong angel proclaiming with a loud voice, Who is worthy to
+open the book, and to loose the seals thereof?
+3 And no man in heaven, nor in earth, neither under the earth, was able to
+open the book, neither to look thereon.
+4 And I wept much, because no man was found worthy to open and to read
+the book, neither to look thereon.
+5 And one of the elders saith unto me, Weep not: behold, the Lion of the
+tribe of Juda, the Root of David, hath prevailed to open the book, and to
+loose the seven seals thereof.
+6 And I beheld, and, lo, in the midst of the throne and of the four
+beasts, and in the midst of the elders, stood a Lamb as it had been slain,
+having seven horns and seven eyes, which are the seven Spirits of God sent
+forth into all the earth.
+7 And he came and took the book out of the right hand of him that sat upon
+the throne.
+8 And when he had taken the book, the four beasts and four and twenty
+elders fell down before the Lamb, having every one of them harps, and
+golden vials full of odours, which are the prayers of saints.
+9 And they sung a new song, saying, Thou art worthy to take the book, and
+to open the seals thereof: for thou wast slain, and hast redeemed us to
+God by thy blood out of every kindred, and tongue, and people, and
+nation;) Maybe God will be able to remove this book from his library after
+the tribulation.
+
+God has the book of life. This book contains the names of every
+person who has ever been conceived or will be conceived. This book is
+related to the Lamb's book of life, but is not the same. God will use
+these two books when people stand before him. Whether a person's name is
+found in them will determine whether they spend eternity in heaven or the
+lake of fire. A person's name has been written in here before the
+foundation of the earth as God knew you would be conceived long before you
+ever were. (Revelation 17:8 The beast that thou sawest was, and is not;
+and shall ascend out of the bottomless pit, and go into perdition: and
+they that dwell on the earth shall wonder, whose names were not written in
+the book of life from the foundation of the world, when they behold the
+beast that was, and is not, and yet is.) Notice that a person's name is
+written in the book of life whether they were born or not. All babies who
+have died in the womb whether from abortion or some medical condition
+still have their names written in the book of life even though they were
+never born. When a person dies in their sins as an unsaved person then
+their name is blotted out of the book of life. To blot out means to
+remove, erase, or destroy the name from the book. If a person's name is
+blotted out from the book of life then they will spend eternity in the
+lake of fire. (Revelation 20:15 And whosoever was not found written in
+the book of life was cast into the lake of fire.)
+
+God also has the Lamb's book of life which is also known as the book
+of life of the Lamb. (Revelation 13:8 And all that dwell upon the earth
+shall worship him, whose names are not written in the book of life of the
+Lamb slain from the foundation of the world.) The Lamb of course is Jesus
+as shown in John 1:29. (John 1:29 ¶ The next day John seeth Jesus coming
+unto him, and saith, Behold the Lamb of God, which taketh away the sin of
+the world.) The Lamb's book of life is the most important book that God
+has. It contains all of the names of those who have been reborn and saved
+by being washed in the blood of the Lamb or Jesus. Everyone in this book
+will go to heaven when they die or are raptured. A person cannot have
+their name blotted out of the Lamb's book of life as salvation is eternal
+and cannot be lost. God in his omniscience knew who would receive Jesus as
+their Saviour before the foundation of the world and thus that person's
+name was written in this book long before they were born let alone before
+they were reborn. Saved people also have their names written in the book
+of life as all people who have ever lived. The saved person does not have
+their name blotted out of the book of life when they die, only the unsaved
+do. As the last of the unsaved die and their name is blotted out of the
+book of life this will leave the book of life only with the names of saved
+people. At this point the names in the book of life and the Lamb's book of
+life will match. This is why the book of life is often used almost
+synonymous with the Lamb's book of life because God sees the completed
+books that match in names. When the unsaved people stand before God at the
+great white throne judgment then God will open the books referring to
+these books. Notice it is plural. Many may claim they were good people and
+cast out devils in his name and deserve to go to heaven, but God will open
+the books to see if their names are written in them. (Matthew 7:22-23 22
+Many will say to me in that day, Lord, Lord, have we not prophesied in thy
+name? and in thy name have cast out devils? and in thy name done many
+wonderful works?
+23 And then will I profess unto them, I never knew you: depart from me, ye
+that work iniquity.) God uses these books to condemn the people against
+their own words. Daniel also spoke of there being plural books as he is
+speaking of the book of life and the Lamb's book of life and the judgment
+of the unsaved at the great white throne judgment. (Daniel 7:10 A fiery
+stream issued and came forth from before him: thousand thousands
+ministered unto him, and ten thousand times ten thousand stood before him:
+the judgment was set, and the books were opened.) God may use other books
+besides these. All of those at the great white throne judgment will not
+find their names written in the book of life. God will tell them that
+their names are not found and they will be cast into the lake of fire for
+all eternity. You do not want to be at this judgment and have your name
+blotted out of the book of life. Once it is blotted out then it can never
+be added again. The greatest decision that a person can make is to choose
+life by choosing Jesus as their Saviour. Jesus told his disciples not to
+rejoice in the fact that God allowed them to cast out devils, but rather
+that their names were written in heaven. (Luke 10:20 Notwithstanding in
+this rejoice not, that the spirits are subject unto you; but rather
+rejoice, because your names are written in heaven.) This refers to being
+written in the Lamb's book of life. This is the only book that matters and
+we all need to make sure our names are in it. The only way to be saved and
+to ensure that your name is written in the Lamb's book of life is to
+repent and admit that you are a sinner and believe that Jesus as God took
+your place on the cross, died and shed his blood for you in order to wash
+away your sins, he was buried, and rose again victoriously from that grave
+on the third day and now sits on the right hand of God. If you truly
+believe that Jesus is the only Saviour and call upon him to save you then
+your name will be written in the Lamb's book of life. We are told that
+Jesus is the author of our salvation. Jesus loved us so much that he was
+willing to take our place on the cross and die for us so that we might
+have salvation. Jesus bore the sins of the world so that all could have
+salvation for those who accept the free gift of salvation. (Hebrews 5:9
+And being made perfect, he became the author of eternal salvation unto all
+them that obey him;) We are also told that Jesus is the author and
+finisher of our faith. We must have faith in order to be saved, but it is
+only by God's grace that he allows us to have that faith which will then
+save us because of God's grace. Jesus is the one who gives us our faith so
+that by God's grace we can be saved. This makes sense since Jesus is the
+author of our salvation which comes by his grace through the faith that he
+gives us to believe and trust in him. (Hebrews 12:2 Looking unto Jesus the
+author and finisher of our faith; who for the joy that was set before him
+endured the cross, despising the shame, and is set down at the right hand
+of the throne of God.) [Ephesians 2:5 Even when we were dead in sins, hath
+quickened us together with Christ, (by grace ye are saved;)] (Ephesians
+2:8 For by grace are ye saved through faith; and that not of yourselves:
+it is the gift of God:) The Lamb's book of life is given the name book of
+the living in Psalm 69:28. (Psalm 69:28 Let them be blotted out of the
+book of the living, and not be written with the righteous.) The book is
+called the book of the living because only those who are spiritually born
+again are considered living by God. The unsaved are all spiritually dead
+and will see a second death besides the physical death. As this verse
+shows only the righteous will be in the book. The only way a person can
+become righteous is by being washed in the blood of Jesus who will wash
+away our sins and make them as white as snow. (Isaiah 1:18 Come now, and
+let us reason together, saith the LORD: though your sins be as scarlet,
+they shall be as white as snow; though they be red like crimson, they
+shall be as wool.) I believe God has a book that has written down all of
+the things we have said and have done and this book will also be brought
+out at the great white throne judgment and at the judgment seat of Christ
+which is for believers. The book will be used to condemn the unsaved as
+they will claim they did good works, but God will show that you can never
+do enough good works to earn salvation. The book will be used against
+believers, not for salvation, but for crowns and rewards to see if they
+burn up or will survive the fire. (I Corinthians 3:11-15 11 For other
+foundation can no man lay than that is laid, which is Jesus Christ.
+12 Now if any man build upon this foundation gold, silver, precious
+stones, wood, hay, stubble;
+13 Every man's work shall be made manifest: for the day shall declare it,
+because it shall be revealed by fire; and the fire shall try every man's
+work of what sort it is.
+14 If any man's work abide which he hath built thereupon, he shall receive
+a reward.
+15 If any man's work shall be burned, he shall suffer loss: but he himself
+shall be saved; yet so as by fire.) Only works done for Jesus will survive
+the fire. (Romans 14:10 But why dost thou judge thy brother? or why dost
+thou set at nought thy brother? for we shall all stand before the judgment
+seat of Christ.) (II Corinthians 5:10 For we must all appear before the
+judgment seat of Christ; that every one may receive the things done in his
+body, according to that he hath done, whether it be good or bad.) Isaiah
+warned the people to repent of their sins by reading what was written down
+in the book of the LORD which appears to have been a book God commanded
+Isaiah to write down that contained the sins of the people that would be
+used as a witness against them forever. (Isaiah 30:8 ¶ Now go, write it
+before them in a table, and note it in a book, that it may be for the time
+to come for ever and ever:) (Isaiah 34:16 ¶ Seek ye out of the book of the
+LORD, and read: no one of these shall fail, none shall want her mate: for
+my mouth it hath commanded, and his spirit it hath gathered them.) Let
+this be a lesson for us. Just as God has a book as a witness against the
+Jews of Isaiah's day, God also has a book as a witness against us. Think
+about this the next time you are thinking about sinning as it will be
+written in God's book to be used as a witness against you. This book
+should motivate you to get saved if you are not already so that you can
+ensure that your name is written in the Lamb's book of life and for those
+who are saved to live for God.
+
+We have seen that God is quite the author of many books and has a
+large library. People often do not realize that God is an author or has a
+library, but we have shown how God's books are because he loves everyone
+and wishes that none should perish. God's books are so that we might be
+brought to his Son Jesus and be saved. They are also a reminder for God of
+our tears, his victories in his war with Satan, and as a witness against
+each of us as we stand before God on judgment day. We all need to
+understand that the one book we need to be written in is the Lamb's book
+of life if we want to one day live forever with God. I myself am an
+author, but God is the greatest author of all time and there is no
+comparison. Remember that God has a book for everything and that he cares
+about you and loves you and wants everyone to have their name in the
+Lamb's book of life which is his most important book. Pray today for life
+to ensure your name is written in that book.    
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

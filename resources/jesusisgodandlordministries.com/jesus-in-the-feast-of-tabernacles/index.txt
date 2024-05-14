@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,473 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the Feast of Tabernacles
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Each of the Jewish feasts presents the gospel and Jesus to the Jews
+even though most are not aware of it. That was the main reason for the
+feasts, though the feasts were also a reminder of their deliverance from
+Egypt by God and being fed for 40 years in the wilderness with the harvest
+of God. The feast of tabernacles was one of three feasts along with
+passover and Pentecost (feast of weeks) where all Jewish males were
+required to come to Jerusalem and present a sacrifice. The Israelite males
+brought tithes and offerings to the LORD when they went to the feast of
+tabernacles as well as when they went to passover or Pentecost.
+(Deuteronomy 16:16-17 ¶ Three times in a year shall all thy males appear
+before the LORD thy God in the place which he shall choose; in the feast
+of unleavened bread, and in the feast of weeks, and in the feast of
+tabernacles: and they shall not appear before the LORD empty:
+17 Every man shall give as he is able, according to the blessing of the
+LORD thy God which he hath given thee.) The feast of tabernacles is the
+third and final harvest feast, the first being the feast of first fruits
+and the second Pentecost.
 
-Username or email _____________________
+The feast of tabernacles is a seven day feast which starts on 15
+Tishri (Tishri is the seventh month) and varies on our calendar from the
+end of September to around the middle of October. This is because Israel
+had a 360 day year versus our 365 day year. (Leviticus 23:34 Speak unto
+the children of Israel, saying, The fifteenth day of this seventh month
+shall be the feast of tabernacles for seven days unto the LORD.)
+(Leviticus 23:40 And ye shall keep it a feast unto the LORD seven days in
+the year. It shall be a statute for ever in your generations: ye shall
+celebrate it in the seventh month.) This feast today is known to the Jews
+as Sukkot (Succoth) which means booths so sometimes is called the feast of
+booths. In John 7 it is called simply the feast. The feast always starts
+with a sabbath to worship God and then an eighth day after the seven day
+feast is also a sabbath. (Leviticus 23:39 Also in the fifteenth day of the
+seventh month, when ye have gathered in the fruit of the land, ye shall
+keep a feast unto the LORD seven days: on the first day shall be a
+sabbath, and on the eighth day shall be a sabbath.) The feast of
+tabernacles is the last of the seven feasts commanded by God for the
+Israelites to observe. This feast is five days after the day of atonement
+and at the end of the fall harvest. (Five meaning grace) This feast is
+also known as the feast of ingathering to honor God for their fall
+harvest. (Leviticus 23:27 Also on the tenth day of this seventh month
+there shall be a day of atonement: it shall be an holy convocation unto
+you; and ye shall afflict your souls, and offer an offering made by fire
+unto the LORD.) (Exodus 23:16 And the feast of harvest, the firstfruits of
+thy labours, which thou hast sown in the field: and the feast of
+ingathering, which is in the end of the year, when thou hast gathered in
+thy labours out of the field.) (Deuteronomy 16:13 ¶ Thou shalt observe the
+feast of tabernacles seven days, after that thou hast gathered in thy corn
+and thy wine:) The Israelites would make tabernacles or booths out of tree
+branches and live in them for the week. This is a reminder of their time
+in the wilderness. (Leviticus 23:43 That your generations may know that I
+made the children of Israel to dwell in booths, when I brought them out of
+the land of Egypt: I am the LORD your God.) (Nehemiah 8:15 And that they
+should publish and proclaim in all their cities, and in Jerusalem, saying,
+Go forth unto the mount, and fetch olive branches, and pine branches, and
+myrtle branches, and palm branches, and branches of thick trees, to make
+booths, as it is written.) The Israelites were to rejoice to the LORD
+during this feast. (Leviticus 23:40 And ye shall take you on the first day
+the boughs of goodly trees, branches of palm trees, and the boughs of
+thick trees, and willows of the brook; and ye shall rejoice before the
+LORD your God seven days.) (Deuteronomy 16:14 And thou shalt rejoice in
+thy feast, thou, and thy son, and thy daughter, and thy manservant, and
+thy maidservant, and the Levite, the stranger, and the fatherless, and the
+widow, that are within thy gates.) The feast of tabernacles is the Jews
+equivalent of our Thanksgiving Day, but much longer and complex.
 
-Reset password
+Many important things happened on the feast of tabernacles. Solomon's
+temple was dedicated on this day. (I Kings 8:2 And all the men of Israel
+assembled themselves unto king Solomon at the feast in the month Ethanim,
+which is the seventh month.) Ethanim was the name of the month before the
+Babylonian captivity. Today it is called Tishri.
+
+Jesus performed much of his public ministry around the three main
+Jewish feasts of passover, Pentecost, and the feast of tabernacles. Jesus
+often taught in the temple during these feasts. Once during the feast of
+tabernacles, Jesus said if anyone thirst and come unto him to drink, out
+of his belly would flow living water. [John 7:37-39 In the last day, that
+great day of the feast, Jesus stood and cried, saying, If any man thirst,
+let him come unto me, and drink.
+38 He that believeth on me, as the scripture hath said, out of his belly
+shall flow rivers of living water. 39 (But this spake he of the Spirit,
+which they that believe on him should receive: for the Holy Ghost was not
+yet given; because that Jesus was not yet glorified.)] During this time,
+the priests blew trumpets, psalms were sung (Psalms 113-118), water was
+gathered, branches were waved, and many prayers were prayed for the coming
+Messiah. The people prayed Hosanna meaning save now. When Jesus said for
+those who thirst to come to him, he was saying he was the Messiah (Christ)
+of their prayers. He was the answer to their prayers. He was their
+Saviour. John 7:43 tells us there was division among the people. Some
+recognized Jesus as their Messiah and were saved, but others did not. Some
+as today, refused to see the darkness in their own lives and the need for
+the light of Jesus. (John 7:40-43 ¶ Many of the people therefore, when
+they heard this saying, said, Of a truth this is the Prophet.
+41 Others said, This is the Christ. But some said, Shall Christ come out
+of Galilee?
+42 Hath not the scripture said, That Christ cometh of the seed of David,
+and out of the town of Bethlehem, where David was?
+43 So there was a division among the people because of him.) Another time,
+Jesus healed a blind man by having him wash in the pool of Siloam. (John
+9:5-7 As long as I am in the world, I am the light of the world.
+6 When he had thus spoken, he spat on the ground, and made clay of the
+spittle, and he anointed the eyes of the blind man with the clay,
+7 And said unto him, Go, wash in the pool of Siloam, (which is by
+interpretation, Sent.) He went his way therefore, and washed, and came
+seeing.) The pool of Siloam is where the Jews gathered water every day for
+use in the temple. It is probably around here while Jesus was watching the
+people gather the water, that he said his statement about rivers of living
+water. This water used in the ceremony represented Jesus.
+
+Scripture seems to give us clues that Jesus was born on the feast of
+tabernacles, having been conceived on Hanukkah. All important events in
+the life of Jesus occurred on a Jewish feast day as most likely will all
+future events. John tells us the Word dwelt among us. (John 1:14 And the
+Word was made flesh, and dwelt among us, (and we beheld his glory, the
+glory as of the only begotten of the Father,) full of grace and truth.)
+The word dwelt comes from the Greek word meaning to tabernacle. I believe
+God was giving us a clue as to his birth. This would be like someone born
+on Christmas and we said he Christmased with us. The shepherds were also
+in the fields and would not be in December. If you study when John the
+Baptist was born by comparing scripture, you can determine he was most
+likely born on passover and add six months and Jesus would be born on the
+feast of tabernacles most likely on the first day of the feast and would
+have been circumcised on the sabbath on the eight day of the feast. Jesus
+is referred to as the tabernacle of God in Revelation seeming to confirm
+the meaning in John 1:14. (Revelation 21:3 And I heard a great voice out
+of heaven saying, Behold, the tabernacle of God is with men, and he will
+dwell with them, and they shall be his people, and God himself shall be
+with them, and be their God.) There was no room at the inn for Jesus. This
+could have been due not only from the Roman census, but because many
+Jewish males were in Jerusalem for the feast of tabernacles. Many believe
+Jesus will return to earth in the Second Coming on the feast of
+tabernacles and in the rapture on the feast of trumpets. Jesus was also
+baptized on the feast of tabernacles and anointed by the Holy Ghost at his
+baptism to start his ministry as the Messiah.
+
+During the eight days of the feast of tabernacles, 70 bullocks were
+sacrificed. This was later said to represent the 70 Gentile nations
+separated at the tower of Babel. It is said this represents how Jesus is
+for all, Jew and Gentile who will receive Jesus as their Saviour and how
+all nations need the true God of Israel. The day will come in the
+millennium that all nations are required to go to Jerusalem and celebrate
+the feast of tabernacles or suffer drought as Jesus will gather all
+nations to him as King of kings. (Zechariah 14:16-19 ¶ And it shall come
+to pass, that every one that is left of all the nations which came against
+Jerusalem shall even go up from year to year to worship the King, the LORD
+of hosts, and to keep the feast of tabernacles.
+17 And it shall be, that whoso will not come up of all the families of the
+earth unto Jerusalem to worship the King, the LORD of hosts, even upon
+them shall be no rain.
+18 And if the family of Egypt go not up, and come not, that have no rain;
+there shall be the plague, wherewith the LORD will smite the heathen that
+come not up to keep the feast of tabernacles.
+19 This shall be the punishment of Egypt, and the punishment of all
+nations that come not up to keep the feast of tabernacles.) Since all
+nations will in the future celebrate this feast, it is sometimes called
+the feast of nations, though not in scripture. This feast as an
+agricultural feast shows why the rain will be withheld from those nations
+who deliberately refuse to attend. This feast was the time the Jews prayed
+for rain. Those who deliberately refuse the Holy Ghost as seen in this
+feast in the pouring of the water will be eternally punished in the lake
+of fire for disobedience in neglecting the calling of God.
+
+The living in the booths or tabernacles as represented in this feast
+was a reminder to the Israelites that the wilderness was not their
+permanent home. We as Christians also know this body or tabernacle that we
+live in is not our permanent home. One day we will get a new resurrected
+body. (II Corinthians 5:1 For we know that if our earthly house of this
+tabernacle were dissolved, we have a building of God, an house not made
+with hands, eternal in the heavens.) See (II Corinthians 5:4 and II Peter
+1:13-14.) Israel entered the Promised Land and we who are saved will enter
+the New Jerusalem. The Jews would carry an etrog which was a citrus fruit
+when they entered the temple. This fruit represented the fruit of the
+Promised Land given to the Jews. The branches in the feast represent the
+tree of life and the twelve fruits on it in Revelation 22:2 for life and
+healing of the nations. (Revelation 22:2 In the midst of the street of it,
+and on either side of the river, was there the tree of life, which bare
+twelve manner of fruits, and yielded her fruit every month: and the leaves
+of the tree were for the healing of the nations.)  
+
+Two ceremonies performed by the Jews were associated with the feast
+of tabernacles. They were the ceremony of pouring out of water and the
+ceremony of the festival of lights. In the ceremony of the pouring out of
+water, the priests would march from the temple to the pool of Siloam and
+gather water in jugs and march back to the temple through the water gate
+singing psalms (Psalms 120-134) and then the high priest would pour the
+water from a golden pitcher into a large laver at the temple. Another
+priest using a silver pitcher poured wine in with the water. The gold
+represented the deity of Jesus and the silver the redemption of Jesus and
+the wine the blood shed by Jesus on the cross. The water and wine mixture
+flowed through pipes into the brook Kidron. The pouring out of this water
+symbolized the pouring out of the Holy Ghost on those who are saved and
+for the coming Messiah. This is what Jesus spoke of in his comment about
+out of his belly shall flow living water. [John 7:37-39 In the last day,
+that great day of the feast, Jesus stood and cried, saying, If any man
+thirst, let him come unto me, and drink.
+38 He that believeth on me, as the scripture hath said, out of his belly
+shall flow rivers of living water.
+39 (But this spake he of the Spirit, which they that believe on him should
+receive: for the Holy Ghost was not yet given; because that Jesus was not
+yet glorified.)] Isaiah seems to have spoken of this salvation. (Isaiah
+12:3 Therefore with joy shall ye draw water out of the wells of
+salvation.) Jesus said he was the living water at the end of this ceremony
+on day 7 after the priest had done this pouring of water seven times. The
+Jews would also pray for much rain as they were about to enter the rainy
+season and they needed rain especially since in a desert environment.
+Jesus was the water of a dry and thirsty land as Israel fell in her sins
+and searched for her Messiah. The pouring of the water also represented
+Jesus providing that water for those who thirst. (Psalm 63:1 O God, thou
+art my God; early will I seek thee: my soul thirsteth for thee, my flesh
+longeth for thee in a dry and thirsty land, where no water is;) (Isaiah
+35:7 And the parched ground shall become a pool, and the thirsty land
+springs of water: in the habitation of dragons, where each lay, shall be
+grass with reeds and rushes.) The ceremony of the festival of lights
+consisted of four huge lampstands each with four branches with a huge bowl
+on each branch (total of 16 bowls) set up in the temple and lit at
+sundown. They were 50 cubits high (75 feet tall). 40 gallons of oil was
+used to fill the bowls. They were so bright they lit all of Jerusalem and
+were symbolic of the Shekinah glory of God. When Jesus said he was the
+light of the world, he was saying he was the light represented in this
+ceremony. He was and is the Shekinah glory of God. Shekinah comes from the
+Hebrew words for dwell and tabernacle just like in the tabernacle in the
+wilderness. When Jesus said he was the light of the world, he was saying
+he was the light represented in this ceremony as the lights were put out
+on day 8. (John 8:12 ¶ Then spake Jesus again unto them, saying, I am the
+light of the world: he that followeth me shall not walk in darkness, but
+shall have the light of life.) The number four which means the gospel is
+clearly seen represented in the lampstands.
+
+Palm Sunday, the week before Easter, makes more sense if you understand
+the feast of tabernacles. The people were laying out branches before Jesus
+and saying Hosanna: Blessed is the King of Israel. The branches were palm
+branches (John 12:13) and most likely the other branches used in the feast
+of tabernacles. Hosanna is what the people say during the feast of
+tabernacles and the feast represents the millennial reign of Jesus.
+
+We see in the feast of tabernacles, God's desire from the beginning
+to tabernacle with man. It started with walking in the garden of Eden with
+Adam and Eve, then the tabernacle and then the first and second temples
+and finally when Jesus tabernacled with man in his First Coming. It will
+conclude with his Second Coming, millennial reign, and eternity.
+
+The seventh day of God's creation will be the millennium. We have
+seen how the number seven is prevalent with this feast and we know the
+number seven represents spiritual completeness. The feast of tabernacles
+with its seven days of rejoicing and peace represents the millennium and
+the seven days (seven thousand years) of man here on earth before
+eternity. The eighth day after the feast represents our resurrected bodies
+and new beginning of eternity with Jesus. It also shows there is an
+afterlife. This feast starts on the fifteenth of the month. The number
+fifteen means rest and all Christians will find rest in the millennium. In
+order to be with Jesus in this seventh feast or the millennium, a person
+must make sure they first receive the other six feasts starting with the
+passover sacrifice of seeing how Jesus was our passover lamb who became
+the unleavened life and the first fruits of all those who are saved and
+sent the Holy Ghost to believers on pentecost to be with us until the last
+trumpet calls us home in the rapture in the feast of trumpets and brings
+the second coming of Jesus in the day of atonement with the millennial
+reign of Jesus in the feast of tabernacles and then eternity. Just as the
+feast of tabernacles represented the earthly fall harvest, it also
+represents the future harvest of souls at the end of the great tribulation
+that Jesus spoke about in John 4:35-36 as well as all souls that we should
+be harvesting for the Lord by witnessing to people about Jesus.
+
+The feast of tabernacles as the final yearly feast represents the
+future restoration of Israel and all mankind in the final state of
+eternity. The feast represents how Jesus provided for the Israelites in
+the wilderness and will provide spiritually for all those who receive
+Jesus as their Saviour. Whenever the Israelites neglected to celebrate the
+feast of tabernacles, this was a spiritual decline in the nation of Israel
+and their rejection of God for idols and false gods. Let all of us never
+forget Jesus in the feast of tabernacles and our future with him for those
+who are saved.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

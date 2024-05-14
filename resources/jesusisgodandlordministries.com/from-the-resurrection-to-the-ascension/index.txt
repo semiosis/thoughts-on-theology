@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,539 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+From the resurrection to the ascension
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Many preachers preach on the resurrection of Jesus as they should
+since it is the most important event in history and without it we would
+still be lost sinners, yet many neglect to preach on the ascension of
+Jesus and the events of Jesus in the 40 day period between the
+resurrection and the ascension. Following the resurrection of Jesus, he
+walked on earth for forty more days, but this time in his resurrected,
+glorified body to show the disciples what they could look forward to.
+Jesus was able to do things in his glorified body such as walk through
+walls that he could never do in his physical body prior to his
+crucifixion. All of us will be able to do the same thing when we get our
+glorified bodies at the rapture. During this forty day period Jesus would
+give his final instructions to his disciples before ascending to heaven
+and not returning physically here on earth again until his second coming
+at the end of the great tribulation. There are nine forty day periods
+mentioned in scripture with the last two dealing with Jesus, his first
+having been his forty days of temptation in the wilderness by Satan just
+before the start of his public ministry. They all have to do with trials
+and temptations except for this 40 day period of Jesus between his
+resurrection and his ascension were Jesus used this period as a time of
+preparation, teaching and instruction with his final commands to his
+disciples. It was also to show himself alive with many infallible proofs
+so they could boldly preach about him to the world. (Acts 1:1-3 The former
+treatise have I made, O Theophilus, of all that Jesus began both to do and
+teach,
+2 Until the day in which he was taken up, after that he through the Holy
+Ghost had given commandments unto the apostles whom he had chosen:
+3 To whom also he shewed himself alive after his passion by many
+infallible proofs, being seen of them forty days, and speaking of the
+things pertaining to the kingdom of God:) Jesus did not appear to everyone
+like he did when he walked the earth, but rather only to certain people.
+(Acts 10:40-41 Him God raised up the third day, and shewed him openly;
+41 Not to all the people, but unto witnesses chosen before of God, even to
+us, who did eat and drink with him after he rose from the dead.)
 
-Username or email _____________________
+During the three days and three nights that Jesus was in the grave he
+went and preached to the spirits in hell. (I Peter 3:18-19 For Christ also
+hath once suffered for sins, the just for the unjust, that he might bring
+us to God, being put to death in the flesh, but quickened by the Spirit:
+19 By which also he went and preached unto the spirits in prison;) This
+does not refer to unsaved people who had died as people are never referred
+to as spirits in scripture, they are only said to have a spirit. Jesus
+never preached to the unsaved people as people can never get a second
+chance at salvation following death which is why people need to choose
+Jesus while they are still alive. These spirits are not the wicked people
+of Noah's day as many people teach. In scripture spirits refers to angels
+and in this case it refers to those angels who sinned with the women in
+Genesis 6 producing the giants. Jesus preached to these evil angels to
+proclaim victory over them and that their impending doom was now sealed.
+Jesus also preached to them that he had taken captivity captive and was
+going to release all of those who were saved and bring them to heaven
+following his resurrection. Prior to the resurrection of Jesus, the old
+testament saints were held captive by Satan, but now Satan was defeated
+and his doom sealed as Jesus rose victorious from the grave. [Ephesians
+4:8-10 8 Wherefore he saith, When he ascended up on high, he led captivity
+captive, and gave gifts unto men.
+9 (Now that he ascended, what is it but that he also descended first into
+the lower parts of the earth?
+10 He that descended is the same also that ascended up far above all
+heavens, that he might fill all things.)]
 
-Reset password
+Jesus rose from the grave on that glorious early Sunday morning which
+we call Resurrection Day which was the feast of firstfruits as our
+firstfruits of resurrection. (I Corinthians 15:20 But now is Christ risen
+from the dead, and become the firstfruits of them that slept.) Jesus had
+to rise first and get his glorified body first before any saints who had
+died could get theirs. This also allows us to get ours in the future for
+those who are saved. Early in the morning at sunrise of that resurrection
+day several women including Mary Magdalene, Mary the mother of Jesus,
+Salome, and Joanna and other women brought spices and ointments for the
+preparation of the body of Jesus since they were unable to finish it prior
+to the sabbath following the crucifixion of Jesus. (Matthew 28:1 In the
+end of the sabbath, as it began to dawn toward the first day of the week,
+came Mary Magdalene and the other Mary to see the sepulchre.) (Mark 16:1-2
+And when the sabbath was past, Mary Magdalene, and Mary the mother of
+James, and Salome, had bought sweet spices, that they might come and
+anoint him.
+2 And very early in the morning the first day of the week, they came unto
+the sepulchre at the rising of the sun.) (Luke 23:56-24:10) (John 20:1 The
+first day of the week cometh Mary Magdalene early, when it was yet dark,
+unto the sepulchre, and seeth the stone taken away from the sepulchre.)
+Notice that these women just as the male disciples did not believe Jesus
+when he said he would rise from the grave for if they did then they never
+would have come to prepare his body. If the men believed then they would
+have come early in the morning as well to see the empty grave. An angel
+appeared to them to tell the women that Jesus was not there, but was risen
+as he said he would. The angel told them to hurry back and tell the
+disciples and Peter. Peter was specifically mentioned not because he was
+above the other apostles as the Roman Catholic Church teaches, but rather
+because Peter had denied Jesus three times and God wanted Peter to know
+that he had been forgiven and was still loved by God and would still be
+used by Jesus. The women did as they were told and then Peter and John ran
+to the grave to see and Mary Magdalene followed along. After the men saw
+the empty grave, they left, but Mary stayed behind and wept. It was at
+this time that Jesus made his first appearance following his resurrection
+as he spoke with Mary Magdalene. Mary thought he was the gardener, but
+then Jesus said that it was him and for her to go and tell the disciples
+that she saw him. (John 20:14-18 And when she had thus said, she turned
+herself back, and saw Jesus standing, and knew not that it was Jesus.
+15 Jesus saith unto her, Woman, why weepest thou? whom seekest thou? She,
+supposing him to be the gardener, saith unto him, Sir, if thou have borne
+him hence, tell me where thou hast laid him, and I will take him away.
+16 Jesus saith unto her, Mary. She turned herself, and saith unto him,
+Rabboni; which is to say, Master.
+17 Jesus saith unto her, Touch me not; for I am not yet ascended to my
+Father: but go to my brethren, and say unto them, I ascend unto my Father,
+and your Father; and to my God, and your God.
+18 Mary Magdalene came and told the disciples that she had seen the Lord,
+and that he had spoken these things unto her.) Notice that it was Mary
+Magdalene a woman who was given the privilege of being the first person to
+see the resurrected Jesus and not one of the male apostles or disciples.
+God is no respecter of persons. (Acts 10:34 ¶ Then Peter opened his mouth,
+and said, Of a truth I perceive that God is no respecter of persons:) In
+verse 17 Jesus told Mary not to touch him until he had ascended to his and
+Mary's Father and his and Mary's God. This does not refer to the ascension
+but was rather a part of the redemption of mankind. Jesus ascended to
+heaven to place his blood on the heavenly altar which completed the
+redemption for all people. This completed what was started on the cross at
+Calvary and was necessary for if Jesus had never placed his blood on the
+heavenly altar to be accepted by God the Father then we would still be
+dead in our sins. Mary was not allowed to touch Jesus so she did not
+pollute him as she was unclean due to sin. Once Jesus returned from heaven
+then he could be touched as was seen later on the same day.
+
+Once Jesus completed the work necessary for man's redemption and
+returned from heaven on that same resurrection day then he next appeared
+to the women that had come to the grave as they were on their way to tell
+the disciples what the angel had said. At this point he could now be
+touched and was as the women held his feet and worshipped him. Jesus did
+not stay long in heaven before returning. (Matthew 28:9-10 ¶ And as they
+went to tell his disciples, behold, Jesus met them, saying, All hail. And
+they came and held him by the feet, and worshipped him.
+10 Then said Jesus unto them, Be not afraid: go tell my brethren that they
+go into Galilee, and there shall they see me.)
+
+The next appearance by Jesus on that resurrection day was to Cleopas
+and another disciple of Jesus who was Peter as they were walking from
+Jerusalem to the nearby town of Emmaus. (Luke 24:13, 18) (Luke 24:34
+Saying, The Lord is risen indeed, and hath appeared to Simon.) (I
+Corinthians 15:5 And that he was seen of Cephas, then of the twelve:) This
+appearance can be found in Luke 24:13-35 and in (Mark 16:12-13 ¶ After
+that he appeared in another form unto two of them, as they walked, and
+went into the country.
+13 And they went and told it unto the residue: neither believed they
+them.). When they first saw Jesus they did not know it was him as Jesus
+appeared in another form. Jesus asked them why they were sad and they said
+do you not know what happened over the last three days and Jesus said what
+things. They told him about Jesus and then Jesus scolded them and began to
+relate to them about what the scriptures have to say about Jesus beginning
+with Moses and the prophets. The men's hearts burned within them as Jesus
+spoke. When they got to Emmaus then Jesus sat at a meal with them and
+opened their eyes so they knew it was him and then he disappeared. Jesus
+in his resurrected, glorified body could now move at the speed of thought
+and vanish and reappear in new locations. These two men went back to
+Jerusalem to then tell the other apostles and disciples.   
+
+Jesus' next appearance on this resurrection Sunday was in the evening
+at meal time to all of the apostles as well as other disciples in
+Jerusalem where they were shut up in a house behind closed doors for fear
+of the Jews. (John 20:19-23 19 ¶ Then the same day at evening, being the
+first day of the week, when the doors were shut where the disciples were
+assembled for fear of the Jews, came Jesus and stood in the midst, and
+saith unto them, Peace be unto you.
+20 And when he had so said, he shewed unto them his hands and his side.
+Then were the disciples glad, when they saw the Lord.
+21 Then said Jesus to them again, Peace be unto you: as my Father hath
+sent me, even so send I you.
+22 And when he had said this, he breathed on them, and saith unto them,
+Receive ye the Holy Ghost:
+23 Whose soever sins ye remit, they are remitted unto them; and whose
+soever sins ye retain, they are retained.) During this appearance to the
+apostles and disciples then Jesus opens their eyes to understand scripture
+and what Jesus had taught them during his 3.5 year earthly ministry. Jesus
+used this time to instruct them to preach repentance and that all people
+needed their sins forgiven by Jesus. (Luke 24:45 Then opened he their
+understanding, that they might understand the scriptures,) In the Luke
+account found in Luke 24:36-49 we see Jesus ate with the disciples in
+verse 43 which shows how we will still be able to eat with our glorified
+bodies. Also found in (Mark 16:14-18 ¶ Afterward he appeared unto the
+eleven as they sat at meat, and upbraided them with their unbelief and
+hardness of heart, because they believed not them which had seen him after
+he was risen.
+15 And he said unto
+them, Go ye into all the world, and preach the gospel to every creature.
+16
+He that believeth and is baptized shall be saved; but he that believeth not shall be damned.
+17 And these signs shall follow them that believe; In my name shall they
+cast out devils; they shall speak with new tongues;
+18 They shall take up serpents; and if they drink any deadly thing, it
+shall not hurt them; they shall lay hands on the sick, and they shall
+recover.) John 20:19 shows how Jesus was able to appear out of nowhere
+into the middle of a room with a locked door. This shows how in our
+glorified bodies we also will be able to appear into a room without having
+to enter through a door or window. Some of the disciples in this room may
+have been some of the people whose graves were opened at the crucifixion
+of Jesus. Scripture says over 500 people saw Jesus during this 40 day
+period at one time, but many are not mentioned on the exact timing when.
+(I Corinthians 15:6 After that, he was seen of above five hundred brethren
+at once; of whom the greater part remain unto this present, but some are
+fallen asleep.) Jesus was busy on this resurrection Sunday making many
+appearances in multiple places.
+
+Jesus next appeared eight days later on the following Sunday before
+his disciples who were again in this same room. Jesus did this since
+Thomas was not there when Jesus came the last time and he said unless he
+could see the nail prints in the hands of Jesus and touch his pierced side
+then he would not believe. Jesus came so that Thomas could see and touch
+him. When Thomas saw he believed and called Jesus his Lord and his God.
+(John 20:24-29 24 ¶ But Thomas, one of the twelve, called Didymus, was not
+with them when Jesus came.
+25 The other disciples therefore said unto him, We have seen the Lord. But
+he said unto them, Except I shall see in his hands the print of the nails,
+and put my finger into the print of the nails, and thrust my hand into his
+side, I will not believe.
+
+26 ¶ And after eight days again his disciples were within, and Thomas with
+them: then came Jesus, the doors being shut, and stood in the midst, and
+said, Peace be unto you.
+27 Then saith he to Thomas, Reach hither thy finger, and behold my hands;
+and reach hither thy hand, and thrust it into my side: and be not
+faithless, but believing.
+
+28 And Thomas answered and said unto him, My Lord and my God.
+29 Jesus saith unto him, Thomas, because thou hast seen me, thou hast
+believed: blessed are they that have not seen, and yet have believed.)
+Jesus said blessed are those who believe without seeing as we must do
+today. Verse 30 says Jesus did many other signs that are not written.
+(John 20:30-31 ¶ And many other signs truly did Jesus in the presence of
+his disciples, which are not written in this book:
+31 But these are written, that ye might believe that Jesus is the Christ,
+the Son of God; and that believing ye might have life through his name.)  
+
+Jesus next appeared to seven of the disciples as they were fishing on
+the sea of Galilee. (John 21:1-2 After these things Jesus shewed himself
+again to the disciples at the sea of Tiberias; and on this wise shewed
+he himself.
+2 There were together Simon Peter, and Thomas called Didymus, and
+Nathanael of Cana in Galilee, and the sons of Zebedee, and two other of
+his disciples.) The disciples had been fishing all night without catching
+anything but Jesus called out to them from the shore and told them to cast
+their net on the right side. They did not realize it was Jesus, but did as
+he told them and they caught 153 fishes. It was then that John realized it
+was Jesus and they all headed to shore. It has been said that the 153
+fishes represent the 153 people mentioned in scripture who received a
+direct blessing by Jesus. It also represents how these disciples will now
+be fishers of men's souls just as God commanded them rather than fishing
+for their own pleasure. 153 is 9 x 17 with 9 meaning the fruit of the
+Spirit and 17 means victory. We get victory by obeying the Holy Ghost. We
+see Jesus eating again in this account here in John 21. Jesus restores
+Peter as useful for him. (John 21:15-19 ¶ So when they had dined, Jesus
+saith to Simon
+Peter, Simon, son of Jonas, lovest thou me more than these? He saith unto
+him, Yea, Lord; thou knowest that I love thee. He saith unto
+him, Feed my lambs.
+16 He saith to him again the second
+time, Simon, son of Jonas, lovest thou me? He saith unto him, Yea, Lord;
+thou knowest that I love thee. He saith unto him, Feed my sheep.
+17 He saith unto him the third
+time, Simon, son of Jonas, lovest thou me? Peter was grieved because he
+said unto him the third time, Lovest thou me? And he said unto him, Lord,
+thou knowest all things; thou knowest that I love thee. Jesus saith unto
+him, Feed my sheep.
+18 Verily, verily, I say unto thee, When thou wast young, thou girdedst
+thyself, and walkedst whither thou wouldest: but when thou shalt be old,
+thou shalt stretch forth thy hands, and another shall gird thee, and carry
+thee whither thou wouldest not.
+19 This spake he, signifying by what death he should glorify God. And when
+he had spoken this, he saith unto him, Follow me.)
+
+There appears to be at some point that Jesus may have appeared to his
+brother James as seen in I Corinthians 15:7 (I Corinthians 15:7 After
+that, he was seen of James; then of all the apostles.) and that Jesus also
+met the disciples in Galilee as the angel said he would and told in
+Matthew 28:16-18. (Matthew 28:16-18 16 ¶ Then the eleven disciples went
+away into Galilee, into a mountain where Jesus had appointed them.
+17 And when they saw him, they worshipped him: but some doubted.
+18 And Jesus came and spake unto them,
+saying, All power is given unto me in heaven and in earth.)
+
+The final appearance of Jesus during this 40 day period mentioned in
+scripture is his ascension from the mount of olives. Jesus had spoke of
+this future event to his disciples during his 3.5 year ministry. (John
+6:62 What and if ye shall see the Son of man ascend up where he was
+before?) This is on the 40^th day since his resurrection. The ascension is
+mentioned in three places; Mark, Luke, and Acts. Many modern bibles either
+remove one or more of these places or at least casts doubt on the
+ascension belonging in scripture with footnotes. (Mark 16:19 ¶ So then
+after the Lord had spoken unto them, he was received up into heaven, and
+sat on the right hand of God.) (Luke 24:50-51 ¶ And he led them out as far
+as to Bethany, and he lifted up his hands, and blessed them.
+51 And it came to pass, while he blessed them, he was parted from them,
+and carried up into heaven.) (Acts 1:9-12 9 And when he had spoken these
+things, while they beheld, he was taken up; and a cloud received him out
+of their sight.
+10 And while they looked stedfastly toward heaven as he went up, behold,
+two men stood by them in white apparel;
+11 Which also said, Ye men of Galilee, why stand ye gazing up into heaven?
+this same Jesus, which is taken up from you into heaven, shall so come in
+like manner as ye have seen him go into heaven.
+12 Then returned they unto Jerusalem from the mount called Olivet, which
+is from Jerusalem a sabbath day's journey.) Just before his ascension,
+Jesus commanded the disciples to remain in Jerusalem and to wait for the
+Comforter, who is the Holy Ghost whom he would send. Ten days after the
+ascension of Jesus on the feast of Pentecost, the Holy Ghost was given to
+the disciples. Jesus would later appear to Paul on the road to Damascas
+but he was in heaven. (Acts 9:3-6 And as he journeyed, he came near
+Damascus: and suddenly there shined round about him a light from heaven:
+4 And he fell to the earth, and heard a voice saying unto
+him, Saul, Saul, why persecutest thou me?
+5 And he said, Who art thou, Lord? And the Lord said, I am Jesus whom thou
+persecutest: it is hard for thee to kick against the pricks.
+6 And he trembling and astonished said, Lord, what wilt thou have me to
+do? And the Lord said unto
+him, Arise, and go into the city, and it shall be told thee what thou must do.)
+Jesus will not return here to earth until his second coming. Just before
+his ascension he commanded the disciples to go into all the world and
+teach the nations and tell the people how they needed to repent and
+confess that they are a sinner and call upon Jesus to be their Saviour.
+The same command applies to us today. They were then to baptize the saved
+people in the name of the Godhead and Jesus includes himself showing he is
+God. This command is known as the Great Commission. (Matthew 28:19-20 ¶ Go
+ye therefore, and teach all nations, baptizing them in the name of the
+Father, and of the Son, and of the Holy Ghost:
+20 Teaching them to observe all things whatsoever I have commanded you:
+and, lo, I am with you alway, even unto the end of the world. Amen.)
+Following the ascension of Jesus, the disciples no longer hid in fear, but
+became bold in preaching Jesus to a lost and dead world.
+
+I have shown the various appearances of Jesus from his resurrection
+to his ascension as best as I can as it can be challenging to piece all of
+the accounts given in the gospels, Acts, I Corinthians, and other places
+in scripture. Following the ascension of Jesus he now sits on the right
+hand of God the Father, as many places in scripture show, waiting for the
+timing of his second coming as King. For those who are not saved, realize
+that you are a sinner and call upon Jesus today so that you too may say
+even so come Lord Jesus as we await his second coming which will be soon.
+
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,769 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+The Battle of Gog and Magog
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+The Battle of Gog and Magog is a future battle between Russia and
+Muslim nations against Israel foretold in Ezekiel chapters 38-39. With
+Russia fighting a war currently with Ukraine and rumors that Russia will
+next invade Moldova, I thought this was a good time to speak on this
+future battle. After the fall of the USSR, many people predicted that
+communism and Russia were done, but I warned that they were both alive and
+well and would return in full force in the future as scripture prophesizes
+it. The bear (Russia) will be fully awake and socialism (communism) is
+spreading throughout former Western nations including here in the United
+States were socialism has taken over the nation. The government of the
+future antichrist will be socialism. In Russia's current war, many nations
+have implemented harsh sanctions against Russia to try and stop the war,
+but I believe this will only anger Russia more and make them more
+determined to continue their fight. As the people start starving, they
+will hate the West more and blame them rather than Putin. I am not for
+Russia, but I am giving the reality of what happens and history proves it.
+When people are pushed, they usually push back. If you push people to the
+breaking point, they are going to fight back. The West, including the US,
+are hoping the sanctions will cause the people to overthrow Putin, but
+that is not how it works. It just makes the people more defiant against
+those imposing the sanctions. The inside information coming from Russia
+already shows more support for Putin than before the war, even with all of
+the dead, as the sanctions continue. The same thing happened to Germany
+after World War I as the nations wanted to punish Germany they implemented
+harsh penalties and it was because of the harsh treatment on Germany that
+allowed Hitler to gain control of the nation. He would have never been
+successful if the demands (reparations) against Germany had not been so
+harsh. As I said I do not approve of what Germany did or of Russia who has
+always been the evil empire, but the politicians better learn from history
+before they truly awake the bear and reap what they sow as scripture says.
+The main reason that the world leaders have all turned against Russia is
+because Russia is interfering in their plan for the one world government
+as Russia and China both want to be the one ruling the world. The world
+leaders acted surprised about Russia's invasion, but they never should
+have been if they knew scripture and paid attention to the signs. Russia
+has been fighting against Ukraine in small sections since 2014 and showed
+all of the signs of a coming invasion. I told various people that I bet as
+soon as the Winter Olympics were over then Russia would invade and that is
+exactly what happened the day after they ended. Germany which is one of
+the future countries that will join Russia in the attack on Israel
+initially implemented sanctions against Russia, but the government is
+already thinking about ending them as she has relied on Russia for natural
+gas. This sign of change is yet another sign that biblical prophecy will
+be fulfilled in the future as written in scripture.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+There are various opinions on the timing of this future battle. The
+first opinion says the battle will occur prior to the rapture and the
+seven year tribulation. The second opinion says the battle will occur
+between the rapture and the tribulation and a third opinion says around
+the middle of the tribulation. A fourth view says it will occur just prior
+to the second coming of Jesus and is the same as the Battle of Armageddon.
+A fifth view says it will be during the gap between the second coming of
+Jesus and the start of the millennium. The final view says the battle will
+occur at the end of the millennium. Some have even said it already
+occurred, but after we study the description of the battle it should be
+obvious that it has not happened yet. Ezekiel 38:8 says the battle will be
+in the "latter years" which is the time we are living in now so it could
+not have already happened. Ezekiel 37 is about Israel becoming a nation
+again which happened in May 1948 and this battle follows that and this has
+never happened since 1948. I am briefly going to touch on the last three
+views and then will later mention the first three as we look at these
+chapters in Ezekiel. The fourth view cannot be correct as the Battle of
+Gog and Magog is just certain nations that attack Israel whereas the
+Battle of Armageddon involves the 200 million man army of China and other
+Oriental nations meeting the antichrist and his army of the rest of the
+world's nations fighting in Israel, but who all will join in the attack
+against Jesus when he comes. (Revelation 9:16 And the number of the army
+of the horsemen were two hundred thousand thousand: and I heard the number
+of them.) (Revelation 16:16 And he gathered them together into a place
+called in the Hebrew tongue Armageddon.) The descriptions of the amount
+dead and burning weapons and so forth do not match as we will see. These
+are clearly not the same battles. The fifth view says the battle will
+occur after the end of the tribulation and before the start of the
+millennium. In between these two periods there will be 75 days that Jesus
+will use to judge the nations and clean up things from the Battle of
+Armageddon and prepare for the millennium including building the fourth or
+millennial temple. All of the unsaved will be cast into hell. Daniel says
+the tribulation will be made of two periods of 3.5 years with the last
+half known as the great tribulation. Each year is made of 360 days based
+on the Jewish calendar for a total of 1260 days for each period. (Daniel
+12:7 And I heard the man clothed in linen, which was upon the waters of
+the river, when he held up his right hand and his left hand unto heaven,
+and sware by him that liveth for ever that it shall be for a time, times,
+and an half; and when he shall have accomplished to scatter the power of
+the holy people, all these things shall be finished.) The antichrist will
+start the second half by breaking the peace treaty with Israel and
+desecrating the temple. Then the great tribulation will be followed by 75
+days prior to the millennium consisting of two periods, one of 30 days and
+the second of 45 days. The time clock starts to calculate these extra days
+when the antichrist desolates the temple. It is possible that the
+antichrist desolates it 30 days prior to the end of the first half so that
+there is only 45 days in between the tribulation and the millennium. Some
+theologians have said that Jesus does not return until those extra days
+are done, but scripture says he returns at the end of the tribulation at
+the Battle of Armageddon. (Daniel 12:11-12 And from the time that the
+daily sacrifice shall be taken away, and the abomination that maketh
+desolate set up, there shall be a thousand two hundred and ninety days.
+12 Blessed is he that waiteth, and cometh to the thousand three hundred
+and five and thirty days.) If you subtract 1335 days from 1260 then you
+get 75 days. Since God (Jesus) has judged the nations, known as the sheep
+and goat judgment, during the 75 day period then I do not see how the
+Battle of Gog and Magog can occur at this time. (Matthew 25:32-33 And
+before him shall be gathered all nations: and he shall separate them one
+from another, as a shepherd divideth his sheep from the goats:
+33
+And he shall set the sheep on his right hand, but the goats on the left.)
+The sixth view is wrong as this speaks of a different battle with the same
+name, but over a thousand years apart. Many wars in history have battles
+of the same name and this is no different. At the end of the millennium
+there will be another battle with the same name. In this battle then Satan
+is loosed to stir up the battle and people who are as numerous as the sand
+of the sea are ready to join Satan in fighting Jesus. Even with Jesus
+ruling here on earth in an ideal environment, we see how people just
+refuse to serve Jesus. People just love sin. Jesus quickly ends the
+rebellion and battle by sending fire from heaven and all are cast into the
+lake of fire. No one has a chance to repent whereas some do in the first
+battle. People survive the first Battle of Gog and Magog and unlike the
+second battle which has people from all over the world fighting, the first
+battle only has certain nations. The first battle is against Israel and
+the second battle is against Jesus. These are clearly different battles
+just with the same name. God names the battle the same as the people in
+the second battle are just as rebellious as the people in the first battle
+and he is just making a comparison. This is similar to people calling
+someone the devil because they act like him, but everyone knows the person
+is not really the devil. God also compared nations to Sodom. (Revelation
+20:7-10 And when the thousand years are expired, Satan shall be loosed out
+of his prison,
+8 And shall go out to deceive the nations which are in the four quarters
+of the earth, Gog and Magog, to gather them together to battle: the number
+of whom is as the sand of the sea.
+9 And they went up on the breadth of the earth, and compassed the camp of
+the saints about, and the beloved city: and fire came down from God out of
+heaven, and devoured them.
+10 And the devil that deceived them was cast into the lake of fire and
+brimstone, where the beast and the false prophet are, and shall be
+tormented day and night for ever and ever.)
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+Read Ezekiel 38-39 to get the full picture. (Ezekiel 38:1-23 1 And
+the word of the LORD came unto me, saying,
+2 Son of man, set thy face against Gog, the land of Magog, the chief
+prince of Meshech and Tubal, and prophesy against him,
+3 And say, Thus saith the Lord GOD; Behold, I am against thee, O Gog, the
+chief prince of Meshech and Tubal:
+4 And I will turn thee back, and put hooks into thy jaws, and I will bring
+thee forth, and all thine army, horses and horsemen, all of them clothed
+with all sorts of armour, even a great company with bucklers and shields,
+all of them handling swords:
+5 Persia, Ethiopia, and Libya with them; all of them with shield and
+helmet:
+6 Gomer, and all his bands; the house of Togarmah of the north quarters,
+and all his bands: and many people with thee.
+7 Be thou prepared, and prepare for thyself, thou, and all thy company
+that are assembled unto thee, and be thou a guard unto them.
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+8 ¶ After many days thou shalt be visited: in the latter years thou shalt
+come into the land that is brought back from the sword, and is gathered
+out of many people, against the mountains of Israel, which have been
+always waste: but it is brought forth out of the nations, and they shall
+dwell safely all of them.
+9 Thou shalt ascend and come like a storm, thou shalt be like a cloud to
+cover the land, thou, and all thy bands, and many people with thee.
+10 Thus saith the Lord GOD; It shall also come to pass, that at the same
+time shall things come into thy mind, and thou shalt think an evil
+thought:
+11 And thou shalt say, I will go up to the land of unwalled villages; I
+will go to them that are at rest, that dwell safely, all of them dwelling
+without walls, and having neither bars nor gates,
+12 To take a spoil, and to take a prey; to turn thine hand upon the
+desolate places that are now inhabited, and upon the
+people that are gathered out of the nations, which have gotten cattle and
+goods, that dwell in the midst of the land.
+13 Sheba, and Dedan, and the merchants of Tarshish, with all the young
+lions thereof, shall say unto thee, Art thou come to take a spoil? hast
+thou gathered thy company to take a prey? to carry away silver and gold,
+to take away cattle and goods, to take a great spoil?
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+14 ¶ Therefore, son of man, prophesy and say unto Gog, Thus saith the Lord
+GOD; In that day when my people of Israel dwelleth safely, shalt thou not
+know it?
+15 And thou shalt come from thy place out of the north parts, thou, and
+many people with thee, all of them riding upon horses, a great company,
+and a mighty army:
+16 And thou shalt come up against my people of Israel, as a cloud to cover
+the land; it shall be in the latter days, and I will bring thee against my
+land, that the heathen may know me, when I shall be sanctified in thee, O
+Gog, before their eyes.
+17 Thus saith the Lord GOD; Art thou he of whom I have spoken in old time
+by my servants the prophets of Israel, which prophesied in those
+days many years that I would bring thee against them?
+18 And it shall come to pass at the same time when Gog shall come against
+the land of Israel, saith the Lord GOD, that my fury shall come up in my
+face.
+19 For in my jealousy and in the fire of my wrath have I spoken, Surely in
+that day there shall be a great shaking in the land of Israel;
+20 So that the fishes of the sea, and the fowls of the heaven, and the
+beasts of the field, and all creeping things that creep upon the earth,
+and all the men that are upon the face of the earth, shall shake at my
+presence, and the mountains shall be thrown down, and the steep places
+shall fall, and every wall shall fall to the ground.
+21 And I will call for a sword against him throughout all my mountains,
+saith the Lord GOD: every man's sword shall be against his brother.
+22 And I will plead against him with pestilence and with blood; and I will
+rain upon him, and upon his bands, and upon the many people that are with
+him, an overflowing rain, and great hailstones, fire, and brimstone.
+23 Thus will I magnify myself, and sanctify myself; and I will be known in
+the eyes of many nations, and they shall know that I am the LORD.)
+(Ezekiel 39:1-29 1 Therefore, thou son of man, prophesy against Gog, and
+say, Thus saith the Lord GOD; Behold, I am against thee, O Gog, the chief
+prince of Meshech and Tubal:
+2 And I will turn thee back, and leave but the sixth part of thee, and
+will cause thee to come up from the north parts, and will bring thee upon
+the mountains of Israel:
+3 And I will smite thy bow out of thy left hand, and will cause thine
+arrows to fall out of thy right hand.
+4 Thou shalt fall upon the mountains of Israel, thou, and all thy bands,
+and the people that is with thee: I will give thee unto the ravenous birds
+of every sort, and to the beasts of the field to be devoured.
+5 Thou shalt fall upon the open field: for I have spoken it, saith the
+Lord GOD.
+6 And I will send a fire on Magog, and among them that dwell carelessly in
+the isles: and they shall know that I am the LORD. 7 So will I make my
+holy name known in the midst of my people Israel; and I will
+not let them pollute my holy name any more: and the heathen shall know
+that I am the LORD, the Holy One in Israel.
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+8 ¶ Behold, it is come, and it is done, saith the Lord GOD; this is the
+day whereof I have spoken.
+9 And they that dwell in the cities of Israel shall go forth, and shall
+set on fire and burn the weapons, both the shields and the bucklers, the
+bows and the arrows, and the handstaves, and the spears, and they shall
+burn them with fire seven years:
+10 So that they shall take no wood out of the field, neither cut
+down any out of the forests; for they shall burn the weapons with fire:
+and they shall spoil those that spoiled them, and rob those that robbed
+them, saith the Lord GOD.
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+11 ¶ And it shall come to pass in that day, that I will give unto Gog a
+place there of graves in Israel, the valley of the passengers on the east
+of the sea: and it shall stop the noses of the passengers: and there shall
+they bury Gog and all his multitude: and they shall call it The valley of
+Hamon-gog.
+12 And seven months shall the house of Israel be burying of them, that
+they may cleanse the land.
+13 Yea, all the people of the land shall bury them; and it shall be to
+them a renown the day that I shall be glorified, saith the Lord GOD.
+14 And they shall sever out men of continual employment, passing through
+the land to bury with the passengers those that remain upon the face of
+the earth, to cleanse it: after the end of seven months shall they search.
+15 And the passengers that pass through the land, when any seeth a man's
+bone, then shall he set up a sign by it, till the buriers have buried it
+in the valley of Hamon-gog.
+16 And also the name of the city shall be Hamonah. Thus shall they cleanse
+the land.
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+17 ¶ And, thou son of man, thus saith the Lord GOD; Speak unto every
+feathered fowl, and to every beast of the field, Assemble yourselves, and
+come; gather yourselves on every side to my sacrifice that I do sacrifice
+for you, even a great sacrifice upon the mountains of Israel, that ye may
+eat flesh, and drink blood.
+18 Ye shall eat the flesh of the mighty, and drink the blood of the
+princes of the earth, of rams, of lambs, and of goats, of bullocks, all of
+them fatlings of Bashan.
+19 And ye shall eat fat till ye be full, and drink blood till ye be
+drunken, of my sacrifice which I have sacrificed for you.
+20 Thus ye shall be filled at my table with horses and chariots, with
+mighty men, and with all men of war, saith the Lord GOD.
+21 And I will set my glory among the heathen, and all the heathen shall
+see my judgment that I have executed, and my hand that I have laid upon
+them.
+22 So the house of Israel shall know that I am the LORD their God from
+that day and forward.
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+23 ¶ And the heathen shall know that the house of Israel went into
+captivity for their iniquity: because they trespassed against me,
+therefore hid I my face from them, and gave them into the hand of their
+enemies: so fell they all by the sword.
+24 According to their uncleanness and according to their transgressions
+have I done unto them, and hid my face from them.
+25 Therefore thus saith the Lord GOD; Now will I bring again the captivity
+of Jacob, and have mercy upon the whole house of Israel, and will be
+jealous for my holy name;
+26 After that they have borne their shame, and all their trespasses
+whereby they have trespassed against me, when they dwelt safely in their
+land, and none made them afraid.
+27 When I have brought them again from the people, and gathered them out
+of their enemies' lands, and am sanctified in them in the sight of many
+nations;
+28 Then shall they know that I am the LORD their God, which caused them to
+be led into captivity among the heathen: but I have gathered them unto
+their own land, and have left none of them any more there.
+29 Neither will I hide my face any more from them: for I have poured out
+my spirit upon the house of Israel, saith the Lord GOD.)
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Ezekiel 37 speaks of the restoration of Israel known as the valley of
+dry bones. This chapter has been partly fulfilled with Israel reformed as
+a nation in May 1948 and will be completed during the millennium. Then we
+see in Ezekiel 38-39 the attack on Israel and the Battle of Gog and Magog.
+Ezekiel 38:1-7 speaks of the nations that will join together to attack
+Israel. We know for sure what some of the nations are, but there is some
+disagreement on some nations. (Ezekiel 38:1-7 And the word of the
+LORD came unto me, saying,
+2 Son of man, set thy face against Gog, the land of Magog, the chief
+prince of Meshech and Tubal, and prophesy against him,
+3 And say, Thus saith the Lord GOD; Behold, I am against thee, O Gog, the
+chief prince of Meshech and Tubal:
+4 And I will turn thee back, and put hooks into thy jaws, and I will bring
+thee forth, and all thine army, horses and horsemen, all of them clothed
+with all sorts of armour, even a great company with bucklers and shields,
+all of them handling swords:
+5 Persia, Ethiopia, and Libya with them; all of them with shield and
+helmet:
+6 Gomer, and all his bands; the house of Togarmah of the north quarters,
+and all his bands: and many people with thee.
+7 Be thou prepared, and prepare for thyself, thou, and all thy company
+that are assembled unto thee, and be thou a guard unto them.) Verse 2 says
+the leader of this attack is Gog who is from the land of Magog. Magog
+refers to Russia and Gog will be the leader of Russia whoever that may be
+at the time of the attack. Today the leader of Russia can invade a country
+without getting any permission from anyone else. This was seen when Putin
+invaded Ukraine and even some of the oligarchs never knew he was going to
+invade or other members of the Federal Assembly. Ezekiel 38:15 and 39:2
+says Magog is from the north parts and if you go as far north from Israel
+as you can, you end up in Russia. (Ezekiel 39:2 And I will turn thee back,
+and leave but the sixth part of thee, and will cause thee to come up from
+the north parts, and will bring thee upon the mountains of Israel:) Magog
+was one of the sons of Japheth as are some of the other nations listed. He
+settled in the land that is now Russia. (Genesis 10:2 The sons of Japheth;
+Gomer, and Magog, and Madai, and Javan, and Tubal, and Meshech, and
+Tiras.) Those in Africa are from Ham. Meshech was the old name of the
+capital of Russia, today known as Moscow. Tubal is said to be a city in
+Siberia. Gog who is the leader of Russia is the leader of these places.
+Some theologians say these places refer to Turkey and some say Meschech
+refers to parts of Georgia and Ukraine as well which is possible if Russia
+is able to take over parts of Ukraine. Verse 6 mentions the nations of
+Persia, Ethiopia, and Libya. Persia is Iran. Iran was known as Persia
+until 1935. Ethiopia and Libya still exist though some say this also
+includes parts of Sudan and other nations such as Algeria and Eritrea.
+Others also say some of the Muslim nations that were formerly a part of
+the Soviet Union will be a part of the attack including Kazakhstan,
+Uzbekistan, Turkmenistan, and possibly Afghanistan. Afghanistan just
+recently gained control of a large collection of US military weapons
+thanks to Biden our incompetent traitorous president. Regardless of which
+nations are involved with Russia, these all have in common that they are
+Muslim nations with Muslims having a long history of hatred against
+Israel. Russia also has a large Muslim population. Some of these nations
+have been forming alliances with Russia over recent years such as Iran and
+Russia has long supplied many of these nations with weapons. Turkey has
+become more anti-America and anti-West. Verse 6 mentions Gomer which most
+people believe refers to Germany. Gomer settled in the area that is today
+Germany and Germany has a large Muslim population and would like to regain
+some of her lost glory and power. Togarmah is believed to be part of
+Turkey as well as the "Stan nations" that were parts of the old Soviet
+Union that I mentioned. Verse 6 also says many people with them and this
+is why it is believed there will be other nations not listed by name in
+these verses. We know for sure that Iran, Ethiopia, and Libya will all be
+involved as they are all here today by name. Whatever nations that will be
+involved, it will happen no matter what. Russia will not be destroyed
+whatever the outcome of her current war as she will survive another day to
+lead the battle against Israel. The sanctions will not work.
+
+Ezekiel 38:9 says they shall come upon Israel like a storm and they
+will be like a cloud covering the land. This refers to a great invasion
+force very large in numbers of people. Verse 11 says they will come up
+against unwalled villages and a people at rest. In Ezekiel's day, all
+cities had walls around them to defend against attack. Today most cities
+including those in Israel do not have walls, as modern weapons such as
+aircraft, bombs, missiles, tanks, and other weapons have made walls of no
+effect. Verse 14 also says Israel will be at peace when the attack occurs.
+Israel is not fully at peace (rest), but close to it as she has been
+signing peace treaties with her surrounding neighbors due to the efforts
+of President Trump. Things are falling into place for this coming
+invasion. Verse 12 says the invaders have come for a spoil. God has
+blessed Israel with great wealth and resources since her return as a
+nation just as scripture predicted. Israel supplies Europe with most of
+its fruit and other food as well as other resources. Israel has large
+amounts of natural gas as well as one of the world's largest deposits of
+shale oil and God says large amounts of oil will be found in the future
+land of the tribe of Asher. (Deuteronomy 33:24 ¶ And of Asher he said, Let
+Asher be blessed with children; let him be acceptable to his brethren, and
+let him dip his foot in oil.) Zion Oil is exploring this area now looking
+for oil and when the time is right I believe God will allow them to find
+it. Israel has many other products such as flowers and other resources
+that many nations are envious of. I believe these are the spoils the
+invaders come after along with gold, silver, cattle, and arts as verse 13
+says. I believe when the oil is found in Asher then this will trigger the
+invasion to happen. Verse 13 mentions the nations of Sheba and Dedan and
+the merchants of Tarshish with all of the young lions who watch all of
+this attack unfold and just sit back and watch. It is not clear what these
+nations are but they may refer to Saudi Arabia or some other Arab nation.
+These nations say are you coming for a spoil which may refer to they make
+threats or sanctions against the attacking nations, but they ignore them
+and attack anyway. Some have said Tarshish refers to Great Britain with
+"the young lions" referring to nations that came from her as her former
+colonies. This would include the USA and this would make sense as our
+nation under the liberals has become very anti-Israel, though on the
+surface we appear to be a friend of Israel, hence we scold the invaders,
+but just sit back and watch. The lion has long been the symbol of England.
+No nation will help Israel. Verse 16 again shows that the invaders will be
+as a cloud in the land showing mass amounts of troops as part of the
+invasion. Verse 15 says they will be a great company and a mighty army.
+Verse 15 says they will be riding on horses and verse 4 also mentions all
+of the horsemen (cavalry). Verse 8 mentions how the invaders will come
+over the mountains. Many people have said these refer to tanks rather than
+horses and though that might be possible, I do believe many literal horses
+will be used as horses can cross mountains and tanks cannot. The US Army
+used horses at times in the mountains of Afghanistan and today Russia has
+horses in its army for the sole purpose of getting equipment over the
+mountains. Russia has lost a huge amount of tanks in the war with Ukraine
+and is unable to build more tanks due to lack of computer chips. This may
+force Russia to use horses just as scripture says. In verse 18 we see how
+when the invaders come against Israel, God intervenes against the
+attackers supernaturally to protect Israel from destruction. In verse 19
+God will bring a great earthquake in Israel that will throw down mountains
+and will cause all of the people on earth to quake at the presence of God
+as they will know this came from God. Verse 21 says God will cause the
+invaders to fight against one another "his brother" rather than against
+Israel. Verse 22 shows God will bring pestilence (disease) against the
+invaders as well as he will rain down fire and brimstone (sulphur) from
+heaven as well as great hailstones. These things will be done to destroy
+the invaders. It is possible that the pestilence will be from biological
+weapons of the invaders that were intended for use against Israel, but God
+turns them against the invaders. Some have said that this rain of fire
+from heaven refers to Israel using nuclear missiles to destroy the
+invaders. That is possible, but I believe verse 23 shows that God will be
+responsible with real fire, hail, and brimstone. Verse 23 says God will do
+these things so that many nations will know that God is LORD. People will
+know this is a supernatural protection by God to protect Israel. Israel
+will see this and will as a nation turn back to God and away from her
+current attitude. Today many Jews are atheist or very liberal in their
+theology and hardly acknowledge God. This will open the eyes of the
+Israeli Jews that God is real. They still will not be saved as they will
+still reject Jesus as their Messiah until the end of the great
+tribulation, but the nation will go back to worship as the old testament
+says. They will soon rebuild the temple and restart sacrifices. I believe
+this battle will help bring in the antichrist to bring "peace" to Israel
+and the rest of the world as the world leader. This will allow Israel to
+rebuild their third temple. The fact that most of the Muslim nations will
+be destroyed will also help.  
+
+In Ezekiel 39 we see again in verse 1 that Gog is the chief prince of
+Meshech and Tubal and how in verse 2 God will turn them back away from
+Israel. In verse 2 God says he will destroy 5/6 of the invaders, allowing
+1/6 to return to be a testimony of what happened. Large numbers of people
+will be dead and I believe this will signal the end of the power of Russia
+and most of the Arab nations. If only 500,000 troops are involved in the
+invasion that will leave 416,666 dead. Some have said the antichrist will
+be a Muslim, but I disagree for many reasons, but one reason being the
+Arabs will mostly be dead and without any military as will Russia. This
+will allow many of the remaining Muslims to come under the control of the
+pope and the Roman Catholic Church due to the connection of Mary. Verse 2
+and verse 5 show many will be dead in the mountains and the fields. Verse
+6 says God will send fire on Magog so that they will know he is the LORD.
+Verse 7 shows as I previously mentioned that Israel as a nation will turn
+to God and away from her secular beliefs. The whole world will know that
+Jehovah is her God.
+
+Verse 9 says the cities will burn all of the weapons of the invaders
+including the shields, bucklers, bows and arrows, handstaves (may refer to
+a club), and spears. These weapons will all be made of wood and will burn.
+Russia for years now has been making their firearms and some say even
+tanks out of lignostone which is a wood based material that is compressed
+and stronger than steel, but it also burns well and is said to be a better
+fuel than coal, so when people ask how can Israel burn modern weapons this
+is how. Most of these same weapons are sold by Russia to Muslim nations so
+their weapons would also burn. God and scripture are always right. The
+Netherlands, who actually developed lignostone, actually uses it for fuel.
+Weather this refers to literal bow and arrows and others as mentioned has
+been debated, but it is possible that these are used since they are
+traversing the mountains and getting armored vehicles across is very hard
+or impossible. Some have said the arrows refer to missiles and possibly
+nuclear missiles as this is why all body parts must be collected since
+they would contain radiation. It may be a combination of these things.
+Only time will tell. They will have recovered so much that it will take
+seven years to burn all the weapons and the Jews will not need to cut down
+any trees for wood. Israel now spoils the invaders who came to spoil them
+as verse 10 says. I believe this shows why view three that this battle
+occurs at the middle of the tribulation is incorrect as this would mean
+that the Jews were still burning weapons during the millennium. This is
+why I believe it will be either before the rapture or start shortly after
+the rapture before the tribulation starts or near so that the seven years
+does not enter the millennium. It cannot start just after the start of the
+tribulation since the antichrist has a peace treaty with Israel to protect
+her and this will not be broken until the mid-point of the tribulation so
+no one would be able to attack Israel during this time. Some theologians
+have said that the Jews would not be burning the weapons when in Petra for
+the last 3.5 years of the tribulation so the battle must be at least 3.5
+years before the tribulation. That is possible, but if so then I do not
+believe the rapture would have happened yet as they believe or else there
+would be too much chaos before the antichrist took over. Whenever the
+timing for the battle is, it will all unfold as told in scripture. The
+tribulation will most likely start shortly after the rapture since the
+chaos that ensues due to the rapture will most likely help the antichrist
+come to power, but scripture does not say it has to. In theory the
+tribulation could start years after the rapture. As I said earlier I
+believe this battle will help bring in the antichrist as well by having
+him guaranteeing peace to Israel which when signed starts the seven year
+tribulation. This is why I believe the Battle of Gog and Magog will either
+be between the rapture and the start of the tribulation or just before the
+rapture as shortly after the battle as the antichrist makes his appearance
+and before signing the peace treaty with Israel, then we get raptured out.
+
+Verses 11-16 speaks of the enemy dead. There will be so many dead
+that the land will smell of death as verse 11 says (stop the noses of
+passengers). It will even be smelt by those on the sea. The dead will be
+buried in a valley called Hamon-gog named for the dead leader of the
+battle, Gog. Verse 12 says it will take seven months to bury the dead
+showing the amount of dead. This is done to cleanse the land as the land
+is holy land as the people turn back to God. The whole nation as verse 13
+says will assist in burying the dead and God will be glorified. Verse 14
+says that men will be employed just to go out and search the land for the
+dead. Those who are searching for bodies along with anyone who finds a
+bone are to mark them including even if just a bone or fragment with a
+sign until they can be buried in the valley of Hamon-gog. Verse 16 says
+again this is done to cleanse the land. Not only is Israel holy ground,
+but dead people also bring about many diseases if not buried. Some have
+also speculated that it is possible that it was urgent to recover not just
+the dead, but including every bone fragment since they may have been
+radioactive due to the use of nuclear weapons by Israel, Russia and Iran,
+or all of them. It is possible that nuclear weapons will be used, but
+scripture is not clear on this, but if they are used against Israel it
+seems that God destroys them before harming Israel.
+
+Verses 17-22 show how God has told all of the birds to eat of the
+dead as a feast from God. They will eat of the mighty and the princes and
+drink their blood as well as the horses until they are full. This speaks
+of how Gog himself is dead and maybe literal princes from other nations or
+at least their leaders. God will tell the birds the same thing after the
+Battle of Armageddon. (Revelation 19:17-18 And I saw an angel standing in
+the sun; and he cried with a loud voice, saying to all the fowls that fly
+in the midst of heaven, Come and gather yourselves together unto the
+supper of the great God;
+18 That ye may eat the flesh of kings, and the flesh of captains, and the
+flesh of mighty men, and the flesh of horses, and of them that sit on
+them, and the flesh of all men, both free and bond, both small and great.)
+Verse 22 again shows that from that day forward and forever the Jews will
+know that the LORD (Jehovah) is their God.
+
+Verses 23-29 show how the heathen (Gentile nations) will know that
+Israel was under captivity because of her iniquity (sin), but that God has
+brought her back to her own land (May 1948). Verse 29 says God will now
+bless Israel henceforth from the end of this Battle of Gog and Magog.
+These verses speak of God bringing his people back to Israel. This has
+been happening for many years as Jews from all over the world have
+returned to Israel. The current war between Russia and Ukraine has seen
+many Ukrainian Jews flee to Israel and many from Russia have been pouring
+in the last few years as well. The battle of Gog and Magog may cause the
+last remaining Jews in Russia to return to Israel in a great Exodus as was
+seen when the Israelites left Egypt.
+
+Scripture seems to tell of a future event that most likely will happen on
+passover as the Jews have a great exodus from Russia just as they did from
+Egypt. It seems that one day they will celebrate the exodus from Russia in
+place of the exodus from Egypt on passover. These Russian Jews will return
+to the land of Israel. This may occur because of the Battle of Gog and
+Magog when Russia attacks and invades Israel along with many Muslim
+nations and God intervenes supernaturally just as he did in Egypt. Many
+Jews have been leaving Russia for years, but scripture seems to tell of
+one great final exodus. (Jeremiah 31:8 Behold, I will bring them from the
+north country, and gather them from the coasts of the earth, and with them
+the blind and the lame, the woman with child and her that travaileth with
+child together: a great company shall return thither.) This exodus seems
+to also include Jews coming back to Israel from all over the world so it
+may be after Israel signs the "peace" treaty with the antichrist.
+(Jeremiah 16:14-15 ¶ Therefore, behold, the days come, saith the LORD,
+that it shall no more be said, The LORD liveth, that brought up the
+children of Israel out of the land of Egypt;
+15But, The LORD liveth, that brought up the children of Israel from the
+land of the north, and from all the lands whither he had driven them: and
+I will bring them again into their land that I gave unto their fathers.)
+In scripture the land of the north is Russia as all directions are from
+Jerusalem and the nation farthest north is Russia.
+
+The Battle of Gog and Magog will be happening soon along with the
+rapture, the tribulation, and the second coming of Jesus so if someone is
+not saved they need to get saved now by admitting they are a sinner and
+call upon Jesus to save them. For those people who live in the nations
+that will be part of the attack on Israel, God may destroy the leaders who
+are evil, but he loves the individual people that live in these nations
+and Jesus will save those who call upon him. For those in the military in
+these nations do not participate in the attack on Israel or God's wrath
+will come upon you. For Jews, do not wait until the battle begins to
+realize that Jehovah is LORD and that Jesus is your messiah. Call upon
+Jesus now.        
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +790,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

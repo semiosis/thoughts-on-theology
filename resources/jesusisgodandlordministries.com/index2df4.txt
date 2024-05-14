@@ -1,2 +1,4 @@
+Refresh: my-account/index.html
+
 Click here...
 

@@ -1,2 +1,4 @@
+Refresh: links/index.html
+
 Click here...
 

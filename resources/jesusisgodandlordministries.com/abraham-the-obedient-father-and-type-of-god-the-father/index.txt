@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,503 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Abraham the obedient father and type of God the Father
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Today is Father's Day, the day we set aside to honor dads in
+obedience of God's fifth commandment which God commands us to obey our
+parents. (Exodus 20:12 ¶ Honour thy father and thy mother: that thy days
+may be long upon the land which the LORD thy God giveth thee.) This
+commandment is also found in Ephesians 6:2. [Ephesians 6:2 Honour thy
+father and mother; (which is the first commandment with promise;)] Jesus
+himself also mentioned this commandment. This commandment is the only one
+that says God will give long life to those who obey it. God says to obey
+this commandment regardless if you have had a great dad or one who was
+abusive or left the family. God says to obey all parents, not just the
+good parents. Thank God that God gave me a godly dad. Last year I spoke on
+having God the Father as your Father for all of those who call upon Jesus
+as their Saviour. God the Father is the greatest Father that anyone can
+have and all need.
 
-Username or email _____________________
+Abraham was a type of God the Father in that just as God offered his
+only begotten Son Jesus as a sacrifice for our sins, Abraham was willing
+to obey God and offer his only true son in God's eyes as a sacrifice to
+God. Isaac was a type of Jesus. Abraham is the only type of God the Father
+mentioned in scripture. Abraham was the man upon whom God used to start
+many nations, but specifically the nation of his chosen people. His
+grandson Jacob who was renamed Israel by God would be the one directly who
+started Israel. Abraham was originally named Abram which means "exalted
+father", but God renamed him Abraham which means "father of many nations"
+and that is exactly what he would become. (Genesis 17:5 Neither shall thy
+name any more be called Abram, but thy name shall be Abraham; for a father
+of many nations have I made thee.) Abraham was father of many nations just
+as God the Father is father of all nations who believe in his Son Jesus
+and bless Israel and is Father to all who have his Son Jesus as their
+Saviour.
 
-Reset password
+God chose Abram to be the one who would be the patriarch of his
+chosen people who became the Israelites. (Genesis 12:1-5 Now the LORD had
+said unto Abram, Get thee out of thy country, and from thy kindred, and
+from thy father's house, unto a land that I will shew thee:
+2 And I will make of thee a great nation, and I will bless thee, and make
+thy name great; and thou shalt be a blessing:
+3 And I will bless them that bless thee, and curse him that curseth thee:
+and in thee shall all families of the earth be blessed.
+4 So Abram departed, as the LORD had spoken unto him; and Lot went with
+him: and Abram was seventy and five years old when he departed out of
+Haran.
+5 And Abram took Sarai his wife, and Lot his brother's son, and all their
+substance that they had gathered, and the souls that they had gotten in
+Haran; and they went forth to go into the land of Canaan; and into the
+land of Canaan they came.) Abram's dad had worshipped false gods and God
+told Abram to get away from him into a land that God would give to Abram
+and his descendants. Abram was 75 years old when God called him showing
+that a person is never too old to be used by God. Moses was 80 years old
+when he led the Israelites out of Egypt. When Abram departed to the new
+land, he took his nephew Lot whose dad had died, and Abram became a dad to
+him. The new land that Abram entered was inhabited and controlled by the
+Canaanites, but God said he would take the land from them and give it to
+Abraham and his descendants. Abram trusted in the Lord that he would keep
+his word and entered the land of Canaan. This is part of the land known as
+the Promised Land that God gave to Israel and no other nation has a right
+to it. (Genesis 12:6-9 ¶ And Abram passed through the land unto the place
+of Sichem, unto the plain of Moreh. And the Canaanite was then in the
+land.
+7 And the LORD appeared unto Abram, and said, Unto thy seed will I give
+this land: and there builded he an altar unto the LORD, who appeared unto
+him.
+8 And he removed from thence unto a mountain on the east of Beth-el, and
+pitched his tent, having Beth-el on the west, and Hai on the east: and
+there he builded an altar unto the LORD, and called upon the name of the
+LORD.
+9 And Abram journeyed, going on still toward the south.) These verses show
+that Abram was obedient in building an altar to God as he understood that
+the LORD was the true God and not the false gods of his father. (Joshua
+24:2-3 And Joshua said unto all the people, Thus saith the LORD God of
+Israel, Your fathers dwelt on the other side of the flood in old
+time, even Terah, the father of Abraham, and the father of Nachor: and
+they served other gods.
+3 And I took your father Abraham from the other side of the flood, and led
+him throughout all the land of Canaan, and multiplied his seed, and gave
+him Isaac.) These verses are an example of how a godly father should be.
+Abram rejected the gods of his father and family and chose to serve the
+true living God even if this displeased his family. This is the kind of
+man that God wants to use whether in Abram's case to start a nation or for
+some other purpose. God wants men who will serve him no matter what the
+cost.
+
+Abram treated his nephew Lot as a son and when his servants and
+Abram's servants began fighting over land and water for the herds, Abram
+told Lot to take the best of the land or whatever he wanted and then he
+would take the rest. (Genesis 13:5-12 ¶ And Lot also, which went with
+Abram, had flocks, and herds, and tents.
+6 And the land was not able to bear them, that they might dwell together:
+for their substance was great, so that they could not dwell together.
+7 And there was a strife between the herdmen of Abram's cattle and the
+herdmen of Lot's cattle: and the Canaanite and the Perizzite dwelled then
+in the land.
+8 And Abram said unto Lot, Let there be no strife, I pray thee, between me
+and thee, and between my herdmen and thy herdmen; for we be brethren.
+9 Is not the whole land before thee? separate thyself, I pray thee, from
+me: if thou wilt take the left hand, then I will go to the right; or
+if thou depart to the right hand, then I will go to the left.
+10 And Lot lifted up his eyes, and beheld all the plain of Jordan, that
+it was well watered every where, before the LORD destroyed Sodom and
+Gomorrah, even as the garden of the LORD, like the land of Egypt, as thou
+comest unto Zoar.
+11 Then Lot chose him all the plain of Jordan; and Lot journeyed east: and
+they separated themselves the one from the other.
+12 Abram dwelled in the land of Canaan, and Lot dwelled in the cities of
+the plain, and pitched his tent toward Sodom.)
+
+God told Abram to look around and all of the land he saw then God
+would give it to him and his descendants. (Genesis 13:14-18 ¶ And the
+LORD said unto Abram, after that Lot was separated from him, Lift up now
+thine eyes, and look from the place where thou art northward, and
+southward, and eastward, and westward:
+15 For all the land which thou seest, to thee will I give it, and to thy
+seed for ever.
+16 And I will make thy seed as the dust of the earth: so that if a man can
+number the dust of the earth, then shall thy seed also be numbered.
+17 Arise, walk through the land in the length of it and in the breadth of
+it; for I will give it unto thee.
+18 Then Abram removed his tent, and came and dwelt in the plain of Mamre,
+which is in Hebron, and built there an altar unto the LORD.) Just as God
+the Father gave all to his Son Jesus, here God gives much to Abram who
+would have plenty of land and cattle. God blessed Abram with great wealth.
+
+When Lot got taken captive by an enemy king, Abram took his men and
+rescued him just as any loving father would do for their son. (Genesis
+14:14-16 And when Abram heard that his brother was taken captive, he armed
+his trained servants, born in his own house, three hundred and eighteen,
+and pursued them unto Dan.
+15 And he divided himself against them, he and his servants, by night, and
+smote them, and pursued them unto Hobah, which is on the left hand of
+Damascus.
+16 And he brought back all the goods, and also brought again his
+brother Lot, and his goods, and the women also, and the people.) Abraham
+would also plead for Lot's life in Genesis 18:23-32 when God decided to
+destroy Sodom for her sin.
+
+Abram did not have any children and one day God appeared to Abram and
+told him that he would have a son and descendants in number as the stars
+of heaven. Abram said he had no heir except his servant Eliezer, but God
+said that would not be his heir but a son from his own bowels. Eliezer was
+a type of son for Abraham as the heirs of salvation. Eliezer was a type
+showing how Abraham was the spiritual father to all who believe, both Jew
+and Gentile just as God the Father is Father to all who call upon his Son
+Jesus as their Saviour, both Jew and Gentile. (Genesis 15:2-6 And Abram
+said, Lord GOD, what wilt thou give me, seeing I go childless, and the
+steward of my house is this Eliezer of Damascus?
+3 And Abram said, Behold, to me thou hast given no seed: and, lo, one born
+in my house is mine heir.
+4 And, behold, the word of the LORD came unto him, saying, This shall not
+be thine heir; but he that shall come forth out of thine own bowels shall
+be thine heir.
+5 And he brought him forth abroad, and said, Look now toward heaven, and
+tell the stars, if thou be able to number them: and he said unto him, So
+shall thy seed be.
+6 And he believed in the LORD; and he counted it to him for
+righteousness.) Abram became impatient waiting on God and sinned by trying
+to help God in producing an heir. He went into his wife Sarai's handmaid
+and got her pregnant and Ishmael was born when he was 86 years old.
+(Genesis 16:3-4 And Sarai Abram's wife took Hagar her maid the Egyptian,
+after Abram had dwelt ten years in the land of Canaan, and gave her to her
+husband Abram to be his wife.
+
+4 ¶ And he went in unto Hagar, and she conceived: and when she saw that
+she had conceived, her mistress was despised in her eyes.) (Genesis 16:16
+And Abram was fourscore and six years old, when Hagar bare Ishmael to
+Abram.) Abram's sin and disobedience would haunt his descendants up to
+this day. We need to learn to trust in God that he will do as he says and
+understand that things are on his time and not ours. Our sins have great
+consequences.
+
+God appeared to Abram when he was 99 years old and told him that the
+time had come for the son that God had promised to him. It was at this
+time that God made a covenant with Abram and changed his name to Abraham
+because he said he would make him a father of many nations. This would be
+true as the Arab nations of today are descendants of his son Ishmael, as
+was the nation of the Ishmaelites. The Israelites come from Abraham as
+well as other nations that no longer exist from his wife Keturah whom he
+married after Sarah died. (I Chronicles 1:32 ¶ Now the sons of Keturah,
+Abraham's concubine: she bare Zimran, and Jokshan, and Medan, and Midian,
+and Ishbak, and Shuah. And the sons of Jokshan; Sheba, and Dedan.) Abraham
+was 100 years old when his promised son Isaac was born. (Genesis 21:5 And
+Abraham was an hundred years old, when his son Isaac was born unto him.)
+Isaac means laughter because Sarah did not believe God when he said they
+would have a child in their old age, but God had the last laugh. Nothing
+is impossible with God. We just need to believe and trust in him that he
+will do as he says he will.
+
+When Ishmael was a teenager, God told Abraham to send him and his mom
+Hagar away as Isaac was his only true son. Abraham was obedient and did as
+he was commanded. (Genesis 21:12-14 ¶ And God said unto Abraham, Let it
+not be grievous in thy sight because of the lad, and because of thy
+bondwoman; in all that Sarah hath said unto thee, hearken unto her voice;
+for in Isaac shall thy seed be called.
+13 And also of the son of the bondwoman will I make a nation, because
+he is thy seed.
+14 And Abraham rose up early in the morning, and took bread, and a bottle
+of water, and gave it unto Hagar, putting it on her shoulder, and the
+child, and sent her away: and she departed, and wandered in the wilderness
+of Beer-sheba.)
+
+Following the departure of Ishmael, God told Abraham to go into the
+land of Moriah and offer his only son Isaac as a burnt offering to God.
+(Genesis 22:2-4 And he said, Take now thy son, thine only son Isaac, whom
+thou lovest, and get thee into the land of Moriah; and offer him there for
+a burnt offering upon one of the mountains which I will tell thee of.
+
+3 ¶ And Abraham rose up early in the morning, and saddled his ass, and
+took two of his young men with him, and Isaac his son, and clave the wood
+for the burnt offering, and rose up, and went unto the place of which God
+had told him.
+4 Then on the third day Abraham lifted up his eyes, and saw the place afar
+off.) Notice how Abraham was immediately obedient by leaving early in the
+morning. He did not delay in obeying God and neither should we. Abraham
+had Isaac to carry the wood up the hill for his own sacrifice. This is a
+type of when Jesus had to carry his own cross for his death. Isaac was
+most likely a man in his twenties when he was taken to be sacrificed. Some
+believe even in his thirties as lad can mean young man and Jesus was 33
+when he died. He was definitely not this little helpless boy as often
+portrayed. Genesis 22:6-10 And Abraham took the wood of the burnt
+offering, and laid it upon Isaac his son; and he took the fire in his
+hand, and a knife; and they went both of them together.
+7 And Isaac spake unto Abraham his father, and said, My father: and he
+said, Here am I, my son. And he said, Behold the fire and the wood: but
+where is the lamb for a burnt offering?
+8 And Abraham said, My son, God will provide himself a lamb for a burnt
+offering: so they went both of them together.
+9 And they came to the place which God had told him of; and Abraham built
+an altar there, and laid the wood in order, and bound Isaac his son, and
+laid him on the altar upon the wood.
+10 And Abraham stretched forth his hand, and took the knife to slay his
+son.) Abraham is seen here as a type of God the Father offering his only
+son in Isaac as he was the only legitimate son in God's eyes with Isaac as
+a type of Jesus being willing to die in obedience to God as a sacrifice.
+Abraham told Isaac that God would provide himself a lamb which is a
+reference to Jesus as God who provided himself as our sacrificial lamb on
+the cross, but Abraham also believed that God would resurrect Isaac if he
+did have to sacrifice him as he knew God would keep his word with Isaac
+being the promised son whom the heirs as the sand of the sea would come
+from. (Hebrews 11:17-19 By faith Abraham, when he was tried, offered up
+Isaac: and he that had received the promises offered up his only
+begotten son,
+18 Of whom it was said, That in Isaac shall thy seed be called:
+19 Accounting that God was able to raise him up, even from the dead; from
+whence also he received him in a figure.) Because Abraham was obedient in
+obeying God then God blessed him with many descendants. (Genesis 22:12 And
+he said, Lay not thine hand upon the lad, neither do thou any thing unto
+him: for now I know that thou fearest God, seeing thou hast not withheld
+thy son, thine only son from me.) (Genesis 22:16-18 And said, By myself
+have I sworn, saith the LORD, for because thou hast done this thing, and
+hast not withheld thy son, thine only son:
+17 That in blessing I will bless thee, and in multiplying I will multiply
+thy seed as the stars of the heaven, and as the sand which is upon the sea
+shore; and thy seed shall possess the gate of his enemies;
+18 And in thy seed shall all the nations of the earth be blessed; because
+thou hast obeyed my voice.) These verses show that God only considered
+Isaac as the son of Abraham. Jesus would descend from Abraham just as
+Jesus is God's Son. All Christians who are children of faith are also
+spiritual descendants of Abraham as well just as we are children of God by
+faith in Jesus. (Romans 4:16-17 Therefore it is of faith,
+that it might be by grace; to the end the promise might be sure to all the
+seed; not to that only which is of the law, but to that also which is of
+the faith of Abraham; who is the father of us all,
+17 (As it is written, I have made thee a father of many nations,) before
+him whom he believed, even God, who quickeneth the dead, and calleth those
+things which be not as though they were.) (Galatians 3:29 And if ye be
+Christ's, then are ye Abraham's seed, and heirs according to the promise.)
+Abraham as a type of God the Father was called a "friend of God" and the
+only one this was said of. (James 2:23 And the scripture was fulfilled
+which saith, Abraham believed God, and it was imputed unto him for
+righteousness: and he was called the Friend of God.) Abraham is in God's
+Faith Hall of Fame as found in Hebrews 11 where many verses are dedicated
+to him dealing with his faith and obedience to God as the ideal father and
+father of those who believe. Abraham would later get a bride for Isaac as
+seen in Genesis 24 just as God gave Jesus a bride in the church. Abraham
+as a faithful man tithed to Melchizedek in Genesis who was the
+preincarnate Jesus and showed us by his example as a good father. (Genesis
+14:20 And blessed be the most high God, which hath delivered thine enemies
+into thy hand. And he gave him tithes of all.) Sarah called Abraham lord
+as she understood what kind of man he was.  
+
+There is a story referred to as The Storm about a dad who went out in
+a boat with his son and his son's friend in the Pacific Ocean when a storm
+suddenly appeared capsizing the boat and tossing all of them into the
+raging water. The dad had only seconds to toss one life ring to one of the
+boys. The dad knew his son was saved and the other boy was not saved. He
+told his son he loved him and tossed the life ring to his son's friend. By
+the time he dragged him to safety his son had drowned. This dad was
+willing to sacrifice his son who he knew he would see in heaven so that
+the friend might be saved and not spend eternity in hell. This friend got
+saved and went on to become a pastor.  
+
+Abraham as a type of God the Father showed how a dad should be.
+Abraham was faithful, obedient, and a man of God who fully trusted in God
+to provide for him. He was willing to give his only son Isaac who was a
+type of Jesus just as God the Father gave his only begotten Son Jesus so
+that all who call upon him may be saved. It is by Abraham that we as
+Christians have the seed of Jesus. May all dads strive to be like Abraham
+so that they may strive to be like God the Father! May all dads be willing
+to sacrifice their sons for God if they are asked to do so just like
+Abraham and the man in the storm. For those who are not saved, call upon
+Jesus today so that God the Father may become your Father as well.    
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

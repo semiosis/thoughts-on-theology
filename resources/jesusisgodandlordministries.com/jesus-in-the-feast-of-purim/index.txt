@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,483 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the feast of Purim
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Jewish feast of Purim [pronounced poorem] points to Jesus just as
+all Jewish feasts do. Purim means "lots". Purim sometimes is known as the
+feast of Lots. This feast is held on the fourteenth day of Adar which is
+the twelve month in the Jewish calendar and which is usually in March of
+our calendar, but is sometimes in February. In Jerusalem and other ancient
+walled cities it is celebrated on the fifteenth of Adar. Purim is not one
+of the seven God ordained Jewish feasts, but like Hanukah is a rabbinical
+added holiday. Just because it was added by the rabbis does not mean that
+God was not behind the feast and its meaning.
 
-Username or email _____________________
+Purim comes from the book of Esther and the Jewish victory over evil
+Haman and the preservation of the Jews. Esther was a Jewish girl who
+became queen of the Persian Empire. The Jewish people were under the
+authority of the Persian Empire after the Persians conquered the
+Babylonian Empire who had taken the Jewish people captive because of their
+sin. The Persian king Ahasuerus had a wife, queen Vashti who disobeyed him
+so he removed her as queen. He then had a beauty contest to pick a new
+queen. Esther whose Hebrew name was Hadassah was chosen as the new queen,
+but the king did not know that she was Jewish. Esther means "star" and
+Hadassah means "myrtle". Esther was raised by her cousin Mordecai. The
+king had a man Haman that was second in command to the king and all were
+expected to bow to him. Mordecai as a Jew refused to bow to Haman. Haman
+hated Jews and wanted them all killed especially Mordecai since he refused
+to bow to him. Haman did not know that Esther was a Jew and related to
+Mordecai. Haman encouraged the king to sign a law that he had made which
+allowed the people to attack and kill the Jewish people on the thirteenth
+day of Adar. (Esther 3:9 If it please the king, let it be written that
+they may be destroyed: and I will pay ten thousand talents of silver to
+the hands of those that have the charge of the business, to bring it into
+the king's treasuries.) The Persians had a stupid law that once the king
+signed a law then it could not be overturned. We see the stupidity of this
+law also when the Median king Darius, who the Medes were part of the
+Persian Empire, was tricked into throwing Daniel into a den of lions.
+Mordecai, who always hung out by the kings palace in Sushan, one day
+overheard a plot against the king to kill him. Mordecai warned the king
+but he was never rewarded for his loyalty. One day after the king signed
+the order to have the Jews killed, Haman came to the king with a plan to
+kill Mordecai. Haman had gallows built on which he wanted to hang
+Mordecai. About the same time God had prevented the king from being able
+to sleep and the king had people bring the chronicles to him so they could
+read them to him. The king read about Mordecai and asked if he was ever
+honored for his loyalty. He was told he was not. In the morning when Haman
+came to the king with his plan to hang Mordecai, the king asked Haman how
+he should honor a man that was loyal to him. Haman thought the king was
+talking about him and so he told him to have him arrayed with the kings
+clothing and driven around town. The king told Haman to do as he said to
+Mordecai. This infuriated Haman. When Mordecai had found out about Haman's
+plan to kill the Jews he told Esther to plead with the king and told her
+that she would not be exempted from the death order just because she was
+queen. Esther said she could not go before the king without being asked.
+Mordecai said God had put her in this position of queen for such a time as
+this. (Esther 4:13-14 Then Mordecai commanded to answer Esther, Think not
+with thyself that thou shalt escape in the king's house, more than all the
+Jews.
+14For if thou altogether holdest thy peace at this time, then shall there
+enlargement and deliverance arise to the Jews from another place; but thou
+and thy father's house shall be destroyed: and who knoweth whether thou
+art come to the kingdom for such a time as this?) Esther agreed to go
+before the king and said if I perish, I perish. (Esther 4:16 Go, gather
+together all the Jews that are present in Shushan, and fast ye for me, and
+neither eat nor drink three days, night or day: I also and my maidens will
+fast likewise; and so will I go in unto the king, which is not according
+to the law: and if I perish, I perish.) All Christians need to have this
+attitude and boldness to be willing to die for what is right. Esther went
+to the king with a plan to destroy Haman. She held a banquet for the king
+and had Haman invited. The king said he would grant her request even to
+the half of the kingdom. On the second day of the banquet Esther told the
+king that she was a Jew and Haman's evil plot to kill her people and
+pleaded for the king to do something. The king had Haman hanged on the
+same gallows he had built for Mordecai. Those who plot to destroy the Jews
+will always bring about their own destruction. Mordecai was promoted to
+second ruler in place of Haman as Esther told the king her relation to
+Mordecai. A new law was passed that allowed the Jews to defend themselves
+against attack on the thirteenth of Adar. The Jews in Shushan (modern
+Susa, Iran) were allowed to continue to kill their enemies also on the
+fourteenth. Mordecai established that the fourteenth day of Adar was to be
+celebrated as a feast as well as the fifteenth day. (Esther 9:17-22 On the
+thirteenth day of the month Adar; and on the fourteenth day of the same
+rested they, and made it a day of feasting and gladness.
+18 But the Jews that were at Shushan assembled together on the
+thirteenth day thereof, and on the fourteenth thereof; and on the
+fifteenth day of the same they rested, and made it a day of feasting and
+gladness.
+19 Therefore the Jews of the villages, that dwelt in the unwalled towns,
+made the fourteenth day of the month Adar a day of gladness and feasting,
+and a good day, and of sending portions one to another.
 
-Reset password
+20 ¶ And Mordecai wrote these things, and sent letters unto all the Jews
+that were in all the provinces of the king Ahasuerus, both nigh and far,
+21 To stablish this among them, that they should keep the fourteenth day
+of the month Adar, and the fifteenth day of the same, yearly,
+22 As the days wherein the Jews rested from their enemies, and the month
+which was turned unto them from sorrow to joy, and from mourning into a
+good day: that they should make them days of feasting and joy, and of
+sending portions one to another, and gifts to the poor.) God is never
+directly mentioned in the book of Esther, but God clearly had his hand in
+the whole matter from making Esther queen to placing Mordecai in the right
+place at the right time and the victory of the Jews over their enemies.
+The Jews have a saying that their feasts are about "They tried to kill us.
+We won. Let's eat". This definitely applies here with Purim. The feast was
+given the name Purim from the name Pur which means lot. (Esther 9:26
+Wherefore they called these days Purim after the name of Pur. Therefore
+for all the words of this letter, and of that which they had seen
+concerning this matter, and which had come unto them,) The lot referred to
+here is the lot cast by Haman to determine the date to kill the Jews.
+(Esther 3:7 ¶ In the first month, that is, the month Nisan, in the twelfth
+year of king Ahasuerus, they cast Pur, that is, the lot, before Haman from
+day to day, and from month to month, to the twelfth month, that is, the
+month Adar.) In Jewish leap years where they add a second month of Adar
+then Purim is always celebrated during the second Adar month.
+
+During the feast of Purim, the story of Esther is read in the
+synagogues. The scroll of Esther is known as Megillah. Whenever Mordecai
+is mentioned, the people cheer and when Haman is mentioned they boo, stomp
+their feet and shake noisemakers known as groggers. The Jews eat three
+cornered fruit filled pastry known as Hamantashen which means and
+represents "Haman's ears". Other customs include parades on Purim and
+dressing up as Biblical characters from Esther and reenacting the story of
+Esther. Sometimes they wear masks of modern day world leaders that
+were/are Jewish haters in place of Haman. They also have parties and
+carnivals. Gifts are usually given to the poor on Purim.
+
+Purim is the celebration of the preservation of the Jews. John 5:1
+mentions a Jewish feast, but does not mention which one. (John 5:1 After
+this there was a feast of the Jews; and Jesus went up to Jerusalem.) Many
+theologians believe this was the feast of Purim as it is the only one that
+makes sense chronologically. I agree. We see Jesus celebrated this feast
+giving his approval to Purim just as he did with Hanukah. Many theologians
+believe and I agree that the name of the feast was intentionally left out
+by God just as the name God was left out of the book of Esther. Esther is
+the only book that does not mention God by name. Many people at one time
+tried to say the book of Esther did not belong in scripture because of the
+lack of the mention of God, but Jesus by celebrating Purim shows the book
+belongs in scripture. Jesus in John 5 heals a man who had an infirmity for
+38 years. It may be that the thirty eight years is related to the extra 38
+years that the Israelites wondered in the wilderness due to their sin.
+Jesus told the man that his infirmity had come upon him due to sin just as
+the Israelites wandered for an extra 38 years in the wilderness because of
+their sin when they rebelled by not obeying the words of Joshua and Caleb.
+They did not trust God. (John 5:14 Afterward Jesus findeth him in the
+temple, and said unto him, Behold, thou art made whole: sin no more, lest
+a worse thing come unto thee.) (Numbers 14:34 After the number of the days
+in which ye searched the land, even forty days, each day for a year, shall
+ye bear your iniquities, even forty years, and ye shall know my breach of
+promise.) This man was healed on the sabbath and this was part of the
+giving of gifts to the poor that is done on Purim. God would later give
+the greatest gift of all when he gave himself on the cross for all who
+have or ever will live so that we as sinners may have everlasting life to
+those who call upon him to be their Saviour. In this chapter on the same
+day of the feast which was a sabbath, besides healing the man, he also
+said God was his Father making himself equal with God. I believe Jesus was
+using Purim which was about God saving the Jews to show the people that
+God sent him to save all of mankind.  
+
+I mentioned how the name God is never mentioned in the book of
+Esther. This may because Esther and Mordecai were not walking right with
+God and may not have been saved with God as their Father just like the
+Jewish leaders of Jesus' day. The events in Esther were most likely about
+50 years after the Persian king Cyrus had allowed the Jews to return to
+Israel. The book of Esther is basically the story of the Jews who refused
+God's call to return to their homeland. Those who refuse God's call are
+often not identified with God's name which is why the name of God is never
+mentioned in the book of Esther. Mordecai told Esther to hide her Jewish
+identity from the king which she did and continued this for five years
+until the scheme of Haman. (Esther 2:20 Esther had not yet shewed her
+kindred nor her people; as Mordecai had charged her: for Esther did the
+commandment of Mordecai, like as when she was brought up with him.) Esther
+kept her Jewish identity a secret when Moses refused to be called the son
+of Pharaoh's daughter, but instead chose to be afflicted with the people
+of God. (Hebrews 11:24-25 By faith Moses, when he was come to years,
+refused to be called the son of Pharaoh's daughter;
+25 Choosing rather to suffer affliction with the people of God, than to
+enjoy the pleasures of sin for a season;) Esther could either identify as
+one of God's chosen people or as one of God's enemy. It was only much
+later that she chose to identify as one of God's chosen people. Esther
+became queen in the seventh year of the king's reign. (Esther 2:16 So
+Esther was taken unto king Ahasuerus into his house royal in the tenth
+month, which is the month Tebeth, in the seventh year of his reign.) The
+attack on the Jews occurred in the twelfth month of the twelfth year of
+the king's reign as we saw in Esther 3:7, so this means she had already
+been queen for five years. Some other things that show that Esther was
+most likely not walking right with God include the fact that as queen for
+five years she most likely was part of the heathen (pagan) ceremonies that
+the king had as well as he had many false gods. By keeping her Jewishness
+a secret she probably did not refuse to be a part of these traditions
+including idol worship whereas Shadrach, Meshach, and Abednego went to a
+fiery furnace rather than bow down to an idol. As a Jew she should have
+only eaten kosher food, but we know the food of the king was not kosher
+and nothing is said about her refusing to eat it whereas Daniel and his
+three friends refused to eat the king's food. (Daniel 1:8 ¶ But Daniel
+purposed in his heart that he would not defile himself with the portion of
+the king's meat, nor with the wine which he drank: therefore he requested
+of the prince of the eunuchs that he might not defile himself.) It appears
+that as part of the selection process for a new queen that the king had
+each of the women spend a night with him while he had relations with them.
+It does not seem that Esther ever fought this. Never accept a job that the
+boss requires you to spend a night with him. (Esther 2:14 In the evening
+she went, and on the morrow she returned into the second house of the
+women, to the custody of Shaashgaz, the king's chamberlain, which kept the
+concubines: she came in unto the king no more, except the king delighted
+in her, and that she were called by name.) When Mordecai originally went
+to Esther to plead with the king, she was more worried about her own life
+than the lives of the Jewish people of which she belonged to. This is
+similar to how many Christians are glad they are saved, but have no desire
+to warn the unsaved about their predicament. They would rather be quiet
+and "safe" just like Esther, but the truth will always come out. It was
+only when Mordecai told her that she was not exempt from the death decree
+on the Jews that she changed her mind. She said she would fast for three
+days before going to the king and asked Mordecai to do the same. It makes
+no mention of prayer to God which is who she should have turned to instead
+of doing a ritual. It is possible that Esther and Mordecai did get right
+with God, but this is never mentioned. Even after the victory over the
+Jews enemy, no glory was given to God for the victory. At the very least
+Esther at least at first was not as righteous as those already mentioned.
+Though God is not mentioned, he clearly was visible in making sure Esther
+became queen, Mordecai overheard the conspiracy against the king, and
+giving victory to the Jews over their enemies.   
+
+It seems that Mordecai was a descendant of king Saul and Haman was a
+descendant of Agag the evil king of the Amelekites. (Esther 3:10 And the
+king took his ring from his hand, and gave it unto Haman the son of
+Hammedatha the Agagite, the Jews' enemy.) (I Samuel 9:1-2 Now there was a
+man of Benjamin, whose name was Kish, the son of Abiel, the son of Zeror,
+the son of Bechorath, the son of Aphiah, a Benjamite, a mighty man of
+power.
+2 And he had a son, whose name was Saul, a choice young man, and a goodly:
+and there was not among the children of Israel a goodlier person than he:
+from his shoulders and upward he was higher than any of the people.)
+(Esther 2:5 ¶ Now in Shushan the palace there was a certain Jew, whose
+name was Mordecai, the son of Jair, the son of Shimei, the son of Kish, a
+Benjamite;) It is possible that this is a different Kish, but the
+connection to Haman is still there. God had ordered Saul to kill all of
+the Amelekites. (I Samuel 15:3 Now go and smite Amalek, and utterly
+destroy all that they have, and spare them not; but slay both man and
+woman, infant and suckling, ox and sheep, camel and ass.) But he had saved
+king Agag before Samuel killed him. (I Samuel 15:8 And he took Agag the
+king of the Amalekites alive, and utterly destroyed all the people with
+the edge of the sword.) Agag had a whole night to live before he was
+killed by Samuel the next day. (I Samuel 15:33 And Samuel said, As thy
+sword hath made women childless, so shall thy mother be childless among
+women. And Samuel hewed Agag in pieces before the LORD in Gilgal.) Whether
+it was during this night that Agag produced a child or it was a child that
+Saul never killed, this disobedience by Saul would come back to haunt the
+Jewish people as Agag's descendant Haman would attempt to kill all of the
+Jews in the Persian Empire including Mordecai is own descendant. Keeping
+sin for even one more day in our lives will always come back to haunt us.
+This is why we must always obey God fully according to what he says. One
+of Mordecai's ancestors was Shimei who cursed David and cast stones at
+him. (II Samuel 16:5-6 ¶ And when king David came to Bahurim, behold,
+thence came out a man of the family of the house of Saul, whose
+name was Shimei, the son of Gera: he came forth, and cursed still as he
+came.
+6 And he cast stones at David, and at all the servants of king David: and
+all the people and all the mighty men were on his right hand and on his
+left.) David refused to kill him and left it for his son Solomon to kill
+him. Do not save sin for another day or for someone else to get rid of.
+Get rid of it immediately and do it yourself. Let us all become like
+Esther and be willing to die for what is right and stand for God.
+
+I have already shown how Jesus celebrated Purim. Jesus as God is
+identified with Purim by showing how God has promised to always preserve
+his people the Jews despite their disobedience. God also teaches the
+lesson that a person such as Esther is not secure behind the walls of a
+palace, but is only secure in the arms of Jesus. The book of Esther and
+the story of Purim teach that one's trust and faith must be in God and
+specifically in his Son Jesus where he must be a person's Saviour. It is
+the free gift of Jesus that one must receive. All people as sinners are
+poor until they are saved and receive the riches of God. That is why Jesus
+offered the gift of himself to all people. Just as God promised to
+preserve the Jews he will preserve those who choose Jesus as their
+Saviour. (II Corinthians 9:15 Thanks be unto God for his unspeakable
+gift.) (Ephesians 2:8 For by grace are ye saved through faith; and that
+not of yourselves: it is the gift of God:) For anyone listening that is
+not saved, today is the day to accept the free gift of Jesus. This is the
+story of Purim that by that free gift a person's eternal soul may be
+preserved where they will spend eternity with Jesus. Preservation of the
+Jews as well as one's soul is only by the gift of Jesus. Only Jesus can
+preserve and redemption is only by him, but only to those who call upon
+him to save them. Call upon Jesus today to save you and preserve your
+soul.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

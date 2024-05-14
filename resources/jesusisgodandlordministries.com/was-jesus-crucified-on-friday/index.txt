@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,421 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Was Jesus Crucified on Friday?
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Was Jesus crucified on Friday or another day of the week. We have
+always been taught that Jesus was crucified on what has become to be known
+as Good Friday, but is that correct. Many people just repeat what they are
+taught without searching the scriptures themselves.
 
-Username or email _____________________
+Some people say Jesus was crucified on Wednesday or Thursday. I
+believe the scriptures indicate Thursday was the correct day. Just about
+everyone agrees that Jesus rose from the grave on Sunday, today referred
+to as Resurrection Day or Easter. (Mark 16:9 ¶ Now when Jesus was risen
+early the first day of the week, he appeared first to Mary Magdalene, out
+of whom he had cast seven devils.) Many other verses tell of the women and
+later Peter and John going to the tomb of Jesus on the first day of the
+week. We know the first day of the week is Sunday as the Jews sabbath day
+was Saturday which was the last day of the week.
 
-Reset password
+(Matthew 12:40 For as Jonas was three days and three nights in the whale's
+belly; so shall the Son of man be three days and three nights in the heart
+of the earth.)
+
+Jesus said he would be in the heart of the earth for three days and
+three nights. The Jews counted any part of a day as a full day, even if it
+was only an hour. Unlike our day and the Romans day which starts at
+midnight, the Jews day started at sunset or 6 pm. Even with the thinking
+of a partial day, you cannot get three days and three nights from Friday
+to Sunday morning. You would have Friday day, Friday night, Saturday day,
+Saturday night, and Sunday day for three days, but only two nights.
+Scripture tells us Jesus gave up the ghost at the ninth hour or 3 PM.
+(Mark 15:34 And at the ninth hour Jesus cried with a loud voice, saying,
+Eloi, Eloi, lama sabachthani? which is, being interpreted, My God, my God,
+why hast thou forsaken me?) (Mark 15:37 And Jesus cried with a loud voice,
+and gave up the ghost.)
+
+Jesus was our passover lamb. (I Corinthians 5:7 Purge out therefore
+the old leaven, that ye may be a new lump, as ye are unleavened. For even
+Christ our passover is sacrificed for us:) 
+
+We know they sacrificed the Passover lamb on 14 Nissan. (II Chronicles
+35:1 Moreover Josiah kept a passover unto the LORD in Jerusalem: and they
+killed the passover on the fourteenth day of the first month.) The first
+month on the Jewish religious calendar is Nissan.
+
+If Jesus rose again three days later, that would be 17 Nissan. If 17
+Nissan was a Sunday, then 14 Nissan was a Thursday. The Jews actually
+sacrificed the passover lamb on preparation day (John 19:14-15 14 And it
+was the preparation of the passover, and about the sixth hour: and he
+saith unto the Jews, Behold your King! 15 But they cried out, Away with
+him, away with him, crucify him. Pilate saith unto them, Shall I crucify
+your King? The chief priests answered, We have no king but Caesar.), the
+same day the house was cleansed of all leaven (leaven represents sin). The
+actual passover was on 14 Nissan, with 15 Nisan being the first day of the
+feast of unleavened bread, and we know Saturday or 16 Nissan was the
+regular weekly sabbath. (Leviticus 23:5-8 In the fourteenth day of the
+first month at even is the LORD'S passover.
+6 And on the fifteenth day of the same month is the feast of unleavened
+bread unto the LORD: seven days ye must eat unleavened bread.
+7 In the first day ye shall have an holy convocation: ye shall do no
+servile work therein.
+8 But ye shall offer an offering made by fire unto the LORD seven days: in
+the seventh day is an holy convocation: ye shall do no servile
+work therein.) Jesus presented himself as an offering for the feast of
+unleavened bread. The chief priests wanted to remove Jesus from the cross
+as quickly as possible and bury him since a high holy sabbath day was
+coming with passover at sunset and the weekly sabbath following after it.
+(John 19:31 The Jews therefore, because it was the preparation, that the
+bodies should not remain upon the cross on the sabbath day, (for that
+sabbath day was an high day,) besought Pilate that their legs might be
+broken, and that they might be taken away. The regular weekly sabbath was
+never referred to as a high day, only feast days. No work was to be done
+on these days. This is why the women waited until Sunday to bring the
+spices for Jesus's body since they  could not do anything on the sabbath
+days. So if you have two days in between his death and his resurrection on
+Sunday, it makes Thursday his day of crucifixion.
+
+(John 12:1 Then Jesus six days before the passover came to Bethany,
+where Lazarus was which had been dead, whom he raised from the dead.)
+
+Jesus was at the home of Lazarus on 9 Nissan, just before he entered
+Jerusalem on what we call Palm Sunday on 10 Nissan. Adding 6 days to 9
+Nissan gives us 15 Nissan for the passover, which was on Friday. Mary
+anointed the feet of Jesus (John 12:3 Then took Mary a pound of ointment
+of spikenard, very costly, and anointed the feet of Jesus, and wiped his
+feet with her hair: and the house was filled with the odour of the
+ointment.) to prepare Jesus for his upcoming death.
+
+(Mark 15:25 And it was the third hour, and they crucified him.)
+
+We know Jesus went to the cross at the third hour (9 am) and gave up the
+ghost at the ninth hour (3 pm). 9 am was the time the Jews brought their
+passover lamb to the temple to wait for it to be slaughtered and
+sacrificed at 3 pm. Jesus as our passover  lamb also went to the cross at
+9 am and was dead at 3 pm. His blood dripped onto the mercy seat of the
+ark of the covenant hidden under the cross found by Ron Wyatt a nurse and
+amateur archaeologist. The high priest used to place the blood of the sin
+offering on the mercy seat (Leviticus 16:15 ¶ Then shall he kill the goat
+of the sin offering, that is for the people, and bring his blood within
+the vail, and do with that blood as he did with the blood of the bullock,
+and sprinkle it upon the mercy seat, and before the mercy seat:). Jesus as
+our High Priest (Hebrews 3:1 Wherefore, holy brethren, partakers of the
+heavenly calling, consider the Apostle and High Priest of our profession,
+Christ Jesus;) who was the ultimate sin offering to cover all sins for all
+mankind forever later placed his blood on the heavenly mercy seat, but
+only after leaving his blood on the earthly mercy seat in accordance with
+the law. (Hebrews 9:11-13 11 But Christ being come an high priest of good
+things to come, by a greater and more perfect tabernacle, not made with
+hands, that is to say, not of this building;
+12 Neither by the blood of goats and calves, but by his own blood he
+entered in once into the holy place, having obtained eternal redemption
+for us.
+13 For if the blood of bulls and of goats, and the ashes of an heifer
+sprinkling the unclean, sanctifieth to the purifying of the flesh:) This
+was why Jesus told Mary Magdalene on that Sunday morning of his
+resurrection, not to touch him, since he had not ascended to his Father
+yet. Jesus had not placed his blood on the heavenly mercy seat yet and
+could not allow Mary Magdalene to touch him before he did or he would be
+polluted from her sin and could not have been our sinless and clean
+sacrifice. Ron Wyatt had the blood of Jesus tested by Jewish experts not
+telling them were it came from and they confirmed it had 24 chromosomes
+instead of the normal 46 chromosomes. Jesus received 23 from Mary and one
+Y chromosome from the Holy Ghost. 24 is the number for the priesthood as
+seen in the 24 courses of the priests. Jesus is our high priest. Many of
+the Jewish experts were later saved when they were told that blood was
+from their Jewish Messiah. Jesus blood had water added to it and was made
+alive again showing Jesus's blood never died. Normal blood cannot be
+tested for DNA once dried out.
+
+Jesus rose on 17 Nissan which was also the feast of the first fruits.
+Jesus was the first fruits of resurrection. (I Corinthians 15:20 But now
+is Christ risen from the dead, and become the firstfruits of them that
+slept.) (I Corinthians 15:23 But every man in his own order: Christ the
+firstfruits; afterward they that are Christ's at his coming.) The number
+17 means victory (and also possibly security in the Lord) which all have
+if they choose Jesus as their Saviour and Jesus had victory over Satan and
+death with his resurrection. The feast of first fruits always was on the
+first day after the regular sabbath following passover which would have
+been Sunday when Jesus rose from the grave. (Leviticus 23:10-11 Speak unto
+the children of Israel, and say unto them, When ye be come into the land
+which I give unto you, and shall reap the harvest thereof, then ye shall
+bring a sheaf of the firstfruits of your harvest unto the priest:
+11 And he shall wave the sheaf before the LORD, to be accepted for you: on
+the morrow after the sabbath the priest shall wave it.) Fifty days from
+the feast of first fruits was Pentecost, also known as the feast of weeks.
+This was when the Holy Ghost was given.  
+
+When Jesus entered Jerusalem on 10 Nissan or Palm Sunday, that was
+also the day the Jews selected their lamb to be killed for the passover.
+Jesus was presenting himself to the Jews as their passover lamb. 10 means
+law and Jesus obeyed and fulfilled all of the law to the letter. Jesus
+entered Jerusalem on Palm Sunday on the exact day as Daniel had predicted
+over 500 years earlier, so the Jews were without excuse for not realizing
+that Jesus was their Messiah. Jesus would be cut off or crucified on the
+day scripture says. Sixty nine weeks of seven years, with each week
+representing seven years equals 483 years since the Persian king Cyrus
+allowed the people to return to Jerusalem and rebuild. (Daniel 9:25-26
+Know therefore and understand, that from the going forth of the
+commandment to restore and to build Jerusalem unto the Messiah the
+Prince shall be seven weeks, and threescore and two weeks: the street
+shall be built again, and the wall, even in troublous times.
+26 And after threescore and two weeks shall Messiah be cut off, but not
+for himself: and the people of the prince that shall come shall destroy
+the city and the sanctuary; and the end thereof shall be with a flood, and
+unto the end of the war desolations are determined.) The last week of
+seven years is yet to come in the future tribulation.
+
+Jesus died at 33. The number 33 means promise. If one has received
+Jesus as their personal Saviour and is saved, they have the promise of
+eternal life with Jesus.
+
+The word blood is found 447 times in scripture and sin is found 448
+times. The blood of Jesus covers all sin except the sin of the blasphemy
+of the Holy Ghost. (Matthew 12:31-32 31 ¶ Wherefore I say unto you, All
+manner of sin and blasphemy shall be forgiven unto men: but the blasphemy
+against the Holy Ghost shall not be forgiven unto men.
+32 And whosoever speaketh a word against the Son of man, it shall be
+forgiven him: but whosoever speaketh against the Holy Ghost, it shall not
+be forgiven him, neither in this world, neither in the world to come.)
+
+Jesus died on the 14^th. 14 means deliverance. Jesus was delivered to
+the cross for our salvation. The number 15 means rest as the 15^th was the
+passover and we can rest knowing that Jesus died for our sins and will
+save us if we call upon Jesus to save us.
+
+As a side note, the Easter bunny and Easter eggs are both of heathen
+origin, most likely from Germany or the area around Northern Europe. The
+bunny and eggs are representative of the ancient fertility goddess as
+Satan has always been about sex and tries to bring it into all aspects of
+a Christian's life. The bunny was chosen as she gives birth to lots of
+rabbits in the Spring around the time of Easter. The bunny is a very
+reproductive animal and the saying of someone with lots of children is she
+breeds like a rabbit. The coloring of the eggs was in honour of the
+heathen goddess. The Roman Catholic Church says the eggs represent the
+emergence of Jesus from the tomb and the resurrection of Jesus. Leave it
+to a cult to support a heathen tradition. Do not believe any of these
+lies. The Easter bunny and Easter eggs have nothing to do with Jesus or
+his resurrection and are only put there by Satan to support a heathen
+goddess and to corrupt the most holiest day for Christians, the
+resurrection of Jesus. Satan wants people to not think about Jesus, but
+rather a bunny and painting eggs and having an Easter egg hunt with gifts
+inside such as toys or candy. Why are Christian holidays always about the
+children and not about Jesus? No Christian should participate in any
+Easter egg hunts or allow their children to and they should have nothing
+to do with egg painting or the Easter bunny. Do not bring your children to
+see the Easter bunny and get a picture with him. Just as Satan has taken
+over Christmas with Santa, he has taken over Easter or Resurrection Day
+with the Easter bunny and painted eggs. Many churches even have Easter egg
+hunts though they try to justify it by saying they are Resurrection Day
+eggs or some other name and they say they have Bible verses inside them.
+Easter has become commercialized just like Christmas and the focus is
+placed on a bunny and eggs rather than Jesus. These churches do not help
+the situation. Tell the pastors of these churches to stop this nonsense.
+Christians stay away from both and lets return the day back to Jesus and
+his glorious resurrection. Easter is not about a bunny and eggs, it is
+about Jesus and his resurrection which without that we would still be dead
+in our sins, so let us put Jesus back in Easter.
+
+For those who may be listening and are not saved, today is the day to
+call upon Jesus as your Saviour so that you too can celebrate the
+resurrection of Jesus and not the Easter bunny. Turn from your sin and
+pray and ask Jesus to save you. Do it now.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

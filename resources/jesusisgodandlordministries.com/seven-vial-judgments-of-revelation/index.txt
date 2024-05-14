@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,418 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Seven Vial Judgments of Revelation
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Revelation speaks of seven vial judgments from God during the
+tribulation. The vial judgments are the final seven judgments of twenty
+one judgments by God during the tribulation. They follow the seven seal
+judgments and the seven trumpet judgments. The vial judgments are
+incorrectly referred to as bowl judgments in the corrupt modern bibles.
+The tribulation is the seven year period just before the return of Jesus
+in his second coming. The tribulation is the time of punishment to bring
+the Jews to Jesus and punish the Gentile nations for their treatment of
+his chosen people. Only one third of the Jews will survive the tribulation
+and they will finally recognize Jesus is their Messiah. (Zechariah 13:8-9
+8 And it shall come to pass, that in all the land, saith the LORD, two
+parts therein shall be cut off and die; but the third shall be left
+therein.
+9 And I will bring the third part through the fire, and will refine them
+as silver is refined, and will try them as gold is tried: they shall call
+on my name, and I will hear them: I will say, It is my people: and they
+shall say, The LORD is my God.) The vial judgments follow the seal
+judgments and the trumpet judgments. During the tribulation God will bring
+his wrath upon the earth and much of the world's population will be
+destroyed.
 
-Username or email _____________________
+Some of the vial judgments are similar to the trumpet judgments, but
+on a much grander scale. The first vial judgment will bring noisome
+(hurtful and destructive) and grievous sores upon all the men who have
+taken the mark of the beast. (Revelation 16:1-2 1 And I heard a great
+voice out of the temple saying to the seven angels, Go your ways, and pour
+out the vials of the wrath of God upon the earth.
+2 And the first went, and poured out his vial upon the earth; and there
+fell a noisome and grievous sore upon the men which had the mark of the
+beast, and upon them which worshipped his image.) This is a direct
+judgment by God on all those who willingly have chosen to serve Satan
+rather than God by taking the mark of the beast and by worshipping the
+beast. God is showing in these judgments that he is greater than Satan and
+he alone is in control. Any people who have gotten saved during the
+tribulation will not be affected by this vial judgment. This is similar to
+the judgments by God on Egypt during the ten plagues given by God to
+Moses. A direct sore given by God will be much worse than any ever given
+by man.
 
-Reset password
+The second vial judgment will cause the sea to turn into blood and
+will kill all life living in it. (Revelation 16:3 And the second angel
+poured out his vial upon the sea; and it became as the blood of a
+dead man: and every living soul died in the sea.) This will be a severe
+judgment as much of man's food comes from the sea as well as much commerce
+is done by travel on the sea. The ecological disaster from all of the dead
+animals and any people killed at this time will be tremendous. Dead
+animals and people will be all over the shores and the smell will be
+tremendous and noxious as decaying flesh begins. Many diseases will most
+likely start. This second vial judgment compares to the second trumpet
+judgment, but on a much grander scale. The second trumpet judgment will
+cause a third part of the sea to turn into blood with a third of life
+destroyed including ships, but the second vial judgment will turn all of
+the sea into blood and destroy all life. (Revelation 8:8-9 8 And the
+second angel sounded, and as it were a great mountain burning with fire
+was cast into the sea: and the third part of the sea became blood;
+9 And the third part of the creatures which were in the sea, and had life,
+died; and the third part of the ships were destroyed.)
+
+The third vial judgment will cause the rivers and fresh water to turn
+into blood. This is a major disaster as man needs fresh water to live.
+Jesus as the living water is rejected by the people of the world and
+therefore God is giving them what they want and deserve. They have
+rejected the living water, therefore God has given them dead water. This
+judgment will also bring an ecological disaster. Think how hard it is
+today to bring fresh water to victims following floods or hurricanes. Here
+the water is blood and undrinkable. (John 7:38
+He that believeth on me, as the scripture hath said, out of his belly shall flow rivers of living
+water.) (Revelation 16:4-7 4 And the third angel poured out his vial upon
+the rivers and fountains of waters; and they became blood.
+5 And I heard the angel of the waters say, Thou art righteous, O Lord,
+which art, and wast, and shalt be, because thou hast judged thus.
+6 For they have shed the blood of saints and prophets, and thou hast given
+them blood to drink; for they are worthy.
+7 And I heard another out of the altar say, Even so, Lord God Almighty,
+true and righteous are thy judgments.) The third trumpet judgment is
+similar to the third vial judgment, but again the vial judgment is much
+grander. The trumpet judgment destroys a third part of the rivers, but the
+vial judgment all of it. (Revelation 8:10-11 10 And the third angel
+sounded, and there fell a great star from heaven, burning as it were a
+lamp, and it fell upon the third part of the rivers, and upon the
+fountains of waters;
+11 And the name of the star is called Wormwood: and the third part of the
+waters became wormwood; and many men died of the waters, because they were
+made bitter.) Turning the rivers into blood is a reminder of the first
+plague against the Egyptians when the rivers where turned into blood by
+Moses at the power of God. (Exodus 7:14-25)
+
+The fourth vial judgment will cause the sun to produce great heat and
+will scorch men. The sun represents a type of Jesus as Jesus is the light
+of the world and Jesus is showing how powerful his light can be for those
+who reject him. (John 8:12 ¶ Then spake Jesus again unto them,
+saying, I am the light of the world: he that followeth me shall not walk in darkness, but shall have the light of life.)
+(Revelation 16:8-9 8 And the fourth angel poured out his vial upon the
+sun; and power was given unto him to scorch men with fire.
+9 And men were scorched with great heat, and blasphemed the name of God,
+which hath power over these plagues: and they repented not to give him
+glory.) Notice how people instead of repenting of their sins and calling
+on Jesus to save them and keep them from future judgments, instead
+blasphemy the name of God. This shows how much these people have rejected
+God and chosen Satan. We see some of this today. The fourth trumpet
+judgment is similar to the fourth vial judgment in that both affect the
+sun, though the trumpet judgment weakens the sun by having it not shine
+for a third part of the day as well as the moon and stars not shine for a
+third part of the night, whereas the vial judgment strengthens the sun.
+Notice how the moon is affected here as well as the moon represents
+Christians who are to reflect the light of Jesus just as the moon reflects
+the light of the sun. There are not many saved people living at this time,
+so there is not much light getting reflected. (Revelation 8:12-13 12 And
+the fourth angel sounded, and the third part of the sun was smitten, and
+the third part of the moon, and the third part of the stars; so as the
+third part of them was darkened, and the day shone not for a third part of
+it, and the night likewise.
+13 And I beheld, and heard an angel flying through the midst of heaven,
+saying with a loud voice, Woe, woe, woe, to the inhabiters of the earth by
+reason of the other voices of the trumpet of the three angels, which are
+yet to sound!) The partial darkness of the fourth trumpet judgment is a
+reminder of the darkness brought about in the ninth plague against the
+Egyptians. (Exodus 10:21-23)
+
+The fifth vial judgment will bring darkness upon the seat of the
+beast, most likely Rome, and on his kingdom. This will be a darkness so
+great that it will cause pain and agony. Rejection of the light of Jesus
+will bring great pain and suffering and an everlasting eternity in
+darkness in hell and the lake of fire. The darkness is symbolic of the
+spiritual darkness of the world and her rejection of Jesus and his light.
+The beast (antichrist) is also indwelt with Satan himself and his
+darkness. This darkness and the gnawing pain it will cause is again
+similar to the ninth plague against Egypt. (Revelation 16:10-11 10 And the
+fifth angel poured out his vial upon the seat of the beast; and his
+kingdom was full of darkness; and they gnawed their tongues for pain,
+11 And blasphemed the God of heaven because of their pains and their
+sores, and repented not of their deeds.) Notice how once again the people
+blasphemed God rather than admit their sin has caused their pain. The
+fifth trumpet judgment previously also brought darkness to the earth as
+the bottomless pit was opened and evil creatures belonging to Satan were
+released bringing their spiritual darkness to mankind. (Revelation 9:1-2 1
+And the fifth angel sounded, and I saw a star fall from heaven unto the
+earth: and to him was given the key of the bottomless pit.
+2 And he opened the bottomless pit; and there arose a smoke out of the
+pit, as the smoke of a great furnace; and the sun and the air were
+darkened by reason of the smoke of the pit.)
+
+The sixth vial judgment will dry up the Euphrates river in
+preparation for the battle of Armageddon. Unclean spirits like frogs will
+come out of the mouth of the dragon (Satan), the beast (antichrist), and
+the false prophet. The dragon is Satan. (Revelation 12:9 And the great
+dragon was cast out, that old serpent, called the Devil, and Satan, which
+deceiveth the whole world: he was cast out into the earth, and his angels
+were cast out with him.) The frogs that come out of the mouths of this
+unholy Satanic trinity is a reminder of the second plague of Egypt and the
+land being overrun by frogs whom they worshipped. (See Exodus 8:1-15)
+(Revelation 16:12-16 12 And the sixth angel poured out his vial upon the
+great river Euphrates; and the water thereof was dried up, that the way of
+the kings of the east might be prepared.
+13 And I saw three unclean spirits like frogs come out of the mouth of the
+dragon, and out of the mouth of the beast, and out of the mouth of the
+false prophet.
+14 For they are the spirits of devils, working miracles, which go forth
+unto the kings of the earth and of the whole world, to gather them to the
+battle of that great day of God Almighty.
+15 Behold, I come as a thief. Blessed is he that watcheth, and keepeth his
+garments, lest he walk naked, and they see his shame.
+16 And he gathered them together into a place called in the Hebrew tongue
+Armageddon.) The sixth trumpet judgment also deals with the Euphrates and
+bringing death to man. The trumpet judgment will release the four angels
+that are tied up and they will kill a third of the world population while
+the vial judgment will help bring about the battle of Armegeddon which
+will lead to much great bloodshed. (Revelation 9:13-15 And the sixth angel
+sounded, and I heard a voice from the four horns of the golden altar which
+is before God,
+14 Saying to the sixth angel which had the trumpet, Loose the four angels
+which are bound in the great river Euphrates.
+15 And the four angels were loosed, which were prepared for an hour, and a
+day, and a month, and a year, for to slay the third part of men.)
+
+The seventh and final vial judgment as well as the final judgment of
+wrath poured upon people during the great tribulation will cause the
+greatest earthquake to ever hit the earth. Jerusalem will be divided into
+three parts and all of the world's cities will be destroyed and every
+island will be gone. Imagine all of the great cities such as New York
+City, Washington, D.C., London, Paris, Beijing, Tokyo, and all of the
+other cities destroyed and gone. All of the islands will be gone including
+the Hawaiian Islands, Great Britain, the Philippines, and all the rest.
+This is all caused by this earthquake from God. Thunder, lightning and
+large hail will also fall. The hail will weigh around 75-100 pounds (34-45
+kilograms) depending on the source of how much a talent weighs. Even at
+the low end, this hail will cause tremendous damage to anything hit by
+them. (Revelation 16:17-21 17 And the seventh angel poured out his vial
+into the air; and there came a great voice out of the temple of heaven,
+from the throne, saying, It is done.
+18 And there were voices, and thunders, and lightnings; and there was a
+great earthquake, such as was not since men were upon the earth, so mighty
+an earthquake, and so great.
+19 And the great city was divided into three parts, and the cities of the
+nations fell: and great Babylon came in remembrance before God, to give
+unto her the cup of the wine of the fierceness of his wrath.
+20 And every island fled away, and the mountains were not found.
+21 And there fell upon men a great hail out of heaven, every stone about
+the weight of a talent: and men blasphemed God because of the plague of
+the hail; for the plague thereof was exceeding great.) This seventh vial
+judgment reminds us of the seventh plague of Egypt which brought thunder,
+lightning, and hail upon Egypt. (Exodus 9:13-35) The seventh trumpet
+judgment just as the seventh vial judgment brings an earthquake,
+lightning, thunder, and great hail. God has a pattern in his judgments
+from Egypt to the great tribulation. His wrath will be vindicated.
+(Revelation 11:19 And the temple of God was opened in heaven, and there
+was seen in his temple the ark of his testament: and there were
+lightnings, and voices, and thunderings, and an earthquake, and great
+hail.)
+
+The seven vial judgments will bring great death and destruction upon
+this earth to all of those who have rejected Jesus and chosen Satan.
+Choose Jesus today before it is too late and avoid the wrath of God and
+his vial judgments. If you are not saved see What must I do to be saved
+(be born again), have eternal life and go to heaven?
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

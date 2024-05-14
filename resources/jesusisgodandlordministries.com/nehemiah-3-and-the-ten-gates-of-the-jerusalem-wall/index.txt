@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,512 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Nehemiah 3 and the ten gates of the Jerusalem wall
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Nehemiah 3 tells of the ten gates of the Jerusalem wall as they are
+rebuilt by the Jews who returned to Jerusalem after the Medo-Persian
+Empire defeated the Babylonian Empire. After the end of the Babylonian
+Empire, the Persian king Cyrus allowed the Jews to return to Jerusalem to
+rebuild the temple. It is believed by some that Cyrus was part Jewish.
+This rebuilt temple is sometimes referred to as Zerubbabel's temple since
+Zerubbabel was the governor and leader of Judah who led a group of Jews
+from Babylon to Jerusalem to rebuild the temple. (II Chronicles 36:22-23
+22 ¶ Now in the first year of Cyrus king of Persia, that the word of the
+LORD spoken by the mouth of Jeremiah might be accomplished, the
+LORD stirred up the spirit of Cyrus king of Persia, that he made a
+proclamation throughout all his kingdom, and put it also in writing,
+saying,
+23Thus saith Cyrus king of Persia, All the kingdoms of the earth hath the
+LORD God of heaven given me; and he hath charged me to build him an house
+in Jerusalem, which is in Judah. Who is there among you of all his people?
+The LORD his God be with him, and let him go up.) Nehemiah led the
+rebuilding of the wall around Jerusalem and the gates. Each of the ten
+gates has a meaning and God had them rebuilt in a specific order for a
+reason. Each of the gates in some way points to Jesus and our relationship
+with him. The ten gates listed are built in a counterclockwise order from
+the north wall starting with the sheep gate. Notice where the gates are
+located and what they represent. Just as numbers and colors in scripture
+have meaning, so do compass directions in scripture such as north, west,
+south, and east and the gates will show them. North represents death as
+all are born spiritually dead, thus the sheep gate brings salvation, west
+represents harvest of the seed seen in the fish gate as fishers of men win
+souls, south represents life as the dung gate cleanses sin from us, and
+east means Jesus Christ as seen in the various gates of the east such as
+the second coming of Jesus in the east gate. The circumference of the ten
+gates was approximately 2.5 miles and enclosed about 220 acres. People of
+all backgrounds and occupations helped rebuild the wall and gates, just as
+the church of God and the body of Christ is made up of a diverse
+background of people and occupations and Jesus wants all to work for him.
 
-Username or email _____________________
 
-Reset password
+Modern Jerusalem only has eight gates: new gate, Damascas gate,
+Herod's gate, lion's gate, golden gate (sealed up), dung gate, Zion gate,
+Jaffa gate. The new Jerusalem will have twelve gates, three on each side,
+named for the twelve tribes of Israel. (Revelation 21:12-13 12 And had a
+wall great and high, and had twelve gates, and at the gates twelve angels,
+and names written thereon, which are the names of the twelve tribes of the
+children of Israel:
+13 On the east three gates; on the north three gates; on the south three
+gates; and on the west three gates.) The wall of Nehemiah's day may have
+had ten gates since ten represents the law and the purpose of the law was
+to show we are sinners and to point us to Jesus as each of the gates did.
+
+
+The first gate that was rebuilt on the wall surrounding Jerusalem was
+the sheep gate. [verses 1-2] This gate was rebuilt by the priests.
+(Nehemiah 3:1 Then Eliashib the high priest rose up with his brethren the
+priests, and they builded the sheep gate; they sanctified it, and set up
+the doors of it; even unto the tower of Meah they sanctified it, unto the
+tower of Hananeel.) The sheep gate represents salvation with it
+representing Jesus who as the Lamb of God is the only way of salvation.
+The sheep gate was the only gate that was sanctified to be holy as it
+represents salvation from Jesus. This gate pointed to the first coming of
+Jesus who died for us on that cross, was buried, and rose again from the
+grave on the third day so that we may have salvation. (John 1:29 ¶ The
+next day John seeth Jesus coming unto him, and saith, Behold the Lamb of
+God, which taketh away the sin of the world.) (John 14:6 Jesus saith unto
+him, I am the way, the truth, and the life: no man cometh unto the Father,
+but by me.) We must always start with concern for the salvation of the
+lost, for without salvation, it does not matter what a person does.
+Without salvation a person no matter how good they are will spend eternity
+in hell and the lake of fire. The lost must enter the sheep gate in order
+to pass through the door of Jesus in order to be saved. The priests
+understood the priority of salvation, which is why this was the first gate
+rebuilt, and I pray that all who hear this sermon (message) will also see
+the priority and need for their own salvation as well as others. A person
+must be saved first before they can pass through the other spiritual gates
+in their order as given. The sheep gate was also the gate that animals
+such as sheep were brought through for the animal sacrifices that were
+necessary for worship. The sheep gate was located on the northeast corner
+of the wall.
+
+The second gate rebuilt was the fish gate. [verses 3-5] (Nehemiah 3:3
+But the fish gate did the sons of Hassenaah build, who also laid the beams
+thereof, and set up the doors thereof, the locks thereof, and the bars
+thereof.) The fish gate represents Christians as being fishers of men or
+at least they should be. This gate is a reminder for Christians to tell
+others about Jesus and to bring others to Jesus such as here to church.
+Jesus told the two fishermen, Peter and his brother Andrew, to follow him
+and he would make them fishers of men. (Matthew 4:19 And he saith unto
+them, Follow me, and I will make you fishers of men.) Let us all become
+fishers of men just as these two men were. Those who win souls are wise.
+(Proverbs 11:30 The fruit of the righteous is a tree of life; and he that
+winneth souls is wise.) A person cannot become a fisher of men without
+first having passed through the sheep gate of salvation. The fish gate was
+the gate used by fishermen to bring their fish into Jerusalem to the
+market.
+
+The third gate rebuilt was the old gate. [verses 6-12] (Nehemiah 3:6
+Moreover the old gate repaired Jehoiada the son of Paseah, and Meshullam
+the son of Besodeiah; they laid the beams thereof, and set up the doors
+thereof, and the locks thereof, and the bars thereof.) The old gate was in
+the northwest corner of the wall and along with the sheep gate and fish
+gate were the three gates on the north wall. Some show the old gate on the
+western side of the wall. It is believed the old gate was named as such
+since it was the old gate into Salem or early Jerusalem as the city was
+originally called. The old gate was rebuilt by the ruler of the half part
+of Jerusalem and his daughters as well as goldsmiths, apothecaries [a
+person who prepared and sold medicines and drugs, such as a pharmacist],
+and other diverse persons. The old gate reminds us to get rid of our old
+sinful nature that is contrary to God and follow the old paths of
+righteousness. (Romans 6:6 Knowing this, that our old man is crucified
+with him, that the body of sin might be destroyed, that henceforth we
+should not serve sin.)The old man is our old sinful nature.(Jeremiah 6:16
+Thus saith the LORD, Stand ye in the ways, and see, and ask for the old
+paths, where is the good way, and walk therein, and ye shall find rest for
+your souls. But they said, We will not walk therein.) As a Christian seeks
+to grow, they should have less sin in their lives and they should be
+seeking the old ways of God.
+
+The fourth gate rebuilt was the valley gate. (Nehemiah 3:13 The
+valley gate repaired Hanun, and the inhabitants of Zanoah; they built it,
+and set up the doors thereof, the locks thereof, and the bars thereof, and
+a thousand cubits on the wall unto the dung gate.) The valley gate was on
+the western part of the wall and led to the Tyropoeon Valley, also known
+as the Outer Valley or some sources say it led to the Hinnom Valley. The
+valley gate represents us learning to be meek and humble. Many young
+Christians start all excited and on fire for the Lord as they should be.
+Unfortunately, all Christians will eventually have a period where they are
+low in spirits and down in the valley. They feel as if things are no
+longer going their way and God has abandoned them. This is the time that
+God really teaches us to grow for him so that we can serve him better. A
+Christian must experience the valley and its trials in order to reach the
+mountain top. Jesus said in (Luke 14:11 For whosoever exalteth himself
+shall be abased; and he that humbleth himself shall be exalted.) Just as
+very little in nature grows on mountain tops, but much grows in valleys,
+so do we as Christians when we are in the valley. A person must spend time
+in the valley in order to reach the mountain top. God knows we will feel
+as though we do not need him if we are always on the mountain top. Being
+in the valley humbles us to rely on him and also helps us to have
+compassion for others who may be in the valley.
+
+The fifth gate rebuilt was the dung gate. (Nehemiah 3:14 But the dung
+gate repaired Malchiah the son of Rechab, the ruler of part of
+Beth-haccerem; he built it, and set up the doors thereof, the locks
+thereof, and the bars thereof.) This gate was on the southern part of the
+wall. The filth of Jerusalem (dung) such as the rubbish, manure [dung],
+and waste was carried out of the city through this gate to the valley of
+Hinnom where it was burnt. This represents the reminder for all Christians
+to constantly be cleaning the sin out of their lives so that we may be
+holy before God. (II Corinthians 7:1 Having therefore these promises,
+dearly beloved, let us cleanse ourselves from all filthiness of the flesh
+and spirit, perfecting holiness in the fear of God.) Paul himself said all
+things in his life were dung, so he could grow in Christ. (Philippians 3:8
+Yea doubtless, and I count all things but loss for the excellency of the
+knowledge of Christ Jesus my Lord: for whom I have suffered the loss of
+all things, and do count them but dung, that I may win Christ,) Just as
+our bodies were initially cleansed by the washing of our sins away by the
+blood of Jesus at the time of our salvation, our bodies need to be
+constantly cleansed by prayer, reading the word of God, and having a
+healthy fear of God. A Christian has just gone through the valley gate and
+now God seeks to get rid of the dung in their life so they can proceed to
+the next gate of their spiritual growth and life. The dung gate was
+rebuilt by only one person as each person must get rid of their own sin in
+order to cleanse their lives. A person must let the Holy Ghost lead them
+so they will do the will of God.
+
+The sixth gate rebuilt was the gate of the fountain. [verses 15-25]
+(Nehemiah 3:15 But the gate of the fountain repaired Shallun the son of
+Col-hozeh, the ruler of part of Mizpah; he built it, and covered it, and
+set up the doors thereof, the locks thereof, and the bars thereof, and the
+wall of the pool of Siloah by the king's garden, and unto the stairs that
+go down from the city of David.) The gate of the fountain was on the
+eastern side of the wall as are all of the rest of the ten gates. The gate
+of the fountain is very close to the dung gate and leads to the Kidron
+Valley and was near the pool of Siloam which was used by people for
+cleaning themselves before entering the temple. Water from the Gihon
+Spring entered the Siloam tunnel to the pool of Siloam and this is where
+the name of the gate comes from. The gate was close to the dung gate since
+it represents us receiving the Holy Ghost as the living water that Jesus
+promised and is represented in the feast of tabernacles. A Christian in
+their walk after going through the valley gate, gets rid of the dung [sin]
+in their lives by going through the dung gate, and then goes through the
+gate of the fountain and receives the living water of the Holy Ghost as
+our faith grows and should flow living water to show the world Jesus.
+(John 7:38-39 38
+He that believeth on me, as the scripture hath said, out of his belly shall flow rivers of living water.
+39 (But this spake he of the Spirit, which they that believe on him should
+receive: for the Holy Ghost was not yet given; because that Jesus was not
+yet glorified.) This gate was rebuilt by rulers and Levites just as Jesus
+who is the King of kings will rebuild our lives by us obeying the Holy
+Ghost.
+
+The seventh gate was the water gate. [verses 26-27] (Nehemiah 3:26
+Moreover the Nethinims dwelt in Ophel, unto the place over against the
+water gate toward the east, and the tower that lieth out.) The water gate
+was located near the gate of the fountain as the two of them are
+associated. The water gate led to the Gihon Spring, the main source of
+water for Jerusalem. The water gate was never repaired or rebuilt. The
+water gate represents the word of God [scripture, Holy Bible] which needs
+no repairs [King James Bible is perfect] and will water our lives and
+cleanse us if we read it, study it, and allow the Holy Ghost of the gate
+of the fountain to convict us of our sin so we will obey the word of God
+and grow. The Holy Ghost wrote it and will bring it alive for the
+Christian who wants to grow. The word of God will wash and cleanse us of
+our sin as we read it and absorb it. (Psalm 119:9 Wherewithal shall a
+young man cleanse his way? by taking heed thereto according to thy word.)
+(Ephesians 5:26 That he might sanctify and cleanse it with the washing of
+water by the word,) Ezra read the law before the people in front of the
+water gate. This gate was chosen by God for Ezra to read here since it
+represents the word of God which the people wanted to hear. The area near
+the water gate must have been large in order to have all of the people
+here. The word of God is also large as it has the answers to everything in
+life and for eternal life. (Nehemiah 8:1 And all the people gathered
+themselves together as one man into the street that was before the water
+gate; and they spake unto Ezra the scribe to bring the book of the law of
+Moses, which the LORD had commanded to Israel.)
+
+The eighth gate repaired was the horse gate. (Nehemiah 3:28 From
+above the horse gate repaired the priests, every one over against his
+house.) The horse gate was near the horse stables of the king that were
+ridden out of Jerusalem for war. The horse gate along with the east gate
+and the gate Miphkad were all close together and were located on the
+northeast part of the eastern side of the wall. The horse gate represents
+the fact that Christians, especially those trying to grow and serve the
+Lord are in a spiritual warfare against Satan and his angels. Every
+Christian is in a spiritual war whether they know it or not, but it is
+especially bad for those serving Jesus. As we read the word of God of the
+water gate and obey it, we will encounter greater warfare. (Ephesians 6:12
+For we wrestle not against flesh and blood, but against principalities,
+against powers, against the rulers of the darkness of this world, against
+spiritual wickedness in high places.) This gate should remind Christians
+to be good soldiers for Jesus and to always be ready and equipped to
+fight. (Ephesians 6:11 Put on the whole armour of God, that ye may be able
+to stand against the wiles of the devil.)
+
+The ninth gate rebuilt was the east gate. [verses 29-30] (Nehemiah
+3:29 After them repaired Zadok the son of Immer over against his house.
+After him repaired also Shemaiah the son of Shechaniah, the keeper of the
+east gate.) The east gate, as all of the gates on the eastern wall,
+overlooks the Kidron Valley and faces the mount of olives. The east gate
+was the gate the people entered through on their way to the temple to
+worship the Lord and offer sacrifices. The east gate is called Beautiful
+in Acts 3:2. (Acts 3:2 And a certain man lame from his mother's womb was
+carried, whom they laid daily at the gate of the temple which is called
+Beautiful, to ask alms of them that entered into the temple;) In Hebrew
+this gate is known as the gate of mercy. This gate represents the coming
+of our Lord Jesus Christ. Jesus entered Jerusalem through the east gate on
+Palm Sunday during his triumphant entry. The east gate was sealed closed
+by the Muslims in 1540 and a cemetery put in front of it to try and
+prevent the return of Jesus. Ezekiel prophesied of this in Ezekiel 44.
+(Ezekiel 44:1-3 1 Then he brought me back the way of the gate of the
+outward sanctuary which looketh toward the east; and it was shut.
+2 Then said the LORD unto me; This gate shall be shut, it shall not be
+opened, and no man shall enter in by it; because the LORD, the God of
+Israel, hath entered in by it, therefore it shall be shut.
+3 It is for the prince; the prince, he shall sit in it to eat bread before
+the LORD; he shall enter by the way of the porch of that gate, and shall
+go out by the way of the same.) Jesus will reenter this gate at his second
+coming after coming back to earth with all of his saints (all true
+Christians) on white horses and touching down on the mount of olives. No
+cemetery or walled up gate will prevent Jesus from opening and entering
+through the east gate as the triumphant King. The east gate should be a
+reminder for all Christians to long for the soon return of the second
+coming of Jesus.
+
+The tenth gate rebuilt was the gate Miphkad. (Nehemiah 3:31 After him
+repaired Malchiah the goldsmith's son unto the place of the Nethinims, and
+of the merchants, over against the gate Miphkad, and to the going up of
+the corner.) The gate Miphkad was located on the northeastern most part of
+the wall and was were the elders sat and judged the people. The gate
+Miphkad represents the bema judgment seat of Christ which all Christians
+must appear before to determine if their works will be burnt up or they
+will receive rewards and crowns from Jesus. (II Corinthians 5:10 For we
+must all appear before the judgment seat of Christ; that every one may
+receive the things done in his body, according to that he hath done,
+whether it be good or bad.) Only works done for Jesus with a righteous
+motive will count with all others being burnt up. (I Corinthians 3:11-15
+For other foundation can no man lay than that is laid, which is Jesus
+Christ.
+12 Now if any man build upon this foundation gold, silver, precious
+stones, wood, hay, stubble;
+13 Every man's work shall be made manifest: for the day shall declare it,
+because it shall be revealed by fire; and the fire shall try every man's
+work of what sort it is.
+14 If any man's work abide which he hath built thereupon, he shall receive
+a reward.
+15 If any man's work shall be burned, he shall suffer loss: but he himself
+shall be saved; yet so as by fire.) Tradition says that David inspected
+his troops at this gate. This is what Jesus will do with our lives at the
+judgment seat of Christ, so let our lives shine for Jesus. This gate
+reminds Christians to spend our time for the Lord for things that will
+count in eternity and not for the things that will be burnt up here on
+earth.
+
+After the gate Miphkad, those repairing the wall and gates returned
+back to the sheep gate. (Nehemiah 3:32 And between the going up of the
+corner unto the sheep gate repaired the goldsmiths and the merchants.)
+This final repair was done by the goldsmiths and merchants. Goldsmiths
+work with gold which is refined. Gold represents deity and God refines
+Christians as they travel through the gates. By returning to the sheep
+gate, it represents us returning to the cross where our spiritual journey
+all started with our salvation at the cross of Jesus. This is a reminder
+for all Christians that their sins were washed away by the blood of Jesus
+at the cross and that we are now sinners saved by grace and not works. (I
+John 1:7 But if we walk in the light, as he is in the light, we have
+fellowship one with another, and the blood of Jesus Christ his Son
+cleanseth us from all sin.) (Ephesians 2:8-9 8 For by grace are ye saved
+through faith; and that not of yourselves: it is the gift of God:
+9 Not of works, lest any man should boast.) May all who have heard this
+sermon be on this spiritual journey through these ten gates. If there is
+anyone here today or anyone who is listening to this video who has not
+passed through the sheep gate of salvation, may today be the day of
+salvation before it is too late.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

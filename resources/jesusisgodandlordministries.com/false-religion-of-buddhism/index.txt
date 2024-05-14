@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,364 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+False Religion of Buddhism
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Buddhism is the world's fourth largest religion with over 520 million
+Buddhists. Buddhism is found mostly in the Far East part of Asia and is
+the dominant religion in places such as Vietnam, China, Japan, Thailand,
+Laos, Cambodia, Mongolia, Burma, Bhutan, and Sri Lanka, and Singapore.
+Buddhism shares many similar beliefs with Hinduism and other Eastern
+religions. Buddhism consists of many traditions, teachings, philosophies,
+beliefs, and spiritual practices. There are two major branches of
+Buddhism, Theravada (The school of the Elders) and Mahayana (The Great
+Vehicle) with Mahayana the more popular. Vajrayana is another branch.
+Theravada is the more conservative of the two and has many more monks in
+monasteries believing that meditation will lead to "salvation". The
+different groups have different schools with some differences in beliefs.
+One of the best known schools of Mahayana is Zen Buddhism which originated
+in China. The symbol of Buddhism is the eight spoke wheel known as the
+Dharma. Buddhists worship at temples.
 
-Username or email _____________________
+Buddhism was founded in India by Gautama Buddha. Buddhism still has
+many converts in India, though it has been mostly replaced by Hinduism.
+Buddha is revered by Buddhists and is referred to as an enlightened being.
+Supposedly Buddha gave up his wealth and spent several years in
+meditation, refraining from pleasures of life, and other things and then
+claimed to have figured out how to end the cycle of reincarnation to reach
+nirvana. It was not until a couple of centuries after his death that he
+was given the name Buddha meaning enlightened one. It is not known exactly
+when Buddha started Buddhism, but it is believed to be around 500-400 BC.
+Many Buddhist monks today live in monasteries spending their days in
+meditation and chanting. God said we are not to just repeat words or
+humming. (Matthew 6:7 But when ye pray, use not vain repetitions, as the
+heathen do: for they think that they shall be heard for their much
+speaking.) God also said to meditate on his word, not empty our minds the
+way Buddhists do while meditating which only opens the door to Satan.
+(Ephesians 5:18 And be not drunk with wine, wherein is excess; but be
+filled with the Spirit;) Most Buddhist monks shave their head bald or some
+have the hair shaved short, but not bald like a bald man, though most do
+have the bald look. Buddhists will often have a Buddha idol (statue) in
+their homes. This is their god, though they will not say that.
 
-Reset password
+Buddhism has becoming very popular in the Western nations including
+here in the United States and in Hollywood. It is probably the most
+acceptable and popular of the Eastern religions. Yoga which is also seen
+in Hinduism has taken over here in the US with it even being pushed by
+Christians. This teaching is dangerous as it opens the door for Satan. God
+does not want our minds emptied, but rather to fill them with the Spirit
+and for us to meditate upon his word. Hollywood has been pushing Buddhism
+for a long time though in hidden ways including yoga. George Lucas who
+created the Star Wars movies is a Buddhist and said he wrote the movies to
+push Buddhism on the United States, especially to the youth.   
+
+Buddhism does not have a holy book such as Christianity has the Holy
+Bible or Islam has the Koran. There are many writings in Buddhism with the
+most popular being a large collection of writings known as the Pali Canon
+which is divided into three parts. There is no god in Buddhism, but the
+writings of Buddha guide Buddhists.
+
+All Buddhists believe in the three jewels known as the yellow jewel
+(Buddha), the teachings or the blue jewel, and the monastic order or the
+red jewel. Buddhist monks chant these three jewels every day. Buddhists
+also believe in what are referred to as The Four Noble Truths. They are
+Dukkha or suffering, Samudaya or craving, Nirodha or cease, and Marga or
+cessation of suffering. Buddhists follow the Eightfold Path which includes
+the Four Noble Truths. These eight steps are broken into three main areas
+of Training in Wisdom, Training in Morality, and Training in
+Concentration. These eight steps are to remove the Buddhist from the
+world, eliminate all distractions, understand themselves, and purge
+improper thoughts. While removing sinful thoughts is admirable, Jesus said
+that we as Christians are to live in the world, just not be a part of it.
+We are not to run off to monasteries or avoid the world the way Buddhists
+do. I will say the Buddhists do not have a reputation for attacking
+Christians the way Muslims and Hindus do which is good. Buddhists do try
+to be peaceful as a whole. The Middle Way is the Buddhist belief that
+consists of the Eightfold Path and other Buddha teachings. Together this
+is known as the Dharma which means religious duties. The goal of every
+Buddhist is to end suffering. The only way that will happen is to receive
+Jesus as their Saviour. They will not know what suffering is until in
+hell.
+
+Several terms are well known by most Westerners. Buddhists believe in
+karma which is basically you reap what you sow. They believe that all
+their actions they do whether good or bad affects their life not only now
+but future lives. They believe past lives also affects how they are today
+based on their karma and each life builds on the karma of previous lives.
+
+Another well-known term is reincarnation (Samsara) which is the
+belief that a Buddhist will continue to be born and die and then be born
+again and die and will continue this cycle until the Buddhist reaches the
+point that they can break the cycle. A Buddhist can return as a person or
+animal. Transmigration of the soul goes along with this belief in that the
+soul of the person goes into the new body each time. Understand that when
+talking to a Buddhist about being "born again" they will understand this
+term in a completely different way. A Buddhist does not believe in a
+permanent soul. They believe once a Buddhist reaches nirvana that it is
+destroyed. God says we die once. (Hebrews 9:27 And as it is appointed unto
+men once to die, but after this the judgment:) 
+
+Nirvana varies among Buddhists but is when a Buddhist eliminates
+greed, hatred, ignorance, and delusion. Some Buddhists believe nirvana is
+the state of ultimate bliss or happiness. Other Buddhists believe it is
+the point when a Buddhist is able to end the cycle of reincarnation and
+the soul is liberated and extinguished or annihilated. Buddhists believe
+that all castes can reach nirvana and are equal. Castes are the divisions
+of people by wealth and rank and social status. This is big in India with
+those born in low castes greatly despised by the upper castes in Hinduism.
+It is believed the low castes are their because of their karma.
+
+When it comes to creation, the Buddhist has no answer as they do not
+care how all suffering got here, only that it be stopped. They do not
+believe in a supreme being and Buddha never addressed creation. When it
+comes to heaven and hell the Buddhist does not believe in any kind of
+afterlife, but rather hopes that there is no afterlife and they can
+achieve this end by reaching nirvana. A few Buddhists do believe a small
+amount of Buddhists will go to a fiery hell and be punished similar to the
+Roman Catholic purgatory for a while and then be put back on the cycle of
+birth, death, and reincarnation to try once again to reach nirvana.
+
+Most Buddhists believe that Buddha had a miraculous birth so they
+have no problem believing Jesus did as well. Buddhists do not believe
+Jesus is God, but they do believe he was a great teacher and taught great
+social issues. Many Buddhists admire his teachings. Buddhists admire how
+he helped the poor and believe Jesus postponed nirvana for himself by
+caring more for others than himself. He is greatly respected for this.
+Some Buddhists who have read the Holy Bible say that Jesus was a Buddha.
+The one difference between Jesus and Buddha and other founders of
+religions such as Mohammed with Islam is that they are all dead whereas
+Jesus is alive and well. Christians serve a living God.  
+
+Many professing Christians believe Buddhism is compatible with
+Christianity and say they are Catholic Buddhists or they are Methodist
+Buddhists. These two religions are not compatible. Buddhism will only lead
+to death whereas true Christianity is a personal relationship with Jesus
+Christ and will lead to everlasting life. (John 3:16 ¶ For God so loved
+the world, that he gave his only begotten Son, that whosoever believeth in
+him should not perish, but have everlasting life.) Buddhism denies God and
+the deity of Jesus and is about one's self whereas Christianity is about
+others. Buddhism is darkness and true Christianity is light and we are not
+to be yoked with darkness, but to come out of the darkness. (I John 1:5-7
+This then is the message which we have heard of him, and declare unto you,
+that God is light, and in him is no darkness at all.
+6 If we say that we have fellowship with him, and walk in darkness, we
+lie, and do not the truth:
+7 But if we walk in the light, as he is in the light, we have fellowship
+one with another, and the blood of Jesus Christ his Son cleanseth us from
+all sin.) (Ephesians 5:11 And have no fellowship with the unfruitful works
+of darkness, but rather reprove them.) (II Corinthians 6:14 Be ye not
+unequally yoked together with unbelievers: for what fellowship hath
+righteousness with unrighteousness? and what communion hath light with
+darkness?)
+
+Most Buddhists are vegetarians as they do not believe in harming
+animals. We are commanded to be kind to animals, but God gave us animals
+to eat if they are blessed with prayer. (Genesis 9:3 Every moving thing
+that liveth shall be meat for you; even as the green herb have I given you
+all things.) (I Timothy 4:4 For every creature of God is good, and nothing
+to be refused, if it be received with thanksgiving:) Buddhist monks keep
+their heads shaved and often beg for food.  
+
+For any precious Buddhist soul that may be listening, I plead with
+you that you will turn from the false religion of Buddhism and turn to a
+personal relationship with Jesus. Admit that you are a sinner on a path to
+hell and need a Saviour to save you. That Saviour is Jesus. No works or
+anything you do will save you, only Jesus. Call upon Jesus now to save you
+and see what being free is all about.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

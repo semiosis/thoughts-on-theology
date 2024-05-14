@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,343 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Why we must be born again
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+When God (Jesus) created man (Adam was the first man) from the dust
+of the earth and breathed life into him on day 6 of creation (a little
+less than 6,000 years ago), man was perfect and not in need of salvation.
+God provided Adam with a wife (Eve) made from one of his ribs. They walked
+with God and talked with him. This was how it was meant to be until sin
+entered into the world. They lived in the garden of Eden and were told
+they could eat of every tree in the garden except for the tree of
+knowledge of good and evil or they would surely die. (Genesis 2:17 But of
+the tree of the knowledge of good and evil, thou shalt not eat of it: for
+in the day that thou eatest thereof thou shalt surely die.) Satan tempted
+Eve (as a serpent) to eat of the tree of knowledge of good and evil by
+convincing her she would not die and that God did not want her to eat of
+the tree so as they would not be as gods. (Genesis 3:5 For God doth know
+that in the day ye eat thereof, then your eyes shall be opened, and ye
+shall be as gods, knowing good and evil.) Eve saw the tree was pleasing to
+the eye and thus ate of it. Today people are still trying to be gods. We
+see this today especially in cults such as the Mormons and David Koresh
+and his followers, et cetera. Eve then gave the fruit to her husband Adam.
+Adam knew better as God had told him about the tree and he then told Eve.
+Adam was not deceived, Eve was. (I Timothy 2:14 And Adam was not deceived,
+but the woman being deceived was in the transgression.) When Adam ate of
+the fruit, sin entered into the world. Unlike what old earth Christians
+teach, there was no death before Adam including dinosaurs. Death came
+about because of Adam's sin. (I Corinthians 15:22 For as in Adam all die,
+even so in Christ shall all be made alive.) Just as God had said they
+would die the day they ate of the tree, they did. From that moment they
+were spiritually separated (dead) from God. They immediately knew they
+were naked and were ashamed and tried to cover themselves and hide from
+God when he called out to them. The link to talk directly to God and walk
+with him was broken thus man had to be born again to restore that link
+with God. (I Corinthians 15:45 And so it is written, The first man Adam
+was made a living soul; the last Adam was made a quickening spirit.) The
+last Adam is Jesus who gives us eternal life and restores the link with
+God the Father. Adam also died that day in the sense that in God's eyes a
+day is as a thousand years and a thousand years as a day. (Psalm 90:4 For
+a thousand years in thy sight are but as yesterday when it is past, and as
+a watch in the night.) (II Peter 3:8 But, beloved, be not ignorant of this
+one thing, that one day is with the Lord as a thousand years, and a
+thousand years as one day.) Adam only lived to be 930 years old and
+Methuselah, the oldest person to ever live died at 969 years old thus man
+always died in one day in God's eyes. From the moment of man's sin, all
+people born after Adam and Eve are born with a sin nature (you do not have
+to teach a baby to lie or steal) and thus need a Saviour in Jesus Christ
+to wash away their sins. God is omniscient (all knowing) and thus knew man
+would sin before he ever created the world. God in his mercy had a plan to
+restore the relationship with man lost due to sin before the foundation of
+the earth and before time began. God created time. Time is for man, not
+God. (I Peter 1:18-21 18 Forasmuch as ye know that ye were not redeemed
+with corruptible things, as silver and gold, from your vain conversation
+received by tradition from your fathers;
+19 But with the precious blood of Christ, as of a lamb without blemish and
+without spot:
+20 Who verily was foreordained before the foundation of the world, but was
+manifest in these last times for you,
+21 Who by him do believe in God, that raised him up from the dead, and
+gave him glory; that your faith and hope might be in God.) (II timothy
+1:8-10 8 Be not thou therefore ashamed of the testimony of our Lord, nor
+of me his prisoner: but be thou partaker of the afflictions of the gospel
+according to the power of God;
+9 Who hath saved us, and called us with an holy calling, not according to
+our works, but according to his own purpose and grace, which was given us
+in Christ Jesus before the world began,
+10 But is now made manifest by the appearing of our Saviour Jesus Christ,
+who hath abolished death, and hath brought life and immortality to light
+through the gospel:)
 
-Username or email _____________________
+Revelation 13:8 And all that dwell upon the earth shall worship him, whose
+names are not written in the book of life of the Lamb slain from the
+foundation of the world.
+9 If any man have an ear, let him hear. ( Jesus was slain for us before
+man was even created. God knew in his omniscience that man would sin and
+he would need a way to restore the relationship with God and man. God
+loves us so much that he had already made a plan to sacrifice his Son
+Jesus for us before the foundation of the world.)
 
-Reset password
+Man must call upon Jesus to save them (man cannot save himself) and
+restore the broken link from God due to sin in order to go to heaven and
+avoid the eternal stay in the lake of fire. See What must I do to be saved
+(be born again) have eternal life and go to heaven? Genesis 3:15 And I
+will put enmity between thee and the woman, and between thy seed and her
+seed; it shall bruise thy head, and thou shalt bruise his heel. (shows us
+God's plan through his son Jesus to defeat Satan which he did with his
+death on the cross and when he rose victoriously on the third day and then
+proclaimed his victory and Satan's defeat when Jesus preached to the
+spirits locked in hell. (These are the evil angels that sinned by
+procreating with women and producing giants. See Genesis 6:1-4 (And it
+came to pass, when men began to multiply on the face of the earth, and
+daughters were born unto them,
+2 That the sons of God saw the daughters of men that they were fair; and
+they took them wives of all which they chose.
+3 And the LORD said, My spirit shall not always strive with man, for that
+he also is flesh: yet his days shall be an hundred and twenty years.
+4 There were giants in the earth in those days; and also after that, when
+the sons of God came in unto the daughters of men, and they bare children
+to them, the same became mighty men which were of old, men of renown.), I
+Peter 3:19-20 (By which also he went and preached unto the spirits in
+prison;
+20 Which sometime were disobedient, when once the longsuffering of God
+waited in the days of Noah, while the ark was a preparing, wherein few,
+that is, eight souls were saved by water.), II Peter 2:4 (For if God
+spared not the angels that sinned, but cast them down to hell, and
+delivered them into chains of darkness, to be reserved unto judgment;),
+Jude 6 (And the angels which kept not their first estate, but left their
+own habitation, he hath reserved in everlasting chains under darkness unto
+the judgment of the great day.), and other verses on this subject.))
+
+God made all mankind (male and female) with a spirit, soul, and body.
+When Adam sinned, the link to communicate directly with God was broken.
+This was done with our spirit. We worship God with our spirit.
+(Philippians 3:3 For we are the circumcision, which worship God in the
+spirit, and rejoice in Christ Jesus, and have no confidence in the flesh.)
+(John 4:24 God is a Spirit: and they that worship him must worship him in
+spirit and in truth.) When a person is born again, their spirit is
+reactivated and the link is reconnected with God. (I Thessalonians 5:23
+And the very God of peace sanctify you wholly; and I pray God your whole
+spirit and soul and body be preserved blameless unto the coming of our
+Lord Jesus Christ.) The word of God can reconnect that link if acted upon.
+(Hebrews 4:12 For the word of God is quick, and powerful, and sharper than
+any twoedged sword, piercing even to the dividing asunder of soul and
+spirit, and of the joints and marrow, and is a discerner of the thoughts
+and intents of the heart.) The body is dead without the spirit. Ye must be
+born again. (James 2:26 For as the body without the spirit is dead, so
+faith without works is dead also.) (I Corinthians 15:45 And so it is
+written, The first man Adam was made a living soul; the last Adam was made
+a quickening spirit.) Jesus is the last Adam who will quicken (make alive)
+our spirit when we receive him as our Saviour.
+
+All of creation groaneth and waits for the new heavens and new earth
+under Jesus. Creation groans because of Adam's sin. Let us help creation
+out by one getting saved and having fewer sin in the universe for creation
+to groan about.(Romans 8:22 For we know that the whole creation groaneth
+and travaileth in pain together until now.) The verses on the new heavens
+and new earth are found in (Isaiah 65:17 ¶ For, behold, I create new
+heavens and a new earth: and the former shall not be remembered, nor come
+into mind.), (Isaiah 66:22 For as the new heavens and the new earth, which
+I will make, shall remain before me, saith the LORD, so shall your seed
+and your name remain.), and (II Peter 3:13 Nevertheless we, according to
+his promise, look for new heavens and a new earth, wherein dwelleth
+righteousness.). Revelation chapter 21 also describes the new heaven and
+new earth.)
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

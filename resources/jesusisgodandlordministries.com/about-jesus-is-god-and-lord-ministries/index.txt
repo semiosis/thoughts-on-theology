@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,310 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+About Jesus is God and Lord Ministries
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+This ministry was started in 2019 by an ordained Baptist minister
+with the first and foremost purpose to win souls for Jesus by telling them
+about Jesus and who he us and what they must do to be saved and to show
+that Jesus is God and Lord and to glorify Jesus Christ. (Proverbs 11:30
+The fruit of the righteous is a tree of life; and he that winneth souls is
+wise.) For those who are saved, as Dr. Kent Hovind says, to motivate them
+to read and study (these are not the same) God's word (King James Bible)
+and to get them out there on the front lines winning souls for Jesus in
+whatever gift God the Holy Ghost has given them (All true born again
+Christians have a gift from the Holy Ghost) whether starting their own
+website, starting a tract ministry as the founder of this ministry has (I
+recommend Chick tracts), music ministry or whatever ministry God leads you
+to serve him and win souls. Find something to do to enter the fight.
+Everyone can pray or talk to people and tell them about Jesus. We are in a
+spiritual battle with Satan and his followers. (Ephesians 6:12 For we
+wrestle not against flesh and blood, but against principalities, against
+powers, against the rulers of the darkness of this world, against
+spiritual wickedness in high places.)
 
-Username or email _____________________
+The secondary purpose of this website and ministry is to be an online
+church for those who are unable to attend for whatever reason it may be,
+such as living in a persecuted nation where one does not have the freedom
+to attend, one in bonds, illness, or whatever reason. For those who can
+attend a God fearing church, they should. They may continue to learn from
+this website as the Lord leads, but should not forsake assembling with
+fellow believers if able to do so. (Hebrews 10:25 Not forsaking the
+assembling of ourselves together, as the manner of some is; but exhorting
+one another: and so much the more, as ye see the day approaching.)
+Scripture study lessons, sermons, hymns and a King James Bible will be on
+this website for people to study and learn God's word, so that they may be
+saved, lead others to salvation and to grow in the word after they are
+saved. (Once saved, always saved, though this does not give you freedom to
+live in sin.) If one is saved from reading this website, please let me
+know by emailing me at kevin@jesusisgodandlordministries.com. May God
+bless those who truly seek out Jesus and those who serve God faithfully
+every day on the front lines of this spiritual war.
 
-Reset password
+This is a love site, not a hate site (just as the gospel is a love
+message, not a hate message) , but is intended to bring people to the
+saving knowledge of Jesus Christ by showing the errors of religions,
+cults, or other false teachings. (Galations 4:16 Am I therefore become
+your enemy, because I tell you the truth?) It is not intended to offend
+anyone, but Jesus said the gospel will offend people. I would rather
+offend people now and have them hate me (Jesus said the world will hate
+those who stand for him) (John 15:18 If the world hate you, ye know that
+it hated me before it hated you.) (I John 3:13 Marvel not, my brethren, if
+the world hate you.) in the hope that they will turn to Jesus and be saved
+before it is too late and spend an eternity in the lake of fire. We are
+warned to be watchmen on the wall and warn the lost before it is too late
+for them. If we warn them their blood is off our hands, but if not it is
+on us. Let us obey God and warn man. That is what this ministry and
+website is for. Ezekiel was a watchman for the Jews. Let us be a watchman
+for the world and keep the blood off our hands.
+
+Ezekiel 33:1-9
+
+1 Again the word of the LORD came unto me, saying,
+2 Son of man, speak to the children of thy people, and say unto them, When
+I bring the sword upon a land, if the people of the land take a man of
+their coasts, and set him for their watchman:
+3 If when he seeth the sword come upon the land, he blow the trumpet, and
+warn the people;
+4 Then whosoever heareth the sound of the trumpet, and taketh not warning;
+if the sword come, and take him away, his blood shall be upon his own
+head.
+5 He heard the sound of the trumpet, and took not warning; his blood shall
+be upon him. But he that taketh warning shall deliver his soul.
+6 But if the watchman see the sword come, and blow not the trumpet, and
+the people be not warned; if the sword come, and take any person from
+among them, he is taken away in his iniquity; but his blood will I require
+at the watchman's hand.
+
+7 ¶ So thou, O son of man, I have set thee a watchman unto the house of
+Israel; therefore thou shalt hear the word at my mouth, and warn them from
+me.
+8 When I say unto the wicked, O wicked man, thou shalt surely die; if thou
+dost not speak to warn the wicked from his way, that wicked man shall die
+in his iniquity; but his blood will I require at thine hand.
+9 Nevertheless, if thou warn the wicked of his way to turn from it; if he
+do not turn from his way, he shall die in his iniquity; but thou hast
+delivered thy soul.
+
+There are only two kinds of people in the world, saved and unsaved
+(or lost). It does not matter what nationality you are, what language you
+speak, what color you are, how rich or poor you are, if you are free or
+not [slave or in prison] (only children of God are truly free, as the lost
+are influenced by sin and Satan and belong to him), young or old, small or
+great or any other division man tries to compare themselves with. Each and
+every person ever born, must decide for themselves to follow Jesus or
+Satan. Making no decision automatically makes you a follower of Satan
+because of the sin nature we are born with. Ignorance is no excuse when we
+all will stand before God. God has put it in our hearts that we need a
+Saviour. (Romans 1:20) (Romans 2:15 Which shew the work of the law written
+in their hearts, their conscience also bearing witness, and their thoughts
+the mean while accusing or else excusing one another;)) Man makes
+divisions, but Jesus says we are saved or unsaved and nothing else
+matters. Please choose today to be saved. It is the sincere pray and hope
+of this ministry and website that all will be saved. Jesus wishes that
+none should perish, but all repent. (II Peter 3:9 The Lord is not slack
+concerning his promise, as some men count slackness; but is longsuffering
+to us-ward, not willing that any should perish, but that all should come
+to repentance.)
+
+This website is an ongoing work in progress and labor of love for
+Jesus and the lost. It will be added to as the Lord leads me and provides
+me the time. May this ministry and website honor and glorify our Saviour
+the Lord Jesus Christ.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

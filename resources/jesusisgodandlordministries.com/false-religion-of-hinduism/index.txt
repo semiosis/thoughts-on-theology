@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,405 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+False Religion of Hinduism
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Hinduism is the world's third largest religion after Christianity and
+Islam. There are about 1.2 billion Hindus. At one time Hinduism was
+referred to as Brahmanism. The religions of Jainism, Buddhism, and Hare
+Krishna all take some of their beliefs from Hinduism as the root of those
+religions is Hinduism. Most are found in India and Hindu is the national
+religion of India. India is the only Hindu nation, though Nepal and
+Mauritius have a majority Hindu as well. Hinduism is said to be the oldest
+religion in the world, but this is not true as there has always been true
+believers of Jehovah God and Satanism in its various forms is the oldest
+religion in the world. Hinduism consists of philosophies, rituals, many
+gods and goddesses, pilgrimage sites, yoga, mythology, and many other
+beliefs. The major writings of Hinduism are the Vedas. This is their holy
+book. The four main denominations of Hinduism are Vaishnavism, Shaivism,
+Shaktism, and Smartism. These divisions are based on the major god they
+worship. Vaishnavism is Vishnu, Shaivism is Shiva, Shaktism is Devi, and
+Smartism is based on five gods all considered equal. The Om is the symbol
+used to represent Hinduism just as the cross represents Christianity.
+Hinduism is based on six main schools of philosophy. These are Sankhya,
+Yoga, Nyaya, Vaisheshika, Mimamsa, and Vedanta. The two most popular today
+are Vedanta and Yoga. Yoga is also found in Buddhism. Yoga has become
+popular today among Christians and many others besides just Hindus and
+Buddhists. No true Christian should have anything to do with Yoga. How sad
+many churches today including some Baptist churches have yoga classes in
+the church and encourage their members to participate. One of the things
+in yoga is for the person to try and empty their mind of all thoughts and
+to meditate. This opens the door to Satan and his minions. God does not
+want a Christian to empty their mind or do this kind of meditation. God
+wants a Christian to meditate upon his word and to fill their mind with
+the Holy Ghost. (Ephesians 5:18 And be not drunk with wine, wherein is
+excess; but be filled with the Spirit;) If our minds are full of God, then
+there is no room for Satan. Yoga also consists of many chants that do not
+honor God. God also said not to use vain repetitions. (Matthew 6:7 But
+when ye pray, use not vain repetitions, as the heathen do: for they think
+that they shall be heard for their much speaking.) The beliefs of Hinduism
+vary greatly among Hindus and has often been said to be many religions in
+one religion. Hinduism absorbs many of India's culture and traditions and
+the government believes that a person cannot be a true Indian if they are
+not a Hindu. Hinduism does not worship one specific god, but rather many
+gods and goddesses. Hinduism does not claim any one individual as its
+founder. Hinduism beliefs have greatly affected Hollywood and the movies
+coming out of it. Hindus worship in temples. Some Hindus become monks just
+as in Buddhism. Many Hindus take pilgrimages.
 
-Username or email _____________________
+Here are some beliefs of Hinduism:
 
-Reset password
+1. Dharma- Dharma is considered the main goal of every Hindu. Dharma
+includes behaviors that are said to be in accord with the universe. This
+is known as rta. Other aspects of Dharma are religious duties, being good,
+and your social order. Social class that a person is born into in India is
+very important. We see dharma consists of good works and religion. Dharma
+is the highest a Hindu can reach.
+
+2. Artha- Artha is the pursuit of wealth for one's living as well as for
+their political and social status. All Hindus strive to reach Artha. God
+said money is the root of all evil. (I Timothy 6:10 For the love of money
+is the root of all evil: which while some coveted after, they have erred
+from the faith, and pierced themselves through with many sorrows.) God
+also said it is hard for those who trust in riches to enter heaven. (Mark
+10:24 And the disciples were astonished at his words. But Jesus answereth
+again, and saith unto them, Children, how hard is it for them that trust
+in riches to enter into the kingdom of God!) A person needs to turn from
+money and to Jesus for their salvation.
+
+3. Kama- Kama is the pursuit of one's sensual pleasures so the Hindu is
+satisfied. God said we need to turn to him for pleasure, not pleasures of
+this world. (II Timothy 3:4 Traitors, heady, highminded, lovers of
+pleasures more than lovers of God;) (Titus 3:3 For we ourselves also were
+sometimes foolish, disobedient, deceived, serving divers lusts and
+pleasures, living in malice and envy, hateful, and hating one another.)
+(Luke 8:14 And that which fell among thorns are they, which, when they
+have heard, go forth, and are choked with cares and riches and pleasures
+of this life, and bring no fruit to perfection.)
+
+4. Moksa- Moksa means liberation or freedom from samsara (reincarnation).
+Some Hindus refer to this as Brahman. When a Hindu reaches this point then
+they no longer die and know their true self or essence. When a Hindu
+reaches moksa they supposedly finally have happiness and peace. Jesus
+brings true peace. (I Corinthians 1:3 Grace be unto you, and peace, from
+God our Father, and from the Lord Jesus Christ.) One school of belief
+(Vedantic) says that Moksa is the liberation in this life and another
+liberation after death. If a Hindu wants true liberation then they must
+turn to Jesus for salvation as only he can give true freedom from death.
+(Romans 8:2 For the law of the Spirit of life in Christ Jesus hath made me
+free from the law of sin and death.)
+
+5. Karma- Karma is the belief that a Hindus actions or works in either
+their current life or their past lives affects the way they live now as
+well as what they are reincarnated as in the next life such as social
+status or as an animal rather than a person. Scripture does say a person
+reaps what they sow, but this is not karma that is being referred to in
+scripture. Hindus believe in good karma and bad karma.
+
+6. Samsara- Samsara is the belief in reincarnation. Hindus believe they
+are born and then die and then are born again and die and just continue
+this endless cycle until they are able to reach moksa. Hindus believe
+their karma affects how they are reincarnated. Hindus believe a person can
+be reincarnated as an animal such as a rat. This is why Hindus are careful
+not to kill many animals because the bug you squash might be grandpa. If
+it was I would think you would be doing him a favor so he can come back as
+something better. Rats are considered holy animals and often run around in
+their temples. It is believed that the sons of Karni Mata came back as
+rats. A Hindu better hope they do not reach moksa after being reincarnated
+as a rat. One of their gods is associated with rats. Hindus believe that
+their current works and efforts assist with their reincarnation status as
+well as reaching moksa. Scripture says that we only die once and once we
+die comes the judgment. (Hebrews 9:27 And as it is appointed unto men once
+to die, but after this the judgment:) There is no reincarnation. A person
+either goes to heaven or hell when they die depending on whether they
+received Jesus as their Saviour or not. A person also could not become an
+animal as scripture says we reproduce after our kind. A rat always makes a
+rat and a person always a person.
+
+Hinduism has their own calendar and has many festivals based off of
+the moon. The best known one is Diwali. This festival has postage stamps
+issued for it including here in the United States. Diwali is also known as
+the festival of lights. Diwali lasts five days and is during the Hindu
+month of Kartika (mid-October to mid-November on our calendar). Diwali is
+often associated with the goddess Lakshmi who is the goddess of wealth and
+prosperity. She is also the wife of the god Vishnu. We see how important
+wealth is again to Hindus. Diwali celebrates the false light of Satan.
+Hindus need to turn to the true light of Jesus who is the light of the
+world, not Satan who only masquerades as light, but is really darkness.
+(John 8:12 ¶ Then spake Jesus again unto them, saying, I am the light of
+the world: he that followeth me shall not walk in darkness, but shall have
+the light of life.) (II Corinthians 11:14 And no marvel; for Satan himself
+is transformed into an angel of light.)  
+
+Hindus worship millions of gods and goddesses. Some estimate it is
+around 333 million gods and goddesses. Some are more important than others
+and some schools of Hindus have certain gods or goddesses more important
+than another school of Hinduism. Vishnu is one of the major gods for all
+Hindus and the supreme god for Vaishnavism, a major Hindu denomination.
+Brahma and Shiva are two other main gods in Hinduism. Devi is very
+prominent in Shaktism. Some other important Hindu gods are Ganesha who is
+the elephant god (elephants are important in India), Hanuman, the monkey
+god, the goddess Lakshmi, the goddess Durga who rides a lion, the goddess
+Kali, who is the goddess of death, and the goddess Saraswati who is the
+goddess of knowledge, art, and music. Kali is often portrayed standing on
+her husband Shiva who is the god of death. Kali is portrayed with her
+blood soaked tongue sticking out. The Rolling Stones logo is based off of
+Kali's tongue. Children and other people are often sacrificed to Kali.
+Kali is probably the most feared god or goddess in India. Hindus just need
+to turn to Jesus Christ and they would have no need to fear any Hindu god
+as they are all controlled by Satan whom Jesus created. I also mentioned
+the rat is revered in India. The elephant god Ganesha rides on a rat. The
+Karni Mata Temple which is also known as the Temple of the Rat has over
+25,000 black rats running around inside and they are all worshipped. The
+rats are believed to be the ancestors of Charans who were warriors. Karni
+Mata is said to be the incarnation of the goddess Durga.   
+
+Hinduism is very much a part of India. The government has made it
+illegal to try and convert a Hindu and forbids Hindus from leaving
+Hinduism. Hindus will kill those who try and often attack and kill
+non-Hindus, similar to the violence seen in Islam.   
+
+Hinduism has more than one creation story. One says the divine god
+made a self and things sprang from it. One says the world came from an egg
+that sat for a year before hatching. One story says Vishnu creates and
+destroys and keeps recreating and destroying the universe. One says Brahma
+sprang forth the earth and split into two to form man and woman and then
+became one again. When he dies the universe dies. His life of one day is
+said to be equal to billions of years in man's eyes. Brahman is considered
+the ultimate reality in the universe. It is the final cause of all that
+exists. There are other strange stories.   
+
+Hindus believe in heaven and hell, but only as temporary places. A
+person goes to one or the other depending on their karma. Bad karma goes
+to hell and good karma to heaven. Hell is torment and punishment and one's
+length of time in hell depends on their past deeds.   
+
+Hinduism has many religious books. These books are to guide the
+Hindu, but are not followed word for word the way the Holy Bible is for
+Christians or the Koran for Muslims. The top writings of Hinduism are the
+Vedas and are said to be the oldest religious writings to man. There are
+four Vedas Rigveda, Yajurveda, Samaveda, and Atharaveda. Another religious
+book is the Puranas, along with Unpanishads which is also known as
+Vedantas. Some other writings are Ramayana, Mahabharata, Bhagwad Gita, and
+Devi Mahatmya.  
+
+Hindus believe in ancestral spirits that can be good or evil and
+Hindus will often try to appease them to keep them happy. They are often
+worshipped.
+
+The cow is sacred to Hindus. Most Hindus are vegetarians and much of
+their food contains dairy products. The cow is seen as mother of all
+beings and God's gift to mankind. Hindus consider killing a cow as if you
+killed your mom. It is illegal in most Indian states to kill a cow. Most
+places in India forbid the selling of beef. The cow is also worshipped by
+Buddhists, Jains, and Sikhs.
+
+Job 40:21 in the King James Bible mentions shady trees, but many
+modern bibles change this to lotus, lotus trees, or lotus plants. The
+lotus plant is connected to Hinduism where it represents rebirth
+(reincarnation) and enlightenment (Satan). This shows the corruption of
+modern bibles as they support Hinduism. 
+
+For any precious Hindu that may be listening, please turn from the
+false religion of Hinduism and its many false dead gods and goddesses
+which will only lead you to hell and turn to the one true living God
+Jehovah and to his Son the Lord Jesus Christ who died for your sins. Admit
+that you a sinner and need a Saviour and call upon Jesus today to save you
+and be your Saviour. Do it now before it is eternally too late.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

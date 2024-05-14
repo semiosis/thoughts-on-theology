@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,502 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Star of Bethlehem
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+What was the star of Bethlehem? People ask was it a real star, a
+planet, a comet, a meteor, an angel, or a special creation just for this
+time or what was it.
 
-Username or email _____________________
+(Matthew 2:1-18 1Now when Jesus was born in Bethlehem of Judaea in
+the days of Herod the king, behold, there came wise men from the east to
+Jerusalem,
+2 Saying, Where is he that is born King of the Jews? for we have seen his
+star in the east, and are come to worship him.
+3 When Herod the king had heard these things, he was troubled, and all
+Jerusalem with him.
+4 And when he had gathered all the chief priests and scribes of the people
+together, he demanded of them where Christ should be born.
+5 And they said unto him, In Bethlehem of Judaea: for thus it is written
+by the prophet,
+6 And thou Bethlehem, in the land of Juda, art not the least among the
+princes of Juda: for out of thee shall come a Governor, that shall rule my
+people Israel.
+7 Then Herod, when he had privily called the wise men, enquired of them
+diligently what time the star appeared.
+8 And he sent them to Bethlehem, and said, Go and search diligently for
+the young child; and when ye have found him, bring me word again, that I
+may come and worship him also.
+9 When they had heard the king, they departed; and, lo, the star, which
+they saw in the east, went before them, till it came and stood over where
+the young child was.
+10 When they saw the star, they rejoiced with exceeding great joy.
 
-Reset password
+11 ¶ And when they were come into the house, they saw the young child with
+Mary his mother, and fell down, and worshipped him: and when they had
+opened their treasures, they presented unto him gifts; gold, and
+frankincense, and myrrh.
+12 And being warned of God in a dream that they should not return to
+Herod, they departed into their own country another way.
+13 And when they were departed, behold, the angel of the Lord appeareth to
+Joseph in a dream, saying, Arise, and take the young child and his mother,
+and flee into Egypt, and be thou there until I bring thee word: for Herod
+will seek the young child to destroy him.
+14 When he arose, he took the young child and his mother by night, and
+departed into Egypt:
+15 And was there until the death of Herod: that it might be fulfilled
+which was spoken of the Lord by the prophet, saying, Out of Egypt have I
+called my son.
+
+16 ¶ Then Herod, when he saw that he was mocked of the wise men, was
+exceeding wroth, and sent forth, and slew all the children that were in
+Bethlehem, and in all the coasts thereof, from two years old and under,
+according to the time which he had diligently enquired of the wise men.
+17 Then was fulfilled that which was spoken by Jeremy the prophet, saying,
+18 In Rama was there a voice heard, lamentation, and weeping, and great
+mourning, Rachel weeping for her children, and would not be comforted,
+because they are not.)
+
+The star of Bethlehem or Christmas star as it is called was seen by
+the wise men in the east. When the wise men went to go and see Jesus the
+star was seen and it stopped over the house of Jesus as seen in verse 9.
+Many people believe the star led the wise men to Israel from their land
+and then straight to the home of Jesus. This is possible, but it also may
+have disappeared after initially getting the attention of the wise men who
+most likely studied the stars each night and would notice a new bright
+object in the skies. It may not have reappeared until after the wise men
+spoke to Herod and they headed for Bethlehem. The star may have guided
+them to a nearby town or to a place in Bethlehem where Jesus was. Verse 9
+says the star they saw in the east guided them to the house of Jesus. I
+personally believe the star most likely led them to Herod and then maybe
+disappeared so that events could unfold with Herod and then when they left
+it reappeared to guide them to Jesus. This is why they rejoiced as seen in
+verse 10.
+
+Scripture does not tell us much about this star. There are many
+theories as to what this star was. Many people say this was not a real
+star that hovered over Jesus' home as stars are too big and hot to be that
+close to earth. They are right. Stars also seem to be fixed objects,
+though in reality they do move just very slowly due to their distance and
+our orbit. All stars rise in the east. Astronomers said around the time of
+Jesus's birth there was a conjunction between Jupiter and Saturn or
+between Jupiter and Venus, but these years say around 6 BC or 4 BC and are
+I believe years before Jesus was probably born around 2 or 1 BC. A
+conjunction is when two planets appear to be in the same spot from our
+perspective on earth and appear as one bright star. Some say it was
+Jupiter that appeared to be in retrograde motion as seen against the stars
+as a planet appears to stop just before it appears to go backwards. In
+reality the planet never stops or goes backwards. It is just an illusion
+to our eyes. Some of these movements make it appear the star is dancing in
+the night sky. Other people say it was a comet or a supernova. A comet
+would go too fast and none where seen at the time of the birth of Jesus. A
+supernova is a star that explodes and causes a very bright light for a
+while before fading away. This can last years, but none occurred then nor
+do they guide people. The Jehovah's Witnesses say the star was from Satan
+since it led the wise men to Herod who wanted to kill them. None of these
+beliefs are correct. A planet or star or other object will not move and
+stop and then move again and directly guide a person to a spot and then
+stop again. None of the dates match with the birth of Jesus. Some say it
+was a star created just for the birth of Jesus. God finished creation
+after day 6 and the star would still be a star that would be disqualified
+for the same reasons as other stars. Some say the star was an angel or
+angels that shone brightly to guide the wise men. That is possible as
+angels are referred to as stars in such places as Job 38:7 and Revelation
+1:20, but I believe the star was none other than God himself, the Lord
+Jesus Christ. Jesus told in John 3:13 that he was in heaven at the same
+time he was here on earth since he is God. (John 3:13 And no man hath
+ascended up to heaven, but he that came down from heaven, even the Son of
+man which is in heaven.) Jesus could be a young child here on earth and
+still be the Star. Scripture foretold of Jesus coming as the Star.
+(Numbers 24:17 I shall see him, but not now: I shall behold him, but not
+nigh: there shall come a Star out of Jacob, and a Sceptre shall rise out
+of Israel, and shall smite the corners of Moab, and destroy all the
+children of Sheth.) The wise men who most likely knew scripture would have
+been looking for this Star. They knew the stars were for signs and the
+heavens declare the glory of God. (Genesis 1:14 ¶ And God said, Let there
+be lights in the firmament of the heaven to divide the day from the night;
+and let them be for signs, and for seasons, and for days, and years:)
+(Psalm 19:1 The heavens declare the glory of God; and the firmament
+sheweth his handywork.)When they suddenly one night saw a new bright star
+appear in the east and then most likely saw it move, they knew this must
+be the Star and in faith followed it. Whatever the star of Bethlehem was
+it was a supernatural event and miracle from God. Even if it was a real
+star special made by God to wait to shine until the moment of the birth of
+his Son to announce to the world the Saviour was born, it was still
+supernaturally controlled by God. This was no ordinary star or planet
+conjunction or anything else. Whether the star was an angel or Jesus
+himself, this was no ordinary star. It was a miracle of God for that time
+only.   
+
+We are never told much in scripture about the wise men and there are
+many different opinions about them. The wise men came from the east. Some
+say they were from Babylon, others Persia, and even some say the Orient
+including as told in the hymn We Three Kings of Orient Are. The hymn The
+First Noel also mentions the wise men. Many people say they were
+professional astrologers for the king of the nation they were from and
+this status would also have allowed them access to king Herod. Most people
+believe they were either Babylonians or Persians. The Chinese language
+characters do tell the story of Genesis as they were originally godly
+people, so it is possible that some descendants were the wise men. These
+are all possible, but I believe they were godly men who were looking for
+the Messiah in Jesus and the King of kings. I believe the wise men were
+most likely Jews descended from Jews from the Babylonian captivity who
+were still living in Babylon or in Persia. Babylon would be where modern
+Iraq is and Persia modern Iran. They probably were wealthy and had some
+governmental ranking to afford the gifts and to travel a far distance.
+Some people believe they were Gentiles since they asked Herod "Where is he
+that is born King of the Jews?". It is possible that the wise men were
+Gentiles and thought Jesus was his son because they did not know
+scripture. More likely, the wise men as Jews recognized Herod was not the
+legitimate king of Israel and so was asking Herod where the real King of
+Israel was since they had traveled for a while and did not expect for
+Jesus to still be in Bethlehem where he was born, but rather expected to
+find him in Jerusalem as King. Herod was not a real Jew, but was descended
+from the Edomites [From Esau]. His ancestors had converted to Judaism, but
+he had no right to the throne of Israel. His dad had been appointed by the
+Romans and he inherited the throne and the interest of the Jews was not
+Herod's priority. It was to the Romans and him staying king no matter
+what. Since Herod was not a real Jew he would not know scripture foretold
+where Jesus would be born and this is why he asked the Jewish priests in
+verse 4 who answered him in verse 6. When Herod asked the priests he
+referred to Jesus as Christ and not King as he believed only he was the
+king of Israel. (Micah 5:2 But thou, Beth-lehem Ephratah, though thou be
+little among the thousands of Judah, yet out of thee shall he come forth
+unto me that is to be ruler in Israel; whose goings forth have been from
+of old, from everlasting.) Herod told the wise men he wanted to worship
+Jesus as well. Herod asked to speak to the wise men in private since he
+knew the Jewish leaders knew how evil he was and they might discover his
+plot to kill the Messiah and King. The wise men may have been deceived by
+Herod and believed him and this is why they were later warned in a dream
+not to return to him. These men should have realized Herod was up to
+something since Jesus was not his child and this would make him mad
+referring to someone else as King of the Jews.  
+
+The wise men came to see Jesus most likely when he was close to two
+years old. It was not like the Christmas story that has the wise men
+appearing at the birth of Jesus. If the wise men really did come from the
+Orient, it probably would take close to two years traveling on camels. We
+are told in verse 11 of Matthew 2 that they came to the house were Jesus
+lived and Jesus was a young child, not a newborn baby. Jesus had been born
+in a manger and did not have a home. Luke 2:39 says Joseph moved the
+family back to Nazareth after fulfilling all those according to the law
+with Jesus and Mary. (Luke 2:39 And when they had performed all things
+according to the law of the Lord, they returned into Galilee, to their own
+city Nazareth.) Most likely Joseph, Mary, and Jesus ended up moving back
+to either Bethlehem or a surrounding town sometime before the wise men
+came, possibly so Jesus could be closer to Jerusalem and the temple. We
+also see in Matthew 2:21-23 how when Joseph and his family returned from
+Egypt they were going back to Judea, but then were told by God in a dream
+to go to Nazareth. If they were still living in Nazareth when the wise men
+came, they would have probably gone directly back there. We know since the
+wise men saw Jesus in the house that it was not at the time of his birth.
+Herod asked the wise men when they first saw the star so he could
+determine how old Jesus was and how old his competition to the throne was.
+Herod in verses 16 of chapter 2 says he had all of the boys two years old
+and under killed in an attempt to kill Jesus. Satan used Herod in his
+attempt to destroy Jesus. Herod most likely added a little time to the age
+to be assured that he had killed Jesus. This shows Jesus was around two
+years old when the wise men arrived. People say Jesus was living in
+Nazareth at the time of the wise men, but Herod had the boys in Bethlehem
+and the coasts nearby killed, so this shows Jesus most likely was living
+in one of these areas and possibly in Rama as verse 18 says. Rama was a
+small town about five miles from Jerusalem. He had all of the boys killed
+since he did not know what Jesus looked like. Herod was an evil man, much
+like many modern day politicians.
+
+The wise men brought Jesus three gifts; gifts of gold, frankincense,
+and myrrh. People often say there were only three wise men since there are
+three gifts. Scripture never says that. It is possible that is correct and
+most likely is, but two wise men could bring three gifts and so could 30
+wise men. The number three does represent divine completeness and
+resurrection. It is possible that a large caravan of wise men came as
+Matthew 2:3 says Herod and all Jerusalem with him were troubled when they
+heard the wise men ask about the King of the Jews. They could have been
+troubled about such a large group of men looking for the King and they did
+not want any trouble with the Romans or they could have been troubled
+since they were afraid they could no longer live their lives of sin and
+power if a new King came. I do believe it was most likely just three and
+the people were troubled that they were not looking for the King of Israel
+like these wise men. The gifts they brought all were representative of
+Jesus. The gold represents Jesus as King and his deity as God. The
+frankincense represents Jesus as our High Priest. Frankincense is an
+incense. Myrrh is a perfume that represented Jesus being anointed at his
+death. Frankincense and myrrh were very expensive and even said to be more
+valuable than gold at that time. This shows the wise men had money or
+either they were bringing the gifts on behalf of a government or rich
+people. The gifts most likely were used by Joseph and Mary to pay for the
+house and live off of. Remember they were poor and brought the poor
+person's offering of two turtledoves when they went to the temple for the
+dedication of Jesus. (Luke 2:24 And to offer a sacrifice according to that
+which is said in the law of the Lord, A pair of turtledoves, or two young
+pigeons.) The wise men came to worship Jesus, not Mary or Joseph. These
+wise men came from far to worship Jesus yet the Jewish priests and scribes
+could not follow the wise men and travel a short distance (about five
+miles) to see if their Messiah (Christ) had been truly born. This shows
+the true heart of the priests. God will always let those who truly seek
+him find him just as the wise men did.  
+
+God warned the wise men not to return back to Herod, but to return
+home another way. I believe this shows they were godly men who had been
+seeking and waiting for Jesus for a long time. I believe they understood
+scripture. The reason they did not go directly to Bethlehem knowing Jesus
+would be born there was because they came two years later and did not know
+where the Messiah would be living now. I have heard some say they were not
+true wise men and were not saved, but I disagree. I do not believe unsaved
+people would have traveled as far as they did on camel to see a supposed
+King of Israel that they did not believe in and then bring such expensive
+gifts. These men according to verse 11 worshipped Jesus. That is much more
+than Herod did. Believers worship Jesus, not unsaved people. Many people
+today are just like Herod and want to "worship" Jesus for the wrong
+reasons. They only worship Jesus for themselves and what it will get them.
+Herod only wanted to know the location of Jesus so he could kill him and
+eliminate any competition to his throne. This is why God warned the wise
+men not to go back to Herod. God knows people's heart and can see the
+future. God warned the wise men and Joseph and will warn us too if we are
+walking with God and will listen.   
+
+Joseph was warned in a dream by an angel of the Lord to escape to
+Egypt to avoid Herod. Joseph obeyed and returned after his death. (Matthew
+2:19-23 ¶ But when Herod was dead, behold, an angel of the Lord appeareth
+in a dream to Joseph in Egypt,
+20 Saying, Arise, and take the young child and his mother, and go into the
+land of Israel: for they are dead which sought the young child's life.
+21 And he arose, and took the young child and his mother, and came into
+the land of Israel.
+22 But when he heard that Archelaus did reign in Judaea in the room of his
+father Herod, he was afraid to go thither: notwithstanding, being warned
+of God in a dream, he turned aside into the parts of Galilee:
+23 And he came and dwelt in a city called Nazareth: that it might be
+fulfilled which was spoken by the prophets, He shall be called a
+Nazarene.) He planned to return most likely to Bethlehem or nearby where
+they had previously lived, but feared the son of Herod and therefore moved
+out of Judea where Bethlehem was located and moved to Nazareth in Galilee.
+This shows that Jesus may have lived in Bethlehem or a nearby town such as
+Rama when the wise men came. Jesus would grow up in Nazareth and the early
+Christians were referred to as Nazarenes by the Jews and considered a
+separate sect similar to a different Christian denomination today. This
+remained until after the destruction of the temple in AD 70 when the Jews
+blamed the Christians for the destruction and they were now considered a
+separate religion. (Acts 24:5 For we have found this man a pestilent
+fellow, and a mover of sedition among all the Jews throughout the world,
+and a ringleader of the sect of the Nazarenes:) Nazareth means branch in
+Hebrew which is why Jesus grew up there as Jesus is the Branch. (Isaiah
+11:1 And there shall come forth a rod out of the stem of Jesse, and a
+Branch shall grow out of his roots:) (Jeremiah 23:5 ¶ Behold, the days
+come, saith the LORD, that I will raise unto David a righteous Branch, and
+a King shall reign and prosper, and shall execute judgment and justice in
+the earth.) Jesus was spoken by the prophets to have been called a
+Nazarene. This is never mentioned in scripture by the name Nazarene, but
+rather as Branch which is why Jesus grew up in Nazareth and was called a
+Nazarene.
+
+The wise men who came to see Jesus were truly wise. Modern bibles
+refer to them as Magi which is incorrect and misses the connection. Once
+again the King James Bible shows its superiority over all other bibles and
+its inspiration by God. Anyone who truly seeks Jesus is a wise man. These
+wise men recognized Jesus as their King, Lord, and Saviour and recognized
+they needed a Saviour. These wise men were not just Babylonian
+astrologers. They were most likely Jews who were descendants of some left
+in Babylon from the 70 year captivity or while in Persian captivity. These
+men were looking for Jesus and anyone who is truly seeking Jesus will find
+him. They knew to look for his Star. East represents the coming of Jesus.
+Those who are wise will seek Jesus. I pray that if anyone listening today
+is not saved that they will be wise like these men and seek Jesus today,
+the true Star of Bethlehem and call upon him for your Saviour.      
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

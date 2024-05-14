@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,539 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Isaiah 53
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Isaiah 53 is a great Messianic chapter that gives one of the best
+descriptions of prophecies in the old testament of the then coming
+Messiah, the Lord Jesus Christ. Isaiah was written about 700 years before
+the birth of Jesus in Bethlehem. Jesus fulfilled all things in this
+chapter exactly as they are written. The description actually starts in
+Isaiah 52:13-15. (Isaiah 52:13-53:12 ¶ Behold, my servant shall deal
+prudently, he shall be exalted and extolled, and be very high.
+14As many were astonied at thee; his visage was so marred more than any
+man, and his form more than the sons of men:
+15So shall he sprinkle many nations; the kings shall shut their mouths at
+him: for that which had not been told them shall they see; and that which
+they had not heard shall they consider.
 
-Username or email _____________________
+Isaiah 53:1Who hath believed our report? and to whom is the arm of the
+LORD revealed?
+2 For he shall grow up before him as a tender plant, and as a root out of
+a dry ground: he hath no form nor comeliness; and when we shall see
+him, there is no beauty that we should desire him.
+3 He is despised and rejected of men; a man of sorrows, and acquainted
+with grief: and we hid as it were our faces from him; he was despised, and
+we esteemed him not.
 
-Reset password
+4 ¶ Surely he hath borne our griefs, and carried our sorrows: yet we did
+esteem him stricken, smitten of God, and afflicted.
+5 But he was wounded for our transgressions, he was bruised for our
+iniquities: the chastisement of our peace was upon him; and with his
+stripes we are healed.
+6 All we like sheep have gone astray; we have turned every one to his own
+way; and the LORD hath laid on him the iniquity of us all.
+7 He was oppressed, and he was afflicted, yet he opened not his mouth: he
+is brought as a lamb to the slaughter, and as a sheep before her shearers
+is dumb, so he openeth not his mouth.
+8 He was taken from prison and from judgment: and who shall declare his
+generation? for he was cut off out of the land of the living: for the
+transgression of my people was he stricken.
+9 And he made his grave with the wicked, and with the rich in his death;
+because he had done no violence, neither was any deceit in his mouth.
+
+10 ¶ Yet it pleased the LORD to bruise him; he hath put him to grief: when
+thou shalt make his soul an offering for sin, he shall see his seed, he
+shall prolong his days, and the pleasure of the LORD shall prosper in his
+hand.
+11 He shall see of the travail of his soul, and shall be satisfied: by his
+knowledge shall my righteous servant justify many; for he shall bear their
+iniquities.
+12 Therefore will I divide him a portion with the great, and he shall
+divide the spoil with the strong; because he hath poured out his soul unto
+death: and he was numbered with the transgressors; and he bare the sin of
+many, and made intercession for the transgressors.)
+
+Isaiah 53 is such a vivid description of the Lord Jesus that this
+chapter is never read in a Jewish synagogue during the weekly Haftarah
+readings or by Jews at all. The rabbis will end at Isaiah 52:12 and then
+the next week pick up at Isaiah 54, completely skipping these verses about
+Jesus. The leaders of Judaism do not want Jews to read this chapter since
+it reveals the truth about Jesus. Many Jews have come to realize that
+Jesus is their Messiah from reading this chapter. Many Jews believe since
+they are God's chosen people that they are automatically saved.
+Unfortunately some in the church also believe this and therefore they do
+not witness to Jews. For Jews who may hear this sermon read Isaiah 53 and
+for those who know Jews who are lost, read this chapter to them.
+
+Matthew 12:17-21 gives a similar description of Jesus as Isaiah 53.
+(Matthew 12:17-21 17 That it might be fulfilled which was spoken by Esaias
+the prophet, saying,
+18 Behold my servant, whom I have chosen; my beloved, in whom my soul is
+well pleased: I will put my spirit upon him, and he shall shew judgment to
+the Gentiles.
+19 He shall not strive, nor cry; neither shall any man hear his voice in
+the streets.
+20 A bruised reed shall he not break, and smoking flax shall he not
+quench, till he send forth judgment unto victory.
+21 And in his name shall the Gentiles trust.) These verses show Jesus will
+bring salvation to both Jews and Gentiles, but how most will never hear
+his voice. How sad that most reject Jesus. Matthew 12:18 shows God chose
+Jesus as his servant, rather than man and this is why many men (people)
+reject Jesus. This verse fulfills a prophecy from Isaiah, who was the most
+quoted in the new testament.
+
+Isaiah 53 best shows Jesus as the suffering servant when he came in
+his first coming. Some say this chapter refers to the nation of Israel,
+rather than Jesus. I will show you that this chapter is clearly about a
+person, not a nation and that the person is Jesus Christ. The debate
+arises over the use of "my servant" in Isaiah 52:13. Many people in
+scripture were referred to as "my servant" by God including Abraham,
+Jacob, Moses, Caleb, David, Zerubbabel, and Job. God referred to
+Nebuchadrezzar the king of Babylon, a non-Jew as "my servant", but God
+only referred to people as my servant, not nations including Israel.
+(Genesis 26:24 And the LORD appeared unto him the same night, and said, I
+am the God of Abraham thy father: fear not, for I am with thee, and will
+bless thee, and multiply thy seed for my servant Abraham's sake.) (Numbers
+12:7 My servant Moses is not so, who is faithful in all mine house.)
+
+(Isaiah 52:13 ¶ Behold, my servant shall deal prudently, he shall be
+exalted and extolled, and be very high.) This verse shows Jesus will be
+the servant of God when he came as a man. We see Jesus also mentioned as
+the servant of God in other verses in the old testament. (Isaiah 49:5-6 5
+¶ And now, saith the LORD that formed me from the womb to be his servant,
+to bring Jacob again to him, Though Israel be not gathered, yet shall I be
+glorious in the eyes of the LORD, and my God shall be my strength.
+6 And he said, It is a light thing that thou shouldest be my servant to
+raise up the tribes of Jacob, and to restore the preserved of Israel: I
+will also give thee for a light to the Gentiles, that thou mayest be my
+salvation unto the end of the earth.) These verses show Jesus was formed
+from the womb to be the servant of God and that he came to earth the first
+time to bring salvation to the whole world and not just the Jews.
+(Zechariah 3:8 Hear now, O Joshua the high priest, thou, and thy fellows
+that sit before thee: for they are men wondered at: for, behold, I will
+bring forth my servant the BRANCH.) Matthew 12:18 that I have already read
+shows Jesus was the servant of God. Jesus always did the will of God the
+Father just as we should do. Isaiah 52:13 shows Jesus will be exalted and
+extolled. This will be fulfilled as seen in Philippians 2:7-11 7 But made
+himself of no reputation, and took upon him the form of a servant, and was
+made in the likeness of men:
+8 And being found in fashion as a man, he humbled himself, and became
+obedient unto death, even the death of the cross.
+9 Wherefore God also hath highly exalted him, and given him a name which
+is above every name:
+10 That at the name of Jesus every knee should bow, of things in heaven,
+and things in earth, and things under the earth;
+11 And that every tongue should confess that Jesus Christ is Lord, to the
+glory of God the Father.) Other verses also show this being fulfilled in
+the new testament.
+
+(Isaiah 52:14 As many were astonied at thee; his visage was so marred
+more than any man, and his form more than the sons of men:) Isaiah 52:14
+says Jesus was marred more than any man. This was fulfilled in his
+beatings prior to his crucifixion. He was so beaten that our Saviour and
+the Saviour of the world was unrecognizable. Satan so hated to look at the
+face of Jesus as the face of Jesus showed purity and innocence, both
+things Satan hates and which he is neither. The face of Jesus reminded
+Satan how evil he was compared to Jesus. (Matthew 26:67 Then did they spit
+in his face, and buffeted him; and others smote him with the palms of
+their hands,) (Matthew 27:30-31 30 And they spit upon him, and took the
+reed, and smote him on the head.
+31 And after that they had mocked him, they took the robe off from him,
+and put his own raiment on him, and led him away to crucify him.) (John
+19:1 Then Pilate therefore took Jesus, and scourged him.
+
+(Isaiah 52:15 So shall he sprinkle many nations; the kings shall shut
+their mouths at him: for that which had not been told them shall they see;
+and that which they had not heard shall they consider.) Jesus shall
+sprinkle many nations with his shed blood on the cross as he died for
+people of all nations. The blood of Jesus has been sprinkled by the
+spreading of the gospel throughout all nations. The phrase "for that which
+had not been told them shall they see; and that which they had not heard
+shall they consider" most likely refers to the lack of understanding by
+Jews and Gentiles of Jesus as the humble suffering servant and the gospel
+of his death, burial, and resurrection. Some eyes were opened and people
+were saved after the events happened as foretold in scripture here in
+Isaiah.
+
+(Isaiah 53:1 Who hath believed our report? and to whom is the arm of
+the LORD revealed?) Isaiah 53:1 speaks of the many miracles that would be
+done by Jesus at his first coming, yet the people still did not believe.
+It takes faith to believe in Jesus, something most people lack. (Ephesians
+2:8 For by grace are ye saved through faith; and that not of yourselves:
+it is the gift of God:) This prophecy was fulfilled in (John 12:37-38 37 ¶
+But though he had done so many miracles before them, yet they believed not
+on him:
+38 That the saying of Esaias the prophet might be fulfilled, which he
+spake, Lord, who hath believed our report? and to whom hath the arm of the
+Lord been revealed?)
+
+(Isaiah 53:2 For he shall grow up before him as a tender plant, and
+as a root out of a dry ground: he hath no form nor comeliness; and when we
+shall see him, there is no beauty that we should desire him.) Israel was a
+dry ground before God, but he sent his Son Jesus as a tender plant and
+root out of that dry ground to be his suffering servant to bring salvation
+to Israel as well as all mankind. Jesus was just an ordinary looking man
+as seen in the phrase "he hath no form nor comeliness; and when we shall
+see him, there is no beauty that we should desire him". He was from a poor
+family and no one desired him. He was normal height and was probably
+muscular since he was a carpenter, but nothing so great as to set him
+apart from the average man. Jesus had short hair as did most men so he
+blended in with the crowds. If he had long hair as is often falsely taught
+then he would have stuck out in the crowds from the rest of the men. Jesus
+was nothing special to look at that he should be desired. This can be seen
+in how he blended into crowds when the people desired to stone him to
+death. (John 8:59 Then took they up stones to cast at him: but Jesus hid
+himself, and went out of the temple, going through the midst of them, and
+so passed by.) Jesus had just been preaching, but he was still able to
+pass through the crowds unnoticed. He could not do this if he was a
+desirable person to look at. He also was marred so badly before his
+crucifixion that he was undesirable to look at.
+
+(Isaiah 53:3 He is despised and rejected of men; a man of sorrows,
+and acquainted with grief: and we hid as it were our faces from him; he
+was despised, and we esteemed him not.) Jesus was despised and rejected
+not only by the Jewish leaders of his day, but even by the common man as
+he made them realize they were sinners. They wanted a Messiah that would
+free them from Rome, not from sin so they hid their faces from him as it
+convicted them of their sins with all its innocence. This was fulfilled in
+(Luke 9:22 Saying, The Son of man must suffer many things, and be rejected
+of the elders and chief priests and scribes, and be slain, and be raised
+the third day.) (John 1:11 He came unto his own, and his own received him
+not.)
+
+(Isaiah 53:4 ¶ Surely he hath borne our griefs, and carried our
+sorrows: yet we did esteem him stricken, smitten of God, and afflicted.)
+Jesus bore all our sins, griefs, and sorrows on the cross as our
+substitutionary death so that we might have eternal life, yet man still
+smites God with hatred. He was blasphemed by those who crucified him and
+by most of those who stood nearby. (Matthew 11:28 ¶ Come unto me, all ye
+that labour and are heavy laden, and I will give you rest.)
+
+(Isaiah 53:5 But he was wounded for our transgressions, he was
+bruised for our iniquities: the chastisement of our peace was upon him;
+and with his stripes we are healed.) Jesus was wounded for our
+transgressions (sins) from his scourging, crown of thorns on his head,
+piercing of his side, being spat upon in the face, and crucifixion, and
+taking on the sins of the world. Jesus did all of this so that we all
+might have everlasting life. (Mark 15:17 And they clothed him with purple,
+and platted a crown of thorns, and put it about his head,) (John 19:34 But
+one of the soldiers with a spear pierced his side, and forthwith came
+there out blood and water.) (Mark 14:65 And some began to spit on him, and
+to cover his face, and to buffet him, and to say unto him, Prophesy: and
+the servants did strike him with the palms of their hands.) We can be
+healed of our sins from what Jesus did for us on the cross if we receive
+him as Saviour. (I Peter 2:24 Who his own self bare our sins in his own
+body on the tree, that we, being dead to sins, should live unto
+righteousness: by whose stripes ye were healed.) Our peace is only found
+when one receives Jesus as their Saviour. Our peace was upon Jesus by his
+willingness to go to the cross for us.
+
+(Isaiah 53:6 All we like sheep have gone astray; we have turned every
+one to his own way; and the LORD hath laid on him the iniquity of us all.)
+All people are born with a sin nature and like sheep will go astray
+without a leader. A person must stay on the narrow path to Jesus for
+salvation. Sin has caused all people to turn away from God and to try to
+enter heaven by another way without Jesus such as by one's works. God
+placed the sins of every person for all time from Adam to the last person
+born upon Jesus so that his death may free all from sin who choose him as
+their Saviour. (I Peter 2:25 For ye were as sheep going astray; but are
+now returned unto the Shepherd and Bishop of your souls.)
+
+(Isaiah 53:7 He was oppressed, and he was afflicted, yet he opened
+not his mouth: he is brought as a lamb to the slaughter, and as a sheep
+before her shearers is dumb, so he openeth not his mouth.)  The Ethiopian
+eunuch asked if this referred to Isaiah who wrote this or someone else.
+Philip then told him about Jesus whom this verse applies to. (Acts 8:32-35
+32 The place of the scripture which he read was this, He was led as a
+sheep to the slaughter; and like a lamb dumb before his shearer, so opened
+he not his mouth:
+33 In his humiliation his judgment was taken away: and who shall declare
+his generation? for his life is taken from the earth.
+34 And the eunuch answered Philip, and said, I pray thee, of whom speaketh
+the prophet this? of himself, or of some other man?
+35 Then Philip opened his mouth, and began at the same scripture, and
+preached unto him Jesus.) Jesus did not open his mouth before his
+accusers. Most people would want to defend themselves from attack and
+would have burst out shouting at the accusers. Jesus could easily have
+defended himself since he was innocent, but he was willing to endure the
+false accusations so that he might be able to go to the cross of Calvary
+for you and me. To many people his silence would seem an admission of
+guilt, yet Jesus remained silent to fulfill prophecy and to be obedient to
+his heavenly Father. This was fulfilled in (Matthew 27:12 And when he was
+accused of the chief priests and elders, he answered nothing.) (I Peter
+2:23 Who, when he was reviled, reviled not again; when he suffered, he
+threatened not; but committed himself to him that judgeth righteously:)
+
+(Isaiah 53:8 He was taken from prison and from judgment: and who
+shall declare his generation? for he was cut off out of the land of the
+living: for the transgression of my people was he stricken.) Jesus was
+cutoff from the living when he was crucified on the cross. Daniel had
+predicted this when he was given the vision of the seventy weeks in Daniel
+9:24-27. (Daniel 9:26 And after threescore and two weeks shall Messiah be
+cut off, but not for himself: and the people of the prince that shall come
+shall destroy the city and the sanctuary; and the end thereof shall be
+with a flood, and unto the end of the war desolations are determined.)
+Sixty Nine weeks have been fulfilled with the final week coming during the
+seven year tribulation. Jesus died for the transgressions (sins) of the
+people, including yours and mine, not his. (II Corinthians 5:21 For he
+hath made him to be sin for us, who knew no sin; that we might be made the
+righteousness of God in him.)
+
+(Isaiah 53:9 And he made his grave with the wicked, and with the rich
+in his death; because he had done no violence, neither was any deceit in
+his mouth.) Jesus died on the cross with two thieves and was buried in a
+rich man's tomb, the tomb of Joseph of Arimathaea, a Jewish leader and
+member of the Sanhedrin. It was also the wicked Jewish leaders who
+condemned Jesus to death. (Matthew 27:38 Then were there two thieves
+crucified with him, one on the right hand, and another on the left.)
+(Matthew 27:57 When the even was come, there came a rich man of Arimathæa,
+named Joseph, who also himself was Jesus' disciple:) (Matthew 27:60 And
+laid it in his own new tomb, which he had hewn out in the rock: and he
+rolled a great stone to the door of the sepulchre, and departed.)
+
+(Isaiah 53:10 ¶ Yet it pleased the LORD to bruise him; he hath put
+him to grief: when thou shalt make his soul an offering for sin, he shall
+see his seed, he shall prolong his days, and the pleasure of the LORD
+shall prosper in his hand.) The LORD bruised Jesus when he was beaten and
+crucified as the perfect sin offering for us. God prolonged his days by
+resurrecting him from the grave which pleased God.  
+
+(Isaiah 53:11 He shall see of the travail of his soul, and shall be
+satisfied: by his knowledge shall my righteous servant justify many; for
+he shall bear their iniquities.) God through his righteous servant Jesus
+bore all of mankind's sins on the cross in order to bring salvation and
+reconciliation with God. God the Father was satisfied with the sacrifice
+of his perfect Son Jesus travailing on the cross as he bore our sins and
+with his death as the completion of our reconciliation with him to all
+people who will call upon Jesus to be their Saviour. Jesus will "justify
+many" refers to those who call upon him for salvation.
+
+(Isaiah 53:12 Therefore will I divide him a portion with the great,
+and he shall divide the spoil with the strong; because he hath poured out
+his soul unto death: and he was numbered with the transgressors; and he
+bare the sin of many, and made intercession for the transgressors.) This
+verse again shows how Jesus was crucified with thieves (numbered with the
+transgressors) and how he bare the sin of many people as billions have
+lived on the earth. (Hebrews 9:28 So Christ was once offered to bear the
+sins of many; and unto them that look for him shall he appear the second
+time without sin unto salvation.) Jesus interceded on the cross for the
+thief who repented and called upon him for salvation and asked God the
+Father to forgive those who crucified him. This intercession was possible
+because of what Jesus was doing on the cross and because he is God. (Luke
+23:34 ¶ Then said Jesus, Father, forgive them; for they know not what they
+do. And they parted his raiment, and cast lots.) (Luke 23:43 And Jesus
+said unto him, Verily I say unto thee, To day shalt thou be with me in
+paradise.)
+
+These verses clearly show that Jesus bore our sins on the cross,
+suffered and died for us on that cross. It is clear from the fulfillment
+of these verses that the "greatest Jew who ever lived", the suffering
+servant, was none other than the Jewish Messiah, the Lord Jesus Christ.
+This chapter clearly refers to a man in Jesus and not the nation of Israel
+as Israel was never cut off from herself as seen in verse 8 and Israel did
+not die on a cross and bear the sins of all mankind. Tell your Jewish
+neighbors or friends about Isaiah 53. For any Jews watching this video,
+realize that Isaiah 53 is kept hidden from you by your Jewish rabbis in
+order to keep you from the truth of Jesus being your Messiah. You may go
+to jesusisgodandlordministries.com for more information on Jesus as God
+and your Messiah as well as salvation. For anyone else listening who is
+not saved, today is the day to receive Jesus as your Saviour so his
+suffering will not be for nought.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

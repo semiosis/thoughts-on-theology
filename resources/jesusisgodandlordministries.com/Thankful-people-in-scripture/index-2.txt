@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,410 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Thankful people in scripture  
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+We just celebrated Thanksgiving on Thursday and today we are going to
+look at some people in scripture who were thankful for what God had done
+for them. We set aside one day each year to give thanks to God for what he
+does for us each and every day, yet we need to learn to be thankful every
+day. We need to thank God every day for all aspects of our lives even the
+things that are not good in our eyes. God has a purpose and plan for even
+the bad things in our lives. We need to learn to trust in God in
+everything and not just the good things and learn to thank God every day
+including the fact that he gave us another day to live. We live in a
+violent sin sick world and people are dying every day so we need to
+rejoice when God lets us breathe for another day.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+The first person from scripture that we will look at is an unnamed
+individual. We will know his name when we get to heaven. We see from this
+example that God knows who they are, but we need to just learn from their
+thankfulness. Even the unnamed are important to God. This unnamed man was
+one of the ten lepers that were healed by God. Ten lepers had cried out to
+Jesus asking him to heal them. They all left as Jesus said to go to the
+priest and they were cleansed when they left, but only this man returned
+after seeing he was healed to thank Jesus for healing him. This man was a
+Samaritan which were enemies of the Jews yet he gave thanks to God whereas
+the other nine which were most likely Jews did not. Some people are never
+grateful. Jesus even said to the leper where are the other nine. Jesus
+said only this stranger returned to give thanks. Because this leper was
+truly thankful Jesus not only cleansed his leprosy, but he also cleansed
+and saved his soul so that one day we will see him in heaven. Leprosy was
+a dreaded disease to get as you had to avoid all people and yet the other
+nine remained in their sins as ungrateful men. (Luke 17:11-19 11 ¶ And it
+came to pass, as he went to Jerusalem, that he passed through the midst of
+Samaria and Galilee.
+12 And as he entered into a certain village, there met him ten men that
+were lepers, which stood afar off:
+13 And they lifted up their voices, and said, Jesus, Master, have mercy on
+us.
+14 And when he saw them, he said unto them, Go shew yourselves unto the
+priests. And it came to pass, that, as they went, they were cleansed.
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+15 And one of them, when he saw that he was healed, turned back, and with
+a loud voice glorified God,
+16 And fell down on his face at his feet, giving him thanks: and he was a
+Samaritan.
+17 And Jesus answering said, Were there not ten cleansed? but where are
+the nine?
+18
+There are not found that returned to give glory to God, save this stranger.
+19 And he said unto
+him, Arise, go thy way: thy faith hath made thee whole.)
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+The next person we will look at is Elisabeth who was the mother of
+John the Baptist. John the Baptist would go on to prepare the way for
+Jesus and his ministry. Elisabeth and her husband Zacharias who was a
+priest were unable to have a child as Elisabeth was well past child
+bearing age. In those days it was a disgrace for a woman to not be able to
+have a child and women especially wanted a child hoping they would give
+birth to the Messiah. Godly women would pray for a child especially a son
+unlike many women of today who quickly try to find a way to kill their
+child by abortion. Zacharias had seen an angel who said Elisabeth would
+have a son who would prepare the way for Jesus. Elisabeth was thankful
+when God blessed her with a son. (Luke 1:7 And they had no child, because
+that Elisabeth was barren, and they both were now well stricken in years.)
+(Luke 1:24-25 24 And after those days his wife Elisabeth conceived, and
+hid herself five months, saying,
+25 Thus hath the Lord dealt with me in the days wherein he looked on me,
+to take away my reproach among men.)
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+Elisabeth's cousin Mary was also thankful to God when she found out
+she was going to give birth to the Messiah Jesus who would come to earth
+as the God-man to save mankind. Mary had been given the special privilege
+to give birth to the Messiah. All Jewish women had always wished they
+would be the one, but it was the young girl Mary who was chosen. Mary did
+not know how it would happen, but she trusted the Lord to make it happen
+just as she was told her cousin Elisabeth had become pregnant in her old
+age. (Luke 1:46-49 46 And Mary said, My soul doth magnify the Lord,
+47 And my spirit hath rejoiced in God my Saviour.
+48 For he hath regarded the low estate of his handmaiden: for, behold,
+from henceforth all generations shall call me blessed.
+49 For he that is mighty hath done to me great things; and holy is his
+name.)
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+The unknown author of Psalm 111 starts off the psalm by praising God
+and praising God with his whole heart. This shows this man was sincere and
+thankful for all that God had done for him in his life and what he knew
+God would continue to do in his life. (Psalm 111:1-10 1 Praise ye the
+LORD. I will praise the LORD with my whole heart, in the assembly of the
+upright, and in the congregation.
+2 The works of the LORD are great, sought out of all them that have
+pleasure therein.
+3 His work is honourable and glorious: and his righteousness endureth for
+ever.
+4 He hath made his wonderful works to be remembered: the LORD is gracious
+and full of compassion.
+5 He hath given meat unto them that fear him: he will ever be mindful of
+his covenant.
+6 He hath shewed his people the power of his works, that he may give them
+the heritage of the heathen.
+7 The works of his hands are verity and judgment; all his commandments are
+sure.
+8 They stand fast for ever and ever, and are done in truth and
+uprightness.
+9 He sent redemption unto his people: he hath commanded his covenant for
+ever: holy and reverend is his name.
+10 The fear of the LORD is the beginning of wisdom: a good understanding
+have all they that do his commandments: his praise endureth for ever.)
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+Following the crossing of the Red sea by the Israelites, God closed
+the sea upon the Egyptian army killing all of them including pharaoh.
+Miriam the sister of Moses was thankful for what God had done and so she
+began to dance and sing to God to give him praise and thanks. Her show of
+thankfulness to God rubbed off onto the women around her who joined her in
+giving thanks and praise to God. Oftentimes when people see us thanking
+God then it will encourage others to do the same. We need to influence
+people in godly ways rather than sinful ways. (Exodus 15:20-21 20 ¶ And
+Miriam the prophetess, the sister of Aaron, took a timbrel in her hand;
+and all the women went out after her with timbrels and with dances.
+21 And Miriam answered them, Sing ye to the LORD, for he hath triumphed
+gloriously; the horse and his rider hath he thrown into the sea.)
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+Hannah was another woman who was left barren by the LORD. She
+desperately wanted to have a son hoping just like Elisabeth did and all
+the Jewish girls to be the one to give birth to the Messiah. Hannah had
+gone before the LORD in prayer at the temple praying and asking for a son.
+This is the first thing we need to do is pray. That shows that we trust
+God to be in control and are thankful that we can pray to him. Hannah
+promised to give her son to God to serve him all his life if God would
+give him a son. Hannah was obedient in doing this and so God blessed
+Hannah with three more sons and two daughters. The child she loaned to God
+was Samuel who was the great prophet and first judge of Israel. When
+Hannah brought Samuel to the temple to live there and serve God she gave
+thanks to God for giving her a son that she could loan to God. (I Samuel
+2:1-2 1 And Hannah prayed, and said, My heart rejoiceth in the LORD, mine
+horn is exalted in the LORD: my mouth is enlarged over mine enemies;
+because I rejoice in thy salvation.
+2 There is none holy as the LORD: for there is none beside thee: neither
+is there any rock like our God.) The prayer continues to verse 11.
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+David in the fifty one verses of the entire chapter of II Samuel 22
+gives thanks to God and praise for his victory over Saul and the
+Philistines and other of his enemies who had tried to prevent his ruling
+as king. Saul's own family as well as others had attacked David and he had
+just defeated Philistine giants and so David was very thankful to God. He
+put the thanks in the right place as it belongs to God. (II Samuel
+22:48-51 48 It is God that avengeth me, and that bringeth down the people
+under me, 
+49 And that bringeth me forth from mine enemies: thou also hast lifted me
+up on high above them that rose up against me: thou hast delivered me from
+the violent man.
+50 Therefore I will give thanks unto thee, O LORD, among the heathen, and
+I will sing praises unto thy name.
+51 He is the tower of salvation for his king: and sheweth mercy to his
+anointed, unto David, and to his seed for evermore.)
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Paul and Silas had been preaching in Philippi when they cast a devil
+out of a woman that had brought much money to the people. This angered the
+people so they beat Paul and Silas with stripes using whips that cut into
+the skin and put them into prison with their feet in stocks that locked
+the feet into place. They would not even have been able to move their
+feet. They were most likely in a cold damp cell yet these two godly men
+still thanked God for the situation they were in that they could have this
+happen to them for serving God. At midnight they sang praises to glorify
+and thank God. Most people would have been bitter and angry and not
+thinking about thanking and praising God for their current situation, but
+not Paul and Silas. Because these two men thanked God instead of being
+ungrateful, the Lord used these two men to lead the Philippian jailor to
+salvation along with his whole house. God gave them freedom for honoring
+him. (Acts 16:25-26 25 ¶ And at midnight Paul and Silas prayed, and sang
+praises unto God: and the prisoners heard them.
+26 And suddenly there was a great earthquake, so that the foundations of
+the prison were shaken: and immediately all the doors were opened, and
+every one's bands were loosed.) (Acts 16:34 And when he had brought them
+into his house, he set meat before them, and rejoiced, believing in God
+with all his house.)
+
+Paul gave thanks to God for the Philippians who partnered with him in
+helping to spread the gospel. (Philippians 1:3-5 3 I thank my God upon
+every remembrance of you,
+4 Always in every prayer of mine for you all making request with joy,
+5 For your fellowship in the gospel from the first day until now;)
+
+Jesus himself gave thanks to God on many occasions. He himself is God
+yet as a man he set the example as always for us to be thankful to God in
+everything and for everything. Here are just a few times that Jesus gave
+thanks to God. Jesus often gave thanks for food just as we should. Jesus
+gave thanks for the food before he fed the five thousand. This
+thankfulness allowed a small lad's lunch of five barley loaves and two
+fishes to feed five thousand. (John 6:11 And Jesus took the loaves; and
+when he had given thanks, he distributed to the disciples, and the
+disciples to them that were set down; and likewise of the fishes as much
+as they would.) When Jesus instituted the Lord's supper he gave thanks
+both for the cup and the bread prior to distributing them. (Luke 22:17-19
+17 And he took the cup, and gave thanks, and
+said, Take this, and divide it among yourselves:
+18 For I say unto you, I will not drink of the fruit of the vine, until
+the kingdom of God shall come.
+
+19 ¶ And he took bread, and gave thanks, and brake it, and gave unto them,
+saying, This is my body which is given for you: this do in remembrance of me.)
+Jesus thanked God the Father for hearing him when he prayed to bring
+Lazarus back from the dead. He thanked God for hearing him and said he
+knew he would hear him. God will always hear the prayer of those who are
+walking with him and Jesus always walked with God. (John 11:41-42 41 Then
+they took away the stone from the place where the dead was laid. And Jesus
+lifted up his eyes, and
+said, Father, I thank thee that thou hast heard me.
+42 And I knew that thou hearest me always: but because of the people which
+stand by I said it, that they may believe that thou hast sent me.)
+
+This was just a few examples of godly individuals who gave God thanks
+for the situations they were in or for what God had done for them. We too
+need to learn to be thankful to God in all situations and for all that he
+does for us and not take God for granted the way the heathen do. Here are
+a couple of verses about giving thanks. (I Thessalonians 5:18 In every
+thing give thanks: for this is the will of God in Christ Jesus concerning
+you.) (Hebrews 13:15 By him therefore let us offer the sacrifice of praise
+to God continually, that is, the fruit of our lips giving thanks to his
+name.) (Colossians 3:17 And whatsoever ye do in word or deed, do all in
+the name of the Lord Jesus, giving thanks to God and the Father by him.)
+For those of us who are saved we need to thank God for sending his Son to
+die on a cross for us and rising again on that third day so that we might
+have everlasting life. Jesus bore our sins on the cross so that we would
+not have to. Let us learn to be thankful all the time unlike the unsaved
+who are rarely thankful. For those who are not saved, call upon Jesus
+today and thank God for saving you. Thank God that he has allowed a way
+for us as wretched sinners to not spend eternity in the lake of fire.
+Remember to thank God every day and not just on Thanksgiving.   
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +431,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

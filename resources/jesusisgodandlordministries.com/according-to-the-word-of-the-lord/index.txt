@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,431 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+According to the word of the LORD
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The words "according to the word of the LORD" have two meanings
+in scripture. The first is if God says something is going to happen then
+it will happen according to the word of the LORD. The second thing is that
+everyone, but especially we as Christians need to obey God according to
+the word of the LORD. We need to be always obedient to the word of God,
+but we first must listen so we can hear the word of the LORD to know what
+he wants us to do according to his word.
 
-Username or email _____________________
+We see things happen according to the word of the LORD. When God says
+it will happen, you can guarantee that it will come true. When a man of
+God from Judah went to Bethel to see Jeroboam the king of Israel, he was
+told by God not to stay there and eat or drink water. He left, but later
+was stopped and lied to by another prophet and he ate with him. God later
+had the man of God torn apart by a lion for disobeying him just as he said
+he would. (I Kings 13:22 But camest back, and hast eaten bread and drunk
+water in the place, of the which the LORD did say to thee, Eat no bread,
+and drink no water; thy carcase shall not come unto the sepulchre of thy
+fathers.) (I Kings 13:26 And when the prophet that brought him back from
+the way heard thereof, he said, It is the man of God, who was disobedient
+unto the word of the LORD: therefore the LORD hath delivered him unto the
+lion, which hath torn him, and slain him, according to the word of the
+LORD, which he spake unto him.) Let this be an example to always do what
+God says to us even if someone else claims to have had a new revelation
+for us by God.
 
-Reset password
+Jeroboam's son was sick and dying and he sought the prophet Ahijah to
+see if he would live. Ahijah said the child would die due to the sins of
+Jeroboam. The child died just as was spoken by God according to his word.
+(I Kings 14:12 Arise thou therefore, get thee to thine own house: and when
+thy feet enter into the city, the child shall die.) (I Kings 14:18 And
+they buried him; and all Israel mourned for him, according to the word of
+the LORD, which he spake by the hand of his servant Ahijah the prophet.)
+
+When Joshua and the Israelites destroyed Jericho, Joshua said that
+God said no one was to rebuild Jericho. Anyone who did would have the life
+of their firstborn taken for laying the foundation and the youngest son
+for setting up the gates. Hiel disobeyed God and his sons died according
+to the word of the LORD. (Joshua 6:26 ¶ And Joshua adjured them at that
+time, saying, Cursed be the man before the LORD, that riseth up and
+buildeth this city Jericho: he shall lay the foundation thereof in his
+firstborn, and in his youngest son shall he set up the gates of it.) (I
+Kings 16:34 ¶ In his days did Hiel the Beth-elite build Jericho: he laid
+the foundation thereof in Abiram his firstborn, and set up the gates
+thereof in his youngest son Segub, according to the word of the LORD,
+which he spake by Joshua the son of Nun.)
+
+Elijah told a widow woman that was on the verge of death as was her
+son to make him a cake with her last bits of meal and oil and if she
+obeyed, God would keep it from being empty until it rained. She obeyed the
+word of the LORD from Elijah and God did according to his word and
+preserved the meal and oil until it rained. (I Kings 17:14 For thus saith
+the LORD God of Israel, The barrel of meal shall not waste, neither shall
+the cruse of oil fail, until the day that the LORD sendeth rain upon the
+earth.) (I Kings 17:16 And the barrel of meal wasted not, neither did the
+cruse of oil fail, according to the word of the LORD, which he spake by
+Elijah.)
+
+Ahaziah the king of Israel fell and was near death, so he sent
+messengers to enquire from the false god Baal whether he would live or
+not. Elijah stopped them and told them thus saith the LORD that the king
+would die since he sought help from Baal rather than from God. (II Kings
+1:6 And they said unto him, There came a man up to meet us, and said unto
+us, Go, turn again unto the king that sent you, and say unto him, Thus
+saith the LORD, Is it not because there is not a God in Israel, that thou
+sendest to enquire of Baal-zebub the god of Ekron? therefore thou shalt
+not come down from that bed on which thou art gone up, but shalt surely
+die.) (II Kings 1:17 ¶ So he died according to the word of the LORD which
+Elijah had spoken. And Jehoram reigned in his stead in the second year of
+Jehoram the son of Jehoshaphat king of Judah; because he had no son.) Let
+this be a lesson to always seek help from God, not a false god or even a
+physician. Pray first and see what God wants us to do.
+
+The Israelites were under siege by the Syrians and were starving to
+death and down to the last drops of food when Elijah prophesied according
+to the word of the LORD that the next day the Israelites would have plenty
+of food and would sell a measure of fine flour for a shekel and two
+measures of barley for a shekel. This came to pass after four leprous men
+found the food that the Syrians had left behind when God scared the
+Syrians away. (II Kings 7:1 Then Elisha said, Hear ye the word of the
+LORD; Thus saith the LORD, To morrow about this time shall a measure of
+fine flour be sold for a shekel, and two measures of barley for a shekel,
+in the gate of Samaria.) (II Kings 7:16 And the people went out, and
+spoiled the tents of the Syrians. So a measure of fine flour was sold for
+a shekel, and two measures of barley for a shekel, according to the word
+of the LORD.)
+
+The prophets of the old testament would speak for God and say "Thus
+saith the LORD" and if they were really speaking for the LORD it would
+always come true according to the word of the LORD.
+
+We see in all of these examples that when God says he will do
+something it will always be fulfilled according to his word. Let us also
+obey him since we know he will do as he says he will do. This should
+comfort us Christians knowing that the rapture, a future mansion, and
+everlasting life will also come just as God said according to his word.
+God has magnified his word above his name showing how important his word
+is when he says something. (Psalm 138:2 I will worship toward thy holy
+temple, and praise thy name for thy lovingkindness and for thy truth: for
+thou hast magnified thy word above all thy name.)
+
+God expects obedience from us when he speaks especially from his
+children (saved people). (Leviticus 22:31 Therefore shall ye keep my
+commandments, and do them: I am the LORD.) (John 14:23 Jesus answered and
+said unto him, If a man love me, he will keep my words: and my Father will
+love him, and we will come unto him, and make our abode with him.)
+
+The first time the phrase "according to the word of the LORD" is
+found in scripture is in Numbers 3:16 when God commands Moses to number
+the children of Levi and Moses obeys God's word. (Numbers 3:16 And Moses
+numbered them according to the word of the LORD, as he was commanded.)
+Many times Moses obeyed God by doing according to the word of the LORD.
+(Numbers 3:51 And Moses gave the money of them that were redeemed unto
+Aaron and to his sons, according to the word of the LORD, as the LORD
+commanded Moses.) (Numbers 4:45 These be those that were numbered of the
+families of the sons of Merari, whom Moses and Aaron numbered according to
+the word of the LORD by the hand of Moses.)
+
+After the children of Israel divided their inheritance, they obeyed
+God's word and gave a city to Joshua. (Joshua 19:50 According to the word
+of the LORD they gave him the city which he asked, even Timnath-serah in
+mount Ephraim: and he built the city, and dwelt therein.) Jeremiah did as
+God said when he got a linen girdle and put it upon his loins. (Jeremiah
+13:1-2 1 Thus saith the LORD unto me, Go and get thee a linen girdle, and
+put it upon thy loins, and put it not in water.
+2 So I got a girdle according to the word of the LORD, and put it on my
+loins.) Jonah did according to the word of the LORD and preached to his
+enemies in Nineveh where they repented and God spared the city from
+destruction for many years. Many people were saved who would not have been
+if Jonah had not done according to the word of the LORD. Jonah did not
+originally want to obey, but he did finally obey. Let this be a lesson to
+Christians that by disobeying God we may cost the salvation of people
+because we refused to go preach to them. God would also rather have a
+Jonah who refused at first, but then repented and obeyed than a person who
+says he will obey, but never does. See the two sons parable in Matthew
+21:28-31. (Matthew 21:28-31 ¶ But what think ye? A certain man had two
+sons; and he came to the first, and said, Son, go work to day in my
+vineyard.
+29 He answered and said, I will not: but afterward he repented, and went.
+30 And he came to the second, and said likewise. And he answered and said,
+I go, sir: and went not.
+31 Whether of them twain did the will of his father? They say unto him,
+The first. Jesus saith unto them, Verily I say unto you, That the
+publicans and the harlots go into the kingdom of God before you.) (Jonah
+3:2-3 Arise, go unto Nineveh, that great city, and preach unto it the
+preaching that I bid thee.
+3 So Jonah arose, and went unto Nineveh, according to the word of the
+LORD. Now Nineveh was an exceeding great city of three days' journey.)
+Just as these people obeyed according to the word of the LORD, we need to
+do the same.     
+
+God will honour those who are obedient according to his word by doing
+according to their word when they ask. God did according to the word of
+Moses many times when he prayed to God because Moses was God's man.
+(Exodus 8:11 And the frogs shall depart from thee, and from thy houses,
+and from thy servants, and from thy people; they shall remain in the river
+only.) (Exodus 8:13 And the LORD did according to the word of Moses; and
+the frogs died out of the houses, out of the villages, and out of the
+fields.) (Exodus 8:29 And Moses said, Behold, I go out from thee, and I
+will intreat the LORD that the swarms of flies may depart from Pharaoh,
+from his servants, and from his people, to morrow: but let not Pharaoh
+deal deceitfully any more in not letting the people go to sacrifice to the
+LORD.) (Exodus 8:31 And the LORD did according to the word of Moses; and
+he removed the swarms of flies from Pharaoh, from his servants, and from
+his people; there remained not one.) Mary was told by the angel Gabriel
+that things would happen according to his word which was spoken to her
+according to the word of the LORD. Mary understood that the words of the
+angel were actually the words from God about her upcoming pregnancy and
+birth of her Saviour and Messiah Jesus and she was willing to be obedient.
+God answered Mary by having her get impregnated by the Holy Ghost. (Luke
+1:35 And the angel answered and said unto her, The Holy Ghost shall come
+upon thee, and the power of the Highest shall overshadow thee: therefore
+also that holy thing which shall be born of thee shall be called the Son
+of God.) (Luke 1:38 And Mary said, Behold the handmaid of the Lord; be it
+unto me according to thy word. And the angel departed from her.)
+
+We see from these examples how it will come to pass according to the
+word of the LORD and how we should obey God when he tells us to do
+something according to his word since it will come to pass and we are to
+obey God. God will honor those who obey him. The best way a person can
+obey God is by admitting they are a sinner and calling upon his Son Jesus
+to be their Saviour. Many great men have obeyed God by answering his call
+to be preachers and missionaries. Many have made great sacrifices for God
+for which they will be greatly rewarded in heaven. For a person and
+especially a Christian to do according to the word of the LORD, everyone
+must read and study scripture every day. You cannot do according to the
+word of the LORD if you do not know the word of the LORD. We need to try
+and memorize God's word so we will not forget it. Meditating on God's word
+will help you not forget it. (Psalm 119:148 Mine eyes prevent the night
+watches, that I might meditate in thy word.) (Psalm 119:15-16 15 I will
+meditate in thy precepts, and have respect unto thy ways.
+16 I will delight myself in thy statutes: I will not forget thy word.) The
+Holy Ghost will bring scripture back to you if you have memorized it.
+(John 14:26 But the Comforter, which is the Holy Ghost, whom the Father
+will send in my name, he shall teach you all things, and bring all things
+to your remembrance, whatsoever I have said unto you.)
+
+Obeying God's word is not just for people, but for nations as well.
+We the United States of America and all nations need to bless Israel just
+as he says or according to his word we will be cursed. (Genesis 12:3 And I
+will bless them that bless thee, and curse him that curseth thee: and in
+thee shall all families of the earth be blessed.) (Genesis 27:29 Let
+people serve thee, and nations bow down to thee: be lord over thy
+brethren, and let thy mother's sons bow down to thee: cursed be every one
+that curseth thee, and blessed be he that blesseth thee.) We as a nation
+have seen this in the past both being blessed and cursed by God depending
+on whether we obey or disobey God's word. Our nation is collapsing due to
+not doing according to God's word. Murder and other crimes are rampant
+throughout the nation as is disrespect to authority and parents. America
+has become lazy when God says to work. America is becoming a socialist
+nation. God will not bless a nation that is doing the things America is
+doing. Let us pray for our nation and leaders to turn back to God and do
+according to the word of the LORD.  
+
+Let us cry unto the LORD as the psalmist did in Psalm 119:169 so that
+he will give us understanding to do according to his word. God's word says
+he will to those who ask. (Psalm 119:69 Let my cry come near before thee,
+O LORD: give me understanding according to thy word.) (James 1:5 If any of
+you lack wisdom, let him ask of God, that giveth to all men liberally, and
+upbraideth not; and it shall be given him.) God will do according to his
+word in the future tribulation and let us pray that we do according to his
+word by telling others about Jesus before it is eternity too late. Just as
+God, I do not wish that any should perish nor wish the tribulation, hell,
+and the lake of fire on anyone. (II Peter 3:9 The Lord is not slack
+concerning his promise, as some men count slackness; but is longsuffering
+to us-ward, not willing that any should perish, but that all should come
+to repentance.) I pray that all here today and those who are listening
+feel the same way. For those who may be listening who are not saved,
+please call upon Jesus for salvation today.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

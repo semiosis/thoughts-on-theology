@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,805 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Freemasonry is Satanism in Disguise
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Freemasonry is Satanism in disguise and a false religion. Freemasonry
+is definitely a religion, even the Roman Catholic Church agrees. You see
+athletes, movie stars, rock and roll singers, politicians, judges, and
+many others flashing their Freemasonry signs. Criminals will often get off
+if the judge is a brother Freemason. Many business owners are Freemasons
+so they can have great success and get rich. Most funeral homes are owned
+by Freemasons so they have access to bodies for secret satanic rituals.
+Many cops and physicians are also Freemasons. Many Jews are Freemasons.
+Why would non-Christians join a "Christian" organization? It is because it
+is not Christian.  People of all religions may join as long as they
+acknowledge a supreme being. Freemasons are usually just called Masons.
+Their symbols are everywhere such as the square and compass stickers on
+cars and throughout our city buildings. Most people do not see Freemasonry
+as a religion, but just a bunch of good old boys helping children or other
+causes with the Shriners and other such things. These causes are just the
+cover up to appear as good people, but in reality they worship Satan. No
+Christian should be a Freemason or support any of their causes even if you
+think you are doing it for the children. Do not support Satan or condone
+his work. You can help children in other ways if that is your concern.
+Nearly every politician in the world is a Freemason as are most in
+Hollywood, singers, and athletes. Freemasonry along with the Vatican is
+responsible for the coming New World Order. The leaders of Freemasonry are
+helping the pope to be the leader of the New World Order.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+Freemasonry was started by the Roman Catholic Church on June 24, 1717
+in England, supposedly in a pub. Many Masons claim that it has been around
+much longer and is mentioned in the Bible in Genesis 11:3 at the tower of
+Babel. The word mason is never used here but talks of making bricks.
+Masons as a job is a real job. This is people who do brick work and are
+not necessarily Freemasons and it is these workers that scripture is
+referring to, not Freemasons. I have heard professing Christians who use
+this verse, including a Baptist deacon, to try and justify that it is ok
+to be a Freemason when it is not. All seven uses of the word mason in
+scripture refer to the job and not the false religion of Freemasonry. Many
+Masons also claim Freemasonry traces back to king Solomon. Freemasonry was
+started as a secret way to start working on bringing in the New World
+Order. Its purpose from the beginning has always been evil, but they
+outwardly appear as good people and that was done intentionally in order
+to deceive people to be able to secretly set up the New World Order
+without anyone suspecting them. The Roman Catholic Church for many years
+publicly forbad any Roman Catholic from being a Freemason as they did not
+want the lay Roman Catholic to know what really was going on behind closed
+doors. The reality is that most if not all popes since the founding as
+well as most cardinals and many bishops have all been Freemasons. The pope
+will one day be set up as the antichrist with help from the Freemasons
+which was the sole purpose of creating them. The top Freemasons give
+secret orders to world leaders and tell them what to do such as attack
+nations, get rid of someone, or what laws to pass. The current plandemic
+was started by the Freemasons with the sole purpose of preparing the
+people to be obedient to the government at all costs and to obey them.
+This was why they wanted the masks and social distancing as well as the
+mandatory vaccine in order to get people used to doing what they were
+told. The use of masks and the six foot social distance all have
+connections to Satan. Satanists often wear a mask to hide from Satan and
+the six feet is connected to the number of the beast. This is why at the
+beginning of the plandemic, there was people wanting the social distance
+to be 15 feet apart or other numbers, but the governments insisted on six
+feet since this is connected to Satan. It had nothing to do with the
+health of people. This is why they also forced people to wear masks when
+there was absolutely no need to and in fact increased the infection rate
+by those who wore them. The governments ignored true science. The
+mandatory vaccine is preparing people for the soon coming mark of the
+beast so that they will not question the government "who knows best".
+Freemasonry is behind most of the laws bringing in socialism not only here
+in the United States of America, but also around the world.
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+I said Freemasonry is a religion. Masons worship in Masonic temples
+that are found around the world. The Jews had the temple and Hindus and
+other religions also worship in temples. If it is not a religion, then why
+would you call your building were you gather a temple? Many people usually
+refer to the building as a lodge, but this is incorrect as the building is
+a temple and the people gather together as a lodge at the temple. Each
+local lodge is under a Grand Lodge. Inside the temple or lodge you will
+usually find a large family size King James Bible and it will be opened to
+show the appearance that Freemasons are Christians. This is meant to
+comfort any new converts. It will sit there and not be used. The King
+James Bible is used by Satan since he knows it is the true word of God and
+this is done as a way to blasphemy and desecrate the word of God. Many
+professing Christians are Freemasons and the church wonders why it cannot
+have revivals. The Southern Baptist Convention did a study in 1993 and
+found that Freemasonry was not compatible with Christianity yet the coward
+leaders refused to prohibit its members from being Freemasons or condemn
+those who were and kick them out as a large percentage of the Southern
+Baptist preachers were and still are Freemasons. Besides most preachers
+being Freemasons, many of the deacons as well as the general member are
+also Freemasons. With such a high percentage of Freemasons and especially
+among the leaders, no wonder the Southern Baptists have so many problems.
+I have preached at Southern Baptist churches and have mentioned the evil
+of Freemasonry and I was not sure I would not be stoned to death. Needless
+to say I was never invited back to preach at those churches again. It is
+sad and a disgrace that so many preachers are so spiritually blind to the
+satanic connection of Freemasonry as are most members of the church that
+they would rather have you bad mouth Jesus than Freemasonry. Many of these
+same pastors vote Democrat to support these evil leaders. Even those
+pastors who do not belong to Freemasonry, most do not see anything wrong
+with it or are gutless to say anything about it if they do, especially
+Southern Baptist pastors since so many are Freemasons. One study estimated
+at least 37% of all Freemasons in America are Southern Baptists. This
+shows how much Satan has been influencing the church as Southern Baptists
+are one of the denominations that are closer biblically to scripture than
+most denominations. Satan and Freemasons do not care as much about the
+other denominations as in many churches Satan already controls the
+leaders. God will never bless a church where the pastor and/or deacons are
+Freemasons. (II Corinthians 6:14-17 Be ye not unequally yoked together
+with unbelievers: for what fellowship hath righteousness with
+unrighteousness? and what communion hath light with darkness?
+15 And what concord hath Christ with Belial? or what part hath he that
+believeth with an infidel?
+16 And what agreement hath the temple of God with idols? for ye are the
+temple of the living God; as God hath said, I will dwell in them, and walk
+in them; and I will be their God, and they shall be my people.
+17 Wherefore come out from among them, and be ye separate, saith the Lord,
+and touch not the unclean thing; and I will receive you,)
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+Freemasonry is a secret society that only those who are invited may
+attend. You do not just go to a lodge (Masonic Temple) and walk in
+uninvited and say I want to find out what you teach. No secret societies
+allow this. When I was ordained anyone was allowed to come to it and see
+it, but when a Freemason gets his initiation ceremony to the next level no
+one is invited unless you are invited by the person and even then the
+people attending must be Freemasons of at least the same level or above
+that the person the ceremony is being held for is being initiated into.
+For example, if someone is being initiated to become a 32 degree Mason,
+then those attending must be at least a 32nd or 33^rd degree Mason. No
+Mason lower can attend as these levels are secret to all of those below.
+No one knows what will happen at their ceremony as it is secret. I knew
+exactly what was going to happen at my ordination ceremony. God condemns
+secret societies and all secret societies are up to no good or else they
+would not be secret. If the Freemasons were truly Christians as many
+believe then they would allow anyone in just as anyone is welcome to come
+hear me preach or they can listen to my sermons online. My beliefs are
+fully made public whereas the true beliefs of Freemasons are secret and
+even most Freemasons do not know as only the top level or levels know the
+truth. All Freemasons are required to make a profession of a God, yet it
+is never specified what God. In fact Freemasons refer to God as the Great
+Architect of the Universe which is pure blasphemy. This is done since many
+religions are Freemasons and this way no one offends their god and this is
+also done to get weak Christians or Christians in name only to join. This
+way all can still pray to their god. The god of Freemasonry is not the God
+of scripture. God said we cannot worship him and heathen gods at the same
+time. (I Corinthians 10:20-22 But I say, that the things which the
+Gentiles sacrifice, they sacrifice to devils, and not to God: and I would
+not that ye should have fellowship with devils.
+21Ye cannot drink the cup of the Lord, and the cup of devils: ye cannot be
+partakers of the Lord's table, and of the table of devils.
+22 Do we provoke the Lord to jealousy? are we stronger than he?) These
+verses are clear that a Christian cannot be worshipping God and also be
+worshipping the god of Freemasonry at the same time. God will never
+approve of such a thing. A few verses are sometimes read in a lodge
+meeting for some ceremonies, but as a rule the Bible is not read. No one
+is allowed to talk any religion in the lodge and especially is forbidden
+to mention the name of Jesus as Freemasons hate Jesus, therefore any true
+Christian that is in there is forbidden from witnessing and leading people
+to Jesus. Jesus is sometimes mentioned at the lowest levels to once again
+deceive the newcomers. Once they move up the ranks and are committed then
+Jesus becomes much less important. Those inside will often become non soul
+winners as they feel it is more important to obey the lodge than they do
+God. Freemasons are not to try and win souls outside of the lodge either.
+When a person joins they must take an oath denying Jesus. They are asked
+"Who comes here?" and they respond I'm in darkness and I want to be
+brought to light". Jesus is the light of the world and a Christian is
+denying this and saying Satan is the light and Jesus is darkness. Satan is
+the darkness, not the light. (John 8:12 ¶ Then spake Jesus again unto
+them, saying, I am the light of the world: he that followeth me shall not
+walk in darkness, but shall have the light of life.) (John 12:46 I am come
+a light into the world, that whosoever believeth on me should not abide in
+darkness.) (Acts 26:18 To open their eyes, and to turn them from darkness
+to light, and from the power of Satan unto God, that they may receive
+forgiveness of sins, and inheritance among them which are sanctified by
+faith that is in me.) (Ephesians 5:8-13 For ye were sometimes darkness,
+but now are ye light in the Lord: walk as children of light:
+9 (For the fruit of the Spirit is in all goodness and righteousness and
+truth;)
+10 Proving what is acceptable unto the Lord.
+11 And have no fellowship with the unfruitful works of darkness, but
+rather reprove them.
+12 For it is a shame even to speak of those things which are done of them
+in secret.
+13 But all things that are reproved are made manifest by the light: for
+whatsoever doth make manifest is light.) Jesus said if you deny me, I will
+deny you before the Father. (Matthew 10:33 But whosoever shall deny me
+before men, him will I also deny before my Father which is in heaven.) I
+do not see how anyone who professes to be a Christian can be a Freemason
+especially at the highest levels as at those levels it is no longer hidden
+that for Freemasons Satan (Lucifer) is their god. I believe many of those
+in the church who are Freemasons are nothing more than wolves in sheep's
+clothing and are not true Christians or at the very least are very weak
+Christians. Freemasons always put being a Mason before Jesus and being a
+Christian. They will be faithful to attend the lodge, but not the church
+and faithful to pay the lodge their annual dues, but will not tithe the
+church. Those wishing to join Freemasonry also pay an initiation fee that
+is higher than the annual fee. No money is required to join a church.  
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+Freemasonry is a religion that is full of occult symbols including on
+its temples. In reality the god of Freemasonry is Satan who they refer to
+as Baphomet, the goat god. This is only known at the highest levels. A
+good video on the religion and evil of Freemasonry is the YouTube video
+X-Factor Winner Reveals World's Secret Religion by a former 33 degree
+Freemason who got saved and is now trying to warn the world about the
+deception and evil of Freemasonry. He knows he is risking his life by
+revealing the truth about Freemasonry as all Freemasons take an oath under
+threat of death to never reveal the secrets of Freemasonry. Why would a
+Christian take such an oath? Satanism is the open worship of Satan,
+whereas Freemasonry is the secret or hidden worship of Satan. Freemasonry
+is the public version of Satanism that is used to deceive the world and to
+do the behind the scenes things necessary to bring in the New World Order.
+It is also used to bring in money. Freemasonry is witchcraft and in fact
+Masonry often refers to the craft. They say this means the stone building
+done by masons, but in reality refers to witchcraft as craft is the
+shortened term for witchcraft. Witches themselves say they are masters of
+the craft.
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+Freemasonry is the main umbrella for many organizations. Freemasonry
+is for men only with the Eastern Stars for women. DeMolay is the
+organization for young males ages 12-21 that prepares you for becoming a
+Freemason. DeMolay is named after the last Grand Master of the Knights
+Templar that was a Roman Catholic military organization for the Papal
+States that fought in the Crusades during the Dark Ages and was a satanic
+organization that was heavy into the occult and worship of Satan, yet we
+see the DeMolay is named after its leader. A Christian organization should
+get as far as it could from such a connection yet I have seen many
+Southern Baptists who flocked with glee to the DeMolay ice cream stand at
+Homecomers to buy the ice cream at all costs even when told the truth
+about Freemasonry. Homemade ice cream before Jesus. Such a disgrace. Job's
+Daughters is the equivalent for girls ages 10-20 before going into the
+Eastern Stars. A similar Masonic order for girls for the same ages of
+10-20 is Rainbow Girls that follows the Scottish Rite. Freemasonry claims
+to be Christian, yet they allow in any of these groups people of any
+religion. The only thing is that the person must believe in a Supreme
+Being. This shows it is not Christian. They also require believing in a
+Supreme Being so that if a Freemason reaches the top level they will be
+ready to worship Satan or Lucifer as they call him. Satanists have less
+respect for atheists than they do Christians as Christians at least
+believe in God though not the same god as Satanists. Satanists and top
+level Freemasons know that Satan is real as is the spiritual world. No
+Christian should be a member of any of these organizations or support them
+in any way whether monetarily or otherwise. By doing so you are supporting
+the work of Satan and the coming New World Order. Many say their uncle,
+dad, brother, or other relative was a Mason so it is ok. It is not and
+this is not an excuse. This includes supporting the Shriners who are
+another arm of the Freemasons. The Ancient Arabic Order of the Nobles of
+the Mystic Shrine or Shriners as they are normally referred to as runs the
+Shriners Hospitals for Children, a total of 22 of them. They also do other
+social programs. Do not donate to the hospitals just because you feel for
+the children. God will take care of the children without Christians and
+churches donating money to them and supporting a satanic group. I know of
+churches, including Southern Baptist churches, that donate to the Shriner
+hospitals. Do not do it and be a part of it. These activities are only
+being done by the Freemasons to appear as good guys. This is similar to
+the evil Hell's Angels biker gang that donates teddy bears to children and
+who seem to be nice guys but are evil men who sell drugs and hurt cops. Do
+not trust an organization just by their appearance, but find out what they
+really believe and stand for. If they hate Jesus as Freemasonry does, then
+definitely avoid them. A person must be at least a third degree Mason
+(Master Mason) before being allowed to join the organization. The
+Shriner's as all Freemason groups is a secret society. The Shriner's wear
+a red fez hat that has a crescent moon on it. This hat is normally kept
+under a glass cover when it is not being worn. This is nothing more than a
+shrine to the Muslim god Allah. As you saw in my series on the False
+Religion of Islam, Allah was the moon god of Mohammed's family and that is
+why the crescent moon is the symbol for Islam. The Roman Catholic Church
+started Islam and the crescent moon is also seen in Roman Catholicism in
+her monstrance, the device used to hold the Eucharist so that it can be
+paraded around and worshipped. The order's name even says Ancient Arabic
+Order. This connection to Islam shows how the Roman Catholic Church
+started Islam just as she did Freemasonry. The crescent moon here is
+nothing more than a symbol of a false god. In order for a Freemason to
+become a Shriner they must swear a Muslim oath with their hand on a Koran
+(Qur'an), the holy book of Islam. All of these various organizations make
+up Freemasonry. There are other organizations that are connected to
+Freemasonry and under the umbrella of Freemasonry though they are more
+secretive and not as directly connected. One such group is the Illuminati,
+another group started by the Roman Catholic Church who are the evil behind
+the scene Satanists who are setting up the New World Order with its one
+world government, one world religion, and one world bible for that
+religion. This is why there are so many corrupt bible versions and so much
+anti-King James Bible hatred is pushed even by Southern Baptists and other
+professing Christian denominations. The Illuminati has been behind many
+wars in history including the French Revolution with the sole purpose to
+remove God from France. The Freemasons are behind the Woke, LGBTQ,
+feminism, Black Lives Matter, and other satanic destructive movements not
+only here in the United States of America, but throughout the world.
+Freemasonry as all false religions says that your good works will get you
+to heaven or the big lodge in the sky as Freemasons refer to heaven as.
+This is a lie. Scripture says that we are saved by grace through faith and
+not by our works. (Ephesian 2:8-9 For by grace are ye saved through faith;
+and that not of yourselves: it is the gift of God:
+9 Not of works, lest any man should boast.) Wicca is another under the
+umbrella of Freemasonry. Freemasonry and all of its subordinates have been
+behind the satanic New Age Movement which is under the New World Order.
+The Ku Klux Klan was founded by Freemasons as well as many other
+disgraceful organizations. Freemasonry makes King James Bibles with the
+Masonic symbol of the compass and square on the cover and then Masonic
+notes inside. This is once again to deceive the lower ranking Freemasons
+into believing that Freemasonry is Christian when it is definitely not. It
+is as far from it as you can get. Freemasonry in one way takes from all
+religions, but especially from the ancient Babylon religion. Freemasonry
+is basically modern Baal worship under the name Baphomet. When a Christian
+joins this dark satanic organization, he opens up the satanic spiritual
+world into his home and life.
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+Freemasonry consists of two main rites that Masons can take on their
+path to the top. There are slight differences between the two rites. These
+two rites are the Scottish Rite and the York Rite. Both rites consist of
+33 degrees with different titles for the Mason depending on the rite. A
+Freemason starts out as a first degree and then proceeds to 33^rd degree.
+Most Freemasons never go beyond the third degree. A third degree Freemason
+is known as a Master Mason. The first three levels in both rites are
+referred to as the Blue Lodge or occasionally as the Craft Lodge. At these
+levels they do not yet know the truth about how Satan is the true god of
+Freemasonry, but there are still enough signs that a spiritual seeing
+Christian should know to get out. The full truth of Freemasonry is only
+known to those at the top 33^rd degree and possibly the 32 degree. At
+these levels, full blown satanic rituals, ceremonies, and worship is done.
+Some say they start to learn some of the truth at the seventeenth level
+and know by the thirtieth degree. As part of entering the 33^rd degree
+initiation, the candidates must pay a large amount of money. I do not see
+how someone can get to 32^nd degree and still profess to be a Christian. I
+think most if not all are truly not Christians. Those at 33^rd degree are
+definitely not despite what they say or how they fool you. Few make it to
+the top, but more than you think. Many people we often may think of as
+nice, helpful people are really secret Satanists. Upon joining the lodge
+as well as at each level that you go up, there are secret initiation rites
+that are done to you before you can enter. God forbids such things and
+some of the things done especially at the higher levels include sacrifices
+and much blood and all involve sexual innuendo or other sexual
+connections. Freemasonry contains much witchcraft in it. Freemasons are
+required to take an oath to never reveal what goes on inside the lodge
+under penalty of a torturous death. Why would a Christian take such an
+oath? Freemasons refer to each other as brothers just like Christians do
+to another Christian. Freemasons claim there are 33 degrees because the
+33^rd degree represents the head sitting on the 33 vertebrae in the spine.
+The real reason for having 33 degrees and no more is to represent the one
+third of the angels that rebelled with Lucifer. One third is 33.3 percent.
+(Revelation 12:3-4 And there appeared another wonder in heaven; and behold
+a great red dragon, having seven heads and ten horns, and seven crowns
+upon his heads.
+4 And his tail drew the third part of the stars of heaven, and did cast
+them to the earth: and the dragon stood before the woman which was ready
+to be delivered, for to devour her child as soon as it was born.)
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+I mentioned previously how the god of Freemasonry is Baphomet.
+Baphomet is represented as the goat god. Goats have long been associated
+with Satan. Baphomet is on the tarot card labeled for The Devil. This
+shows Baphomet is meant to represent Satan. Tarot cards are used by
+witches and others as a form of divination which God condemns. Baphomet is
+portrayed with his right hand up flashing the two finger salute of the
+index and middle fingers, the "peace sign" which was intentionally changed
+to the "peace sign" to deceive people. Baphomet's left hand is pointing
+down. Freemasons say this represents the phrase "as above, so below" which
+refers to Satan who once was in heaven and was cast out to earth will
+supposedly rule both places one day. It also means what happens in heaven
+also affects what happens here on earth. This phrase is actually in the
+Message bible as part of the Lord's Prayer in Matthew.
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+The holy book of Freemasonry is Morals and Dogmas of the Ancient and
+Accepted Scottish Rite of Freemasonry written by Albert Pike in 1871 who
+was a 33^rd degree Mason and Sovereign Grand Commander of the Supreme
+Council, Scottish Rite, Southern District. In The Morals and Dogmas as it
+is usually shortened to, it was Albert who instituted most of the
+traditions and rituals of Freemasons. He is considered the Freemason for
+interpretation of Freemasonry and his word is considered as if spoken by
+God. Another important book in Freemasonry is A Bridge to Light by Rex
+Hutchens, 33° Freemason that is basically a condensed version of Morals
+and Dogmas. Notice how this book will lead you to the light. I have
+already mentioned how as a Christian we already have light and have no
+need to reach it and that the light of Freemasonry is really the darkness
+of Satan masquerading as light. Joseph Fort Newton is another important
+Freemason. He was a Southern Baptist preacher who later also preached in
+many other denominations such as Universalist, Episcopal, and Christ
+Church. Universalists believed that all people got saved. Masonic bibles
+have some of Newton's writings in them. One such writing by Newton says
+that Masons are to revere the Muslim Koran as well as the Hindu books
+considered holy by them and these are equal to the Bible. Does this match
+with Christianity? I think not. Twenty four pages in the Masonic bible are
+dedicated to quotes by Albert Pike. Albert Pike is considered probably the
+top Freemason and he is well known for his love for Satan. How can a
+Christian be a part of such an organization?
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+When it comes to the meaning of Freemasonry symbols, most if not all
+have dual meanings. The Freemasons for some symbols have given official
+meanings though these meanings are lies and they are only the public
+meanings to hide the truth. Many are never mentioned. Sex is prevalent
+throughout Freemasonry symbols. Freemasons claim no one Mason can speak
+for all and so what one says it means does not necessarily mean all
+believe it according to the official report. They also say that all
+Freemasons are free to interpret the symbols in whatever way they want to.
+This is not true, but another deception to hide the true meanings as what
+Albert Pike said is considered the pattern for all Freemasons to follow.
+Freemasonry contains a huge amount of symbols and we will only be looking
+at a few. As Christians we have no need for all kinds of secretive symbols
+and God condemned such use and God certainly condemned witchcraft and even
+said a witch was to be killed by the Israelites. (Exodus 22:18 ¶ Thou
+shalt not suffer a witch to live.) The main symbol for Freemasonry is the
+square and compass with the letter G in the middle. This is found not only
+on Masonic temples, but on vehicles of Freemasons and on many government
+buildings as well as Mormon temples and other places. Many Masons wear a
+ring with this on it and baseball caps showing their allegiance to
+Freemasonry. Most say the G stands for God, meaning any god that the
+Freemason wants it to stand for. This lie is even told to the lowest ranks
+of Freemasonry. It is only as you progress higher in ranks that you learn
+the true meaning behind many of the symbols and some only at the top
+level. Why would a Christian belong to an organization that has no problem
+lying to them and deceiving them? Albert Pike himself said in his Morals
+and Dogmas that the symbol really represents the sex act between a male
+and female with the compass being the male and the square the female with
+the G in the middle standing for "generative principle" meaning the sex
+act. Nearly every symbol in Freemasonry has a connection to sex. The
+circle with a dot is another example with the circle representing the
+female and the dot the male. This circle can be seen in many building
+designs such as the Vatican with an obelisk in the middle as the male
+part. The same is also seen at the Washington Monument if you look at it
+from the air.  In the case of the Washington Monument there are two
+circles around the monument that represent the male testicles. These
+walkways were not there originally. The obelisk is often seen in
+Freemasonry and represents the male sexual organ (penis). The Egyptians
+built obelisks and it was to represent the penis of the Egyptian god
+Osiris. The Egyptian connection is also seen in how the Vatican took an
+Egyptian obelisk apart and placed it in St. Peter's Square after
+rebuilding it. The pyramid is another symbol associated with Egypt and
+Freemasonry. Many famous people can be seen making the symbol of a pyramid
+with their hands. Many hand signs that are flashed by Freemasons are to
+let another person who may be a Freemason know that they are a Freemason.
+Most people are ignorant to what these people are doing or they just think
+they are being silly. The pyramid is seen on all kinds of buildings and in
+many places. Even the pattern of stars on objects may form a pyramid or
+the layout of streets. The uncompleted pyramid with the all seeing eye can
+be seen on the back of the U.S. one dollar bill. This represents the
+unfinished work to be done by Satan and Freemasons. Satan in Freemasonry
+is known as the capstone or occasionally the coping stone which is the top
+stone on a building. They also use the term keystone for the central stone
+of an arch. These terms can be found in most modern bibles in place of
+cornerstone. The cornerstone is the first stone in a building upon which
+all other stones are built. Jesus is the cornerstone upon which we must be
+built upon, yet Freemasons have Satan on top of everyone. This shows who
+they really worship. (Ephesians 2:20 And are built upon the foundation of
+the apostles and prophets, Jesus Christ himself being the chief corner
+stone😉 People have rejected Jesus including Freemasons. (Mark 12:10 And
+have ye not read this scripture; The stone which the builders rejected is
+become the head of the corner:) The all seeing eye above the unfinished
+pyramid represents Satan as the coming capstone and the completion of the
+pyramid. The U.S. government has long been connected to Freemasonry.
+Freemasons say the all seeing eye represents God, but in reality they know
+they believe it represents Satan or Lucifer as they call him. They believe
+Lucifer is the true light, but scripture says he only masquerades as light
+and in reality is darkness, with Jesus being the true light. (II
+Corinthians 11:14 And no marvel; for Satan himself is transformed into
+an angel of light.) The phrase Novus Ordo Seclohum found on the Great Seal
+of the United States of America and on the back of the dollar bill under
+the unfinished pyramid is Latin and means "New World Order". The purpose
+of Freemasons has been in our Great Seal from the beginning and is still
+found on the dollar bill. When they redesigned our money they did not
+change the dollar bill as they needed to keep this here.  
+
+Some other symbols commonly seen are the upside down cross and the
+double headed eagle. Roman Catholics will tell you the upside down cross
+represents Peter being crucified upside down, but any Satanist will tell
+you that it is meant as a mockery of Jesus and blasphemy. The double
+headed eagle can be seen in many places including baseball hats.
+Freemasons will say this symbol represents empire such as this was the
+symbol of the German Empire and is still prevalent in Germany today. The
+reality is that the double headed eagle is not really two eagles but
+actually represents the Phoenix, which was a mythological bird that was
+reborn from ashes. When a Freemason is initiated initially they are said
+to be "born again", only they are born again to Lucifer. We saw how cults
+all had a different definition for being "born again" than what scripture
+says of being born again and so does Freemasonry. Scripture says being
+born again is when a person gets saved by asking Jesus to be their
+Saviour. Satan knows the importance of being born again so he has his own
+version of it as he always copies Jesus. President George H. W. Bush who
+was a Freemason and was a member of the Skull and Bones, which is a
+subgroup of Freemasonry and a satanic organization, was asked by Barbara
+Walters in 1988 while campaigning for president if he was a Christian. He
+put his head down and then said "If by being a Christian, you ask if I am
+'Born Again', then yes, I am a Christian", but he was referring to his
+Masonic rebirth and not speaking as a Christian. Neither him nor his son
+are true Christians even though George W. Bush says he is, but he too
+belonged to the same two organizations and once said when he visited the
+pope, it was like looking into the eyes of God. George H.W. Bush
+participated in a satanic black mass at the Vatican while president. The
+hexagram is another commonly seen symbol in Freemasonry and consists of
+two triangles with one upside down making six points. This is the same as
+the Star of David of Judaism or it is also seen with the lines
+intertwining. The hexagram represents the water and fire triangles
+intertwined and is the most common symbol used by witches and some witches
+say the hexagram is necessary for contacting devils for casting spells.
+This symbol is used for contacting devils. Many Freemasons as well as open
+Satanists will make the sign of the devil's horns or as it is sometimes
+referred to as il cornuto (Italian for the horned), El Diablo (Spanish for
+the devil) or devil's salute. This is commonly seen by rock stars,
+athletes, politicians including all or nearly all modern presidents, movie
+stars and others. These are the horns of Baphomet who represents Satan.
+Many will try to say this represents the sign for Texas longhorn fans, but
+it is not. Do not be fooled. Many will also say it is the sign language
+sign for "I love you". The sign language sign was intentionally made
+nearly the same as the devil's horn sign as the inventor Helen Keller was
+a Satanist and she was telling Satan she loved him. Just as many people
+flash the devil's horn sign, many will also flash the 666 sign with their
+hand by forming three sixes by touching the thumb and index finger
+together and spread the other three fingers to make a six. Olympic
+athletes can be seen doing this. They will also do the hidden hand sign by
+sticking their hand quickly into a jacket or something else. Watch
+politicians again, including presidents and world leaders and you will see
+many of them flashing these signs. Even the pope has flashed some of
+these. These people will also cover one eye with a hand or some object to
+represent the all seeing eye of Satan. Often times during Masonic ritual
+ceremonies or other times of public Masonic events, Freemasons are seen
+wearing an apron. I already mentioned how especially on the highest
+ranking Masons the amount of occult symbols on them. These aprons wrap
+around the waist and cover the male private area. Masons are given this
+when they join and are told it represents innocence, but in reality has a
+satanic sexual connection to ancient gods and is used to intentionally
+cover the male private parts. The apron is usually made of lamb's skin and
+is said to represent the fig leaves worn by Adam and Eve. God did away
+with the fig leaves and replaced their leaves with the skin of a lamb and
+the blood shed from that lamb represented the future shed blood of Jesus
+as the passover lamb at the cross of Calvary. Freemasonry denies the work
+of Jesus at the cross by saying that the apron represents the fig leaves
+and works for salvation instead of by Jesus. The pentagram is the upside
+down five pointed star that represents the horns of Baphomet and is
+commonly seen by Freemasons and Satanists. This is also the symbol of the
+Eastern Stars. They will try and claim this represents the star of Jesus
+in Bethlehem from Matthew 2:2, but it is not and if so then why is it
+upside down?  The King James Bible also says "star of the east" and not
+eastern star.
+
+Shriners who are 32 degree will often wear a Shriner Pin which is a
+crescent moon and a scimitar (Muslim sword). Why would a "Christian"
+organization represent Islam? Master Masons will often wear what is known
+as the Tubalcain Pin or two ball pin. Tubalcain was the descendant of Cain
+and most if all were ungodly people so why name a pin after him? This was
+done intentionally to support their sex god as the pin consists of an
+upside down golf club with two balls, one on each side and is meant as a
+reference to the male reproductive organs. This pin is worn by Masons who
+do not want other people knowing they are Masons and many wear them to
+church. How disgraceful.
+
+Freemasons will shake hands if possible to try and identify another
+Mason. They will take the thumb and put pressure between the space of the
+second and third fingers and another Mason will then know this man is a
+Mason. In a place such as a courtroom where you cannot shake hands, they
+will ask a judge if they can come forward to talk to him and they have a
+special way to walk to identify as a Mason. Other things Masons will do is
+use codes words or phrases when visiting a business and if the businessman
+is a fellow Mason he will understand and will often give the item to the
+Mason at cost. The same applies in court where the judge will either free
+the inmate or at least greatly reduce his sentence. Another thing done in
+court at times in desperation is the Grand Hailing Sign where the Mason
+puts up his hands as if caught by the police or similar to the goalposts
+in football and then says a phrase that a fellow Mason would understand.
+Often times if the jurors are Masons they will find the person not guilty
+or create a hung jury as a Mason is bound by a blood oath to help their
+fellow Mason. There are many other hand signs and language used by Masons
+to identify brother Masons as well as many, many more symbols than those I
+mentioned. It would take a big book to even attempt to show all of
+Freemasonry's occult symbols and secret sayings. I have just given some of
+the more common ones. Many companies contain these and other satanic
+symbols in their logos without most people even realizing it including all
+of the major companies.
+
+The leader of a lodge is referred to as a Worshipful Master. Why
+would a Christian call a man this when only Jesus is the worshipful
+Master? Many Freemasons especially at the top levels are homosexuals which
+is one of the reasons they as leaders of the world have passed laws
+protecting them and pushing the homosexual agenda. This is also another
+reason the obelisk, representing the male penis, is so prevalent around
+the world.
+
+Washington, DC was intentionally set up with streets and buildings
+representative of Freemasonry beliefs. I already mentioned the obelisk
+known as the Washington Monument which by law no building can be taller
+than it so it remains the central figure and keeps the meaning of the
+obelisk. George Washington himself was a onetime Mason. Most of the
+patterns can only be seen from the air, but one of the designs is the
+inverted pentagram with the point pointing to the White House showing
+Satan has access to it. There is a square and compass layout in some
+streets and the street layout around the Capitol is designed as an owl
+which is connected to Satan. The Statue of Freedom on the top of the
+Capitol is connected to an ancient goddess. Many of the buildings and
+monuments such as the Pentagon, the Lincoln and Jefferson Memorials have
+occult signs in them. The Pentagon was built to an exact height to reflect
+satanic beliefs as well as the shape and other features. Some streets have
+a connection to 666. Satan has been in Washington right from the start.
+Freemasonry symbols can be found on buildings all over the city.
+
+The Vatican is also layed out intentionally with Freemasonry
+connections. I already mentioned its obelisk in the middle of St. Peters
+Square. It is best to see an overhead aerial view to see the connection.
+Even the way the wall was built around Vatican City was carefully planned.
+Just as in Washington, DC, Freemasonry and occult symbols are all over the
+Vatican. Other cities around the world also have many symbols.
+
+I already mentioned how Mormon temples are full of Freemasonry
+symbols as is the religion. The Temple Endowment ceremony was copied from
+Masonic rituals. They also have an apron similar to that used in
+Freemasonry. Joseph Smith as well as all of the early Mormon leaders were
+all Freemasons. 
+
+I have clearly shown how Freemasonry is not Christian, but is really
+Satanism in disguise. It is full of the occult and evilness in bringing in
+the New World Order and the antichrist and eliminating Jesus. Clearly no
+professing Christian let alone a true Christian should have any part in
+Freemasonry as we cannot serve two masters. Jesus said you will love the
+one and hate the other. Freemasonry teaches you to love Lucifer and hate
+Jesus. (Matthew 6:24 ¶ No man can serve two masters: for either he will
+hate the one, and love the other; or else he will hold to the one, and
+despise the other. Ye cannot serve God and mammon.) Jesus said we must
+come out of the darkness which is Satan and come to the light which is
+Jesus. A true Christian cannot stay in the dark for long as the Holy Ghost
+will convict you. For any Christian in Freemasonry who refuses to leave
+now that you know the truth. Why? Either you are not truly saved or you
+are so weak and are a saved as by fire Christian that you need to pray and
+ask the Holy Ghost to open your eyes and then get out. If you are saved
+you are knowingly sinning. (James 4:17 Therefore to him that knoweth to do
+good, and doeth it not, to him it is sin.) If you are not saved, get saved
+now by repenting of your sins and confessing to God the evilness of
+Freemasonry and that you sinned by being a part of it. Realize you are a
+sinner who needs Jesus as your Saviour as your works will not save you nor
+will Freemasonry. Call upon Jesus now to save you.    
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +826,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

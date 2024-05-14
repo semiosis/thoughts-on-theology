@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,467 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the Lord's supper or communion
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Lord's supper or communion as it is also called represents our
+Lord Jesus just as the Jewish feasts did and other things in scripture.
+Jesus instituted the Lord's supper at the Last Supper while observing the
+passover meal with his disciples the night before he died on the cross for
+all of mankind's sins. This was Jesus' farewell gift and last major
+commandment for Christians. Passover is connected to the Lord's supper and
+they go hand in hand. Communion is also referred to as the Lord's table in
+I Corinthians 10:21 and the cup as the cup of blessing in I Corinthians
+10:16. (I Corinthians 10:16 The cup of blessing which we bless, is it not
+the communion of the blood of Christ? The bread which we break, is it not
+the communion of the body of Christ?
+17 For we being many are one bread, and one body: for we are all partakers
+of that one bread.) I Corinthians 10:16 is also where we get the name
+communion from and verse 17 shows how we are united with Jesus and how all
+believers should partake of communion. Communion is a good name as it
+shows that as believers we become one with Christ as represented in the
+Lord's supper. The word union is even found in the word communion. Some
+say Acts 2:42 refers to the Lord's supper by the name "breaking of bread".
+This is possible; though I believe it is referring to fellowship meals
+with Christians rather than actually celebrating the Lord's supper. (Acts
+2:42 And they continued stedfastly in the apostles' doctrine and
+fellowship, and in breaking of bread, and in prayers.) Even today when
+people get together for a meal we often say we are "breaking bread" and it
+just means eating and not having communion. Both the name Lord's supper
+and communion are correct and both are found in scripture. Baptists
+usually use the name the Lord's supper and other denominations either
+communion or the Lord's supper. Communion should never be referred to as
+the Eucharist as the Roman Catholics refer to it as. They are not the same
+as Roman Catholics believe Jesus is literally in the consecrated wafer
+after the priest calls Jesus down from heaven which they call a Host.
+Roman Catholics say Jesus is in the Host in body, blood, and soul and this
+is why they worship the Host. This is completely unscriptural and is
+blasphemous. No priest can call Jesus down from heaven and Jesus never
+said to worship anything except him in spirit.
 
-Username or email _____________________
+It is possible that Melchizedek the king of Salem, who was the
+preincarnated Christ, observed an early version or type of communion with
+Abram (Abraham) after his recovery of Lot. (Genesis 14:18 And Melchizedek
+king of Salem brought forth bread and wine: and he was the priest of the
+most high God.)
 
-Reset password
+Jesus instituted the Lord's supper on the night before he went to the
+cross for our sins while observing the Last Supper or passover meal with
+his apostles. I have preached on Jesus in the passover previously and we
+will see the overlap in these two observances. (Matthew 26:26-30 ¶ And as
+they were eating, Jesus took bread, and blessed it, and brake it, and gave
+it to the disciples, and said, Take, eat; this is my body.
+27 And he took the cup, and gave thanks, and gave it to them, saying,
+Drink ye all of it;
+28 For this is my blood of the new testament, which is shed for many for
+the remission of sins.
+29 But I say unto you, I will not drink henceforth of this fruit of the
+vine, until that day when I drink it new with you in my Father's kingdom.
+30 And when they had sung an hymn, they went out into the mount of
+Olives.) (Luke 22:15-20 And he said unto them, With desire I have desired
+to eat this passover with you before I suffer:
+16 For I say unto you, I will not any more eat thereof, until it be
+fulfilled in the kingdom of God.
+
+17 And he took the cup, and gave thanks, and said, Take this, and divide
+it among yourselves:
+18 For I say unto you, I will not drink of the fruit of the vine, until
+the kingdom of God shall come.
+
+19 ¶ And he took bread, and gave thanks, and brake it, and gave unto them,
+saying, This is my body which is given for you: this do in remembrance of me.
+20 Likewise also the cup after supper, saying, This cup is the new
+testament in my blood, which is shed for you.) This bread that Jesus took
+was the unleavened bread of the passover. The bread had to be unleavened
+to represent Jesus as the sinless sacrifice as the passover lamb. Leaven
+represents sin in scripture. Bread used for communion must also be
+unleavened. (II Corinthians 5:21 For he hath made him to be sin for us,
+who knew no sin; that we might be made the righteousness of God in him.)
+(Hebrews 4:15 For we have not an high priest which cannot be touched with
+the feeling of our infirmities; but was in all points tempted like as we
+are, yet without sin.) (I Corinthians 5:7 Purge out therefore the old
+leaven, that ye may be a new lump, as ye are unleavened. For even Christ
+our passover is sacrificed for us:) In the passover meal, the bread in the
+beginning is in three pieces. After drinking the first cup, then the head
+man will take the middle piece of bread out and break it in half and take
+and wrap one of the halves of bread in a cloth. This piece is known as the
+afikomen and is then hid until later in the passover feast. At the
+appropriate time then the children go and search for this hidden piece of
+bread. After it is found then the head of the house takes this broken
+piece of bread and breaks off a piece and gives it to everyone present who
+then eat it. This afikomen is the bread that Jesus took and broke a piece
+off for each of his disciples to eat. The bread that is hidden represents
+Jesus as the second person of the Godhead and it is broken signifying his
+body which was broken and beaten as it was placed on the cross and
+crucified for all of us. Jesus had to be broken for us so that he could
+bear the sins of the world. Luke 22:15 says Jesus had to suffer for us.
+(Matthew 27:26 ¶ Then released he Barabbas unto them: and when he had
+scourged Jesus, he delivered him to be crucified.) (Isaiah 53:5 But he was
+wounded for our transgressions, he was bruised for our iniquities: the
+chastisement of our peace was upon him; and with his stripes we are
+healed.) Scourging was a severe beating done with whips which contained
+sharp ends that tore into the flesh and pulled chunks out. The cloth that
+the piece of bread was wrapped in is representative of the cloth that
+Jesus was buried in and the piece being hidden represents the time Jesus'
+body was in the tomb for three days and three nights and the piece being
+found represents the resurrection of our Lord Jesus Christ on that
+glorious Sunday morning. (Matthew 27:59-60 And when Joseph had taken the
+body, he wrapped it in a clean linen cloth,
+60 And laid it in his own new tomb, which he had hewn out in the rock: and
+he rolled a great stone to the door of the sepulchre, and departed.)
+(Matthew 28:6 He is not here: for he is risen, as he said. Come, see the
+place where the Lord lay.) The disciples were told to eat the bread as it
+represented his body as Jesus is the bread of life. The Lord's supper
+reminds us that we only survive by being nourished on Jesus. (John 6:35
+And Jesus said unto them, I am the bread of life: he that cometh to me
+shall never hunger; and he that believeth on me shall never thirst.) (John
+6:51 I am the living bread which came down from heaven: if any man eat of
+this bread, he shall live for ever: and the bread that I will give is my
+flesh, which I will give for the life of the world.) A person can only
+have everlasting life by eating the bread of Jesus. This is not referring
+to literally eating Jesus as the Roman Catholics teach. This would be
+cannibalism which God condemns. The disciples understood that Jesus was
+speaking spiritually as he was still sitting in front of them and they
+were eating physical bread. Roman Catholics are taught that John 6 refers
+to the Eucharist, but this chapter has nothing to do with the Lord's
+supper as this chapter occurred long before that time in a discussion with
+the Jewish leaders who were saying that Moses had manna from heaven and
+Jesus was saying I was that manna, but the Jews never understood this.
+(John 6:48 I am that bread of life.) The Jews were looking for physical
+bread and temporary satisfaction just as they got when Jesus fed the five
+thousand earlier in the chapter and Jesus was telling them they needed
+spiritual bread which was him for true life. This chapter in John has
+nothing to do with the institution of the Lord's supper. The hymn sung by
+Jesus and the disciples at the end of the Last Supper was Psalms 113-118
+known as the Hallel where the word hallelujah comes from which means
+"Praise ye Jehovah". The disciples were singing praise to Jesus for what
+he was about to do for them on the cross not realizing that Jesus is
+Jehovah.  
+
+When churches have communion the bread must be broken before partaking of
+it since it represents the broken body of Jesus on the cross that was
+broken for us. Too many churches use a round piece of flat bread that
+looks just like a Roman Catholic Host and it also does not show the broken
+body of Jesus.  
+
+Jesus next took the cup and gave it to his disciples and said to
+drink it and said it represented his shed blood for the sins of the world
+as well as the new testament that he was giving them. Jesus was saying he
+was doing away with the old testament and instituting a new testament with
+his shed blood replacing the blood of the bulls and goats of the old
+testament which could save no one the way his blood does. (Hebrews 10:4
+For it is not possible that the blood of bulls and of goats should take
+away sins.) This does not mean he replaced the Jews with the church as
+many teach, but rather he was showing both Jews and Gentiles that they can
+have everlasting life only by his shed blood which washes away our sins.
+(Revelation 1:5 And from Jesus Christ, who is the faithful witness, and
+the first begotten of the dead, and the prince of the kings of the earth.
+Unto him that loved us, and washed us from our sins in his own blood,) The
+Israelites had been told that one day God would institute a new covenant
+or testament with them and this is what Jesus did here at the Last Supper
+when he instituted the Lord's supper. (Jeremiah 31:31 ¶ Behold, the days
+come, saith the LORD, that I will make a new covenant with the house of
+Israel, and with the house of Judah:) Jesus told his disciples to drink it
+as it represented his blood and only when a person drinks his blood can
+they be saved. Jesus was again speaking spiritually here and was not
+talking about drinking his literal blood as Roman Catholics teach. This is
+why we do not worship the Lord's supper as it is just bread and a cup and
+not actually Jesus as Roman Catholicism teaches. The fact that it is
+spiritual can be seen in verse 29 where Jesus refers to the cup as the
+fruit of the vine. He does not call it blood or say that it is now
+literally his blood. It is still called by the same name as before he
+blessed it. This cup that Jesus took was the third passover cup that is
+known as the cup of redemption as people can only be redeemed of their
+sins by the shed blood of Jesus. There is no other name or way by which a
+person can be saved, but by calling on Jesus to save them. (Acts 4:12
+Neither is there salvation in any other: for there is none other name
+under heaven given among men, whereby we must be saved.) The cup is
+referred to as wine by many denominations, but it is never referred to as
+wine in scripture. This does not refer to literal wine as used by most
+Christian denominations, but rather grape juice as used by Baptists and
+many non-denominated churches. Jesus would never have told his disciples
+to drink wine to remember his shed blood when throughout scripture God
+condemns wine. (Proverbs 20:1 Wine is a mocker, strong drink is raging:
+and whosoever is deceived thereby is not wise.) (Judges 13:4 Now therefore
+beware, I pray thee, and drink not wine nor strong drink, and eat not any
+unclean thing🙂 In Matthew 26:29 the cup is referred to as the fruit of the
+vine which is grapes and hence grape juice. Other places in scripture such
+as Revelation 14:18 back it up as grapes. Wine only comes after the grapes
+ferment. Communion is for all believers including children that are saved
+and God would certainly not want them to drink wine. Many Roman Catholic
+priests have become alcoholics because of the use of real wine. The grape
+juice used must be red or purple and not white since it represents the
+blood of Jesus. Communion should be for all believers in the church, not
+just for members. This is known as open communion whereas closed communion
+is only for church members. Communion is to remember the Lord's death
+until he comes and God wants all true Christians to be able to partake and
+not just special ones in the church. Let saved visitors and saved
+non-members be able to partake as well so they can be obedient to Jesus.
+
+Jesus said that we as believers were to observe the Lord's supper in
+remembrance of his death until he comes. Communion is done to remember the
+death of Jesus only and has no saving power as Roman Catholicism teaches.
+Communion is an ordinance (command) given to us by Jesus, not a sacrament
+as in some churches that is necessary for salvation. Jesus never gave the
+church any sacraments, only two ordinances; baptism and the Lord's supper.
+If a person is truly saved and never observes communion then they will
+still be saved and if an unsaved person observes communion daily it will
+never save them. They will still be dead in their sins and remain unsaved.
+Communion remembers his death and is done in obedience of Jesus' command
+and is nothing more. You remember someone who is gone which is another
+reason that Jesus cannot literally be in the Roman Catholic Eucharist.
+Jesus is not sacrificed over and over again in the Lord's supper the way
+he is in the Eucharist. Jesus died once for all time for our sins with it
+never to be repeated. (Hebrews 10:10 By the which will we are sanctified
+through the offering of the body of Jesus Christ once for all.) Once Jesus
+returns to earth at his second coming then we will no longer celebrate
+communion as Jesus will be living among us as proof of his resurrection.
+(I Corinthians 11:23-26 For I have received of the Lord that which also I
+delivered unto you, That the Lord Jesus the same night in which he was
+betrayed took bread:
+24 And when he had given thanks, he brake it, and said, Take, eat: this is
+my body, which is broken for you: this do in remembrance of me.
+
+25 After the same manner also he took the cup, when he had supped, saying,
+This cup is the new testament in my blood: this do ye, as oft as ye drink
+it, in remembrance of me.
+26 For as often as ye eat this bread, and drink this cup, ye do shew the
+Lord's death till he come.) Verses 25-26 say that as often as we have
+communion we remember what Jesus did for us on the cross, but Jesus never
+said how often we were to observe the Lord's supper. Some churches have it
+weekly, some monthly, quarterly, semi-annually, or once a year or some
+other time. There is no right or wrong, but the Lord's supper should not
+be observed so often that it just becomes a ritual with the meaning lost,
+but it should not be done so infrequently that we forget to remember the
+Lord's death till he comes. Jesus warned people about the seriousness of
+partaking in the Lord's supper and said it was not to be for a meal as
+they were to eat at home and that they needed to make sure that they had
+no unconfessed sin before partaking as this had caused some to sleep
+(die). I Corinthians 10:21 says we cannot participate in the table of the
+Lord and of the table of devils. If a person is not right with God, then
+they need to get right before partaking or wait until the next observance
+of the Lord's supper. (I Corinthians 11:20-22 When ye come together
+therefore into one place, this is not to eat the Lord's supper.
+21 For in eating every one taketh before other his own supper: and one is
+hungry, and another is drunken.
+22 What? have ye not houses to eat and to drink in? or despise ye the
+church of God, and shame them that have not? What shall I say to you?
+shall I praise you in this? I praise you not.) (I Corinthians 10:21 Ye
+cannot drink the cup of the Lord, and the cup of devils: ye cannot be
+partakers of the Lord's table, and of the table of devils.) (I Corinthians
+11:27-30 Wherefore whosoever shall eat this bread, and drink this cup of
+the Lord, unworthily, shall be guilty of the body and blood of the Lord.
+28 But let a man examine himself, and so let him eat of that bread, and
+drink of that cup.
+29 For he that eateth and drinketh unworthily, eateth and drinketh
+damnation to himself, not discerning the Lord's body.
+30 For this cause many are weak and sickly among you, and many sleep.)
+What Jesus did for us on the cross at Calvary is serious business and
+should be treated as such. The Lord's supper is a reminder that God keeps
+his promises and has pardoned us of our sins. The Lord's supper also looks
+ahead to the soon return of Jesus. Even so come Lord Jesus. (Revelation
+22:20 He which testifieth these things saith, Surely I come quickly. Amen.
+Even so, come, Lord Jesus.)
+
+For those who are not saved, today is the day to call upon Jesus for
+salvation. For Jews who may be listening, realize that the Lord's supper
+is the new testament promised you by God and that new testament is found
+in Jesus your Messiah. Call upon Jesus now and partake of the Lord's
+supper.    
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

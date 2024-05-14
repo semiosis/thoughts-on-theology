@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,407 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Freedom and Liberty come from God
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+We celebrate Independence Day tomorrow and 246 years of our nation
+and remember that we are guaranteed certain freedoms in our Constitution
+in the first amendment such as freedom of religion which is purposely
+listed first, freedom of speech, freedom of press, freedom to peaceably
+assemble, and freedom to petition the government for a redress of
+grievances. In the United States we have both freedom and liberty. These
+are not the same as freedom is the ability to be free from government
+interference whereas liberty is having freedom with limitations in that
+the government can interfere enough to prevent civil disorder or chaos in
+order to keep the government in place without anarchy. We do need both for
+if everyone was free to do anything they wanted without some restrictions
+then this would lead to complete chaos, anarchy, and disorder. The first
+amendment guarantees that we have the freedom to worship God as he
+intended without the government interfering as well as to tell others
+about Jesus. Recently the government keeps trying to take this freedom
+away from us including during the plandemic when it was closing churches,
+yet kept open bars, tattoo places, abortion clinics, and other sinful
+establishments. Government each and every day takes more of our rights to
+worship away and most Christians just sit back and do nothing or say
+nothing, but just allow them to continue to do it. The government tries to
+force the LGBTQ movement on the churches and force pastors to perform same
+sex weddings or Christian businesses to support their sin. All of these
+things violate our constitutional right of freedom of worship without
+government interference. We as Americans are also guaranteed freedom of
+speech and the press. These rights are also being controlled by the
+satanic liberals as they try to silence anyone who opposes their agenda of
+bringing in the New World Order, especially Christians. Christians and
+others who stand up against them are losing their freedom to speak out and
+the media is controlled by the liberals who silence them in that sphere as
+well which again violates our constitutional rights. The government says
+it is freedom of speech to burn the American flag when it is not, yet says
+we do not have the freedom as Christians to speak out against the LGBTQ
+and abortion or this is hate speech. Hate speech is governmental control
+as the definition of hate varies by person. The speaker of the house says
+Christians are mentally unstable as well as our military veterans and so
+they must not own guns and must be silenced. This violates our guaranteed
+freedoms. We also are guaranteed the freedom to peaceably assemble such as
+at abortion clinics or other immoral establishments. This does not
+guarantee the anarchy and rioting, burning, and looting of the Black Lives
+Matter yet the government protected them and has in many places taken away
+our freedom of peaceable assemblies that go against the liberal agenda.
+The second amendment guarantees our freedom to own weapons yet here again
+the government tries to take our guns away in "the name of safety". It is
+really about the fact the government knows they are corrupt and are afraid
+that the people will revolt and overthrow them. This is also why they try
+to limit what weapons we can have. Our founding fathers placed this
+amendment in our Constitution for the sole purpose of the ability of the
+people to defend themselves against a corrupt government such as we have
+today and to revolt against it when it became corrupt. Thomas Jefferson
+even said the people need to do so if the government became as ours has.
+For those who are against guns, do not own one, but do not interfere with
+those who want to own them. Jesus himself told his disciples to carry a
+sword to protect themselves against evil and he said he came not in peace,
+but to carry a sword. (Luke 22:36 Then said he unto them, But now, he that
+hath a purse, let him take it, and likewise his scrip: and he that hath no
+sword, let him sell his garment, and buy one.) (Matthew 10:34 Think not
+that I am come to send peace on earth: I came not to send peace, but a
+sword.) These are some of the freedoms that we are guaranteed, yet our
+government is quickly taking them away.
 
-Username or email _____________________
+We have the Statue of Liberty in New York Harbor that proclaims
+liberty throughout the United States. For many years people from all over
+the world struggled to find a legal way to come to America to be able to
+enjoy the freedoms and liberties that we had. The statue stands for
+liberty in contrast to the freedoms we saw in the Constitution. Besides
+those freedoms we are guaranteed in the US Constitution, most of the other
+things we assume are freedoms are in reality liberties. These other things
+that have some limitations in most cases are necessary so that we do not
+have anarchy. Government was instituted by God and is necessary for our
+defense and a few other things, but God did not ordain the government
+taking away our freedoms such as worshipping God. Liberty is also
+mentioned in our Declaration of Independence where it stated that liberty
+was one of the unalienable rights guaranteed to us. This can be seen in
+the phrase "life, liberty, and the pursuit of happiness". Having
+guaranteed liberty does not mean that we cannot lock up criminals, or that
+someone else has the liberty to take away someone else's guaranteed
+freedoms such as the liberals are doing. This goes back to if someone does
+not want to worship God then they have that right from God, but they do
+not have the right to prevent someone who does want to worship God.
+Liberals are always that way. Everyone must agree with them in everything
+and be exactly like them or they will destroy you. If they are for
+abortion then you must be. If they are atheists then all must be. If they
+are antigun, then no one can have guns. If they are vegetarians then
+everyone must be. God says otherwise. We have the Liberty Bell in
+Philadelphia, Pennsylvania which quotes part of Leviticus 25:10 "proclaim
+liberty throughout all the land unto all the inhabitants thereof".
 
-Reset password
+The difference between freedom and liberty can be seen in scripture
+where God gave Adam and Eve the freedom to choose to obey him and not eat
+of the tree of knowledge of good and evil or to eat of it and in the day
+they did they would surely die and be separated from God. They used their
+freedom to disobey and turn from God. When they got right with God they
+now had the liberty to serve God, but not the freedom to disobey God. We
+also see how Paul was granted liberty when he was in prison that allowed
+him to have some ability of freedom yet he was not free to go and do as he
+pleased if he had freedom. This is similar to those in the military that
+are granted liberty to go out on the town for the weekend, yet they do not
+have the freedom to not return when they are required to do so. (Acts
+24:23 And he commanded a centurion to keep Paul, and to let him have
+liberty, and that he should forbid none of his acquaintance to minister or
+come unto him.) (Acts 27:3 And the next day we touched at Sidon. And
+Julius courteously entreated Paul, and gave him liberty to go unto his
+friends to refresh himself.)
+
+The Holy Bible speaks often on liberty, but only a little on freedom
+and then only as of not being a slave. This is because people have the
+freedom to choose Jesus as their Saviour or to reject him and spend an
+eternity in the lake of fire, but as Christians we have liberty in Jesus,
+but not freedom to continue in sin. (Romans 6:15 What then? shall we sin,
+because we are not under the law, but under grace? God forbid.) (Galatians
+5:1 Stand fast therefore in the liberty wherewith Christ hath made us
+free, and be not entangled again with the yoke of bondage.) (Galatians
+5:13 For, brethren, ye have been called unto liberty; only use not liberty
+for an occasion to the flesh, but by love serve one another.) Our freedom
+as Christians becomes limited to liberty as we no longer have the right to
+live a life of anarchy against God as our bodies no longer belong to us,
+but to Jesus as he bought them with his shed blood. (I Corinthians 6:19-20
+What? know ye not that your body is the temple of the Holy
+Ghost which is in you, which ye have of God, and ye are not your own?
+20 For ye are bought with a price: therefore glorify God in your body, and
+in your spirit, which are God's.) (I Corinthians 7:23 Ye are bought with a
+price; be not ye the servants of men.) We as Christians are now expected
+to obey God's commands as we no longer have the freedom as unbelievers to
+be disobedient to God. If we do God will punish us. Since we were bought
+with a price then we are to be servants of God, not man. We are to obey
+God first then government. This is especially true when the government
+tries to take away our freedoms to worship God or tells us to violate
+God's laws. Jesus said he came to deliver liberty to people, not give them
+freedom from him. (Luke 4:18 The Spirit of the Lord is upon me, because he
+hath anointed me to preach the gospel to the poor; he hath sent me to heal
+the brokenhearted, to preach deliverance to the captives, and recovering
+of sight to the blind, to set at liberty them that are bruised,) Jesus
+quoted from Isaiah 61:1. (Isaiah 61:1 The Spirit of the Lord GOD is upon
+me; because the LORD hath anointed me to preach good tidings unto the
+meek; he hath sent me to bind up the brokenhearted, to proclaim liberty to
+the captives, and the opening of the prison to them that are bound;) We as
+Christians have been delivered from the bondage of sin to liberty as
+children of God. (Romans 8:21 Because the creature itself also shall be
+delivered from the bondage of corruption into the glorious liberty of the
+children of God.) We are not to let our liberty as Christians be a
+stumbling block to those who are weak. (I Corinthians 8:9 But take heed
+lest by any means this liberty of yours become a stumblingblock to them
+that are weak.) We as Christians are not to misuse our God given liberty.
+(I Peter 2:16 As free, and not using your liberty for a cloke of
+maliciousness, but as the servants of God.)
+
+Here is an example of how as Christians we have liberty in Christ
+Jesus, but not freedom as unsaved people do. We as Christians are expected
+to marry another Christian, not an unsaved person. Paul spoke of this when
+he said we are not to be unequally yoked and also when he said how if the
+husband is still alive then the wife is bound to him by the law, but if
+the husband dies she can remarry, but only another Christian. (II
+Corinthians 6:14 Be ye not unequally yoked together with unbelievers: for
+what fellowship hath righteousness with unrighteousness? and what
+communion hath light with darkness?) This is liberty in that we have
+freedom with limitations. As Christians we no longer have the freedom to
+marry an unsaved person, but only the liberty to marry another Christian.
+(I Corinthians 7:39 The wife is bound by the law as long as her husband
+liveth; but if her husband be dead, she is at liberty to be married to
+whom she will; only in the Lord.)  
+
+God warned against false brethren who would try to take away our
+liberties as Christians. This refers to those false Christians who profess
+to be Christians, but in reality are not and who are trying to take away
+our liberties. Many of our politicians are this way. This also applies to
+many weak and/or carnal Christians who are spiritually blinded to the many
+things of Satan who try to take away the liberties of Christians.
+(Galatians 2:4 And that because of false brethren unawares brought in, who
+came in privily to spy out our liberty which we have in Christ Jesus, that
+they might bring us into bondage:)  
+
+God told the Israelites to have a jubilee every fiftieth year and to
+proclaim a liberty throughout the land. The Israelites were to forgive all
+debts and free those in bondage. This jubilee was to be holy. The number
+fifty means the Holy Ghost and it is only by the Holy Ghost convicting a
+person and leading them to the Lord Jesus that true liberty comes. (II
+Corinthians 3:17 Now the Lord is that Spirit: and where the Spirit of the
+Lord is, there is liberty.) God also warned against those who did not obey
+his commands to give liberty to the people by taking away their liberty
+and bringing in war and famine. Let this be a warning to our government
+leaders as they take away our freedoms and liberties. (Jeremiah 34:15-17
+And ye were now turned, and had done right in my sight, in proclaiming
+liberty every man to his neighbour; and ye had made a covenant before me
+in the house which is called by my name:
+16 But ye turned and polluted my name, and caused every man his servant,
+and every man his handmaid, whom ye had set at liberty at their pleasure,
+to return, and brought them into subjection, to be unto you for servants
+and for handmaids.
+17 Therefore thus saith the LORD; Ye have not hearkened unto me, in
+proclaiming liberty, every one to his brother, and every man to his
+neighbour: behold, I proclaim a liberty for you, saith the LORD, to the
+sword, to the pestilence, and to the famine; and I will make you to be
+removed into all the kingdoms of the earth.)
+
+As we get ready to celebrate Independence Day tomorrow let us thank
+God for the freedoms and liberties that we have in the United States of
+America and pray that we will be able to keep them, but also remember that
+freedom and liberty really come from God who grants government the power
+to give these things. If we continue to turn from God as a nation, God
+will take these things away so let us pray for our nation. True freedom
+and liberty only comes when a person calls upon Jesus as their Saviour and
+frees a person from the bondage of sin and Satan. Use your God given
+freedom to call upon Jesus today and enjoy an eternity of liberty in
+Jesus.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

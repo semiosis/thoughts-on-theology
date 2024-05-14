@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,452 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Proof that Jesus is God
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+I am sure everyone here today believes Jesus is God, but I want to
+remind everyone he is and show verses that will allow people to witness to
+those who deny the deity of Jesus.
 
-Username or email _____________________
+Many cults deny the deity of God or minimize his position and
+authority. The Jehovah's Witnesses believe Jesus was created and was
+originally the archangel Michael of the Old Testament prior to coming to
+earth as a man and becoming Jesus. They deny the deity of Jesus. The
+Mormons also believe Jesus was created and that he was the spirit brother
+of Lucifer with Jesus being the first born and then Lucifer with all other
+angels and people following. When God asked for one to become the Saviour
+of man, both Jesus and Lucifer offered to be the Saviour of mankind. God
+chose Jesus and this caused Lucifer to rebel and become Satan. Mormons
+believe Jesus was created first and then created everything else. Mormons
+believe Jesus is a god, but not the living God. They also believe people
+can become equal gods with Jesus. The Roman Catholics try to make Mary a
+co-redeemer with Jesus. Mary is elevated above Jesus in the Roman Catholic
+Church and say she also was born without sin and helps intercede for
+people. That is what Jesus does, not Mary. The Muslims say Jesus was a
+prophet and the only one that performed miracles, including their
+supposedly greatest prophet Mohammed who did no miracles, but they deny
+Jesus is God. There are other cults and false religions that deny Jesus is
+God.
 
-Reset password
+Jesus had the attributes, authority, titles and names of God and was
+worshipped as God. He himself proclaimed to be God. Jesus had all of these
+things because he is God. The gospel of John is written to show Jesus is
+God.
+
+Jesus is eternal and has no beginning or ending. (John 1:1-2 In the
+beginning was the Word, and the Word was with God, and the Word was God.
+2 The same was in the beginning with God.) We know from John 1:14 that the
+Word is Jesus when he became a man in the flesh. (John 1:14 And the Word
+was made flesh, and dwelt among us, (and we beheld his glory, the glory as
+of the only begotten of the Father,) full of grace and truth.) Scripture
+is the word of God. (Revelation 1:8 I am Alpha and Omega, the beginning
+and the ending, saith the Lord, which is, and which was, and which is to
+come, the Almighty.) Jesus is from everlasting. (Micah 5:2 But thou,
+Beth-lehem Ephratah, though thou be little among the thousands of Judah,
+yet out of thee shall he come forth unto me that is to be ruler in Israel;
+whose goings forth have been from of old, from everlasting.) This same
+statement is said of God. (Psalm 93:2 Thy throne is established of old:
+thou art from everlasting.) and (Isaiah 63:16 Doubtless thou art our
+father, though Abraham be ignorant of us, and Israel acknowledge us not:
+thou, O LORD, art our father, our redeemer; thy name is from everlasting.)
+Only God can have always been.
+
+Jesus is omnipotent (all powerful). Jesus as the Word spoke the
+universe into existence as our Creator. Only God can create something from
+nothing. (Genesis 1:1 In the beginning God created the heaven and the
+earth.) (John 1:3-4 All things were made by him; and without him was not
+any thing made that was made.
+4 In him was life; and the life was the light of men.) (Colossians 1:16-17
+For by him were all things created, that are in heaven, and that are in
+earth, visible and invisible, whether they be thrones, or dominions, or
+principalities, or powers: all things were created by him, and for him:
+17 And he is before all things, and by him all things consist.) Jesus
+holds the universe together. Jesus has control over the weather. He calmed
+the sea and wind. (Mark 4:39 And he arose, and rebuked the wind, and said
+unto the sea, Peace, be still. And the wind ceased, and there was a great
+calm.)
+
+Jesus is omnipresent (everywhere at the same time). (Matthew 18:20
+For where two or three are gathered together in my name, there am I in the
+midst of them.) (John 3:13 And no man hath ascended up to heaven, but he
+that came down from heaven, even the Son of man which is in heaven.) John
+3:13 shows Jesus in heaven at the same time he was speaking here on earth.
+Most modern bibles remove the last part showing he was in heaven at the
+same time denying his omnipresence. Only God can be everywhere. Even Satan
+as a created being can only be in one place at the same time.
+
+Jesus is omniscient (all knowing). Nothing takes Jesus by surprise.
+He knows the future before it happens. He knows our thoughts. Only God can
+be all knowing. Jesus knew Nathaniel was under a fig tree when Philip
+found him to tell him Jesus was the prophet spoken of by Moses. (John 1:48
+Nathanael saith unto him, Whence knowest thou me? Jesus answered and said
+unto him, Before that Philip called thee, when thou wast under the fig
+tree, I saw thee.) This also shows the omnipresence of Jesus. Jesus knew
+Judas Iscariot would betray him. (John 13:21 When Jesus had thus said, he
+was troubled in spirit, and testified, and said, Verily, verily, I say
+unto you, that one of you shall betray me.) (John 13:26 Jesus answered, He
+it is, to whom I shall give a sop, when I have dipped it. And when he had
+dipped the sop, he gave it to Judas Iscariot, the son of Simon.) Jesus
+knew the Samaritan woman at the well had had five husbands and was living
+with another man she was not married to. (John 4:18 For thou hast had five
+husbands; and he whom thou now hast is not thy husband: in that saidst
+thou truly.) Jesus could read thoughts. Only God can do that. Not even
+Satan can read one's thoughts. (Luke 5:21-23 And the scribes and the
+Pharisees began to reason, saying, Who is this which speaketh blasphemies?
+Who can forgive sins, but God alone?
+22 But when Jesus perceived their thoughts, he answering said unto them,
+What reason ye in your hearts?
+23 Whether is easier, to say, Thy sins be forgiven thee; or to say, Rise
+up and walk?) Jesus knew the first fish Peter caught would have money in
+it to pay tribute for them in Capernaum. (Matthew 17:27 Notwithstanding,
+lest we should offend them, go thou to the sea, and cast an hook, and take
+up the fish that first cometh up; and when thou hast opened his mouth,
+thou shalt find a piece of money: that take, and give unto them for me and
+thee.)
+
+Jesus had many preincarnate appearances prior to becoming a man on
+earth. This shows Jesus is no mere man. We mentioned many of these last
+week such as the burning bush who spoke to Moses (Exodus 3:2, angel of the
+LORD) or appearing to Abram (Abraham) as Melchizedek (Genesis 14:18) or
+again to Abraham as a man (the LORD) with two holy angels before
+destroying Sodom. (Genesis 18:22)
+
+Jesus performed miracles that only God can do. Other people also did
+miracles such as raising the dead as Jesus did, but theirs was done under
+the power of God. Jesus as God performed the miracle of changing water
+into wine, which is something only he can do as the Creator in changing
+the elements. (John 4:46 So Jesus came again into Cana of Galilee, where
+he made the water wine. And there was a certain nobleman, whose son was
+sick at Capernaum.) Another example is the feeding of the 5,000 and the
+4,000 by creating more bread and fish than was originally there. Jesus
+healed a blind man who had been blind from birth which no man had ever
+done.
+
+Jesus was sinless. No man is sinless as all are born with a sin
+nature thanks to Adam. Jesus being born of a virgin did not inherit that
+sin nature and had to be sinless to take our place on the cross for our
+salvation. Jesus had to be God to have no sin. (Hebrews 4:15 For we have
+not an high priest which cannot be touched with the feeling of our
+infirmities; but was in all points tempted like as we are, yet without
+sin.) (II Corinthians 5:21 For he hath made him to be sin for us, who knew
+no sin; that we might be made the righteousness of God in him.)
+
+God was manifest (revealed to us, made obvious, made known to us) in
+the flesh. (I Timothy 3:16 And without controversy great is the mystery of
+godliness: God was manifest in the flesh, justified in the Spirit, seen of
+angels, preached unto the Gentiles, believed on in the world, received up
+into glory.) Jesus came in the flesh.
+
+Jesus is part of the Godhead (Trinity) and included himself in it.
+(Colossians 2:9 For in him dwelleth all the fulness of the Godhead
+bodily.) (I John 5:7 For there are three that bear record in heaven, the
+Father, the Word, and the Holy Ghost: and these three are one.) (Matthew
+28:19 ¶ Go ye therefore, and teach all nations, baptizing them in the name
+of the Father, and of the Son, and of the Holy Ghost:)
+
+Thomas recognized Jesus as God. (John 20:28 And Thomas answered and
+said unto him, My Lord and my God.) Jesus never rebuked Thomas for calling
+him God.
+
+Jesus is the Rock of the Old Testament. (I Corinthians 10:4 And did
+all drink the same spiritual drink: for they drank of that spiritual Rock
+that followed them: and that Rock was Christ.)
+
+Jesus is called The mighty God in Isaiah 9:6. (Isaiah 9:6 For unto us
+a child is born, unto us a son is given: and the government shall be upon
+his shoulder: and his name shall be called Wonderful, Counsellor, The
+mighty God, The everlasting Father, The Prince of Peace.)
+
+God the Father shares his glory with Jesus. He will not share his
+glory with man or angel or anything else, but only Jesus since he is God.
+(Isaiah 42:8 I am the LORD: that is my name: and my glory will I not give
+to another, neither my praise to graven images.) (Isaiah 48:11 For mine
+own sake, even for mine own sake, will I do it: for how should my name be
+polluted? and I will not give my glory unto another.)  (John 17:5 And now,
+O Father, glorify thou me with thine own self with the glory which I had
+with thee before the world was.)  
+
+Jesus said "I and my Father are one". (John 10:30 I and my Father are
+one.) The Jews response in John 10:33 was to stone Jesus for blasphemy.
+(John 10:33 The Jews answered him, saying, For a good work we stone thee
+not; but for blasphemy; and because that thou, being a man, makest thyself
+God.)
+
+Jesus said he was the Son of God. The Jews recognized someone who was
+the son of a dad as having the same characteristics of the dad and they
+were the same. They recognized Jesus saying he was God and accused him of
+blasphemy, but as God, Jesus can make this claim.
+
+This was also seen in the seven "I am" statements made by Jesus in
+John. By saying "I am" he was saying he was God. God told Moses his name
+was I AM THAT I AM". (Exodus 3:14 And God said unto Moses, I AM THAT I AM:
+and he said, Thus shalt thou say unto the children of Israel, I AM  hath
+sent me unto you.) Jesus also told them he existed before Abraham again
+showing he always was. (John 8:58 Jesus said unto them, Verily, verily, I
+say unto you, Before Abraham was, I am.)
+
+Jesus was worshipped, accepted the worship and never rebuked anyone
+for worshipping him. Jehovah's Witnesses claim Jesus was not worshipped in
+scripture. There are many, many verses showing he was. Man and holy angels
+refused worship, saying it belongs to God.
+
+Leper worshipped Jesus and was cleansed. (Matthew 8:2 And, behold,
+there came a leper and worshipped him, saying, Lord, if thou wilt, thou
+canst make me clean.)
+
+The apostles worshipped Jesus in the boat after Jesus and Peter
+walked on water. (Matthew 14:33 Then they that were in the ship came and
+worshipped him, saying, Of a truth thou art the Son of God.)
+
+Ruler whose daughter was dead and raised by Jesus worshipped Jesus.
+(Matthew 9:18 ¶ While he spake these things unto them, behold, there came
+a certain ruler, and worshipped him, saying, My daughter is even now dead:
+but come and lay thy hand upon her, and she shall live.)
+
+God the Father commands all the angels to worship Jesus at his birth
+as a man. (Hebrews 1:6 And again, when he bringeth in the firstbegotten
+into the world, he saith, And let all the angels of God worship him.) [God
+would not command the angels to worship Jesus if he were only a mere man,
+but would if he were God as he is. Jesus was the God-man, 100% God and
+also 100% man. God is a jealous God and shares his glory with no one.
+(Exodus 34:14 For thou shalt worship no other god: for the LORD, whose
+name is Jealous, is a jealous God:)]
+
+(Philippians 2:10 That at the name of Jesus every knee should bow, of
+things in heaven, and things in earth, and things under the earth;)
+
+There are many more examples of people and angels worshipping God.
+
+Jesus forgave sins which only God can do. Even the scribes knew this.
+(Mark 2:5 When Jesus saw their faith, he said unto the sick of the palsy,
+Son, thy sins be forgiven thee.)
+
+We are to look for "the glorious appearing of the great God and our
+Saviour Jesus Christ". (Titus 2:13 Looking for that blessed hope, and the
+glorious appearing of the great God and our Saviour Jesus Christ;)
+
+John 8:12 and John 9:5 says Jesus is the light of the world.(John
+8:12 ¶ Then spake Jesus again unto them, saying, I am the light of the
+world: he that followeth me shall not walk in darkness, but shall have the
+light of life.) and (John 9:5 As long as I am in the world, I am the light
+of the world.) I John 1:5 says God is light. (I John 1:5 This then is the
+message which we have heard of him, and declare unto you, that God is
+light, and in him is no darkness at all.)
+
+Jesus is King of kings and Lord of lords. (Revelation 17:14 These
+shall make war with the Lamb, and the Lamb shall overcome them: for he is
+Lord of lords, and King of kings: and they that are with him are called,
+and chosen, and faithful.)
+
+God the Father said unto the Son (Jesus) "Thy throne, O God, is for
+ever and ever:". (Hebrews 1:8 But unto the Son he saith, Thy throne, O
+God, is for ever and ever: a sceptre of righteousness is the sceptre of
+thy kingdom.) (Psalm 45:6-8 Thy throne, O God, is for ever and ever: the
+sceptre of thy kingdom is a right sceptre.
+7 Thou lovest righteousness, and hatest wickedness: therefore God, thy
+God, hath anointed thee with the oil of gladness above thy fellows.
+8 All thy garments smell of myrrh, and aloes, and cassia, out of the ivory
+palaces, whereby they have made thee glad.) (Psalm 45:6 is quoted in
+Hebrews 1:8) God the Father was calling Jesus God. No more proof needed.
+
+As seen in the above verses and many more in scripture they clearly
+show Jesus is God. No mere man could have the authority, attributes,
+titles and names of God or do the works of God unless they were God. Jesus
+fulfills all of those. Jesus is God.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

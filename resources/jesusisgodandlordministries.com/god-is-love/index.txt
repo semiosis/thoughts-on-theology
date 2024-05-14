@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,407 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+God is Love
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+I have preached on God is light, but now we will see that God is
+love. (I John 4:8 He that loveth not knoweth not God; for God is love.) (I
+John 4:16 And we have known and believed the love that God hath to us. God
+is love; and he that dwelleth in love dwelleth in God, and God in him.)
+God has many attributes and he is many things. It is because God is light
+that God is also love. God showed this ultimate love when he sent his only
+begotten Son Jesus Christ to earth to be born as the God-man so that he
+could bear the sins of the world for all time and shed his precious blood
+for us as he was crucified on that cross at Calvary so that we might have
+everlasting life if we choose Jesus as our Saviour. God the Father sent
+his only begotten Son to die for us so that we could have the opportunity
+to spend eternity with him. (John 3:16-17 16 ¶ For God so loved the world,
+that he gave his only begotten Son, that whosoever believeth in him should
+not perish, but have everlasting life. 17 For God sent not his Son into
+the world to condemn the world; but that the world through him might be
+saved.) It takes a tremendous amount of love for a father to be willing to
+let his only begotten son die for someone else through no fault of their
+own. Most earthly fathers would not do this and especially for an enemy of
+theirs yet God the Father who is love did just this when he sent his only
+begotten Son Jesus to take the place on the cross for every person that
+has ever lived or ever will live and bore their sins and died for them.
+Jesus suffered greatly not only on the cross, but with his scourging
+before going to that cross. He then suffered by bearing the world's sins.
+None of us can imagine the pain that was. The worst pain of all was not
+that he was rejected by the very men he created and was dying for, but
+when he was rejected by God the Father who could not look upon sin, even
+if it was his own Son. Jesus who knew no sin became sin for us. That is
+love. (II Corinthians 5:21 For he hath made him to be sin for us, who knew
+no sin; that we might be made the righteousness of God in him.) I said
+most earthly fathers would not be willing to sacrifice their son for a
+friend, let alone an enemy, yet Jesus died for his enemies. (Romans 5:8
+But God commendeth his love toward us, in that, while we were yet sinners,
+Christ died for us.) Jesus said no greater love hath a man than to die for
+a friend yet Jesus died for his enemies, even those who were crucifying
+him. (John 15:13 Greater love hath no man than this, that a man lay down
+his life for his friends.) Scripture says we love God because he first
+loved us. (I John 4:19 We love him, because he first loved us.) Love comes
+from God. It is true that God is love, but one lady changed the King James
+Bible to her own version God's Name is Love King James Bible. She replaced
+LORD with Love. God is love, but he is more than that. He is also LORD and
+commands us not to alter his word. If she truly loves the Lord as I
+believe she thinks she does then she will leave God's word alone. Remember
+we saw God is also light and God is a Spirit and he is many things so we
+cannot change his word and limit who God is.    
 
-Username or email _____________________
+The apostle John was called the disciple that Jesus loved and so I do
+not believe that it is a coincidence that John speaks often of love in his
+writings. (John 13:23 Now there was leaning on Jesus' bosom one of his
+disciples, whom Jesus loved.) As the disciple whom Jesus loved, God showed
+this great love by allowing John to be the only apostle who was not
+martyred. John uses the word love a total of 62 times out of the 310 times
+it is found in scripture in his five writings. John uses love 22 times in
+John, 33 times in I John, four times in II John, one time in III John, and
+two times in Revelation. We see significant meanings with the number of
+times that the word love is found in John's writings. The number 22 in
+John means light as we saw in our study God is Light. This shows the
+connection between light and love as God is both light and love. It is
+also in the gospel of John that we see Jesus is the light of the world
+again showing you the connection. It is not a coincidence that the facts
+that God is light and God is love are both found in I John. The 33 times
+love is found in I John shows the promise of God to save us for those who
+call upon Jesus as their Saviour. The number 33 is 3 times 11 with three
+representing the Godhead. Those 33 times love is found in I John is more
+than in any other book of the Holy Bible. We next see love found four
+times in II John with four meaning the gospel. It is because God is love
+that we have the gospel which is the death, burial, and resurrection of
+his only begotten Son Jesus. Love is found one time in III John showing
+the unity of not only the Godhead of one God in three persons as we saw in
+God is Light, but also shows the unity that God's love brings when he
+unites believers back into fellowship with him. When a person is saved
+their spiritual body is united or reconnected once again with God. In
+John's final book of Revelation then we see love is used twice. It is only
+used in speaking about the church. Either Jesus loves the church or they
+do not love him. This two in Revelation shows the union we have as
+believers with Jesus and also the division that we now have with the
+world. Just as we as Christians will show forth some of the light of God
+since he dwells within us, then we will also show at least some of God's
+love towards others even if it is only a small amount, because God who is
+love lives in us. God even tells us that one of the ways to know if a
+person is truly saved and one of his children is because they love one
+another. (I John 4:20-21 20 If a man say, I love God, and hateth his
+brother, he is a liar: for he that loveth not his brother whom he hath
+seen, how can he love God whom he hath not seen? 21 And this commandment
+have we from him, That he who loveth God love his brother also.) We show
+we love God by obeying God's commandments and that includes loving your
+brother in Christ. (I John 5:1-3 1 Whosoever believeth that Jesus is the
+Christ is born of God: and every one that loveth him that begat loveth him
+also that is begotten of him.
 
-Reset password
+2 By this we know that we love the children of God, when we love God, and
+keep his commandments. 3 For this is the love of God, that we keep his
+commandments: and his commandments are not grievous.)
+
+We are told twice in scripture that God is love as we saw earlier.
+The first time is in I John 4:8. We saw the number four means gospel and
+it is because God is love that we can be saved even when we do not deserve
+it. The number eight means new beginning which everyone who is born again
+gets when they receive the light of God. The second verse showing God is
+love is found in I John 4:16. I just showed four is the gospel and the
+number 16 means love so it is not a coincidence that the very verse that
+says God is love is found in verse 16. The number 16 is 2 times 8. We saw
+eight means new beginning and two new beginnings brings born again
+salvation and the love for others who are born again. (I John 4:7 Beloved,
+let us love one another: for love is of God; and every one that loveth is
+born of God, and knoweth God.) I John 4:7 also shows love comes from God.
+This makes sense since God is love then only he can give love. Satan is
+hate and will never bring love. I Corinthians 13 speaks of charity nine
+times. Charity is a special Christian love that only a Christian can have
+and it is found nine times in this chapter with nine meaning the fruit of
+the Spirit. It is only because of the Spirit who as God is love and lives
+within us that we can show this special love to another Christian. This
+number 16 showing God's love is seen in no better verse than in John 3:16
+which we read earlier. I preached on the 3:16 verses throughout scripture
+and you will see that love throughout. Besides John 3:16, John also shows
+in I John 3:16 how we need to follow the example of Jesus and be willing
+to die for our brothers and sisters in Christ. (I John 3:16-17 16 Hereby
+perceive we the love of God, because he laid down his life for us: and we
+ought to lay down our lives for the brethren. 17 But whoso hath this
+world's good, and seeth his brother have need, and shutteth up his bowels
+of compassion from him, how dwelleth the love of God in him?)  
+
+We are commanded to love God with all of our heart. (Deuteronomy 6:5
+And thou shalt love the LORD thy God with all thine heart, and with all
+thy soul, and with all thy might.) This should not be hard for a Christian
+if they truly understand the love God has for us in sending his only
+begotten Son to die in our place on the cross. We can never love God back
+enough for what Jesus did for us. God not only commands us to love him and
+fellow Christians as we saw earlier, but also we are commanded to love our
+neighbor. God did not say to love only good neighbors, but all neighbors.
+(Galatians 5:14 For all the law is fulfilled in one word, even in this;
+Thou shalt love thy neighbour as thyself.) It is by this love that we can
+maybe win the lost to the Lord. We are commanded to love one another
+because God loves us. (John 13:34 A new commandment I give unto you, That
+ye love one another; as I have loved you, that ye also love one another.)
+Jesus said if we love him then God the Father will love us. (John 14:21 He
+that hath my commandments, and keepeth them, he it is that loveth me: and
+he that loveth me shall be loved of my Father, and I will love him, and
+will manifest myself to him.) Jesus said over and over to love one
+another. (I John 4:10-12 10 Herein is love, not that we loved God, but
+that he loved us, and sent his Son to be the propitiation for our sins. 11
+Beloved, if God so loved us, we ought also to love one another. 12 No man
+hath seen God at any time. If we love one another, God dwelleth in us, and
+his love is perfected in us.) Verse 10 shows God loved us, not that we
+loved God, yet he still sent his Son to pay the penalty for our sins.
+There is no greater love than that. We should thank God every day for that
+love.
+
+God has shown throughout history that he is love in the fact that he
+not only keeps his promises, but also in how he has preserved Israel
+despite all of her many sins and rebellion against him. Satan has tried
+throughout history to destroy Israel, but God's love toward Israel even
+despite her rejection of her has supernaturally protected her. God has
+shown his great love in other ways as well by always protecting his
+children even wayward children such as Lot from his wrath. God protected
+Noah and his family on the ark from the global flood, protected Lot and
+his family from the destruction he brought upon Sodom by getting them out
+of the city before he destroyed it, and he will keep his children from his
+wrath in the great tribulation when he raptures them home. Because God is
+love, not only did he send Jesus to die for us, but he will never force
+anyone to accept his Son as their Saviour. God gives every person the free
+will to reject him if they so choose. God also allowed angels to reject
+him of which one third did. Because he loves us he does not want puppets
+that he can control, but rather someone who will love him back. God showed
+he is love from the very beginning when Adam and Eve sinned then he
+sacrificed an animal to make clothes for them to cover their shame and he
+promised that a seed of the woman would come and redeem mankind one day to
+reunite them with God. That seed of course was Jesus who will redeem
+anyone who calls upon him. God shows his love everyday by delaying his
+second coming not wishing that any should perish. (II Peter 3:9 The Lord
+is not slack concerning his promise, as some men count slackness; but is
+longsuffering to us-ward, not willing that any should perish, but that all
+should come to repentance.) Because God is love then he disciplines his
+children just as any good dad does. (Revelation 3:19 As many as I love, I
+rebuke and chasten: be zealous therefore, and repent.) Both God the Father
+and Jesus Christ send their love by giving grace, mercy, and peace. (II
+John 3 Grace be with you, mercy, and peace, from God the Father, and from
+the Lord Jesus Christ, the Son of the Father, in truth and love.) God the
+Father showed love to his only begotten Son in many ways including
+resurrecting him from the grave so that he might be the firstfruits for
+those of us who are saved. (John 3:35 The Father loveth the Son, and hath
+given all things into his hand.)
+
+God is love as we have seen, but people often forget he is also a God
+of wrath. God does not like being a God of wrath, but rather a God of
+love, but because he is a God of love sometimes he must bring wrath. This
+is also due to his righteousness and so for those who reject his Son Jesus
+then he will send them to hell. Those who go to hell have chosen hell by
+rejecting Jesus as their Saviour. As a loving God, he will not make people
+go to heaven and spend eternity with him so he allows them to go to hell
+even though it was originally created for the devil and his angels. Heaven
+would be hell for someone who hated God and rejected his love yet was
+forced to spend eternity with him. God is love and he wishes that all
+would call upon his Son and be saved. For those who are not saved, please
+call upon Jesus today and receive the free love of God. Many people today
+have no one who loves them, yet God is love and will love you with no
+conditions attached as long as you call upon his Son to save you and even
+if you do not he will still love you by allowing you to not spend eternity
+with him. It is much better to take the free love that is offered, so call
+upon Jesus now. You will never be offered any greater love than the love
+of God in his Son Jesus. Remember God offers this love to everyone
+regardless of their wealth, social status, gender, where they live, free
+or bond, color of one's skin, how bad a person they think they are, or any
+other category we make so there is no excuse not to receive this free gift
+today. You will never regret receiving the love of God.        
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

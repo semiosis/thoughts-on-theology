@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,786 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Battle of Gog and Magog
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Battle of Gog and Magog is a future battle between Russia and
+Muslim nations against Israel foretold in Ezekiel chapters 38-39. With
+Russia fighting a war currently with Ukraine and rumors that Russia will
+next invade Moldova, I thought this was a good time to speak on this
+future battle. After the fall of the USSR, many people predicted that
+communism and Russia were done, but I warned that they were both alive and
+well and would return in full force in the future as scripture prophesizes
+it. The bear (Russia) will be fully awake and socialism (communism) is
+spreading throughout former Western nations including here in the United
+States were socialism has taken over the nation. The government of the
+future antichrist will be socialism. In Russia's current war, many nations
+have implemented harsh sanctions against Russia to try and stop the war,
+but I believe this will only anger Russia more and make them more
+determined to continue their fight. As the people start starving, they
+will hate the West more and blame them rather than Putin. I am not for
+Russia, but I am giving the reality of what happens and history proves it.
+When people are pushed, they usually push back. If you push people to the
+breaking point, they are going to fight back. The West, including the US,
+are hoping the sanctions will cause the people to overthrow Putin, but
+that is not how it works. It just makes the people more defiant against
+those imposing the sanctions. The inside information coming from Russia
+already shows more support for Putin than before the war, even with all of
+the dead, as the sanctions continue. The same thing happened to Germany
+after World War I as the nations wanted to punish Germany they implemented
+harsh penalties and it was because of the harsh treatment on Germany that
+allowed Hitler to gain control of the nation. He would have never been
+successful if the demands (reparations) against Germany had not been so
+harsh. As I said I do not approve of what Germany did or of Russia who has
+always been the evil empire, but the politicians better learn from history
+before they truly awake the bear and reap what they sow as scripture says.
+The main reason that the world leaders have all turned against Russia is
+because Russia is interfering in their plan for the one world government
+as Russia and China both want to be the one ruling the world. The world
+leaders acted surprised about Russia's invasion, but they never should
+have been if they knew scripture and paid attention to the signs. Russia
+has been fighting against Ukraine in small sections since 2014 and showed
+all of the signs of a coming invasion. I told various people that I bet as
+soon as the Winter Olympics were over then Russia would invade and that is
+exactly what happened the day after they ended. Germany which is one of
+the future countries that will join Russia in the attack on Israel
+initially implemented sanctions against Russia, but the government is
+already thinking about ending them as she has relied on Russia for natural
+gas. This sign of change is yet another sign that biblical prophecy will
+be fulfilled in the future as written in scripture.
 
-Username or email _____________________
+There are various opinions on the timing of this future battle. The
+first opinion says the battle will occur prior to the rapture and the
+seven year tribulation. The second opinion says the battle will occur
+between the rapture and the tribulation and a third opinion says around
+the middle of the tribulation. A fourth view says it will occur just prior
+to the second coming of Jesus and is the same as the Battle of Armageddon.
+A fifth view says it will be during the gap between the second coming of
+Jesus and the start of the millennium. The final view says the battle will
+occur at the end of the millennium. Some have even said it already
+occurred, but after we study the description of the battle it should be
+obvious that it has not happened yet. Ezekiel 38:8 says the battle will be
+in the "latter years" which is the time we are living in now so it could
+not have already happened. Ezekiel 37 is about Israel becoming a nation
+again which happened in May 1948 and this battle follows that and this has
+never happened since 1948. I am briefly going to touch on the last three
+views and then will later mention the first three as we look at these
+chapters in Ezekiel. The fourth view cannot be correct as the Battle of
+Gog and Magog is just certain nations that attack Israel whereas the
+Battle of Armageddon involves the 200 million man army of China and other
+Oriental nations meeting the antichrist and his army of the rest of the
+world's nations fighting in Israel, but who all will join in the attack
+against Jesus when he comes. (Revelation 9:16 And the number of the army
+of the horsemen were two hundred thousand thousand: and I heard the number
+of them.) (Revelation 16:16 And he gathered them together into a place
+called in the Hebrew tongue Armageddon.) The descriptions of the amount
+dead and burning weapons and so forth do not match as we will see. These
+are clearly not the same battles. The fifth view says the battle will
+occur after the end of the tribulation and before the start of the
+millennium. In between these two periods there will be 75 days that Jesus
+will use to judge the nations and clean up things from the Battle of
+Armageddon and prepare for the millennium including building the fourth or
+millennial temple. All of the unsaved will be cast into hell. Daniel says
+the tribulation will be made of two periods of 3.5 years with the last
+half known as the great tribulation. Each year is made of 360 days based
+on the Jewish calendar for a total of 1260 days for each period. (Daniel
+12:7 And I heard the man clothed in linen, which was upon the waters of
+the river, when he held up his right hand and his left hand unto heaven,
+and sware by him that liveth for ever that it shall be for a time, times,
+and an half; and when he shall have accomplished to scatter the power of
+the holy people, all these things shall be finished.) The antichrist will
+start the second half by breaking the peace treaty with Israel and
+desecrating the temple. Then the great tribulation will be followed by 75
+days prior to the millennium consisting of two periods, one of 30 days and
+the second of 45 days. The time clock starts to calculate these extra days
+when the antichrist desolates the temple. It is possible that the
+antichrist desolates it 30 days prior to the end of the first half so that
+there is only 45 days in between the tribulation and the millennium. Some
+theologians have said that Jesus does not return until those extra days
+are done, but scripture says he returns at the end of the tribulation at
+the Battle of Armageddon. (Daniel 12:11-12 And from the time that the
+daily sacrifice shall be taken away, and the abomination that maketh
+desolate set up, there shall be a thousand two hundred and ninety days.
+12 Blessed is he that waiteth, and cometh to the thousand three hundred
+and five and thirty days.) If you subtract 1335 days from 1260 then you
+get 75 days. Since God (Jesus) has judged the nations, known as the sheep
+and goat judgment, during the 75 day period then I do not see how the
+Battle of Gog and Magog can occur at this time. (Matthew 25:32-33 And
+before him shall be gathered all nations: and he shall separate them one
+from another, as a shepherd divideth his sheep from the goats:
+33
+And he shall set the sheep on his right hand, but the goats on the left.)
+The sixth view is wrong as this speaks of a different battle with the same
+name, but over a thousand years apart. Many wars in history have battles
+of the same name and this is no different. At the end of the millennium
+there will be another battle with the same name. In this battle then Satan
+is loosed to stir up the battle and people who are as numerous as the sand
+of the sea are ready to join Satan in fighting Jesus. Even with Jesus
+ruling here on earth in an ideal environment, we see how people just
+refuse to serve Jesus. People just love sin. Jesus quickly ends the
+rebellion and battle by sending fire from heaven and all are cast into the
+lake of fire. No one has a chance to repent whereas some do in the first
+battle. People survive the first Battle of Gog and Magog and unlike the
+second battle which has people from all over the world fighting, the first
+battle only has certain nations. The first battle is against Israel and
+the second battle is against Jesus. These are clearly different battles
+just with the same name. God names the battle the same as the people in
+the second battle are just as rebellious as the people in the first battle
+and he is just making a comparison. This is similar to people calling
+someone the devil because they act like him, but everyone knows the person
+is not really the devil. God also compared nations to Sodom. (Revelation
+20:7-10 And when the thousand years are expired, Satan shall be loosed out
+of his prison,
+8 And shall go out to deceive the nations which are in the four quarters
+of the earth, Gog and Magog, to gather them together to battle: the number
+of whom is as the sand of the sea.
+9 And they went up on the breadth of the earth, and compassed the camp of
+the saints about, and the beloved city: and fire came down from God out of
+heaven, and devoured them.
+10 And the devil that deceived them was cast into the lake of fire and
+brimstone, where the beast and the false prophet are, and shall be
+tormented day and night for ever and ever.)
 
-Reset password
+Read Ezekiel 38-39 to get the full picture. (Ezekiel 38:1-23 1 And
+the word of the LORD came unto me, saying,
+2 Son of man, set thy face against Gog, the land of Magog, the chief
+prince of Meshech and Tubal, and prophesy against him,
+3 And say, Thus saith the Lord GOD; Behold, I am against thee, O Gog, the
+chief prince of Meshech and Tubal:
+4 And I will turn thee back, and put hooks into thy jaws, and I will bring
+thee forth, and all thine army, horses and horsemen, all of them clothed
+with all sorts of armour, even a great company with bucklers and shields,
+all of them handling swords:
+5 Persia, Ethiopia, and Libya with them; all of them with shield and
+helmet:
+6 Gomer, and all his bands; the house of Togarmah of the north quarters,
+and all his bands: and many people with thee.
+7 Be thou prepared, and prepare for thyself, thou, and all thy company
+that are assembled unto thee, and be thou a guard unto them.
+
+8 ¶ After many days thou shalt be visited: in the latter years thou shalt
+come into the land that is brought back from the sword, and is gathered
+out of many people, against the mountains of Israel, which have been
+always waste: but it is brought forth out of the nations, and they shall
+dwell safely all of them.
+9 Thou shalt ascend and come like a storm, thou shalt be like a cloud to
+cover the land, thou, and all thy bands, and many people with thee.
+10 Thus saith the Lord GOD; It shall also come to pass, that at the same
+time shall things come into thy mind, and thou shalt think an evil
+thought:
+11 And thou shalt say, I will go up to the land of unwalled villages; I
+will go to them that are at rest, that dwell safely, all of them dwelling
+without walls, and having neither bars nor gates,
+12 To take a spoil, and to take a prey; to turn thine hand upon the
+desolate places that are now inhabited, and upon the
+people that are gathered out of the nations, which have gotten cattle and
+goods, that dwell in the midst of the land.
+13 Sheba, and Dedan, and the merchants of Tarshish, with all the young
+lions thereof, shall say unto thee, Art thou come to take a spoil? hast
+thou gathered thy company to take a prey? to carry away silver and gold,
+to take away cattle and goods, to take a great spoil?
+
+14 ¶ Therefore, son of man, prophesy and say unto Gog, Thus saith the Lord
+GOD; In that day when my people of Israel dwelleth safely, shalt thou not
+know it?
+15 And thou shalt come from thy place out of the north parts, thou, and
+many people with thee, all of them riding upon horses, a great company,
+and a mighty army:
+16 And thou shalt come up against my people of Israel, as a cloud to cover
+the land; it shall be in the latter days, and I will bring thee against my
+land, that the heathen may know me, when I shall be sanctified in thee, O
+Gog, before their eyes.
+17 Thus saith the Lord GOD; Art thou he of whom I have spoken in old time
+by my servants the prophets of Israel, which prophesied in those
+days many years that I would bring thee against them?
+18 And it shall come to pass at the same time when Gog shall come against
+the land of Israel, saith the Lord GOD, that my fury shall come up in my
+face.
+19 For in my jealousy and in the fire of my wrath have I spoken, Surely in
+that day there shall be a great shaking in the land of Israel;
+20 So that the fishes of the sea, and the fowls of the heaven, and the
+beasts of the field, and all creeping things that creep upon the earth,
+and all the men that are upon the face of the earth, shall shake at my
+presence, and the mountains shall be thrown down, and the steep places
+shall fall, and every wall shall fall to the ground.
+21 And I will call for a sword against him throughout all my mountains,
+saith the Lord GOD: every man's sword shall be against his brother.
+22 And I will plead against him with pestilence and with blood; and I will
+rain upon him, and upon his bands, and upon the many people that are with
+him, an overflowing rain, and great hailstones, fire, and brimstone.
+23 Thus will I magnify myself, and sanctify myself; and I will be known in
+the eyes of many nations, and they shall know that I am the LORD.)
+(Ezekiel 39:1-29 1 Therefore, thou son of man, prophesy against Gog, and
+say, Thus saith the Lord GOD; Behold, I am against thee, O Gog, the chief
+prince of Meshech and Tubal:
+2 And I will turn thee back, and leave but the sixth part of thee, and
+will cause thee to come up from the north parts, and will bring thee upon
+the mountains of Israel:
+3 And I will smite thy bow out of thy left hand, and will cause thine
+arrows to fall out of thy right hand.
+4 Thou shalt fall upon the mountains of Israel, thou, and all thy bands,
+and the people that is with thee: I will give thee unto the ravenous birds
+of every sort, and to the beasts of the field to be devoured.
+5 Thou shalt fall upon the open field: for I have spoken it, saith the
+Lord GOD.
+6 And I will send a fire on Magog, and among them that dwell carelessly in
+the isles: and they shall know that I am the LORD. 7 So will I make my
+holy name known in the midst of my people Israel; and I will
+not let them pollute my holy name any more: and the heathen shall know
+that I am the LORD, the Holy One in Israel.
+
+8 ¶ Behold, it is come, and it is done, saith the Lord GOD; this is the
+day whereof I have spoken.
+9 And they that dwell in the cities of Israel shall go forth, and shall
+set on fire and burn the weapons, both the shields and the bucklers, the
+bows and the arrows, and the handstaves, and the spears, and they shall
+burn them with fire seven years:
+10 So that they shall take no wood out of the field, neither cut
+down any out of the forests; for they shall burn the weapons with fire:
+and they shall spoil those that spoiled them, and rob those that robbed
+them, saith the Lord GOD.
+
+11 ¶ And it shall come to pass in that day, that I will give unto Gog a
+place there of graves in Israel, the valley of the passengers on the east
+of the sea: and it shall stop the noses of the passengers: and there shall
+they bury Gog and all his multitude: and they shall call it The valley of
+Hamon-gog.
+12 And seven months shall the house of Israel be burying of them, that
+they may cleanse the land.
+13 Yea, all the people of the land shall bury them; and it shall be to
+them a renown the day that I shall be glorified, saith the Lord GOD.
+14 And they shall sever out men of continual employment, passing through
+the land to bury with the passengers those that remain upon the face of
+the earth, to cleanse it: after the end of seven months shall they search.
+15 And the passengers that pass through the land, when any seeth a man's
+bone, then shall he set up a sign by it, till the buriers have buried it
+in the valley of Hamon-gog.
+16 And also the name of the city shall be Hamonah. Thus shall they cleanse
+the land.
+
+17 ¶ And, thou son of man, thus saith the Lord GOD; Speak unto every
+feathered fowl, and to every beast of the field, Assemble yourselves, and
+come; gather yourselves on every side to my sacrifice that I do sacrifice
+for you, even a great sacrifice upon the mountains of Israel, that ye may
+eat flesh, and drink blood.
+18 Ye shall eat the flesh of the mighty, and drink the blood of the
+princes of the earth, of rams, of lambs, and of goats, of bullocks, all of
+them fatlings of Bashan.
+19 And ye shall eat fat till ye be full, and drink blood till ye be
+drunken, of my sacrifice which I have sacrificed for you.
+20 Thus ye shall be filled at my table with horses and chariots, with
+mighty men, and with all men of war, saith the Lord GOD.
+21 And I will set my glory among the heathen, and all the heathen shall
+see my judgment that I have executed, and my hand that I have laid upon
+them.
+22 So the house of Israel shall know that I am the LORD their God from
+that day and forward.
+
+23 ¶ And the heathen shall know that the house of Israel went into
+captivity for their iniquity: because they trespassed against me,
+therefore hid I my face from them, and gave them into the hand of their
+enemies: so fell they all by the sword.
+24 According to their uncleanness and according to their transgressions
+have I done unto them, and hid my face from them.
+25 Therefore thus saith the Lord GOD; Now will I bring again the captivity
+of Jacob, and have mercy upon the whole house of Israel, and will be
+jealous for my holy name;
+26 After that they have borne their shame, and all their trespasses
+whereby they have trespassed against me, when they dwelt safely in their
+land, and none made them afraid.
+27 When I have brought them again from the people, and gathered them out
+of their enemies' lands, and am sanctified in them in the sight of many
+nations;
+28 Then shall they know that I am the LORD their God, which caused them to
+be led into captivity among the heathen: but I have gathered them unto
+their own land, and have left none of them any more there.
+29 Neither will I hide my face any more from them: for I have poured out
+my spirit upon the house of Israel, saith the Lord GOD.)
+
+Ezekiel 37 speaks of the restoration of Israel known as the valley of
+dry bones. This chapter has been partly fulfilled with Israel reformed as
+a nation in May 1948 and will be completed during the millennium. Then we
+see in Ezekiel 38-39 the attack on Israel and the Battle of Gog and Magog.
+Ezekiel 38:1-7 speaks of the nations that will join together to attack
+Israel. We know for sure what some of the nations are, but there is some
+disagreement on some nations. (Ezekiel 38:1-7 And the word of the
+LORD came unto me, saying,
+2 Son of man, set thy face against Gog, the land of Magog, the chief
+prince of Meshech and Tubal, and prophesy against him,
+3 And say, Thus saith the Lord GOD; Behold, I am against thee, O Gog, the
+chief prince of Meshech and Tubal:
+4 And I will turn thee back, and put hooks into thy jaws, and I will bring
+thee forth, and all thine army, horses and horsemen, all of them clothed
+with all sorts of armour, even a great company with bucklers and shields,
+all of them handling swords:
+5 Persia, Ethiopia, and Libya with them; all of them with shield and
+helmet:
+6 Gomer, and all his bands; the house of Togarmah of the north quarters,
+and all his bands: and many people with thee.
+7 Be thou prepared, and prepare for thyself, thou, and all thy company
+that are assembled unto thee, and be thou a guard unto them.) Verse 2 says
+the leader of this attack is Gog who is from the land of Magog. Magog
+refers to Russia and Gog will be the leader of Russia whoever that may be
+at the time of the attack. Today the leader of Russia can invade a country
+without getting any permission from anyone else. This was seen when Putin
+invaded Ukraine and even some of the oligarchs never knew he was going to
+invade or other members of the Federal Assembly. Ezekiel 38:15 and 39:2
+says Magog is from the north parts and if you go as far north from Israel
+as you can, you end up in Russia. (Ezekiel 39:2 And I will turn thee back,
+and leave but the sixth part of thee, and will cause thee to come up from
+the north parts, and will bring thee upon the mountains of Israel:) Magog
+was one of the sons of Japheth as are some of the other nations listed. He
+settled in the land that is now Russia. (Genesis 10:2 The sons of Japheth;
+Gomer, and Magog, and Madai, and Javan, and Tubal, and Meshech, and
+Tiras.) Those in Africa are from Ham. Meshech was the old name of the
+capital of Russia, today known as Moscow. Tubal is said to be a city in
+Siberia. Gog who is the leader of Russia is the leader of these places.
+Some theologians say these places refer to Turkey and some say Meschech
+refers to parts of Georgia and Ukraine as well which is possible if Russia
+is able to take over parts of Ukraine. Verse 6 mentions the nations of
+Persia, Ethiopia, and Libya. Persia is Iran. Iran was known as Persia
+until 1935. Ethiopia and Libya still exist though some say this also
+includes parts of Sudan and other nations such as Algeria and Eritrea.
+Others also say some of the Muslim nations that were formerly a part of
+the Soviet Union will be a part of the attack including Kazakhstan,
+Uzbekistan, Turkmenistan, and possibly Afghanistan. Afghanistan just
+recently gained control of a large collection of US military weapons
+thanks to Biden our incompetent traitorous president. Regardless of which
+nations are involved with Russia, these all have in common that they are
+Muslim nations with Muslims having a long history of hatred against
+Israel. Russia also has a large Muslim population. Some of these nations
+have been forming alliances with Russia over recent years such as Iran and
+Russia has long supplied many of these nations with weapons. Turkey has
+become more anti-America and anti-West. Verse 6 mentions Gomer which most
+people believe refers to Germany. Gomer settled in the area that is today
+Germany and Germany has a large Muslim population and would like to regain
+some of her lost glory and power. Togarmah is believed to be part of
+Turkey as well as the "Stan nations" that were parts of the old Soviet
+Union that I mentioned. Verse 6 also says many people with them and this
+is why it is believed there will be other nations not listed by name in
+these verses. We know for sure that Iran, Ethiopia, and Libya will all be
+involved as they are all here today by name. Whatever nations that will be
+involved, it will happen no matter what. Russia will not be destroyed
+whatever the outcome of her current war as she will survive another day to
+lead the battle against Israel. The sanctions will not work.
+
+Ezekiel 38:9 says they shall come upon Israel like a storm and they
+will be like a cloud covering the land. This refers to a great invasion
+force very large in numbers of people. Verse 11 says they will come up
+against unwalled villages and a people at rest. In Ezekiel's day, all
+cities had walls around them to defend against attack. Today most cities
+including those in Israel do not have walls, as modern weapons such as
+aircraft, bombs, missiles, tanks, and other weapons have made walls of no
+effect. Verse 14 also says Israel will be at peace when the attack occurs.
+Israel is not fully at peace (rest), but close to it as she has been
+signing peace treaties with her surrounding neighbors due to the efforts
+of President Trump. Things are falling into place for this coming
+invasion. Verse 12 says the invaders have come for a spoil. God has
+blessed Israel with great wealth and resources since her return as a
+nation just as scripture predicted. Israel supplies Europe with most of
+its fruit and other food as well as other resources. Israel has large
+amounts of natural gas as well as one of the world's largest deposits of
+shale oil and God says large amounts of oil will be found in the future
+land of the tribe of Asher. (Deuteronomy 33:24 ¶ And of Asher he said, Let
+Asher be blessed with children; let him be acceptable to his brethren, and
+let him dip his foot in oil.) Zion Oil is exploring this area now looking
+for oil and when the time is right I believe God will allow them to find
+it. Israel has many other products such as flowers and other resources
+that many nations are envious of. I believe these are the spoils the
+invaders come after along with gold, silver, cattle, and arts as verse 13
+says. I believe when the oil is found in Asher then this will trigger the
+invasion to happen. Verse 13 mentions the nations of Sheba and Dedan and
+the merchants of Tarshish with all of the young lions who watch all of
+this attack unfold and just sit back and watch. It is not clear what these
+nations are but they may refer to Saudi Arabia or some other Arab nation.
+These nations say are you coming for a spoil which may refer to they make
+threats or sanctions against the attacking nations, but they ignore them
+and attack anyway. Some have said Tarshish refers to Great Britain with
+"the young lions" referring to nations that came from her as her former
+colonies. This would include the USA and this would make sense as our
+nation under the liberals has become very anti-Israel, though on the
+surface we appear to be a friend of Israel, hence we scold the invaders,
+but just sit back and watch. The lion has long been the symbol of England.
+No nation will help Israel. Verse 16 again shows that the invaders will be
+as a cloud in the land showing mass amounts of troops as part of the
+invasion. Verse 15 says they will be a great company and a mighty army.
+Verse 15 says they will be riding on horses and verse 4 also mentions all
+of the horsemen (cavalry). Verse 8 mentions how the invaders will come
+over the mountains. Many people have said these refer to tanks rather than
+horses and though that might be possible, I do believe many literal horses
+will be used as horses can cross mountains and tanks cannot. The US Army
+used horses at times in the mountains of Afghanistan and today Russia has
+horses in its army for the sole purpose of getting equipment over the
+mountains. Russia has lost a huge amount of tanks in the war with Ukraine
+and is unable to build more tanks due to lack of computer chips. This may
+force Russia to use horses just as scripture says. In verse 18 we see how
+when the invaders come against Israel, God intervenes against the
+attackers supernaturally to protect Israel from destruction. In verse 19
+God will bring a great earthquake in Israel that will throw down mountains
+and will cause all of the people on earth to quake at the presence of God
+as they will know this came from God. Verse 21 says God will cause the
+invaders to fight against one another "his brother" rather than against
+Israel. Verse 22 shows God will bring pestilence (disease) against the
+invaders as well as he will rain down fire and brimstone (sulphur) from
+heaven as well as great hailstones. These things will be done to destroy
+the invaders. It is possible that the pestilence will be from biological
+weapons of the invaders that were intended for use against Israel, but God
+turns them against the invaders. Some have said that this rain of fire
+from heaven refers to Israel using nuclear missiles to destroy the
+invaders. That is possible, but I believe verse 23 shows that God will be
+responsible with real fire, hail, and brimstone. Verse 23 says God will do
+these things so that many nations will know that God is LORD. People will
+know this is a supernatural protection by God to protect Israel. Israel
+will see this and will as a nation turn back to God and away from her
+current attitude. Today many Jews are atheist or very liberal in their
+theology and hardly acknowledge God. This will open the eyes of the
+Israeli Jews that God is real. They still will not be saved as they will
+still reject Jesus as their Messiah until the end of the great
+tribulation, but the nation will go back to worship as the old testament
+says. They will soon rebuild the temple and restart sacrifices. I believe
+this battle will help bring in the antichrist to bring "peace" to Israel
+and the rest of the world as the world leader. This will allow Israel to
+rebuild their third temple. The fact that most of the Muslim nations will
+be destroyed will also help.  
+
+In Ezekiel 39 we see again in verse 1 that Gog is the chief prince of
+Meshech and Tubal and how in verse 2 God will turn them back away from
+Israel. In verse 2 God says he will destroy 5/6 of the invaders, allowing
+1/6 to return to be a testimony of what happened. Large numbers of people
+will be dead and I believe this will signal the end of the power of Russia
+and most of the Arab nations. If only 500,000 troops are involved in the
+invasion that will leave 416,666 dead. Some have said the antichrist will
+be a Muslim, but I disagree for many reasons, but one reason being the
+Arabs will mostly be dead and without any military as will Russia. This
+will allow many of the remaining Muslims to come under the control of the
+pope and the Roman Catholic Church due to the connection of Mary. Verse 2
+and verse 5 show many will be dead in the mountains and the fields. Verse
+6 says God will send fire on Magog so that they will know he is the LORD.
+Verse 7 shows as I previously mentioned that Israel as a nation will turn
+to God and away from her secular beliefs. The whole world will know that
+Jehovah is her God.
+
+Verse 9 says the cities will burn all of the weapons of the invaders
+including the shields, bucklers, bows and arrows, handstaves (may refer to
+a club), and spears. These weapons will all be made of wood and will burn.
+Russia for years now has been making their firearms and some say even
+tanks out of lignostone which is a wood based material that is compressed
+and stronger than steel, but it also burns well and is said to be a better
+fuel than coal, so when people ask how can Israel burn modern weapons this
+is how. Most of these same weapons are sold by Russia to Muslim nations so
+their weapons would also burn. God and scripture are always right. The
+Netherlands, who actually developed lignostone, actually uses it for fuel.
+Weather this refers to literal bow and arrows and others as mentioned has
+been debated, but it is possible that these are used since they are
+traversing the mountains and getting armored vehicles across is very hard
+or impossible. Some have said the arrows refer to missiles and possibly
+nuclear missiles as this is why all body parts must be collected since
+they would contain radiation. It may be a combination of these things.
+Only time will tell. They will have recovered so much that it will take
+seven years to burn all the weapons and the Jews will not need to cut down
+any trees for wood. Israel now spoils the invaders who came to spoil them
+as verse 10 says. I believe this shows why view three that this battle
+occurs at the middle of the tribulation is incorrect as this would mean
+that the Jews were still burning weapons during the millennium. This is
+why I believe it will be either before the rapture or start shortly after
+the rapture before the tribulation starts or near so that the seven years
+does not enter the millennium. It cannot start just after the start of the
+tribulation since the antichrist has a peace treaty with Israel to protect
+her and this will not be broken until the mid-point of the tribulation so
+no one would be able to attack Israel during this time. Some theologians
+have said that the Jews would not be burning the weapons when in Petra for
+the last 3.5 years of the tribulation so the battle must be at least 3.5
+years before the tribulation. That is possible, but if so then I do not
+believe the rapture would have happened yet as they believe or else there
+would be too much chaos before the antichrist took over. Whenever the
+timing for the battle is, it will all unfold as told in scripture. The
+tribulation will most likely start shortly after the rapture since the
+chaos that ensues due to the rapture will most likely help the antichrist
+come to power, but scripture does not say it has to. In theory the
+tribulation could start years after the rapture. As I said earlier I
+believe this battle will help bring in the antichrist as well by having
+him guaranteeing peace to Israel which when signed starts the seven year
+tribulation. This is why I believe the Battle of Gog and Magog will either
+be between the rapture and the start of the tribulation or just before the
+rapture as shortly after the battle as the antichrist makes his appearance
+and before signing the peace treaty with Israel, then we get raptured out.
+
+Verses 11-16 speaks of the enemy dead. There will be so many dead
+that the land will smell of death as verse 11 says (stop the noses of
+passengers). It will even be smelt by those on the sea. The dead will be
+buried in a valley called Hamon-gog named for the dead leader of the
+battle, Gog. Verse 12 says it will take seven months to bury the dead
+showing the amount of dead. This is done to cleanse the land as the land
+is holy land as the people turn back to God. The whole nation as verse 13
+says will assist in burying the dead and God will be glorified. Verse 14
+says that men will be employed just to go out and search the land for the
+dead. Those who are searching for bodies along with anyone who finds a
+bone are to mark them including even if just a bone or fragment with a
+sign until they can be buried in the valley of Hamon-gog. Verse 16 says
+again this is done to cleanse the land. Not only is Israel holy ground,
+but dead people also bring about many diseases if not buried. Some have
+also speculated that it is possible that it was urgent to recover not just
+the dead, but including every bone fragment since they may have been
+radioactive due to the use of nuclear weapons by Israel, Russia and Iran,
+or all of them. It is possible that nuclear weapons will be used, but
+scripture is not clear on this, but if they are used against Israel it
+seems that God destroys them before harming Israel.
+
+Verses 17-22 show how God has told all of the birds to eat of the
+dead as a feast from God. They will eat of the mighty and the princes and
+drink their blood as well as the horses until they are full. This speaks
+of how Gog himself is dead and maybe literal princes from other nations or
+at least their leaders. God will tell the birds the same thing after the
+Battle of Armageddon. (Revelation 19:17-18 And I saw an angel standing in
+the sun; and he cried with a loud voice, saying to all the fowls that fly
+in the midst of heaven, Come and gather yourselves together unto the
+supper of the great God;
+18 That ye may eat the flesh of kings, and the flesh of captains, and the
+flesh of mighty men, and the flesh of horses, and of them that sit on
+them, and the flesh of all men, both free and bond, both small and great.)
+Verse 22 again shows that from that day forward and forever the Jews will
+know that the LORD (Jehovah) is their God.
+
+Verses 23-29 show how the heathen (Gentile nations) will know that
+Israel was under captivity because of her iniquity (sin), but that God has
+brought her back to her own land (May 1948). Verse 29 says God will now
+bless Israel henceforth from the end of this Battle of Gog and Magog.
+These verses speak of God bringing his people back to Israel. This has
+been happening for many years as Jews from all over the world have
+returned to Israel. The current war between Russia and Ukraine has seen
+many Ukrainian Jews flee to Israel and many from Russia have been pouring
+in the last few years as well. The battle of Gog and Magog may cause the
+last remaining Jews in Russia to return to Israel in a great Exodus as was
+seen when the Israelites left Egypt.
+
+Scripture seems to tell of a future event that most likely will happen on
+passover as the Jews have a great exodus from Russia just as they did from
+Egypt. It seems that one day they will celebrate the exodus from Russia in
+place of the exodus from Egypt on passover. These Russian Jews will return
+to the land of Israel. This may occur because of the Battle of Gog and
+Magog when Russia attacks and invades Israel along with many Muslim
+nations and God intervenes supernaturally just as he did in Egypt. Many
+Jews have been leaving Russia for years, but scripture seems to tell of
+one great final exodus. (Jeremiah 31:8 Behold, I will bring them from the
+north country, and gather them from the coasts of the earth, and with them
+the blind and the lame, the woman with child and her that travaileth with
+child together: a great company shall return thither.) This exodus seems
+to also include Jews coming back to Israel from all over the world so it
+may be after Israel signs the "peace" treaty with the antichrist.
+(Jeremiah 16:14-15 ¶ Therefore, behold, the days come, saith the LORD,
+that it shall no more be said, The LORD liveth, that brought up the
+children of Israel out of the land of Egypt;
+15But, The LORD liveth, that brought up the children of Israel from the
+land of the north, and from all the lands whither he had driven them: and
+I will bring them again into their land that I gave unto their fathers.)
+In scripture the land of the north is Russia as all directions are from
+Jerusalem and the nation farthest north is Russia.
+
+The Battle of Gog and Magog will be happening soon along with the
+rapture, the tribulation, and the second coming of Jesus so if someone is
+not saved they need to get saved now by admitting they are a sinner and
+call upon Jesus to save them. For those people who live in the nations
+that will be part of the attack on Israel, God may destroy the leaders who
+are evil, but he loves the individual people that live in these nations
+and Jesus will save those who call upon him. For those in the military in
+these nations do not participate in the attack on Israel or God's wrath
+will come upon you. For Jews, do not wait until the battle begins to
+realize that Jehovah is LORD and that Jesus is your messiah. Call upon
+Jesus now.        
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

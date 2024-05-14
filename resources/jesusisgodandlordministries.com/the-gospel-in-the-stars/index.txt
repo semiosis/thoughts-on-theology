@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,483 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Gospel in the Stars
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Today's sermon topic is controversial among many professing
+Christians, but I believe I will show that what I am preaching on is
+scriptural. God said the heavens declare his glory and righteousness.
+(Psalm 19:1 The heavens declare the glory of God; and the firmament
+sheweth his handywork.) (Psalm 97:6 The heavens declare his righteousness,
+and all the people see his glory.) I believe God originally placed the
+gospel in the stars to be a witness to man prior to man having the written
+word of God. God said he would always have a witness for his Son Jesus. I
+believe God told Adam the meaning of the stars and the gospel and
+commanded them to pass this along to their children and on to their
+grandchildren and so forth so that all people would be without excuse.
+Romans tells us that the creation itself reveals Jesus the Creator to all
+people so that even if they have never heard the name of Jesus, they are
+without excuse. (Romans 1:20 For the invisible things of him from the
+creation of the world are clearly seen, being understood by the things
+that are made, even his eternal power and Godhead; so that they are
+without excuse:) God created stars on day four and said he placed the
+stars in the heavens (sky) to be a sign to us. The stars would predict his
+coming Son Jesus and tell the whole world about Jesus. (Genesis 1:14 ¶ And
+God said, Let there be lights in the firmament of the heaven to divide the
+day from the night; and let them be for signs, and for seasons, and for
+days, and years:) (Genesis 1:16 And God made two great lights; the greater
+light to rule the day, and the lesser light to rule the night: he made the
+stars also.) God placed the stars in the exact location that he wanted so
+that his gospel in the stars could be told ("signs"). They were not just
+placed randomly. We know today that there are many places in space that
+are empty of stars and others that are covered with stars so God clearly
+placed them all with a purpose. (Psalm 8:3 When I consider thy heavens,
+the work of thy fingers, the moon and the stars, which thou hast
+ordained;) God ordained his work so that it was exactly as he wanted it to
+be. (Job 38:33 Knowest thou the ordinances of heaven? canst thou set the
+dominion thereof in the earth?) God made the heavens by his wisdom and in
+his infinite wisdom he presented the gospel in the stars to mankind.
+(Psalm 136:5 To him that by wisdom made the heavens: for his mercy
+endureth for ever.) God created the moon and the stars to rule over the
+night with the sun ruling over the day. The sun is a type of Jesus and the
+moon is a type of Christians and the stars represent the gospel that we
+are to present to all people. (Psalm 136:9 The moon and stars to rule by
+night: for his mercy endureth for ever.) When God placed the stars in the
+heavens he placed them to form what scripture refers to as the Mazzaroth
+and what we call in English the zodiac. (Job 38:32 Canst thou bring forth
+Mazzaroth in his season? or canst thou guide Arcturus with his sons?) The
+zodiac consists of twelve constellations with each having three minor ones
+known as decans (means a part) for a total of 48 constellations and is
+along the celestial equator. The zodiac covers the entire width of the sky
+and changes with new sets for the season in order to tell the whole story.
+The word zodiac is said to mean animals and is where we get our word zoo
+from, but it appears that the word zodiac actually comes from a word
+meaning path or way as the zodiac gives the path or way to Jesus. God
+originally used the zodiac to present the gospel, but today Satan has
+turned it into astrology which God condemns. (Isaiah 47:13 Thou art
+wearied in the multitude of thy counsels. Let now the astrologers, the
+stargazers, the monthly prognosticators, stand up, and save thee from
+these things that shall come upon thee.) Satan always copies God and
+twists what God has done to use it for his own purpose. No Christian
+should have anything to do with the satanic astrology which only opens the
+door to Satan. In the true God ordained gospel of the stars it starts with
+Virgo the virgin and goes to Leo the Lion. In astrology, Satan changes the
+order for his purpose in an attempt to destroy what God ordained to start
+with Aries and end with Pisces. It has been said that there are twelve
+main constellations which represent the twelve tribes of Israel from which
+Jesus would come. Job tells us that God intentionally made constellations
+such as the crooked serpent which represents Satan. (Job 26:13 By his
+spirit he hath garnished the heavens; his hand hath formed the crooked
+serpent.) The southern hemisphere has what is known as the Southern Cross
+constellation (Crux) and I do not believe it is an accident that there is
+a cross in the sky. God allowed Adam the privilege of naming the animals,
+but he named the stars himself so that he could use them for his purpose
+in presenting the gospel to the world. Just as he had all people from Adam
+to Noah named a certain name to tell the gospel, the name of the stars did
+as well. (Psalm 147:4 He telleth the number of the stars; he calleth them
+all by their names.) These names all told a story of his Son Jesus. In
+biblical days, people's names told something about the person unlike today
+when the child is randomly named. I believe it was these names and their
+meanings and the stars associated with them that God told to Adam and then
+to all mankind. Today the meanings are mostly lost as we have the written
+scriptures found in the King James Bible so they are not as necessary and
+Satan has gained control of the world and so influence it with his
+astrology and star names have been changed mostly based on Latin names
+which distort the original meanings which I believe was done
+intentionally. The original Hebrew star names reveal the truth. This can
+also be seen in other languages such as the Arabic star name. The stars
+may have originally formed the appearance of the objects they are named
+for, but just as today the constellations have no resemblance to their
+supposed representative, they probably originally did not as well, but it
+was rather their names that told the story and the shapes allowed us to
+identify what star name went with each star. Some say the stars have moved
+over time so the original shapes are lost. That is possible. Angels are
+represented as stars in scripture and the Mazzaroth shows stars
+representing both good and evil. The star of Bethlehem as told in Matthew
+2 was another sign in the stars from God that showed that God had become
+flesh so that we might have everlasting life. (John 1:14 And the Word was
+made flesh, and dwelt among us, (and we beheld his glory, the glory as of
+the only begotten of the Father,) full of grace and truth.) You can see my
+sermon Star of Bethlehem for more on that star.    
 
-Username or email _____________________
+The gospel of the stars starts with Virgo which means virgin and
+represents the seed of the woman which we know is Jesus from Mary. Virgo
+represents Mary who was a virgin who gave birth to Jesus the man. Virgo is
+often shown as a woman with an ear of wheat in one hand and a branch in
+the other hand. Jesus is also referred to as the Branch. (Genesis 3:15 And
+I will put enmity between thee and the woman, and between thy seed and her
+seed; it shall bruise thy head, and thou shalt bruise his heel.) (Isaiah
+7:14 Therefore the Lord himself shall give you a sign; Behold, a virgin
+shall conceive, and bear a son, and shall call his name Immanuel.) (Isaiah
+11:1 And there shall come forth a rod out of the stem of Jesse, and a
+Branch shall grow out of his roots:) Jesus compared himself to a corn of
+wheat that must die in order to bring forth fruit that speaks of his death
+on the cross followed by his resurrection as the firstfruits of
+resurrection. This is seen in the ear of wheat in Virgo's hand. (John
+12:24 Verily, verily, I say unto you, Except a corn of wheat fall into the
+ground and die, it abideth alone: but if it die, it bringeth forth much
+fruit.) (I Corinthians 15:20 But now is Christ risen from the dead, and
+become the firstfruits of them that slept.) One of the stars in the
+constellation Virgo is Zavijava which means "gloriously beautiful". Jesus
+is described this way. (Isaiah 4:2 In that day shall the branch of the
+LORD be beautiful and glorious, and the fruit of the earth shall be
+excellent and comely for them that are escaped of Israel.) The star
+Vindemiatrix means "The Branch (or Son) who comes" and the star Subilon
+means "ear of wheat". The constellation Bootes is one of the decans and
+means shepherd showing Jesus as the chief Shepherd to all who were once
+lost sheep (unsaved) and who needed salvation. (I Peter 2:25 For ye were
+as sheep going astray; but are now returned unto the Shepherd and Bishop
+of your souls.) (I Peter 5:4 And when the chief Shepherd shall appear, ye
+shall receive a crown of glory that fadeth not away.)
 
-Reset password
+Libra represents the suffering Redeemer in Jesus. Libra shows how all
+must be redeemed (saved) by Jesus. (Isaiah 49:26 And I will feed them that
+oppress thee with their own flesh; and they shall be drunken with their
+own blood, as with sweet wine: and all flesh shall know that I the LORD am
+thy Saviour and thy Redeemer, the mighty One of Jacob.) One of the decans
+for Libra is the previously mentioned Crux (Southern Cross) showing how it
+is because Jesus went to the cross and died for our sins that because he
+rose from the grave we now may have everlasting life for those who call
+upon Jesus for salvation. Another decan is the constellation Corona which
+means crown and is found near the star Arcturus mentioned in Job. Jesus
+was crowned with glory and honor and is King of kings. (Hebrews 2:9 But we
+see Jesus, who was made a little lower than the angels for the suffering
+of death, crowned with glory and honour; that he by the grace of God
+should taste death for every man.) (Revelation 19:16 And he hath on his
+vesture and on his thigh a name written, KING OF KINGS, AND LORD OF
+LORDS.)
+
+Scorpio represents the conflict between Jesus and Satan. Conflict or
+wounding was the original meaning of Scorpio. The crooked serpent
+constellation I read about in Job is called today Serpens and represents
+Satan in conflict with Jesus who wounds him on the cross. Its brightest
+star is Unuk meaning "encompassing". Jesus was encompassed by dogs at the
+cross (Psalm 22:16) and was compassed by the sorrows of death in Psalm
+116:3. (Psalm 22:16 For dogs have compassed me: the assembly of the wicked
+have inclosed me: they pierced my hands and my feet.) (Psalm 116:3 The
+sorrows of death compassed me, and the pains of hell gat hold upon me: I
+found trouble and sorrow.)
+
+Sagittarius is the archer showing Jesus as the victorious Redeemer.
+One of its decans is the constellation Draco meaning dragon representing
+Satan as the dragon and showing his defeat with the resurrection of Jesus.
+Draco originally meant to tread or trodden and is represented by Jesus
+crushing his head as mentioned in Genesis 3:15 which we read and this is
+Jesus rising from the grave. (Revelation 12:9 And the great dragon was
+cast out, that old serpent, called the Devil, and Satan, which deceiveth
+the whole world: he was cast out into the earth, and his angels were cast
+out with him.)
+
+Capricornus is the goat with a fish tail. The goat was an animal used
+by the Israelites for sacrifices which are no longer needed now that Jesus
+made the final sacrifice for us on the cross at Calvary. The fish tail
+represents the fact that Jesus now expects Christians to be fishers of men
+to tell the world about their need for Jesus as their Saviour. (Matthew
+4:19 And he saith unto them, Follow me, and I will make you fishers of
+men.) Capricornus is often said to represent the start of the second act
+of a three act story shown in the zodiac with each act having four main
+constellations along with their decans. One of the decans is Aquila the
+eagle that was pierced. Jesus was pierced so that we might have
+everlasting life. (John 19:34 But one of the soldiers with a spear pierced
+his side, and forthwith came there out blood and water.)
+
+Aquarius is the water pourer and represents Jesus as the living
+water. (John 7:38 He that believeth on me, as the scripture hath said, out
+of his belly shall flow rivers of living water.) One of the decans is
+Piscis the southern fish which is Christians who have received the living
+water of Jesus. Another decan is Pegasus the winged horse. This represents
+the soon return of Jesus to earth who comes riding on a white horse at the
+end of the great tribulation. (Revelation 19:14 And I saw heaven opened,
+and behold a white horse; and he that sat upon him was called Faithful and
+True, and in righteousness he doth judge and make war.)  
+
+Pisces is represented by two fish bound together with a band. This
+represents how Satan has a hold on all people as they are born with a sin
+nature and only Jesus can set people free from the bondage of sin and
+Satan. The sea represents the mass of mankind, but can often represent
+evil as well that we must be freed from. One of the decans is Andromeda
+the chained woman which represents the church which is the bride of Jesus
+Christ. Satan tries to keep the church bound so that she will not spread
+the gospel and he persecutes true Christians.
+
+Aries is shown as a ram, but originally was always portrayed as a
+lamb. Aries represents Jesus as the Lamb of God. (John 1:29 ¶ The next day
+John seeth Jesus coming unto him, and saith, Behold the Lamb of God, which
+taketh away the sin of the world.) Aries particularly shows Jesus as the
+sacrificial lamb for our sins. Lambs were often used by the Israelites for
+sacrifices. Jesus was sacrificed on the cross as our passover lamb. (I
+Corinthians 5:7 Purge out therefore the old leaven, that ye may be a new
+lump, as ye are unleavened. For even Christ our passover is sacrificed for
+us:) Astronomical records show that at the time of the Israelites exodus
+from Egypt, the sun entered Aries on 14 Nisan which is the day that the
+passover lamb is sacrificed. The stars move about and by the time Jesus
+was crucified on that same day, then the sun was now located in the head
+of Aries near the stars of Elnath meaning "the wounded" and Sheretan
+meaning "the bruised" which both describe what happened to Jesus at his
+crucifixion. Both of these stars are just outside Aries and are in the
+constellation of Taurus. This is a good example of signs in the stars as
+they moved to be in the right location for each event. God is in full
+control of his creation.
+
+Taurus is the first of the final four constellations for the final
+act of the Messianic story of Jesus and the gospel in the stars. Act One
+showed Jesus as the suffering Saviour, Act Two as the Redeemer, and Act
+Three as the Judge and reigning Redeemer and King. Taurus was originally
+looked at as a unicorn which scripture says was untamable. (Job 39:10
+Canst thou bind the unicorn with his band in the furrow? or will he harrow
+the valleys after thee?) It is believed this was actually a very large
+extinct rhinoceros. The name unicorn can still be seen today in the
+scientific name Rhinoceros unicornis  of the Indian rhinoceros. Taurus
+represents Jesus as the coming Judge. Orion is one of the decans and its
+second brightest star is Betelgeuse which is also the tenth brightest in
+the sky. Its name means "the coming of the Branch" speaking of Jesus. It
+is a very large red star representing the shed blood of Jesus for our
+sins. Rigel is Orion's brightest star and means "the foot that crushes"
+showing Jesus as the one stepping on Satan's head. Many other stars in
+Orion speak of Jesus such as in the belt is the star Alnitak which means
+"the wounded one". Scripture mentions Orion three times. (Job 9:9 Which
+maketh Arcturus, Orion, and Pleiades, and the chambers of the south.) This
+verse also mentions Arcturus a star in Bootes that is a decan of Virgo.
+
+Gemini consists of two main stars in Castor and Pollux. These are the
+Latin names. Paul rode on a ship with these names. (Acts 28:11 And after
+three months we departed in a ship of Alexandria, which had wintered in
+the isle, whose sign was Castor and Pollux.) Castor means Ruler or Judge
+and Pollux means "who came to suffer". Gemini is represented as twins and
+shows these two characteristics of Jesus united as one as Jesus as King
+and Prince. Canis Major is one of the decans. Its brightest star is also
+the brightest star in the sky. That star is Sirius which means "the
+Prince". This star represents Jesus as the Prince of princes. (Acts 5:31
+Him hath God exalted with his right hand to be a Prince and a Saviour, for
+to give repentance to Israel, and forgiveness of sins.) It is no
+coincidence that Sirius is the brightest star in the sky as it represents
+Jesus and is bluish white in appearance. The color white shows the purity
+of Jesus and blue which means separation shows Jesus separate from us as
+God. Sirius can even occasionally be seen during the daytime sharing the
+sky with the sun which also represents Jesus in his full glory. Sirius has
+a small white dwarf companion which represents the bride of Jesus in the
+church.
+
+Cancer represents Jesus as our protector showing that once a person
+is saved they cannot lose their salvation. It shows Jesus as the place of
+our rest. Ursa Major which contains the Big Dipper is one of the decans of
+Cancer. Dubeh its brightest star means "a flock" show us as sheep
+protected by our Shepherd Jesus. Mizar in the Big Dipper means "small" and
+its binary star Alcor means "the Lamb".
+
+Leo shows Jesus as the victorious Lion and the Lion of the tribe of
+Judah. (Revelation 5:5 And one of the elders saith unto me, Weep not:
+behold, the Lion of the tribe of Juda, the Root of David, hath prevailed
+to open the book, and to loose the seven seals thereof.) Jesus is the true
+Lion with Satan only as a weak imitator. The slaughtered Lamb has become
+the reigning victorious Lion as the gospel in the stars is completed from
+Jesus' virgin birth to his becoming the suffering Lamb to his reign as
+King of kings. A fuller understanding of the gospel in the stars can be
+found in several books on the subject that will give many more meanings to
+the stars that I do not have time for in this sermon. God laid out his
+plan of redemption for man in the night sky for all to see with the gospel
+in the stars from day four of creation even before Adam and Eve were
+created and sinned as he as God knew they would and as a loving God he
+already had a plan for their salvation. The next time you look at the
+stars in the night sky you will now know the true story behind their
+meaning as God has always given the gospel of his Son to all people so
+that they are without excuse. For anyone who is not saved we can clearly
+see the gospel in our King James Bible and I plead for you to call upon
+Jesus today so that you can have Jesus as your Saviour and King.      
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

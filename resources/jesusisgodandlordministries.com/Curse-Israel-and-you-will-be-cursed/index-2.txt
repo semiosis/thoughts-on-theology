@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,408 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Curse Israel and you will be cursed
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Once again we see Israel is under attack by her enemies. Members of
+our government as well as other governments say Israel has no right to
+defend herself after being attacked, yet these same people say their own
+nations can defend themselves. Israel as a nation has the same rights as
+any other nation including to defend herself. These same leaders also say
+that Israel cannot decide where her capital is though every other
+sovereign nation has that right. The world says the capital of Israel is
+Tel Aviv, but God and Israel say it is Jerusalem. President Trump was
+right in moving our embassy to Jerusalem and recognizing Jerusalem as
+Israel's capital. Israel is God's chosen people. Satan knows this, so he
+is always stirring up his people to try and destroy God's chosen people.
+Many people are raised to hate Israel just for the sake of it, especially
+Muslims and do not even know why. Our own government has for years tried
+to make Israel give up land that God gave to her. Israel is the only
+nation that has a right to her land. Even the United States of America
+does not have that right. God gave the land to Israel and it belongs to no
+one else despite what people are taught. (Genesis 15:18 In the same day
+the LORD made a covenant with Abram, saying, Unto thy seed have I given
+this land, from the river of Egypt unto the great river, the river
+Euphrates:) (Genesis 17:19 And God said, Sarah thy wife shall bear thee a
+son indeed; and thou shalt call his name Isaac: and I will establish my
+covenant with him for an everlasting covenant, and with his seed after
+him.) These verses and many more show God promised the land to Israel
+forever from Isaac, not Ishmael, and from Jacob, not Esau, so it does not
+belong to the Muslims or Palestinians or anyone else. God said that if you
+bless Israel, you will be blessed and if you curse Israel you will be
+cursed. If you mess with God's chosen people, you will reap what you sow.
+(Genesis 12:3 And I will bless them that bless thee, and curse him that
+curseth thee: and in thee shall all families of the earth be blessed.)
+Isaac through God confirmed this blessing on Jacob, who was renamed Israel
+by God. (Genesis 27:29 Let people serve thee, and nations bow down to
+thee: be lord over thy brethren, and let thy mother's sons bow down to
+thee: cursed be every one that curseth thee, and blessed be he that
+blesseth thee.)
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+Scripture tells us of nations who tried to curse Israel and reaped
+the consequences. Many nations and individuals have doubted God's word
+that he would curse those who curse Israel and have tempted God not
+believing he would keep his promise, but they all have found out God does
+as he says he will. Balak the king of Moab hated the Israelites and wanted
+them cursed. Balak along with the elders of Midian hired Balaam to come to
+Moab to curse Israel. (Numbers 22:6 Come now therefore, I pray thee, curse
+me this people; for they are too mighty for me: peradventure I shall
+prevail, that we may smite them, and that I may drive them out of the
+land: for I wot that he whom thou blessest is blessed, and he whom thou
+cursest is cursed.) Balak knew about being cursed if he cursed Israel, but
+decided he could curse them anyway without any consequences. Balak
+believed God would not follow through with his promise to Abraham. God
+told Balaam not to go since the Israelites were blessed by him. (Numbers
+22:12 And God said unto Balaam, Thou shalt not go with them; thou shalt
+not curse the people: for they are blessed.) Balaam ignored God and went
+anyway to Moab. Along the way, Balaam had an encounter with the angel of
+the LORD [preincarnate Jesus] after he had beaten his ass who had seen him
+first. The ass spoke to Balaam. The angel of the LORD told Balaam to go to
+Moab and see Balak, but he could only speak what God told him. Balaam was
+asked by Balak to curse Israel, yet three times Balaam speaking for God
+instead blessed Israel. Balaam said how can he curse whom God has not
+cursed? (Numbers 23:8 How shall I curse, whom God hath not cursed? or how
+shall I defy, whom the LORD hath not defied?)  God had the final say. God
+spoke through Balaam and again confirmed that those who curse Israel will
+be cursed. (Numbers 24:9 He couched, he lay down as a lion, and as a great
+lion: who shall stir him up? Blessed is he that blesseth thee, and cursed
+is he that curseth thee.) Instead of Israel being cursed, Moab was. Both
+Moab and the Midianites were ultimately destroyed at a later time by God
+and neither nation exists today, but Israel does.
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+Jacob and his family settled in Egypt after Joseph was found to be
+alive and second in command in Egypt, second only to pharaoh. Many years
+later, other pharaohs made the Israelites slaves. The Israelites
+population began to explode, and one pharaoh commanded that all male
+children were to be killed when they were born. (Exodus 1:16 And he said,
+When ye do the office of a midwife to the Hebrew women, and see them upon
+the stools; if it be a son, then ye shall kill him: but if it be a
+daughter, then she shall live.) Years later Moses would go to pharaoh to
+ask for him to let the Israelites go. Pharaoh refused and God sent the ten
+plagues upon Egypt which destroyed most of their crops and cattle and
+killed the firstborn of the Egyptians including the son of pharaoh.
+Pharaoh after the loss of his son finally told Moses they could go. The
+people spoiled the Egyptians of their jewels and goods before they left as
+God had put this into the hearts of the people. (Exodus 12:36 And the LORD
+gave the people favour in the sight of the Egyptians, so that they lent
+unto them such things as they required. And they spoiled the Egyptians.)
+After the Israelites left, pharaoh changed his mind and he along with his
+army chased after them and would all be destroyed by drowning and crushing
+from the collapsing waters from the Red Sea which the Israelites had
+previously crossed. (Exodus 15:4-5 4 Pharaoh's chariots and his host hath
+he cast into the sea: his chosen captains also are drowned in the Red sea.
+5The depths have covered them: they sank into the bottom as a stone.)
+Egypt would never be the same and eventually would be conquered by the
+Arabs. Egypt still exists today in name, but is inhabited by Arabs. The
+Egyptian people of the scriptures no longer exist.
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+The Persian Haman despised the Jews and sought king Ahasuerus to make
+an edict to kill the Jews. He also sought the death of Mordecai, cousin of
+Queen Esther. (Esther 3:8-9 8 ¶ And Haman said unto king Ahasuerus, There
+is a certain people scattered abroad and dispersed among the people in all
+the provinces of thy kingdom; and their laws are diverse from all people;
+neither keep they the king's laws: therefore it is not for the king's
+profit to suffer them.
+9If it please the king, let it be written that they may be destroyed: and
+I will pay ten thousand talents of silver to the hands of those that have
+the charge of the business, to bring it into the king's treasuries.) Haman
+built gallows that he wanted Mordecai hanged on. Instead God had Haman
+hanged on his own gallows, Mordecai was elevated in the kingdom, and the
+Jews today celebrate their victory over their enemies as the feast of
+Purim.  
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+The Philistines for many years fought with Israel, held the
+Israelites captive and treated them badly. The Philistine giant Goliath
+defied the armies of the living God. (I Samuel 17:10 And the Philistine
+said, I defy the armies of Israel this day; give me a man, that we may
+fight together.) The teenage shepherd boy David killed Goliath with a
+sling shot. Philistia no longer exists today. Assyria also fought with
+Israel for many years and would eventually capture the ten northern
+tribes. Assyria would be destroyed herself and no longer exists today.
+Babylon captured Israel and held the people in captivity for seventy
+years. God would have her captured by the Medo-Persian Empire who ruled
+over the Jews for over 200 years until her capture by Greece. Only the
+Persian part of the empire exists today and is known as Iran who is still
+an enemy of Israel. Greece would be captured by the Roman Empire and rule
+over the Jews. The Romans destroyed Jerusalem in A.D. 70. The Roman Empire
+no longer exists today as a nation, though the empire will revive for a
+brief period during the tribulation to once again be the enemy of Israel.
+Many other nations and peoples such as Edom, Tyre, the Amalekites, the
+Ishmaelites, and the Ammonites fought against Israel and no longer exist
+today. 
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+In the future during the Battle of Gog and Magog, the nations that
+fight against Israel will be destroyed supernaturally by God when he
+causes them to kill each other as well as send great hailstones, fire, and
+brimstone. (Ezekiel 38:22 And I will plead against him with pestilence and
+with blood; and I will rain upon him, and upon his bands, and upon the
+many people that are with him, an overflowing rain, and great hailstones,
+fire, and brimstone.) These nations consist of Russia, Germany, and Muslim
+nations, all longtime enemies of Israel. Some of the nations include
+Turkey, Iran, Ethiopia, and Libya. (Ezekiel 38:2-6) Russia has persecuted
+Jews for many years and led to her becoming a communist nation where her
+people have suffered greatly. Germany during the Third Reich under Adolf
+Hitler killed over six million Jews in the Holocaust during World War 2.
+Germany was defeated, the Third Reich destroyed and Adolf Hitler committed
+suicide. The Jews still survive.
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+During the tribulation, the antichrist will rule the world and he
+will try to destroy Israel from the midpoint until the end. God will
+ultimately save one third of the Jews and Jesus will rule from Jerusalem
+during the millennium. The antichrist will be cast alive into the lake of
+fire for all eternity for his part in cursing Israel.
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+God still curses the enemies of Israel today. Many people say the
+curse only applied to Israel in the old testament and no longer applies
+today. The curse is still very much in force today. During the Six Day
+War, Israel greatly defeated her enemies who had attacked her. Israel
+killed about 20,000 of her enemy at a loss of less than 1,000 of her own
+military. Israel destroyed the Egyptian Air Force. The war was started
+because Egypt denied Israeli ships access to the Straits of Tiran, but
+allowed other nations. God cursed the nations which fought against Israel
+and they were swiftly defeated. The British Empire came to an end due to
+Great Britain cursing the Jews by passing the White Paper, a law and
+policy that restricted how many Jews could go to the British mandate of
+Palestine, an area that is now controlled by Israel, and some Arab
+nations. The British allowed an unlimited amount of Arabs to enter the
+land, but restricted the number of Jews and also wanted an Arab nation,
+but not a nation of Israel. This policy ultimately cost millions of Jews
+their lives as they tried to escape Europe and the Holocaust. Great
+Britain prevented the Jews from coming here and sent them back to Europe
+and their deaths. God took away the empire from the British because of
+this. Over the centuries, many nations such as Spain in 1492 and England
+in 1290 have expelled all Jews from the nation and these nations were
+ultimately punished by God.
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+The United States of America has her own share of curses from cursing
+Israel. President Franklin D. Roosevelt denied a Jewish ship the M.S. St.
+Louis carrying 937 Jews from landing in the United States in 1939. The
+Jews were trying to escape Nazi Germany. They were sent back to Germany
+and over a third of them were killed. President Roosevelt also made a deal
+with king Saud of Saudi Arabia in 1945 to prevent the establishment of
+Israel. Roosevelt died a week after sending the letter to the king. In
+October 1991 President George H.W. Bush made plans to force Israel to give
+up lands in the Madrid Peace Conference. On the day the president attended
+the conference, a giant hurricane known as the "Perfect Storm" slammed
+into the president's house in Kennebunkport, Maine causing great damage.
+This storm had over 100 foot waves and appeared out of nowhere. Just as
+the president wanted to force Israeli houses to be destroyed, God
+destroyed his. On August 24, 1992, the Madrid Peace Conference was moved
+to Washington, D.C. On the same day Hurricane Andrew hit Florida causing
+great damage. This conference intended to divide the land of Israel. In
+1997 President Clinton welcomed the Palestinian leader, Nasser Arafat to
+America and condemned Israel for building houses in their own land that
+Clinton believed did not belong to them. The same day Arafat landed in the
+U.S., powerful tornadoes hit the U.S. Many severe tornado outbreaks
+occurred throughout his time here in the U.S. On November 11, 2001,
+Secretary of State Colin Powell met with Arafat in the United Nations
+building in New York City about creating a Palestinian state. The next day
+in New York City a plane crashed killing 265 people. John T. McTernan has
+written a great book As America Has Done To Israel. In this book he shows
+these things and many more how every time the U.S. tried to make Israel
+give up land or in some other way curse Israel, then great disasters hit
+the United States such as hurricanes, tornadoes, forest fires, or other
+disasters. Most hit within twenty four hours of the curse. It is not a
+coincidence that time and time again whenever the U.S. or any nation
+curses Israel, that they are cursed. God will always curse those who curse
+Israel. These things clearly show that the curse is alive today and was
+not just for old testament times. That is just another way Satan gets
+people to believe in the false replacement theology.
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Today we need to remember Israel and the Jewish people in our
+prayers. We need to pray for the peace of Jerusalem as God has commanded
+us to do. (Psalm 122:6 Pray for the peace of Jerusalem: they shall prosper
+that love thee.) We need to stand for Israel as individual people and as a
+nation. Let us pray for those ministries that are reaching out to the Jews
+to tell them about Jesus. The Jews will always be God's chosen people.
+They have not been replaced by the church as the Roman Catholics and many
+others falsely teach in what is known as Replacement Theology. Vote for
+leaders in government that stand for Israel and her people. God said he
+would bless those who bless Israel and curse those who curse Israel. God
+does not change and does not lie. He keeps his promises. (Hebrews 13:8
+Jesus Christ the same yesterday, and to day, and for ever.) (Malachi 3:6
+For I am the LORD, I change not; therefore ye sons of Jacob are not
+consumed.) The United States has done her share of cursing Israel and is
+now reaping some of that fruit and will pay for it just as every other
+nation that has cursed Israel has. Let us today repent of our nations sins
+against Israel and pray for peace in Israel.     
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +429,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

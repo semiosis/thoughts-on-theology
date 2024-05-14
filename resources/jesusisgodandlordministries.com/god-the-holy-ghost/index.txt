@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,557 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+God the Holy Ghost
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Most if not all of you have probably never heard a sermon on God the
+Holy Ghost. I do not recall ever hearing one in my lifetime though I may
+just do not remember it.
 
-Username or email _____________________
+The Holy Ghost is the third person of the Godhead and fully equal
+with the other two persons. The Holy Ghost is just as much God as God the
+Father or God the Son, the Lord Jesus Christ. The Holy Ghost is masculine
+gender just as the other two persons are. He is not female and is not
+neutral or genderless. He is always referred to in the masculine gender
+just as the other two members of the Godhead. The Holy Ghost is referred
+to also just as Spirit in scripture as well as Comforter. The Holy Ghost
+is the Comforter sent by Jesus. Only once is he referred to as the Holy
+Spirit, though six other times he is referred to as holy Spirit showing he
+is holy. (Luke 11:13 If ye then, being evil, know how to give good gifts
+unto your children: how much more shall your heavenly Father give the Holy
+Spirit to them that ask him?) I believe Holy Spirit more refers to his
+position whereas Holy Ghost is his name. The Holy Ghost is a person, not a
+force as taught by some cults such as the Jehovah's Witnesses. They
+actually have force for Spirit in Genesis 1:2 of their bible. Roman
+Catholicism which is another cult, in some Roman Catholic bibles such as
+the New American Bible (NAB) and the New Jerusalem Bible (NJB) have mighty
+wind or divine wind for Spirit in Genesis 1:2. Some other corrupt bibles
+that have been influenced by the Roman Catholic Church have a wind from
+God or something similar in this verse such as the NRSV (New Revised
+Standard Version). These changes deny the deity of the Holy Ghost and
+denies him as part of the Godhead. The Holy Ghost is invisible and is
+compared to the wind, but this was God the Holy Ghost hovering over the
+water during creation, not just the wind. (John 3:8 The wind bloweth where
+it listeth, and thou hearest the sound thereof, but canst not tell whence
+it cometh, and whither it goeth: so is every one that is born of the
+Spirit.) Corrupt bibles will also often use a lower case spirit for Spirit
+or remove Spirit altogether. This denies the deity of God the Holy Ghost.
+The Holy Ghost is also represented by the dove, a peaceful bird just as
+the Holy Ghost brings peace to people by leading them to Jesus as seen at
+the baptism of Jesus. (Luke 3:22 And the Holy Ghost descended in a bodily
+shape like a dove upon him, and a voice came from heaven, which said, Thou
+art my beloved Son; in thee I am well pleased.) The Holy Ghost is not a
+dove, but a person. The Holy Ghost has the characteristics of a person
+just as much as God the Father or Jesus does. He speaks, hears, and
+teaches us the truth. (John 16:13 Howbeit when he, the Spirit of truth, is
+come, he will guide you into all truth: for he shall not speak of himself;
+but whatsoever he shall hear, that shall he speak: and he will shew you
+things to come.) The Holy Ghost usually speaks through people unlike the
+audible voice of Jesus or occasionally God the Father. Sometimes he speaks
+to us Christians by what we say is our conscience and not to commit a sin.
+That is the Holy Ghost speaking to you and telling you not to sin. Other
+times the Holy Ghost would tell someone to do something for him such as
+speak to an individual about Jesus. Here are some other verses that show
+that the Holy Ghost speaks. (Acts 8:29 Then the Spirit said unto Philip,
+Go near, and join thyself to this chariot.) (Acts 10:19 ¶ While Peter
+thought on the vision, the Spirit said unto him, Behold, three men seek
+thee.) (Acts 1:16 Men and brethren, this scripture must needs have been
+fulfilled, which the Holy Ghost by the mouth of David spake before
+concerning Judas, which was guide to them that took Jesus.) The Holy Ghost
+speaks to the churches. (Revelation 2:7 He that hath an ear, let him hear
+what the Spirit saith unto the churches; To him that overcometh will I
+give to eat of the tree of life, which is in the midst of the paradise of
+God.) The churches need to listen when the Holy Ghost speaks to them.
 
-Reset password
+The Holy Ghost teaches us. The Holy Ghost is the one who wrote
+scripture so he knows what it means and how to properly interpret it. When
+we study God's word we should always pray and ask the Holy Ghost to teach
+us and give us an understanding of what we are reading. The Holy Ghost
+used holy godly men to actually write the scriptures though he spoke it to
+them. This is why all scripture is inspired or God breathed as the Holy
+Ghost is God. (II Peter 1:21 For the prophecy came not in old time by the
+will of man: but holy men of God spake as they were moved by the Holy
+Ghost.) (II Timothy 3:16 All scripture is given by inspiration of God, and
+is profitable for doctrine, for reproof, for correction, for instruction
+in righteousness:) Scripture should be where our doctrine comes from
+unlike in Roman Catholicism and other cults that get their doctrine from
+Tradition or some manmade writing. The Holy Ghost gives us our doctrine.
+Preachers need to preach what the Holy Ghost teaches us and not what man
+teaches them. (I Corinthians 2:13 Which things also we speak, not in the
+words which man's wisdom teacheth, but which the Holy Ghost teacheth;
+comparing spiritual things with spiritual.) The Holy Ghost is the
+Comforter that was sent by Jesus after his resurrection in order to have
+God with us and in order to teach us. The Holy Ghost will comfort those
+who are Christians if we let him. (John 14:26 But the Comforter, which is
+the Holy Ghost, whom the Father will send in my name, he shall teach you
+all things, and bring all things to your remembrance, whatsoever I have
+said unto you.) This verse also shows how the Holy Ghost reminds us of
+scripture, but we must first learn the scripture so that he can bring it
+to our memory. The Holy Ghost reveals things to people. (Luke 2:26 And it
+was revealed unto him by the Holy Ghost, that he should not see death,
+before he had seen the Lord's Christ.) (Ephesians 3:5 Which in other ages
+was not made known unto the sons of men, as it is now revealed unto his
+holy apostles and prophets by the Spirit;)
+
+We can grieve the Holy Ghost. We do this by sinning and also by
+rejecting Jesus as one's Saviour. This means to offend, displease, or
+provoke the Holy Ghost. (Ephesians 4:30 And grieve not the holy Spirit of
+God, whereby ye are sealed unto the day of redemption.) We can vex (make
+angry) the Holy Ghost. (Isaiah 63:10 ¶ But they rebelled, and vexed his
+holy Spirit: therefore he was turned to be their enemy, and he fought
+against them.)
+
+The Holy Ghost reasons or thinks. (Acts 15:28 For it seemed good to
+the Holy Ghost, and to us, to lay upon you no greater burden than these
+necessary things;)
+
+The Holy Ghost can be lied to and tempted. (Acts 5:3 But Peter said,
+Ananias, why hath Satan filled thine heart to lie to the Holy Ghost, and
+to keep back part of the price of the land?) (Acts 5:9 Then Peter said
+unto her, How is it that ye have agreed together to tempt the Spirit of
+the Lord? behold, the feet of them which have buried thy husband are at
+the door, and shall carry thee out.)
+
+The Holy Ghost has knowledge and is omniscient (all knowing) as a
+member of the Godhead. (I Corinthians 2:10-11 But God hath
+revealed them unto us by his Spirit: for the Spirit searcheth all things,
+yea, the deep things of God.
+11 For what man knoweth the things of a man, save the spirit of man which
+is in him? even so the things of God knoweth no man, but the Spirit of
+God.) This verse shows the Spirit of God knows the things of God and as
+God he is omniscient.
+
+The Holy Ghost lives and dwells in believers. This shows he is
+omnipresent (everywhere at once) as he is in all believers all over the
+world at the same time. (II Timothy 1:14 That good thing which was
+committed unto thee keep by the Holy Ghost which dwelleth in us.) (I
+Corinthians 6:19 What? know ye not that your body is the temple of the
+Holy Ghost which is in you, which ye have of God, and ye are not your
+own?) A person receives the Holy Ghost, who indwells them, the moment that
+they are saved by asking Jesus to be their Saviour. This is known as the
+baptism of the Holy Ghost. The Holy Ghost on Pentecost made a sound like
+the rushing mighty wind and appeared to the disciples of Jesus as cloven
+tongues like as of fire. (Acts 2:1-4 And when the day of Pentecost was
+fully come, they were all with one accord in one place.
+2 And suddenly there came a sound from heaven as of a rushing mighty wind,
+and it filled all the house where they were sitting.
+3 And there appeared unto them cloven tongues like as of fire, and it sat
+upon each of them.
+4 And they were all filled with the Holy Ghost, and began to speak with
+other tongues, as the Spirit gave them utterance.)
+
+The Holy Ghost is omnipotent (all powerful) as he raised Jesus from
+the dead after his death on the cross for our sins. (Romans 8:11 But if
+the Spirit of him that raised up Jesus from the dead dwell in you, he that
+raised up Christ from the dead shall also quicken your mortal bodies by
+his Spirit that dwelleth in you.) As part of the Godhead he also created
+us and gave us life. (Job 33:4 The Spirit of God hath made me, and the
+breath of the Almighty hath given me life.) It was the Holy Ghost who
+first breathed into Adam to give him life and make him a living soul.
+(Genesis 2:7 And the LORD God formed man of the dust of the ground, and
+breathed into his nostrils the breath of life; and man became a living
+soul.) The Holy Ghost was at the very beginning of the creation showing
+his eternal existence as God. He hovered over the water. (Genesis 1:2 And
+the earth was without form, and void; and darkness was upon the face of
+the deep. And the Spirit of God moved upon the face of the waters.) The
+Holy Ghost is the one who came upon Mary and impregnated her with Jesus.
+He did this supernaturally, not physically as some cults such as Mormonism
+teach how Mary was impregnated. This was necessary so that Jesus would be
+born of a virgin and not with a sin nature so he could be the Saviour of
+mankind without needing a Saviour for himself. This shows the omnipotence
+of the Holy Ghost to impregnate a girl and she remains a virgin. This
+child Jesus was holy and was the God-man. (Luke 1:35 And the angel
+answered and said unto her, The Holy Ghost shall come upon thee, and the
+power of the Highest shall overshadow thee: therefore also that holy thing
+which shall be born of thee shall be called the Son of God.) (Matthew
+1:18-23 18 ¶ Now the birth of Jesus Christ was on this wise: When as his
+mother Mary was espoused to Joseph, before they came together, she was
+found with child of the Holy Ghost.
+19 Then Joseph her husband, being a just man, and not willing to make her
+a publick example, was minded to put her away privily.
+20 But while he thought on these things, behold, the angel of the Lord
+appeared unto him in a dream, saying, Joseph, thou son of David, fear not
+to take unto thee Mary thy wife: for that which is conceived in her is of
+the Holy Ghost.
+21 And she shall bring forth a son, and thou shalt call his name JESUS:
+for he shall save his people from their sins.
+22 Now all this was done, that it might be fulfilled which was spoken of
+the Lord by the prophet, saying,
+23 Behold, a virgin shall be with child, and shall bring forth a son, and
+they shall call his name Emmanuel, which being interpreted is, God with
+us.)
+
+The Holy Ghost appoints people to be pastors, not man. (Acts 20:28 ¶
+Take heed therefore unto yourselves, and to all the flock, over the which
+the Holy Ghost hath made you overseers, to feed the church of God, which
+he hath purchased with his own blood.)
+
+The Holy Ghost can be blasphemed. This is the only sin that will not
+be forgiven by God. The Holy Ghost is the one who points us to Jesus, so
+by blaspheming the Holy Ghost the person is rejecting Jesus. (Matthew
+12:31-32 ¶ Wherefore I say unto you, All manner of sin and blasphemy shall
+be forgiven unto men: but the blasphemy against the Holy Ghost shall not
+be forgiven unto men.
+32 And whosoever speaketh a word against the Son of man, it shall be
+forgiven him: but whosoever speaketh against the Holy Ghost, it shall not
+be forgiven him, neither in this world, neither in the world to come.)
+These verses also applied to a special case of blasphemy of the Holy Ghost
+by the Pharisees who saw Jesus doing miracles by the power of the Holy
+Ghost, but said Jesus was doing them by devils. To attribute the work of
+the Holy Ghost to Satan is unforgiveable. A saved person cannot blasphemy
+the Holy Ghost.
+
+The Holy Ghost is often neglected. I mentioned how few sermons are
+done on the Holy Ghost and few books are written about him. Few hymns are
+written and sung about him. Francis Chan wrote a book on the Holy Ghost
+titled Forgotten God: Reversing Our Tragic Neglect of the Holy Spirit.
+Francis called the Holy Ghost the forgotten God and neglected. This is
+partially intentional by the Holy Ghost. The main purpose of the Holy
+Ghost is to point people to Jesus and bring glory to Jesus, not himself.
+The Holy Ghost is the one who convicts people that they are a sinner and
+of their need for Jesus as their Saviour. (Romans 3:23 For all have
+sinned, and come short of the glory of God;) (Romans 6:23 For the wages of
+sin is death; but the gift of God is eternal life through Jesus Christ our
+Lord.) A person will not get saved no matter what we tell them until the
+Holy Ghost convicts them. (John 16:8-9 And when he is come, he will
+reprove the world of sin, and of righteousness, and of judgment:
+9 Of sin, because they believe not on me;) The Holy Ghost invites people
+to Jesus. (Revelation 22:17 And the Spirit and the bride say, Come. And
+let him that heareth say, Come. And let him that is athirst come. And
+whosoever will, let him take the water of life freely.) After a person is
+saved, it is the Holy Ghost who convicts them when they sin and compels
+them to confess their sin. The Holy Ghost helps a Christian when they pray
+on what to say. The Holy Ghost will intercede on behalf of the Christian.
+(Romans 8:26-27 Likewise the Spirit also helpeth our infirmities: for we
+know not what we should pray for as we ought: but the Spirit itself maketh
+intercession for us with groanings which cannot be uttered.
+27 And he that searcheth the hearts knoweth what is the mind of the
+Spirit, because he maketh intercession for the saints according
+to the will of God.) The Holy Ghost will tell Christians to invite people
+or to go with them so they may hear about Jesus. (Acts 11:12 And the
+Spirit bade me go with them, nothing doubting. Moreover these six brethren
+accompanied me, and we entered into the man's house:) We are told to hear
+what the Holy Ghost has to say to the churches. Seven times in Revelation
+2-3 he says to hear what he says to the churches. (Revelation 3:6 He that
+hath an ear, let him hear what the Spirit saith unto the churches.) Let
+this be a warning to all people, but especially Christians. We are told
+that he who has an ear to listen as faith cometh by hearing the word of
+God. (Romans 10:17 So then faith cometh by hearing, and hearing by the
+word of God.) A person can reject the conviction of the Holy Ghost to be
+saved by Jesus only so many times. It will come to the point that their
+heart is hardened and they can never be saved even if they want to be.
+
+The Holy Ghost will bear witness of Jesus and testify of Jesus as
+well as whether a person is a true Christian or not. (John 15:26 But when
+the Comforter is come, whom I will send unto you from the Father, even the
+Spirit of truth, which proceedeth from the Father, he shall testify of
+me:) (Romans 8:16 The Spirit itself beareth witness with our spirit, that
+we are the children of God:) (I John 5:6-8 This is he that came by water
+and blood, even Jesus Christ; not by water only, but by water and blood.
+And it is the Spirit that beareth witness, because the Spirit is truth.
+7 For there are three that bear record in heaven, the Father, the Word,
+and the Holy Ghost: and these three are one.
+8 And there are three that bear witness in earth, the Spirit, and the
+water, and the blood: and these three agree in one.) A true Christian
+should show the fruit of the Spirit. (Galatians 5:22-23 But the fruit of
+the Spirit is love, joy, peace, longsuffering, gentleness, goodness,
+faith,
+23 Meekness, temperance: against such there is no law.) A person can only
+call Jesus Lord by the Holy Ghost which shows they are a true Christian
+and when speaking by the Holy Ghost can never curse Jesus. This is a test
+to pick out fraudulent preachers and cultic leaders. (I Corinthians 12:3
+Wherefore I give you to understand, that no man speaking by the Spirit of
+God calleth Jesus accursed: and that no man can say that Jesus is the
+Lord, but by the Holy Ghost.)
+
+The Holy Ghost will seal a Christian until the return of Jesus for
+his bride. This means that a true Christian cannot lose their salvation.
+Once saved, always saved. In ancient times when a deal for a purchase was
+made it was sealed and could only be opened by the purchaser when he
+received or took possession of what he bought. The Holy Ghost represents
+this seal that only can be broken by Jesus when he returns for his bride
+which he purchased with his shed blood on the cross at Calvary. (Acts
+20:28 ¶ Take heed therefore unto yourselves, and to all the flock, over
+the which the Holy Ghost hath made you overseers, to feed the church of
+God, which he hath purchased with his own blood.) Only Jesus is able to
+open the seven sealed scroll in heaven that John saw. (Revelation 5:9 And
+they sung a new song, saying, Thou art worthy to take the book, and to
+open the seals thereof: for thou wast slain, and hast redeemed us to God
+by thy blood out of every kindred, and tongue, and people, and nation;)
+The Holy Ghost acts as the earnest money or down payment for Jesus to
+guarantee that he will come back to get his bride and that the payment was
+in full at the cross. (Ephesians 1:13-14 In whom ye also trusted, after
+that ye heard the word of truth, the gospel of your salvation: in whom
+also after that ye believed, ye were sealed with that holy Spirit of
+promise,
+14 Which is the earnest of our inheritance until the redemption of the
+purchased possession, unto the praise of his glory.) (Ephesians 4:30 And
+grieve not the holy Spirit of God, whereby ye are sealed unto the day of
+redemption.)   
+
+The Holy Ghost sends people to be his witnesses to preach and tell
+other people about Jesus. (Isaiah 48:16 ¶ Come ye near unto me, hear ye
+this; I have not spoken in secret from the beginning; from the time that
+it was, there am I: and now the Lord GOD, and his Spirit, hath sent me.)
+Philip was sent to talk to the eunuch by the Holy Ghost. (Acts 8:29 Then
+the Spirit said unto Philip, Go near, and join thyself to this chariot.)
+The Holy Ghost also physically moved Philip to another location like a
+transporter again showing he is omnipotent and God. (Acts 8:39 And when
+they were come up out of the water, the Spirit of the Lord caught away
+Philip, that the eunuch saw him no more: and he went on his way
+rejoicing.) The Holy Ghost will also forbad us from going to a people to
+preach to them as he may have other plans for us and has someone else he
+will send to the people we want to go to. Paul was not allowed to go to
+Asia, but was sent by the Holy Ghost to Macedonia instead. (Acts 16:6 Now
+when they had gone throughout Phrygia and the region of Galatia, and were
+forbidden of the Holy Ghost to preach the word in Asia,)
+
+The Holy Ghost gives all believers at least one gift and some get
+more than one depending on their walk with God and the grace given to us.
+There are different gifts, but they are all given by the Holy Ghost. (I
+Corinthians 12:4 Now there are diversities of gifts, but the same Spirit.)
+All of the gifts are important and a Christian should not be jealous of a
+different gift that another Christian has or if someone has more than they
+do. Christians should not think they are better than someone else because
+of the gift they have versus someone else. For the Christian who does not
+know their gift or gifts, then pray and ask the Holy Ghost since he is the
+one who gave them to you so he knows what yours is. Some verses that list
+the many gifts can be found in (I Corinthians 12:8-10 For to one is given
+by the Spirit the word of wisdom; to another the word of knowledge by the
+same Spirit;
+9 To another faith by the same Spirit; to another the gifts of healing by
+the same Spirit;
+10 To another the working of miracles; to another prophecy; to another
+discerning of spirits; to another divers kinds of tongues; to another the
+interpretation of tongues:,) (I Corinthians 12:28-30 And God hath set some
+in the church, first apostles, secondarily prophets, thirdly teachers,
+after that miracles, then gifts of healings, helps, governments,
+diversities of tongues.
+29 Are all apostles? are all prophets? are all teachers? are all workers
+of miracles?
+30 Have all the gifts of healing? do all speak with tongues? do all
+interpret?), (Romans 12:6-13
+Having then gifts differing according to the grace that is given to us,
+whether prophecy, let us prophesy according to the proportion of faith;
+7 Or ministry, let us wait on our ministering: or he that teacheth, on
+teaching;
+8 Or he that exhorteth, on exhortation: he that giveth, let him do it with
+simplicity; he that ruleth, with diligence; he that sheweth mercy, with
+cheerfulness.
+9 Let love be without dissimulation. Abhor that which is evil; cleave to
+that which is good.
+10 Be kindly affectioned one to another with brotherly love; in honour
+preferring one another;
+11 Not slothful in business; fervent in spirit; serving the Lord;
+12 Rejoicing in hope; patient in tribulation; continuing instant in
+prayer;
+13 Distributing to the necessity of saints; given to hospitality.), and
+(Ephesians 4:11 And he gave some, apostles; and some, prophets; and some,
+evangelists; and some, pastors and teachers;). The Holy Ghost is the one
+who allows missionaries to learn a foreign language.
+
+These many verses and many others not mentioned clearly show that the
+Holy Ghost is God and a person, not a force. The Holy Ghost can and should
+be worshipped, though he tries to always point worship to Jesus. Let us
+obey the Holy Ghost by witnessing to people about Jesus and if you are
+unsaved, call upon Jesus when you are convicted of your sins by the Holy
+Ghost so as to not grieve him and bring everlasting life for yourself. Let
+us not forget or neglect the third member of the Godhead, God the Holy
+Ghost.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

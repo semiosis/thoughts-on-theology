@@ -1,2 +1,4 @@
+Refresh: prayer/index.html
+
 Click here...
 

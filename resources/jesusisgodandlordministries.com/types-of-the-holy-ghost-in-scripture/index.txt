@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,566 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Types of the Holy Ghost in scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Holy Ghost is the third member of the Godhead and he is the one
+who convicts a person to call upon Jesus, convicts a Christian when they
+sin, and is the Comforter for Christians. He will teach a person the
+meaning of scripture. Just like there are types of God the Father and the
+Lord Jesus Christ found in scripture then there are of the Holy Ghost as
+well. This should not be a surprise as he is an equal member of the
+Godhead. (I John 5:7 For there are three that bear record in heaven, the
+Father, the Word, and the Holy Ghost: and these three are one.) The Holy
+Ghost works behind the scenes and does not bring attention to himself, but
+rather to Jesus Christ. The Holy Ghost gave the holy men the words to
+write down in scripture and all of scripture is meant to point people to
+Jesus after they realize they are a sinner in need of a Saviour.
 
-Username or email _____________________
+The first type of the Holy Ghost we will look at is oil. Oil was used
+for many things in scripture. The most frequent oil used in scripture was
+olive oil and this was used for many purposes such as for sacrifices, oil
+in lamps for lighting, for cooking, and for anointing. Joel uses the
+reference that a lack of olive oil in the land was really a lack of the
+Holy Ghost in the Israelites lives as they had rejected God for false
+gods. (Joel 1:10 The field is wasted, the land mourneth; for the corn is
+wasted: the new wine is dried up, the oil languisheth.) Oil was used to
+anoint people and objects. The anointing by oil represented that God was
+behind the appointment of a person as king or priest or was in full
+support of the use of an object such as the tabernacle and the objects
+inside it. These items were all to be anointed prior to being used. Once
+the anointing was done then God gave the approval as now the Holy Ghost
+had made these things holy and separated for God. (Exodus 30:23-29 Take
+thou also unto thee principal spices, of pure myrrh five hundred shekels,
+and of sweet cinnamon half so much, even two hundred and fifty shekels,
+and of sweet calamus two hundred and fifty shekels,
+24 And of cassia five hundred shekels, after the shekel of the sanctuary,
+and of oil olive an hin:         
+25 And thou shalt make it an oil of holy ointment, an ointment compound
+after the art of the apothecary: it shall be an holy anointing oil.
+26 And thou shalt anoint the tabernacle of the congregation therewith, and
+the ark of the testimony,  
+27 And the table and all his vessels, and the candlestick and his vessels,
+and the altar of incense,         
+28 And the altar of burnt offering with all his vessels, and the laver and
+his foot.
+29 And thou shalt sanctify them, that they may be most holy: whatsoever
+toucheth them shall be holy.) We see in these verses how these objects are
+now holy and so is anything that touches them. Christians are holy since
+they are indwelt with the Holy Ghost and have been touched by him just as
+if they had had the oil poured upon them. The oil itself does not make
+something holy, but rather the fact that it represents the Holy Ghost.
+This anointing of oil has been used to cast out devils from a house, but
+this must be done with much prayer and fasting.
 
-Reset password
+Oil was also used to anoint the priests, especially the high priest
+and was also used to anoint kings showing they were given their authority
+by God the Holy Ghost. God placed both righteous and unholy kings into
+power and both were anointed which shows how it is God who gives people
+their power or takes it away. God will even use a wicked king to serve his
+purpose and do his will. Saul was anointed as the first king as he was the
+one chosen by God to be king. God did not let the people choose. The
+anointing was done by pouring the oil over the head. (Exodus 30:30 And
+thou shalt anoint Aaron and his sons, and consecrate them, that they may
+minister unto me in the priest's office.) (I Samuel 15:1 Samuel also said
+unto Saul, The LORD sent me to anoint thee to be king over his people,
+over Israel: now therefore hearken thou unto the voice of the words of the
+LORD.) God later had David anointed to replace Saul as king due to Saul's
+sins. (I Samuel 16:12-13 12 And he sent, and brought him in. Now he was
+ruddy, and withal of a beautiful countenance, and goodly to look to. And
+the LORD said, Arise, anoint him: for this is he.      
+13 Then Samuel took the horn of oil, and anointed him in the midst of his
+brethren: and the Spirit of the LORD came upon David from that day
+forward. So Samuel rose up, and went to Ramah.) We see in verse 13 how
+after David was anointed then the Spirit of the LORD came upon David. This
+clearly shows how God had chosen David for king and the Holy Ghost was now
+with David to guide him as king. Jesus had his feet anointed by a woman of
+great sin whom he had forgiven. By anointing Jesus' feet she was
+recognizing Jesus as God and Lord. By anointing his feet rather than his
+head she was recognizing that she was not worthy to even be in the
+presence of God. (Luke 7:37-38 And, behold, a woman in the city, which was
+a sinner, when she knew that Jesus sat at meat in the Pharisee's house,
+brought an alabaster box of ointment, 
+38 And stood at his feet behind him weeping, and began to wash his feet
+with tears, and did wipe them with the hairs of her head, and kissed his
+feet, and anointed them with the ointment.) Jesus was anointed just before
+his death by Mary the sister of Lazarus as she was anointing his body
+preparing it for death. (Mark 14:3 ¶ And being in Bethany in the house of
+Simon the leper, as he sat at meat, there came a woman having an alabaster
+box of ointment of spikenard very precious; and she brake the box, and
+poured it on his head.) (Mark 14:8 She hath done what she could: she is
+come aforehand to anoint my body to the burying.) [John 11:2 (It
+was that Mary which anointed the Lord with ointment, and wiped his feet
+with her hair, whose brother Lazarus was sick.)]
+
+Oil was used for offerings for God. The oil was mixed with unleavened
+bread or wafers. Leaven represents sin so the bread had to have no leaven
+or sin and the oil represented the Holy Ghost mixing with Jesus in a
+believer's life as only Jesus can remove the sin in a person by washing
+them in his blood and the person is only drawn to Jesus to be washed of
+their sins by the oil of the Holy Ghost. (Leviticus 2:4 ¶ And if thou
+bring an oblation of a meat offering baken in the
+oven, it shall be unleavened cakes of fine flour mingled with oil, or
+unleavened wafers anointed with oil.)
+
+Oil was used for healing people as it represents being healed by God.
+A person is only healed from sin when they become indwelled with Jesus and
+the Holy Ghost. This happens when they are saved by calling on Jesus to
+save them. Jesus sent out the apostles to heal people. (Mark 6:13 And they
+cast out many devils, and anointed with oil many that were sick, and
+healed them.) James said that the elders were to anoint the sick with oil
+in order to heal them after praying over them and asking in the name of
+the Lord. (James 5:14 Is any sick among you? let him call for the elders
+of the church; and let them pray over him, anointing him with oil in the
+name of the Lord:) It is the power of the Holy Ghost represented in the
+oil that brings people to the healing power of Jesus.
+
+Oil was used in lamps to give light. These lamps represent Jesus as
+the light of the world and the oil the Holy Ghost who brought that light
+into the world as a man when he came upon Mary who was a virgin. (Matthew
+1:20 But while he thought on these things, behold, the angel of the Lord
+appeared unto him in a dream, saying, Joseph, thou son of David, fear not
+to take unto thee Mary thy wife: for that which is conceived in her is of
+the Holy Ghost.) It is the oil of the Holy Ghost that draws us to the
+light of Jesus and without that oil you will never be convicted of your
+sins and drawn to Jesus. God commanded lamps of pure olive oil to be used
+in the lamps in the tabernacle which were to burn continuously. The lamps
+had to stay burning as they represented Jesus and without the light of
+Jesus we are in darkness of sin. These lamps were a reminder to the
+Israelites that they needed Jesus. The oil in the lamps represented the
+Holy Ghost pointing them to Jesus and how he as God had anointed Jesus and
+given his approval of his work as the Son of God. (Exodus 27:20 ¶ And thou
+shalt command the children of Israel, that they bring thee
+pure oil olive beaten for the light, to cause the lamp to burn always.)
+Jesus told the parable in Matthew 25 of the ten virgins with five being
+wise and five being unwise. The five wise virgins had oil in their lamps
+as they were saved and were ready and looking for Jesus whereas the five
+unwise virgins did not have oil in their lamps as they were not heeding
+the call of the Holy Ghost as they had rejected him and therefore without
+the Holy Ghost convicting them then they could not be ready for Jesus when
+he came. This is why they had no oil in their lamps as they were not
+prepared. Many people today are the same as they put off being saved
+thinking they do not need Jesus and they can be saved another day. We are
+not guaranteed to have another day. Without the oil of the Holy Ghost you
+will never have the light of Jesus and this is what Jesus was saying in
+this parable. Wise people get saved. (Matthew 25:3-4 3 They that were
+foolish took their lamps, and took no oil with them:         
+4 But the wise took oil in their vessels with their lamps.) These wise
+virgins were looking for the return of Jesus with gladness.
+
+Being anointed by the oil of the Holy Ghost brings gladness as only
+the Holy Ghost can bring us close to Jesus and God the Father. The closer
+we walk with Jesus then the more gladness we will have in our lives.
+(Psalm 45:7 Thou lovest righteousness, and hatest wickedness: therefore
+God, thy God, hath anointed thee with the oil of gladness above thy
+fellows.) One of the fruits of the Spirit or Holy Ghost is joy as he is
+the one who brings us to Jesus who is the joy in a Christian's life.
+(Galatians 5:22 But the fruit of the Spirit is love, joy, peace,
+longsuffering, gentleness, goodness, faith,) David was glad to have been
+anointed with oil by God as he knew this meant the Holy Ghost was in his
+life and this would bring goodness and mercy all of his life and he would
+get to live with God forever. (Psalm 23:5-6 5 Thou preparest a table
+before me in the presence of mine enemies: thou anointest my head
+with oil; my cup runneth over.   
+6 Surely goodness and mercy shall follow me all the days of my life: and I
+will dwell in the house of the LORD for ever.) A saved person should
+rejoice that they are saved just like David. The oil of the Holy Ghost
+will make a person's face shine as they shine forth Jesus. David
+understood this. (Psalm 104:15 And wine that maketh glad the heart of
+man, and oil to make his face to shine, and bread which strengtheneth
+man's heart.)
+
+Water is another type of the Holy Ghost. Jesus described the Holy
+Ghost as living water that he would give people after his resurrection.
+Just as water is essential for survival, so is the Holy Ghost for without
+him we cannot have the living water of Jesus and we would remain lost and
+on a path to hell. [John 7:38-39 38 He that believeth on me, as the
+scripture hath said, out of his belly shall flow rivers of living water.
+39(But this spake he of the Spirit, which they that believe on him should
+receive: for the Holy Ghost was not yet given; because that Jesus was not
+yet glorified.)] Water is used for cleansing and this is seen in how the
+Holy Ghost is the one who applies the blood of Jesus to our souls. It is
+this blood of Jesus that actually washes us away just as water washes away
+dirt on our physical bodies. The priests were required to wash before they
+performed their duties in the tabernacle and temple. (Exodus 30:18-21 18
+Thou shalt also make a laver of brass, and his foot also of brass,
+to wash withal: and thou shalt put it between the tabernacle of the
+congregation and the altar, and thou shalt put water therein.    
+19 For Aaron and his sons shall wash their hands and their feet thereat:
+20 When they go into the tabernacle of the congregation, they
+shall wash with water, that they die not; or when they come near to the
+altar to minister, to burn offering made by fire unto the LORD:       
+21 So they shall wash their hands and their feet, that they die not: and
+it shall be a statute for ever to them, even to him and to his seed
+throughout their generations.) This was symbolic of being washed in the
+blood of Jesus. As I previously stated the Holy Ghost convicts a true born
+again believer when they sin so that they will confess their sin and
+become clean once again. (I John 1:9 If we confess our sins, he is
+faithful and just to forgive us our sins, and to cleanse us from all
+unrighteousness.) Naaman the leper was told by Elisha to wash in the
+Jordan river to be cleansed. This river represented the Holy Ghost washing
+Naaman with the blood of Jesus. Following his washing in the river he
+turned to the true God and away from his idols. A person can only do that
+by being convicted by the Holy Ghost and then have the Holy Ghost wash a
+person's sins away with the shed blood of Jesus Christ. Water baptism
+represents a person dying in their sins, being buried, and rising again
+with a new life. The water represents the Holy Ghost who cleanses our
+hearts just as water cleanses our physical bodies. Baptism represents our
+obedience to Jesus and it is the water or the Holy Ghost that brings us to
+Jesus and convicts us to obey and serve Jesus.
+
+Just as water has other meanings other than the Holy Ghost such as
+destruction as seen in the Genesis flood so does fire. Fire at times is a
+type of the Holy Ghost. Fire can be seen as the Lord's approval of a
+sacrifice that he burns up such as when God consumed the sacrifice by
+Elijah when he had the contest with the prophets of Baal on Mt. Carmel. (I
+Kings 18:37-38 37 Hear me, O LORD, hear me, that this people may know that
+thou art the LORD God, and that thou hast turned their heart back
+again.   
+38 Then the fire of the LORD fell, and consumed the burnt sacrifice, and
+the wood, and the stones, and the dust, and licked up the water
+that was in the trench.) God also consumed by fire the sacrifice of Manoah
+the dad of Samson. (Judges 13:19-20 19 So Manoah took a kid with a meat
+offering, and offered it upon a rock unto the LORD: and the angel did
+wondrously; and Manoah and his wife looked on.
+20 For it came to pass, when the flame went up toward heaven from off the
+altar, that the angel of the LORD ascended in the flame of the altar.
+And Manoah and his wife looked on it, and fell on their faces to the
+ground.) Scripture which is God's word specifically from the Holy Ghost is
+purified seven times by fire. (Psalm 12:6 The words of the LORD are pure
+words: as silver tried in a furnace of earth, purified seven times.)
+Silver is purified in a fiery furnace just like the words of God that
+today are found in English in the King James Bible. The Holy Ghost gave
+Jeremiah the words to speak and he made them a fire in his mouth.
+(Jeremiah 5:14 Wherefore thus saith the LORD God of hosts, Because ye
+speak this word, behold, I will make my words in thy mouth fire, and this
+people wood, and it shall devour them.) The Holy Ghost baptizes people
+with fire as seen at the first Pentecost following the resurrection of
+Jesus. (Acts 2:3-4 3 And there appeared unto them cloven tongues like as
+of fire, and it sat upon each of them.         
+4 And they were all filled with the Holy Ghost, and began to speak with
+other tongues, as the Spirit gave them utterance.) John the Baptist spoke
+of this baptism by fire by the Holy Ghost. (Matthew 3:11 I indeed baptize
+you with water unto repentance: but he that cometh after me is mightier
+than I, whose shoes I am not worthy to bear: he shall baptize you with the
+Holy Ghost, and with fire:) This fire of the Holy Ghost is what convicts a
+believer to confess their sins and for an unsaved person to call upon
+Jesus to save them. A person can ignore this conviction. We are warned not
+to quench the Holy Ghost as this will keep him from doing his job of
+convicting a person. An unsaved person can ignore the call by the Holy
+Ghost to get saved one too many times and then it will be too late. (I
+Thessalonians 5:19 Quench not the Spirit.) You do not want to extinguish
+the fire of the Holy Ghost in your life.
+
+Wind and the breath of God are types of the Holy Ghost. God breathed
+into man after he had created Adam. Man cannot come to life until he has
+the breath of the Holy Ghost in him. (Genesis 2:7 And the LORD God formed
+man of the dust of the ground, and breathed into his nostrils the breath
+of life; and man became a living soul.) Jesus breathed on the apostles
+after his resurrection and gave them the Holy Ghost. (John 20:22 And when
+he had said this, he breathed on them, and saith unto
+them, Receive ye the Holy Ghost:) Jesus compared the Holy Ghost to the
+wind in the fact that he goes where he wants to just as the wind does and
+just as the wind cannot be seen neither can the Holy Ghost. We can only
+see the effects of the wind and hear the wind, but not see it and the Holy
+Ghost is the same way. If we let him we will feel the tug of the Holy
+Ghost in our lives. (John 3:8 The wind bloweth where it listeth, and thou
+hearest the sound thereof, but canst not tell whence it cometh, and
+whither it goeth: so is every one that is born of the Spirit.) The Holy
+Ghost came as a mighty wind on that first Pentecost when he baptized by
+fire. (Acts 2:2 And suddenly there came a sound from heaven as of a
+rushing mighty wind, and it filled all the house where they were sitting.)
+Just as the wind blows about a ship, the holy men who wrote scripture were
+moved by the Holy Ghost. (II Peter 1:21 For the prophecy came not in old
+time by the will of man: but holy men of God spake as they were moved by
+the Holy Ghost.)   
+
+Another type of the Holy Ghost found in scripture is the dove. The
+dove is a very peaceful bird that stays out of fights. The dove has long
+been used as a symbol of peace by governments and peace groups. Just like
+the dove, the Holy Ghost brings peace into our lives if we listen to him
+and obey him in our lives. The Holy Ghost brings peace whereas Satan
+brings war and distress. The Holy Ghost appeared as a dove at the baptism
+of Jesus. (Luke 3:21-22 21 Now when all the people were baptized, it came
+to pass, that Jesus also being baptized, and praying, the heaven was
+opened,      
+22 And the Holy Ghost descended in a bodily shape like a dove upon him,
+and a voice came from heaven, which said, Thou art my beloved Son; in thee
+I am well pleased.) The dove was the bird sent out by Noah after the flood
+to see if the ground was dried up. The dove brought back an olive leaf.
+The olive branch has also long been a sign of peace and God was showing he
+approved of Noah and his family and was at peace with them by bringing
+them the olive leaf. We already saw how olive oil also represents the Holy
+Ghost. (Genesis 8:11 And the dove came in to him in the evening; and, lo,
+in her mouth was an olive leaf pluckt off: so Noah knew that the waters
+were abated from off the earth.) The dove was a clean bird that was used
+for sin and burnt offerings as the Holy Ghost brings us cleanness by
+washing us in Jesus' blood. (Leviticus 5:7 And if he be not able to bring
+a lamb, then he shall bring for his trespass, which he hath committed,
+two turtledoves, or two young pigeons, unto the LORD; one for a sin
+offering, and the other for a burnt offering.) Noah had also sent out the
+raven, but as an unclean bird it never returned.
+
+The Holy Ghost represents the gifts that we will receive in heaven.
+As a child of God we have access to all of Jesus' treasures as joint heirs
+with Jesus. (Romans 8:17 And if children, then heirs; heirs of God,
+and joint-heirs with Christ; if so be that we suffer with him, that we may
+be also glorified together.) Rebekah was given an earring and bracelets by
+Abraham's servant as a token of the wealth she would get if she married
+Isaac. (Genesis 24:47 And I asked her, and said, Whose daughter art thou?
+And she said, The daughter of Bethuel, Nahor's son, whom Milcah bare unto
+him: and I put the earring upon her face, and the bracelets upon her
+hands.)
+
+One last type of the Holy Ghost that we will look at is Abraham's
+servant as seen in Genesis 24. This is the servant that was sent by
+Abraham to find a bride for his son Isaac. This is when he finds Rebekah
+and gives her the jewelry and brings her back to Isaac to be his wife. The
+servant gives her much jewelry to show her that nothing is too much for
+the bride of Jesus and that all that belongs to the Son Jesus also belongs
+to the bride the church. (Galatians 4:7 Wherefore thou art no more
+a servant, but a son; and if a son, then an heir of God through Christ.)
+Genesis 23 saw the death of Sarah, but chapter 24 brings life in Jesus
+which Rebekah readily accepts by going to Isaac who was a type of Jesus.
+She left immediately and did not stick around with her family as they
+wanted her to do. The servant said she needed to go to Isaac right away
+just as we must not wait to go to Jesus, but go when we are convicted by
+the Holy Ghost. Verse 28 of the chapter shows Rebekah ran to tell others
+about the servant. This shows she was excited to tell others about Jesus.
+In verse 65 Rebekah covers her face with a veil when she sees Isaac. This
+represents how we as the bride cannot look at Jesus in his full glory
+without our face covered in a veil and how we do not deserve to be called
+the bride of Jesus. The servant was Abraham's eldest servant and was most
+likely Eleazar, but God never gives the servant a name in this chapter. I
+believe this was done intentionally by God to match the type of the Holy
+Ghost. Abraham was a type of God the Father [See my sermon Abraham the
+obedient father and type of God the Father.] and Isaac was a type of his
+Son Jesus Christ and as I said Abraham's servant in this chapter was a
+type of the Holy Ghost. The Holy Ghost is the one who brings people to
+Jesus and for those who become saved since Pentecost then they now become
+a part of the true church whether they actually attend a physical church
+or not and regardless of denomination or non-denomination. The true church
+is the bride of Jesus and Rebekah became the bride of Isaac and represents
+the church. Just as the Holy Ghost brings the bride (the church) to Jesus,
+Abraham's servant as a type of the Holy Ghost brought the bride of Rebekah
+(the church) to Isaac who represents Jesus. The servant was not given a
+name in chapter 24 as the focus was on Rebekah as the bride going to meet
+her bridegroom Isaac. The Holy Ghost is the same way by staying in the
+background and always placing the focusing on Jesus the bridegroom rather
+than on himself. The Holy Ghost always points people to Jesus rather than
+himself. Genesis 24 is 67 verses long showing how much God places on the
+importance of his bride the church. Just as the servant was sent far away
+from Abraham and his son Isaac in order to find a suitable bride, the Holy
+Ghost also goes throughout the world convicting anyone who will listen so
+that they too may become a part of the church and the bride of Jesus
+Christ. The servant proudly told Rebekah about Abraham and specifically
+Isaac. This is representative of telling people about Jesus of which we
+should all be doing. This is what the Holy Ghost does as he leads people
+to hear about Jesus if they are willing to listen.  
+
+We have seen various types of the Holy Ghost as found in scripture
+and just as the Holy Ghost calls everyone to be saved and become a part of
+the church and the bride of Jesus, I too plead with anyone who is
+listening that is not saved that they too may repent of their sins and
+call upon Jesus today to be their Saviour. Do not grieve the Holy Ghost by
+rejecting his offer to be a part of the bride of Christ. (Ephesians 4:30
+And grieve not the holy Spirit of God, whereby ye are sealed unto the day
+of redemption.) This verse shows how if we get saved then we will be
+sealed forever as the bride of Jesus. Turn to Jesus today and be saved.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

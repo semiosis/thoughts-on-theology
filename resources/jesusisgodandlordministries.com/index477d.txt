@@ -1,2 +1,4 @@
+Refresh: videos/index.html
+
 Click here...
 

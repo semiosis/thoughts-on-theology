@@ -1,2 +1,4 @@
+Refresh: cults/index.html
+
 Click here...
 

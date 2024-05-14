@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,536 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Moses as a type of Jesus
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Moses the great leader of Israel, the man of God, was a type of
+Jesus. Moses wrote the first five books of scripture [Genesis, Exodus,
+Leviticus, Numbers, Deuteronomy] and Psalm 90. Moses said that God would
+raise up a Prophet like unto him. (Deuteronomy 18:15 ¶ The LORD thy God
+will raise up unto thee a Prophet from the midst of thee, of thy brethren,
+like unto me; unto him ye shall hearken;) (Deuteronomy 18:18 I will raise
+them up a Prophet from among their brethren, like unto thee, and will put
+my words in his mouth; and he shall speak unto them all that I shall
+command him.) The life of Moses greatly paralleled the life of Jesus as we
+will see.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+Both Moses and Jesus were born at a time when Israel was under
+foreign control, Moses while Israel was controlled by Egypt and Jesus
+while Israel was under the control of the Roman Empire. Both Moses and
+Jesus had their lives spared while young as the rulers wanted them dead.
+Pharaoh ordered all of the male children born to be killed. (Exodus 1:22
+And Pharaoh charged all his people, saying, Every son that is born ye
+shall cast into the river, and every daughter ye shall save alive.) The
+life of Moses was spared when his mom placed him into an ark of bulrushes
+and placed him into the river where Pharaoh's daughter rescued him and
+raised him as her own son. The ark Moses was placed in was symbolic of the
+safety that Noah and his family had in the ark during the Genesis flood in
+which Jesus dwelt inside with them. People are also safe inside the arms
+of Jesus. Joseph fled with Mary and Jesus to Egypt to escape king Herod
+who ordered all male children under two years old to be killed in order to
+try and kill Jesus so he could not take Herod's throne as King of the
+Jews. (Matthew 2:13 And when they were departed, behold, the angel of the
+Lord appeareth to Joseph in a dream, saying, Arise, and take the young
+child and his mother, and flee into Egypt, and be thou there until I bring
+thee word: for Herod will seek the young child to destroy him.) Both Moses
+and Jesus spent some of their childhood in Egypt and came out of Egypt.
+Moses lived in Egypt until he was 40 and Jesus from about the age of 2
+until the death of Herod. Both Moses and Jesus were raised without
+biological dads; Moses by the daughter of Pharaoh and Jesus was adopted by
+Joseph who was his stepdad. Moses and Jesus both spent time in the
+wilderness before starting their ministries as they were called by God.
+Moses after leaving Egypt spent 40 years in the wilderness tending the
+sheep of his father in law Jethro. Jesus after being baptized by John the
+Baptist was led by the Spirit into the wilderness to be tempted by the
+devil. (Matthew 4:1 Then was Jesus led up of the Spirit into the
+wilderness to be tempted of the devil.) Moses had been a shepherd before
+starting his calling by God. (Exodus 3:1 Now Moses kept the flock of
+Jethro his father in law, the priest of Midian: and he led the flock to
+the backside of the desert, and came to the mountain of God, even to
+Horeb.) Jesus is the good shepherd. (John 10:11 I am the good shepherd:
+the good shepherd giveth his life for the sheep.)
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+Moses had dealings with the wicked Pharaoh during the ten plagues
+while freeing Israel and Jesus had to deal with the wicked king Herod.
+(Luke 13:31 ¶ The same day there came certain of the Pharisees, saying
+unto him, Get thee out, and depart hence: for Herod will kill thee.)
+Neither feared the king. (Hebrews 11:27 By faith he forsook Egypt, not
+fearing the wrath of the king: for he endured, as seeing him who is
+invisible.) (Luke 13:32 And he said unto them, Go ye, and tell that fox,
+Behold, I cast out devils, and I do cures to day and to morrow, and the
+third day I shall be perfected.)
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+Moses fasted for 40 days alone before God gave him the ten
+commandments and Jesus fasted for 40 days alone in the wilderness while
+being tempted by Satan. (Exodus 34:28 And he was there with the LORD forty
+days and forty nights; he did neither eat bread, nor drink water. And he
+wrote upon the tables the words of the covenant, the ten commandments.)
+(Matthew 4:2 And when he had fasted forty days and forty nights, he was
+afterward an hungred.)
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+Moses and Jesus had to deal with people who hardened their hearts.
+Moses dealt with Pharaoh. (Exodus 8:15 But when Pharaoh saw that there was
+respite, he hardened his heart, and hearkened not unto them; as the LORD
+had said.) Jesus had to deal with his own apostle's hearts hardening. We
+as Christians need to be careful that our hearts do not harden. (Mark 6:52
+For they considered not the miracle of the loaves: for their heart was
+hardened.)
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+Moses climbed mount Sinai to receive the law and Jesus went up into a
+mountain and preached the sermon on the mount. (Exodus 31:18 ¶ And he gave
+unto Moses, when he had made an end of communing with him upon mount
+Sinai, two tables of testimony, tables of stone, written with the finger
+of God.) (Matthew 5:1 And seeing the multitudes, he went up into a
+mountain: and when he was set, his disciples came unto him:) Both Moses
+and Jesus have a connection to the law. Moses received the ten
+commandments from God. Jesus actually wrote the law for Moses and came as
+a man to fulfill the law. (Matthew 5:17 ¶ Think not that I am come to
+destroy the law, or the prophets: I am not come to destroy, but to
+fulfil.)
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+Moses and Jesus both wrote. Moses wrote down the words of the
+covenant between God and Israel. (Exodus 34:27 And the LORD said unto
+Moses, Write thou these words: for after the tenor of these words I have
+made a covenant with thee and with Israel.) Jesus wrote words on the
+ground before the men who accused the adulteress woman. (John 8:6 This
+they said, tempting him, that they might have to accuse him. But Jesus
+stooped down, and with his finger wrote on the ground, as though he heard
+them not.)
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+Both Moses and Jesus performed miracles either to or on large bodies
+of water. Moses parted the Red sea and Jesus calmed the sea while a great
+storm was happening. (Mark 4:39 And he arose, and rebuked the wind, and
+said unto the sea, Peace, be still. And the wind ceased, and there was a
+great calm.) Moses performed miracles such as bringing forth water from a
+rock and Jesus performed many miracles such as he gave sight to the blind,
+hearing to the deaf, raised the dead to life, fed thousands, and many
+other miracles.
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+Both fed hungry people in a wilderness. Moses appealed to God when
+the people murmured against him saying they were hungry and God gave the
+people manna and quails. Jesus fed 5,000 one time and 4,000 another time.
+Both gave water to the people. Moses struck a rock to bring forth water
+for the people. (Exodus 17:6 Behold, I will stand before thee there upon
+the rock in Horeb; and thou shalt smite the rock, and there shall come
+water out of it, that the people may drink. And Moses did so in the sight
+of the elders of Israel.) Jesus as the living water will give living water
+to all those who thirst spiritually and life everlasting. (John 4:14 But
+whosoever drinketh of the water that I shall give him shall never thirst;
+but the water that I shall give him shall be in him a well of water
+springing up into everlasting life.)
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Both men had ministries to Israel. Moses led the Israelites out of
+Egypt and led them in the wilderness. Jesus came to bring salvation to
+Israel and all mankind. (Acts 13:26 Men and brethren, children of the
+stock of Abraham, and whosoever among you feareth God, to you is the word
+of this salvation sent.)
+
+Both men were envied and hated. (Psalm 106:16 They envied Moses also
+in the camp, and Aaron the saint of the LORD.) The people rebelled against
+Moses as they wanted to be him. People were jealous of Moses. Jesus was
+delivered up for death because of envy in the people. The Pharisees were
+jealous of Jesus and were afraid of losing their power. (Matthew 27:18 For
+he knew that for envy they had delivered him.) Satan rebelled against the
+Godhead including Jesus when Satan wanted to be God.
+
+Moses and Jesus both spoke face to face with God. God spoke many
+times to Moses such as at the burning bush and on mount Sinai. God spoke
+to Jesus at times such as at his baptism and when Jesus prayed that his
+name be glorified again. (John 12:28 Father, glorify thy name. Then came
+there a voice from heaven, saying, I have both glorified it, and will
+glorify it again.)
+
+Both men suffered disgrace. Moses was brought up as the son of
+Pharaoh's daughter and would have been in the line to become pharaoh.
+Moses threw all of that away to become disgraced in the eyes of Pharaoh in
+order to lead his people out of Egypt. (Hebrews 11:24-25 By faith Moses,
+when he was come to years, refused to be called the son of Pharaoh's
+daughter;
+25 Choosing rather to suffer affliction with the people of God, than to
+enjoy the pleasures of sin for a season;) Jesus was disgraced when as an
+innocent man he died on the cross for our sins. He became a curse for us
+so that we might have everlasting life. (Hebrews 12:2 Looking unto Jesus
+the author and finisher of our faith; who for the joy that was set before
+him endured the cross, despising the shame, and is set down at the right
+hand of the throne of God.)
+
+Moses delivered Israel from Egypt and slavery and Jesus delivered
+those in paradise to a place in heaven and delivered all of those who call
+upon him for salvation from spiritual death and spiritual slavery due to
+sin and the consequences of it. (Ephesians 4:8 Wherefore he saith, When he
+ascended up on high, he led captivity captive, and gave gifts unto men.)
+(Romans 3:23 For all have sinned, and come short of the glory of God;)
+(Romans 6:23 For the wages of sin is death; but the gift of God is eternal
+life through Jesus Christ our Lord.)
+
+Moses was a meek man, more than all those on the earth. [Numbers 12:3
+(Now the man Moses was very meek, above all the men which were upon the
+face of the earth.)] Jesus was also a meek, humble man who said he would
+take on the burdens of people. (Matthew 11:29 Take my yoke upon you, and
+learn of me; for I am meek and lowly in heart: and ye shall find rest unto
+your souls.) Jesus humbled himself when as God he became a man that he
+might die on the cross for our sins and bring salvation to the world.
+(Philippians 2:8 And being found in fashion as a man, he humbled himself,
+and became obedient unto death, even the death of the cross.)
+
+Moses acted as an intercessor or mediator between God and the people
+of Israel. God wanted to destroy Israel and then start a new nation with
+Moses but Moses said he would rather have his name removed from the book
+of life and go to hell for eternity than to have God not keep his word to
+preserve Israel. (Exodus 32:32 Yet now, if thou wilt forgive their sin-;
+and if not, blot me, I pray thee, out of thy book which thou hast
+written.) Jesus as only he as the God-man can do is the intercessor for us
+before God. Jesus was willing to die on the cross for us in order to be
+our intercessor. (Hebrews 7:25 Wherefore he is able also to save them to
+the uttermost that come unto God by him, seeing he ever liveth to make
+intercession for them.)
+
+Moses was not recognized by his own people. (Acts 7:25 For he
+supposed his brethren would have understood how that God by his hand would
+deliver them: but they understood not.) Jesus was also not recognized by
+his own people. (John 1:10-11 10 He was in the world, and the world was
+made by him, and the world knew him not.
+11 He came unto his own, and his own received him not.) Jesus was rejected
+by those he had created.
+
+Moses and Jesus were both faithful. (Hebrews 3:2 Who was faithful to
+him that appointed him, as also Moses was faithful in all his house.)
+Moses was faithful as a servant, but Jesus was faithful as the Son of God.
+Jesus always did the will of God the Father.
+
+The people grumbled about Moses and his leadership. (Numbers 14:2 And
+all the children of Israel murmured against Moses and against Aaron: and
+the whole congregation said unto them, Would God that we had died in the
+land of Egypt! or would God we had died in this wilderness!) Jesus was
+also murmured at by the people because they did not like his teachings.
+This happens still today against preachers who preach God's word. (John
+6:41 The Jews then murmured at him, because he said, I am the bread which
+came down from heaven.)
+
+Moses sent out twelve spies to the Promised Land and Jesus sent out
+the twelve apostles to preach about him. Moses and Jesus were both
+prophets and priests. Both were kings. Jesus is King of kings and Moses
+was king of Jeshurun. (Deuteronomy 33:5 And he was king in Jeshurun, when
+the heads of the people and the tribes of Israel were gathered together.)
+(I Timothy 6:15 Which in his times he shall shew, who is the blessed and
+only Potentate, the King of kings, and Lord of lords;) Both men were
+judges and teachers. (Deuteronomy 4:5 Behold, I have taught you statutes
+and judgments, even as the LORD my God commanded me, that ye should do so
+in the land whither ye go to possess it.) (John 3:2 The same came to Jesus
+by night, and said unto him, Rabbi, we know that thou art a teacher come
+from God: for no man can do these miracles that thou doest, except God be
+with him.) (Exodus 18:13 ¶ And it came to pass on the morrow, that Moses
+sat to judge the people: and the people stood by Moses from the morning
+unto the evening.) (Revelation 19:11 And I saw heaven opened, and behold a
+white horse; and he that sat upon him was called Faithful and True, and in
+righteousness he doth judge and make war.)
+
+Both Moses and Jesus had raised and outstretched arms with two men
+beside them and a war going on. Moses while fighting the Amalekites had
+Aaron and Hur beside him who held his arms up. Jesus while hanging on the
+cross had two thieves beside him all while a spiritual war was going on.
+(Exodus 17:12 But Moses' hands were heavy; and they took a stone, and put
+it under him, and he sat thereon; and Aaron and Hur stayed up his hands,
+the one on the one side, and the other on the other side; and his hands
+were steady until the going down of the sun.) (Matthew 27:38 Then were
+there two thieves crucified with him, one on the right hand, and another
+on the left.)
+
+Moses and Jesus were together at the mount of transfiguration.(Matthew
+17:4 Then answered Peter, and said unto Jesus, Lord, it is good for us to
+be here: if thou wilt, let us make here three tabernacles; one for thee,
+and one for Moses, and one for Elias.)
+
+Both had people weep over their deaths and both had disputes and
+controversies over their bodies as well as important individuals
+interested in their bodies. (Deuteronomy 34:8 ¶ And the children of Israel
+wept for Moses in the plains of Moab thirty days: so the days of weeping
+and mourning for Moses were ended.) (Mark 16:10 And she went and told them
+that had been with him, as they mourned and wept.) Michael the archangel
+disputed over the body of Moses with Satan. (Jude 9 Yet Michael the
+archangel, when contending with the devil he disputed about the body of
+Moses, durst not bring against him a railing accusation, but said, The
+Lord rebuke thee.) Joseph of Arimathaea who was a member of the council
+wanted the body of Jesus. (Mark 15:43 Joseph of Arimathaea, an honourable
+counsellor, which also waited for the kingdom of God, came, and went in
+boldly unto Pilate, and craved the body of Jesus.)
+
+God told Moses to make a fiery serpent out of brass and set it upon a
+pole and that whenever someone was bitten by a fiery serpent if they
+looked at the one on the pole they would live. (Numbers 21:8 And the LORD
+said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it
+shall come to pass, that every one that is bitten, when he looketh upon
+it, shall live.) Jesus said that the brasen fiery serpent represented him
+on the cross as just as the serpent was cursed so was he. (Genesis 3:14
+And the LORD God said unto the serpent, Because thou hast done this, thou
+art cursed above all cattle, and above every beast of the field; upon thy
+belly shalt thou go, and dust shalt thou eat all the days of thy life:)
+(Galatians 3:13 Christ hath redeemed us from the curse of the law, being
+made a curse for us: for it is written, Cursed is every one that hangeth
+on a tree:) Those who look to Jesus and his death on the cross will live,
+those who do not will die and spend eternity in the lake of fire. (John
+3:14 ¶ And as Moses lifted up the serpent in the wilderness, even so must
+the Son of man be lifted up:)
+
+Both kept the passover and Jesus became the passover lamb. (I
+Corinthians 5:7 Purge out therefore the old leaven, that ye may be a new
+lump, as ye are unleavened. For even Christ our passover is sacrificed for
+us:) Both dealt with lepers. Jesus healed the lepers and Moses' sister
+Miriam became a leper after she challenged the authority of Moses.
+(Numbers 12:10 And the cloud departed from off the tabernacle; and,
+behold, Miriam became leprous, white as snow: and Aaron looked upon
+Miriam, and, behold, she was leprous.) (Luke 7:22 Then Jesus answering
+said unto them, Go your way, and tell John what things ye have seen and
+heard; how that the blind see, the lame walk, the lepers are cleansed, the
+deaf hear, the dead are raised, to the poor the gospel is preached.) Both
+Moses and Jesus sang. Moses sang after the victory at the Red sea and
+Jesus sang a hymn after the last supper. (Exodus 15:1 Then sang Moses and
+the children of Israel this song unto the LORD, and spake, saying, I will
+sing unto the LORD, for he hath triumphed gloriously: the horse and his
+rider hath he thrown into the sea.) (Mark 14:26 ¶ And when they had sung
+an hymn, they went out into the mount of Olives.) Both had connections to
+innocent blood. God gave Moses the laws concerning innocent blood. Jesus
+an innocent man shed his blood for you and me and the whole world.
+(Matthew 27:4 Saying, I have sinned in that I have betrayed the innocent
+blood. And they said, What is that to us? see thou to that.)
+
+Moses was offered the world but refused it. He was an heir to the
+throne of Pharaoh and at the time Egypt was a world power and Moses could
+have had it all. He chose God over the world and so should we. Jesus was
+offered the kingdoms of the world if he would have only bowed down to
+Satan and worshipped him. (Luke 4:5-7 5 And the devil, taking him up into
+an high mountain, shewed unto him all the kingdoms of the world in a
+moment of time.
+6 And the devil said unto him, All this power will I give thee, and the
+glory of them: for that is delivered unto me; and to whomsoever I will I
+give it.
+7 If thou therefore wilt worship me, all shall be thine.) Jesus refused
+and someday Jesus will rule this world and Satan will bow down to him.
+
+Both spoke of eternal fire; Moses on the altar and Jesus the fires of
+hell. (Matthew 23:33 Ye serpents, ye generation of vipers, how can ye
+escape the damnation of hell?) Both paid tribute. (Numbers 31:41 And Moses
+gave the tribute, which was the LORD'S heave offering, unto Eleazar the
+priest, as the LORD commanded Moses.) Jesus paid tribute for him and Peter
+when Peter got the coin from the mouth of the fish. (Matthew 17:27
+Notwithstanding, lest we should offend them, go thou to the sea, and cast
+an hook, and take up the fish that first cometh up; and when thou hast
+opened his mouth, thou shalt find a piece of money: that take, and give
+unto them for me and thee.) Both told wicked men to depart or to depart
+from the wicked. (Numbers 16:26 And he spake unto the congregation,
+saying, Depart, I pray you, from the tents of these wicked men, and touch
+nothing of theirs, lest ye be consumed in all their sins.) (Matthew 7:23
+And then will I profess unto them, I never knew you: depart from me, ye
+that work iniquity.) Both spoke of future tribulation. (Deuteronomy 4:30
+When thou art in tribulation, and all these things are come upon thee,
+even in the latter days, if thou turn to the LORD thy God, and shalt be
+obedient unto his voice;) Jesus often spoke of the coming great
+tribulation. (Matthew 24:21 For then shall be great tribulation, such as
+was not since the beginning of the world to this time, no, nor ever shall
+be.)
+
+Moses and Jesus were called God's servants. (Numbers 12:7 My servant
+Moses is not so, who is faithful in all mine house.) Jesus is the Son of
+God yet he became a servant of God as a man. (Matthew 12:18 Behold my
+servant, whom I have chosen; my beloved, in whom my soul is well pleased:
+I will put my spirit upon him, and he shall shew judgment to the
+Gentiles.) We all need to be servants of God.
+
+Moses was clearly a type of Jesus. Many others things could be added.
+Jesus was always greater than Moses. Jesus was the Prophet like unto Moses
+that Moses spoke about. Many thought John the Baptist was when they asked
+him if he was that prophet. This was what they were referring to. (John
+1:21 And they asked him, What then? Art thou Elias? And he saith, I am
+not. Art thou that prophet? And he answered, No.) The people were told to
+hear this Prophet which is Jesus. (Acts 3:22 For Moses truly said unto the
+fathers, A prophet shall the Lord your God raise up unto you of your
+brethren, like unto me; him shall ye hear in all things whatsoever he
+shall say unto you.) (Acts 7:37 ¶ This is that Moses, which said unto the
+children of Israel, A prophet shall the Lord your God raise up unto you of
+your brethren, like unto me; him shall ye hear.) If anyone today who is
+listening is not saved, then please hear this Prophet. Seek Jesus as the
+people were looking for him when John the Baptist came. Jesus said he is
+the only way to life. (John 14:6 Jesus saith unto him, I am the way, the
+truth, and the life: no man cometh unto the Father, but by me.) Call upon
+him today before it is too late.
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +557,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

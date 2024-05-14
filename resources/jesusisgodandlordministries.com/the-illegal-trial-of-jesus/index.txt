@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,490 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Illegal Trial of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+This is based off a book by the lawyer Earle L. Wingo. The Sanhedrin
+was the court of the Jews. Its authority was supreme in all matters -
+civil, criminal, political, social and religious. It was led by the high
+priest and consisted of 70 members. Most of the members including the high
+priest were Sadducees (Acts 5:17 ¶ Then the high priest rose up, and all
+they that were with him, (which is the sect of the Sadducees,) and were
+filled with indignation,), who did not believe in a resurrection. (Luke
+20:27 ¶ Then came to him certain of the Sadducees, which deny that there
+is any resurrection; and they asked him,) The Sanhedrin was already
+prejudiced against Jesus having already desired to have planned his death
+because Jesus pointed out their hypocrisies and sins. They wanted to keep
+their power and control over the people. Many laws were broken in order to
+execute Jesus and the Jewish leaders allowed the mob to take over.  
 
-Username or email _____________________
+The charge brought against the defendant, before the court of the
+Sanhedrin, was
 
-Reset password
+"blasphemy against Jehovah."
+
+The criminal indictment brought against the defendant before Pilate and
+Herod, was
+
+"treason against the government of Rome." Jesus said he was a King.
+
+This trial took place in less than twelve hours. Jesus was taken at
+night and crucified at the third hour (9 am.). (Mark 15:25 And it was the
+third hour, and they crucified him.) In one sense Jesus had six trials-3
+Jewish (were religious) (all with guilty verdict) (Annas- gave the ok to
+arrest Jesus, Caiaphas- charge of Blasphemy against Jesus and death
+sentence, and the trial of the Sanhedrin-also death sentence)and three
+Roman (civil) (all innocent) (Pilate, Herod, Pilate)
+
+Broken Law 1: The arrest of Jesus was illegal. Caiaphas, the high priest
+had already decided on his own to condemn Jesus to death to protect
+himself and the other chief priests and he thought the nation. (John 11:50
+Nor consider that it is expedient for us, that one man should die for the
+people, and that the whole nation perish not.) (John 18:14 Now Caiaphas
+was he, which gave counsel to the Jews, that it was expedient that one man
+should die for the people.) Caiaphas said it was expedient that one man
+should die for the people. There was no warrant for his arrest. Even Saul
+(Paul) needed to get letters (authority and commission) from the high
+priest to go after Christians and arrest them. (Acts 9:1-2 And Saul, yet
+breathing out threatenings and slaughter against the disciples of the
+Lord, went unto the high priest,
+2 And desired of him letters to Damascus to the synagogues, that if he
+found any of this way, whether they were men or women, he might bring them
+bound unto Jerusalem.) (Acts 26:12 Whereupon as I went to Damascus with
+authority and commission from the chief priests,) Jesus was never charged
+with any crime.
+
+Broken Law 2: The Jewish law prohibited any part of legal proceedings by
+night.
+
+"A capital offense must be tried during the day and suspended at night"
+(From the Mishna-A Jewish book on oral traditions and laws.  They were
+carrying lanterns when they came to arrest Jesus. (John 18:3 Judas then,
+having received a band of men and officers from the chief priests and
+Pharisees, cometh thither with lanterns and torches and weapons.) Jesus
+was first taken to Annas's house at night after his arrest. Annas had no
+authority as high priest as he had been deposed by the Romans and Caiaphas
+was the high priest. Annas sent Jesus bound to Caiaphas. Both had tried
+Jesus alone which was against Jewish law. "Be not a sole judge, for there
+is no sole judge but One." (Mishna)
+
+"An accused man must never be subjected to private or secret examination,
+let in his perplexity, he furnish damaging testimony against himself."
+
+
+
+Broken Law 3: Annas had no jurisdiction. Annas was the father in law of
+Caiaphas (John 18:13 And led him away to Annas first; for he was father in
+law to Caiaphas, which was the high priest that same year.). He was
+deposed by the Romans. It is likely that Caiaphas was then chosen by the
+Romans to be high priest, though God said the high priest was for life,
+(Exodus 29:9 And thou shalt gird them with girdles, Aaron and his sons,
+and put the bonnets on them: and the priest's office shall be theirs for a
+perpetual statute: and thou shalt consecrate Aaron and his sons.) so it
+should have been Annas, who may have been recognized by the Jews as such.
+Caiaphas probably should not have had any authority, but did by Roman
+authority. Throughout the old testament we see how Aaron was high priest
+until his death and then his son until his death and his son and so on as
+God commanded.
+
+Broken Law 4: Sanhedrin's unlawful assembly. The Sanhedrin was not allowed
+by Jewish law to hold a death penalty case on the day before the Sabbath
+(Mark 15:42 ¶ And now when the even was come, because it was the
+preparation, that is, the day before the sabbath,) or a feast such as the
+Passover, nor during the night. Jesus was crucified on the Passover. He is
+our Passover Lamb. (I Corinthians 5:7 Purge out therefore the old leaven,
+that ye may be a new lump, as ye are unleavened. For even Christ our
+passover is sacrificed for us:) The Jewish day starts at sunset. Also the
+whole Sanhedrin was not assembled, only the people that Caiaphas knew
+would back him up. Only 23 members of the Sanhedrin were needed for a
+quorum. (Mark 15:1 And straightway in the morning the chief priests held a
+consultation with the elders and scribes and the whole council, and bound
+Jesus, and carried him away, and delivered him to Pilate.) Nicodemus and
+Joseph of Arimathaea, whose tomb Jesus was buried in, were not present for
+the trial of Jesus. (Mark 15:43 Joseph of Arimathaea, an honourable
+counsellor, which also waited for the kingdom of God, came, and went in
+boldly unto Pilate, and craved the body of Jesus.) (Luke 23:50-51 ¶ And,
+behold, there was a man named Joseph, a counsellor; and he was a good man,
+and a just:
+51 (The same had not consented to the counsel and deed of them;) he was of
+Arimathæa, a city of the Jews: who also himself waited for the kingdom of
+God.)
+
+Broken Law 5: Changing the False Accusations against Jesus. Matthew
+26:60-61 says "-At the last came two false witnesses, And said, This
+fellow said, I am able to destroy the temple of God, and to build it in
+three days. (Matthew 26:60-61 But found none: yea, though many false
+witnesses came, yet found they none. At the last came two false witnesses,
+61 And said, This fellow said, I am able to destroy the temple of God, and
+to build it in three days.) This is not what Jesus said. Jesus said in
+John 2:19 Destroy this temple, and in three days I will raise it up. (John
+2:19 Jesus answered and said unto them, Destroy this temple, and in three
+days I will raise it up.) These false witnesses were twisting Jesus's
+words and trying to accuse him of destroying Herod's temple, but John 2:21
+shows Jesus was referring to the temple of his body. (John 2:21 But he
+spake of the temple of his body.) When the accusations of these false
+witnesses did not work (Mark 14:59 But neither so did their witness agree
+together.), Caiaphas changed tactics and the charge by asking Jesus if he
+"be the Christ, the Son of God" in Matthew 26:63. (Matthew 26:63 But Jesus
+held his peace. And the high priest answered and said unto him, I adjure
+thee by the living God, that thou tell us whether thou be the Christ, the
+Son of God.) Jesus responded in Matthew 26:64 "Thou hast said:
+nevertheless I say unto you, Hereafter shall ye see the Son of man sitting
+on the right hand of power, and coming in the clouds of heaven." (Matthew
+26:64 Jesus saith unto him, Thou hast said: nevertheless I say unto you,
+Hereafter shall ye see the Son of man sitting on the right hand of power,
+and coming in the clouds of heaven.) In Mark 14:62, Jesus admitted to
+being the Messiah or Christ. (Mark 14:62 And Jesus said, I am: and ye
+shall see the Son of man sitting on the right hand of power, and coming in
+the clouds of heaven.) The high priest then accused Jesus of blasphemy,
+another false charge since Jesus is God. According to the Talmud (the
+Jewish book of civil and ceremonial law, of which the Mishna is a part),
+one is only guilty of blasphemy if they say the whole divine name of God
+(Jehovah). Jesus said "I am" which is not the same name. He was sentenced
+to death, which was forbidden by the Romans for the Jews to impose a death
+sentence. Following the Sanhedrin's ruling of death, the Jews then brought
+Jesus before Pilate so they could get authorization for the death penalty.
+The Jews changed the charge against Jesus again since the Romans did not
+care if someone claimed to be God as they had many gods and that was the
+Jews problem. The Jews accused Jesus of planning to overthrow Caesar and
+make himself King of the Jews (Luke 23:2 And they began to accuse him,
+saying, We found this fellow perverting the nation, and forbidding to give
+tribute to Cæsar, saying that he himself is Christ a King.). Jesus never
+said he was going to be King at this time. Jesus told Pilate that his
+kingdom was not of this world. (John 18:36 Jesus answered, My kingdom is
+not of this world: if my kingdom were of this world, then would my
+servants fight, that I should not be delivered to the Jews: but now is my
+kingdom not from hence.) (The Jews said they had no king but Caesar. (John
+19:15 But they cried out, Away with him, away with him, crucify him.
+Pilate saith unto them, Shall I crucify your King? The chief priests
+answered, We have no king but Cæsar.) Pilate found Jesus not guilty and
+sent him to Herod since Jesus was from his Jurisdiction of Galilee. Herod
+also found him not guilty and sent him back to Pilate who found Jesus not
+guilty again and said he washed his blood of Jesus (Matthew 27:24 ¶ When
+Pilate saw that he could prevail nothing, but that rather a tumult was
+made, he took water, and washed his hands before the multitude, saying, I
+am innocent of the blood of this just person: see ye to it.) after the
+Jews called for the release of Barabbas a robber, murderer and one guilty
+of sedition (insurrection against the government). (John 18:40 Then cried
+they all again, saying, Not this man, but Barabbas. Now Barabbas was a
+robber.) and [Luke 23:18-19 18 And they cried out all at once, saying,
+Away with this man, and release unto us Barabbas:
+19 (Who for a certain sedition made in the city, and for murder, was cast
+into prison.)] The Jews called for the release of a guilty man and the
+murder of an innocent man. (Matthew 27:20-22 But the chief priests and
+elders persuaded the multitude that they should ask Barabbas, and destroy
+Jesus.
+21 The governor answered and said unto them, Whether of the twain will ye
+that I release unto you? They said, Barabbas.
+22 Pilate saith unto them, What shall I do then with Jesus which is called
+Christ? They all say unto him, Let him be crucified.)
+
+Broken Law 6: Jesus was not allowed any witnesses. None of the apostles
+(John 15:27 And ye also shall bear witness, because ye have been with me
+from the beginning.) or any of his other disciples such as Lazarus or his
+sisters Mary and Martha, who could easily testify of his deity as could
+all those who he performed miracles on. Peter, James and John could
+testify that God the Father said Jesus was his Son at the transfiguration.
+(Matthew 17:5 While he yet spake, behold, a bright cloud overshadowed
+them: and behold a voice out of the cloud, which said, This is my beloved
+Son, in whom I am well pleased; hear ye him.) (Mark 9:7 And there was a
+cloud that overshadowed them: and a voice came out of the cloud, saying,
+This is my beloved Son: hear him.) The Sanhedrin knew full well that Jesus
+was more than a prophet by the miracles he did, but refused to admit it.
+
+Broken Law 7: Jesus was convicted on his own statement. After Caiaphas
+accused Jesus of blasphemy, no witnesses from either side were called.
+Jesus was sentenced to death by his own statement. This was against Jewish
+law. Jewish law said "We have it as a fundamental principle of our
+jurisprudence that no one can bring an accusation against himself.
+Moreover a voluntary confession on his part is not admitted in evidence."
+
+Broken Law 8: Failed to have required two witnesses. Jewish law required
+at least two male witnesses who had observed the entire crime. No
+circumstantial or partial witness to crime was allowed. They did not even
+have one witness against Jesus.
+
+Broken Law 9: Death trial cannot end in one day. It is estimated that the
+trials of Jesus (Jewish and Roman) lasted around seven hours from around
+1-2 am to the break of dawn or at most 9 am when Jesus was crucified. That
+is all in one day. Normally the Sanhedrin would have gone home at night to
+pray that they make the right decision about the life of a person and
+return the next day.
+
+Broken Law 10: Sanhedrin could not authorize the death penalty. The Romans
+had removed the authority of the Jews to execute people. This is why Jesus
+had to be brought before Pilate. (John 18:31 Then said Pilate unto them,
+Take ye him, and judge him according to your law. The Jews therefore said
+unto him, It is not lawful for us to put any man to death:)
+
+Broken Law 11: Death sentence cannot be unanimous. (Mark 14:63-64 Then the
+high priest rent his clothes, and saith, What need we any further
+witnesses?
+64 Ye have heard the blasphemy: what think ye? And they all condemned him
+to be guilty of death.) They all found him guilty. This would not have
+happened if Nicodemus and Joseph of Arimathaea had been present.  There
+were no lawyers for the accused then and the judges were to act as such to
+prevent mob violence. This was not the case with Jesus. The Sanhedrin did
+the opposite and actually stirred up and incited the crowd to find Jesus
+guilty and to be crucified.
+
+Broken law 12: Sanhedrin members were disqualified. The "judges could not
+be an enemy of the accused." This was to prevent any bias and dishonesty.
+It is obvious that Jesus was despised. (John 18:14) Mark 14:1 says they
+would take him by craft and put him to death. (Mark 14:1 After two days
+was the feast of the passover, and of unleavened bread: and the chief
+priests and the scribes sought how they might take him by craft, and put
+him to death.) They also got false witnesses against Jesus. (Mark 14:57
+And there arose certain, and bare false witness against him, saying,) The
+judge could not serve if he was "related to the accuser." Caiphas (the
+judge) was the son in law of Annas (the accuser). (John 18:13) Both found
+Jesus guilty and had conspired days earlier to kill Jesus. (John 11:57 Now
+both the chief priests and the Pharisees had given a commandment, that, if
+any man knew where he were, he should shew it, that they might take him.)
+and (John 12:10-11 ¶ But the chief priests consulted that they might put
+Lazarus also to death;
+11 Because that by reason of him many of the Jews went away, and believed
+on Jesus.) History also says 5 of Annas's sons had been high priests and
+were also present at the trial.
+
+Broken Law 13: Jesus's defense was ignored. The members of the Sanhedrin
+knew all of the Hebrew laws well. They were to "weigh the evidence in the
+sincerity of their conscience." When they accused Jesus of blasphemy, they
+denied the evidence that Jesus was God and ignored their own laws on
+blasphemy and apparently had no conscience. It was not Jesus's job to
+establish his own guilt, it was the job of the Sanhedrin. The Sanhedrin
+had never charged Jesus with a crime before the start of the trial. It is
+also possible that the Sanhedrin held the trial in an illegal place. The
+Sanhedrin could only hold trials in the Hall of Hewn Stones.
+
+Those responsible for the illegal trials of Jesus reaped the
+consequences they had sewn. They had committed the greatest crime in
+history by crucifying God. Judas Iscariot hanged himself. Annas was buried
+in an unmarked grave, Caiaphas lived with having killed God. Caesar had
+the coward Pilate executed after learning of the crucifixion of Jesus.
+Herod would live to regret his actions. The Sanhedrin was dissolved soon
+after the "trial" of Jesus in disgrace. The Pharisees and Sadducees no
+longer exist and the Roman soldiers were forgotten. All are now in hell.
+
+As Joseph said to his brothers in Genesis 50:20 (Genesis 50:20 But as
+for you, ye thought evil against me; but God meant it unto good, to bring
+to pass, as it is this day, to save much people alive.) that what they did
+to him they meant as evil, but God meant it for good, Satan and those who
+crucified Jesus (especially the Jewish leaders) meant Jesus' death on the
+cross for evil with Satan winning, but God meant it for good. For without
+the death of Jesus on the cross and the shedding of his blood, all of
+mankind would still be dead in their sins and along with the victorious
+resurrection we can have eternal life to those who believe in Jesus and
+Satan and his angels were defeated. (I Corinthians 15:17 And if Christ be
+not raised, your faith is vain; ye are yet in your sins.) (Hebrews 9:22
+And almost all things are by the law purged with blood; and without
+shedding of blood is no remission.)
+
+There is one more trial of Jesus. All people including me and you have put
+Jesus on trial whether he is God in the flesh who shed his blood and died
+for our sins, was buried and rose again on the third day and is at the
+right hand of God. Do we find Jesus innocent of these charges that he is
+who he says he is or guilty. The verdict we make will determine whether we
+spend eternity in heaven or hell. Find Jesus innocent as he is innocent of
+all charges and choose life. Choose Jesus is who he says he is and choose
+heaven.
+
+[Note that much of this was adapted from the book "The ILLEGAL Trial of
+Jesus" by Earle L. Wingo (a lawyer). This book is available at chick.com.]
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

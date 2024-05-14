@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,376 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jewish tragedies on the 9th of Av
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The month of Av is the fifth month of the Jewish calendar. It occurs
+in either July or August of our calendar. The ninth of Av which occurs on
+August 6 this year (2022) has seen many tragedies for the Jewish people.
+It is no coincidence that so many tragic events for the Jewish people have
+occurred on the same day. There are no other nations who have seen so many
+tragic events happen on the same day. Look at America. We had the Pearl
+Harbor attacks on December 7, the attacks on the World trade Center and
+Pentagon on September 11, the first attack on the World Trade Center on
+February 26, Oklahoma City bombing on April 19, and other tragedies, but
+they are never all on the same day the way things happened for the Jews.
+Other nations are the same. I believe God has had these events happen over
+and over on the same day as a way to show the Jewish people that God
+controls everything and the people need to turn to God and specifically
+Jesus for their salvation. God is always trying to wake the Jewish people
+up and bring them to Jesus. God brought these judgments on the same day to
+get the Jewish people to turn from their many sins over the years. The
+Jews have long mourned and fasted on the 9^th of Av. They mourn over the
+destruction of Solomon's temple on this day and later Herod's temple on
+the same day. They look forward to their coming Messiah to restore all
+things, not realizing that their Messiah is Jesus who already came for
+them and was rejected by them. (Zechariah 7:3 And to speak unto the
+priests which were in the house of the LORD of hosts, and to the prophets,
+saying, Should I weep in the fifth month, separating myself, as I have
+done these so many years?) (Zechariah 7:5 Speak unto all the people of the
+land, and to the priests, saying, When ye fasted and mourned in the fifth
+and seventh month, even those seventy years, did ye at all fast unto me,
+even to me?) The Jews usually mourn and fast for the first eight days as
+well starting on the first of Av which is the day that Aaron died.
+(Numbers 33:38 And Aaron the priest went up into mount Hor at the
+commandment of the LORD, and died there, in the fortieth year after the
+children of Israel were come out of the land of Egypt, in the first day of
+the fifth month.) We will look at just some of the things that have
+occurred on the 9^th of Av.
 
-Username or email _____________________
+The first tragic event on the ninth of Av was when the twelve spies
+returned from searching out the future Promised Land and they gave an evil
+report saying that there were giants in the land and they could not take
+the land and all of their young ones would be killed. They admitted the
+land had great fruit and was a land of milk and honey as God said, but
+they did not trust God to take care of them as he had when they left Egypt
+and crossed the Red sea, and when God gave them water from the rock.
+(Numbers 13:27 And they told him, and said, We came unto the land whither
+thou sentest us, and surely it floweth with milk and honey; and this is
+the fruit of it.) God provided food, but they did not believe God. Only
+Caleb and Joshua believed God, but the other ten did not. Because of their
+evil report and disbelief in God, God killed the ten men that day and the
+Israelites wondered in the wilderness for an additional 38 more years for
+a total of 40 years when they could have crossed into the Promised Land.
+(Numbers 14:37 Even those men that did bring up the evil report upon the
+land, died by the plague before the LORD.) All of the people above 20
+years old except Caleb and Joshua, God killed in the wilderness and they
+did not enter the Promised Land because of their unbelief. God kept the
+young ones that the people were so worried about. (Numbers 14:29 Your
+carcases shall fall in this wilderness; and all that were numbered of you,
+according to your whole number, from twenty years old and upward, which
+have murmured against me,) (Hebrews 3:19 So we see that they could not
+enter in because of unbelief.)
 
-Reset password
+Solomon's temple was destroyed on the ninth of Av by the Babylonians
+in 586 BC (some say 587 BC). Solomon's temple was the first temple and was
+the most glorious building ever built. It was filled with gold all around
+it as well as the many objects in it though later they were made of brass.
+This was the place that worship was centered for the Jewish people to
+worship God. This was where the animal sacrifices were done. The Jews
+today still mourn over the loss of this temple and its grandeur as they
+long to restart animal sacrifices believing this is necessary for their
+salvation when it was only meant to point them to Jesus. The animal blood
+only covered their sins, but never forgave them. Only the blood of Jesus
+can. (Hebrews 10:4 For it is not possible that the blood of bulls and of
+goats should take away sins.)
+
+Herod's temple was the second temple and was rebuilt as Zerubbabel's
+temple when the Jews returned from the Babylonian captivity and then later
+expanded by Herod. This temple was destroyed by the Romans in AD 70 also
+on the ninth of Av. This temple was never as glorious as the first as God
+did not dwell in this temple like he did in Solomon's. God allowed both of
+these temple's to be destroyed due to the sin of the Jewish people. With
+the resurrection of Jesus there is also no need for a temple as all
+Christians are a temple of God. (I Corinthians 3:16-17 Know ye not that ye
+are the temple of God, and that the Spirit of God dwelleth in
+you?                                                                                          
+17 If any man defile the temple of God, him shall God
+destroy; for the temple of God is holy, which temple ye are.) There is
+also no need for animal sacrifices anymore as Jesus' sacrifice on the
+cross did away with the need for them. The Jews have never been able to
+have animal sacrifices since and they will one day build a third temple
+during the tribulation and restart animal sacrifices. The antichrist will
+desecrate the temple during the midpoint of the tribulation and I would
+not be surprised if it is not once again on the ninth of Av.
+
+A fourth major tragedy occurred on the ninth of Av exactly one year
+later in 71 when the Romans plowed the temple mount and the whole city of
+Jerusalem with salt to show complete victory over the Jews and to keep
+anything from growing. Micah predicted this event. (Micah 3:12 Therefore
+shall Zion for your sake be plowed as a field, and Jerusalem shall become
+heaps, and the mountain of the house as the high places of the forest.)
+
+A fifth event was the destruction of the Jewish army led by Simon Bar
+Cochba in 135 on the ninth of Av. The Jews no longer had an army anymore
+after this date until modern Israel in 1948. The Roman historian Dio
+Cassius said 580,000 Jewish soldiers died by the sword and many others
+died by fire and famine. Simon had been a false Messiah that Jesus had
+warned about. (John 5:43 I am come in my Father's name, and ye receive me
+not: if another shall come in his own name, him ye will receive.) The Jews
+rejected the true Messiah in Jesus yet they jumped on the bandwagon to
+follow Simon in droves. How sad that they were so blind to follow a
+counterfeit, yet reject the true Messiah in Jesus.
+
+A sixth major event was the expulsion of Jews from England by king
+Edward I in 1290 on the ninth of Av. It is estimated there were 3,000 Jews
+living in England at the time. Jews were forbidden to legally live in
+England for almost 360 years. They were allowed to return in the 1650's
+under Cromwell. England only truly began to grow as a nation with the
+return of the Jewish people. She would become a great empire until she
+once again betrayed the Jews following World War II which cost her her
+empire.  
+
+Spain expelled all Jews on the ninth of Av in 1492, an estimated
+800,000 Jews. The Spanish empire went into decline from this point forward
+just like England. God warned that he would bless those who bless Israel
+and would curse those who cursed Israel. God showed this not only with
+England and Spain, but also in other nations. Do not mess with God's
+chosen people or you will reap what you sow. (Genesis 12:3 And I will
+bless them that bless thee, and curse him that curseth thee: and in thee
+shall all families of the earth be blessed.) Christopher Columbus left
+Spain on this same day in 1492 and ultimately discovered the New World
+which would become a haven for Jews. There is some evidence that
+Christopher Columbus was a Jew, so this would be a good day to leave on
+his voyage. Much of the money to pay for this trip was money confiscated
+from the Jews. Both England and Spain were Roman Catholic nations showing
+the long time hatred of Jews by the Roman Catholic Church.  
+
+An eighth major event on the ninth of Av was in 1914 when Russia
+entered World War I. This caused the Jews to be greatly persecuted by
+Russia and forced many to leave Russia for the land that would eventually
+become Israel in 1948.
+
+Some other events that happened on the ninth of Av are in 136 the
+Romans rebuilt Jerusalem and renamed it Aelia Capitolina and the land was
+renamed Palaestina to try and keep the Jews from thinking of this as their
+homeland and prevent rebellion. This is where we get the name Palestine
+from which has caused great harm to the people of Israel in our day. There
+never has been a Palestinian people as this was a made up land that
+belonged to Israel.
+
+The First Crusade was declared by Pope Urban II in 1096 which
+resulted in the deaths of 10,000 Jews on that first day of the ninth of
+Av.
+
+France another Roman Catholic nation expelled all Jews on the ninth
+of Av in 1306 many of whom had come to France after leaving England after
+their expulsion from there.
+
+In 1555 on the ninth of Av, the pope forced all Jews living in Rome
+to live in ghettos.
+
+Heinrich Himmler was given approval for the Final Solution on the
+ninth of Av in 1941 to kill the Jews in what became the Holocaust. On the
+same day in 1942 the death camp Treblinka became operational. Over six
+million Jews would be killed in the Holocaust.
+
+There have been other minor events that have occurred on the ninth of
+Av for the Jewish people. There is no way that all of these things could
+happen to one people on the same day unless God was involved in allowing
+them to happen on the same day. No nation even comes close to having major
+events happen on the same day the way the Jewish people have had. One
+person estimated the odds of the eight major events happening on the same
+day was 1 chance in over 863 quadrillion clearly showing that these events
+did not happen by random chance, but rather by the sovereignty of God. The
+number would be much greater if the other events were included. This is
+one big proof that God exists and that God is involved in the lives of his
+chosen people to try and bring them to Jesus. God is also involved in all
+nations despite what many people believe.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,2 +1,4 @@
+Refresh: weather-in-scripture/index.html
+
 Click here...
 

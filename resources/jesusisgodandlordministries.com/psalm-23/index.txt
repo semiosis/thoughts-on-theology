@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,409 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Psalm 23
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Psalm 23 is among the most well-known passages in scripture. This
+psalm consists of only six short verses and 118 words yet it contains a
+wealth of material. This psalm is often written on the back of funeral
+cards or at least read at the funeral. It is meant to comfort the family
+of the dead showing how God is with you even in death if you are a
+Christian. This psalm was written by David who wrote the vast majority of
+the psalms. David wrote the psalm about himself, but it also applies to
+all Christians as well. The great hymn Surely Goodness and Mercy is all
+about this great comforting Psalm 23.
 
-Username or email _____________________
+(Psalm 23:1 The LORD is my shepherd; I shall not want.) This verse
+shows the LORD is our shepherd just as he was David's. The LORD is the
+shepherd to all true believers. Jesus is the chief Shepherd. (I Peter 5:4
+And when the chief Shepherd shall appear, ye shall receive a crown of
+glory that fadeth not away.) Jesus is also the Shepherd of Israel. (Psalm
+80:1 Give ear, O Shepherd of Israel, thou that leadest Joseph like a
+flock; thou that dwellest between the cherubims, shine forth.) David was a
+shepherd as a boy prior to becoming a servant to Saul and then later king
+so he understood what it took to be a shepherd and how a shepherd cares
+for his sheep. David killed a lion and a bear in order to protect his
+sheep and Jesus as our Shepherd protects us from Satan and his devils. (I
+Samuel 17:34-35 And David said unto Saul, Thy servant kept his father's
+sheep, and there came a lion, and a bear, and took a lamb out of the
+flock:
+35 And I went out after him, and smote him, and delivered it out of his
+mouth: and when he arose against me, I caught him by his beard, and smote
+him, and slew him.) A shepherd will leave the 99 sheep behind in order to
+find the one lost sheep that has wondered off. (Matthew 18:12 How think
+ye? if a man have an hundred sheep, and one of them be gone astray, doth
+he not leave the ninety and nine, and goeth into the mountains, and
+seeketh that which is gone astray?) This verse is representative of Jesus
+as the Shepherd who wants all of the lost sheep (unsaved) to come to him.
+(John 10:16 And other sheep I have, which are not of this fold: them also
+I must bring, and they shall hear my voice; and there shall be one fold,
+and one shepherd.) In scripture people are often symbolized as sheep.
+Sheep are very dumb animals and will follow the leader even if the leader
+takes the flock over the side of a cliff to death. They cannot find their
+way back if lost, even if only a short distance away. This is how people
+are as we as sinners are lost without Jesus as our Saviour and the only
+way to join the flock of Jesus is to be saved. With Jesus as our shepherd
+we will never want anything. We may not always have everything that our
+sinful flesh wants, but God will provide for his children all that they
+need if they obey his word.  (John 14:13 And whatsoever ye shall ask in my
+name, that will I do, that the Father may be glorified in the Son.) Sheep
+know the voice of the shepherd and that is how believers must be as they
+listen to the commands of Jesus. (John 10:27 My sheep hear my voice, and I
+know them, and they follow me:) 
 
-Reset password
+(Psalm 23:2 He maketh me to lie down in green pastures: he leadeth me
+beside the still waters.) Jesus as our shepherd brings us his sheep to the
+green pastures and not to dried up brown dead pastures. Green means life
+and as children of God we now have everlasting life with Jesus as our
+Saviour. A person can only have life with Jesus. All other sheep are just
+walking dead with no spiritual life. If a person tries to follow any
+shepherd besides Jesus it will only lead to a path going to hell. Satan
+will try to lead people away from Jesus the true shepherd to another false
+shepherd who will lead you astray. The pope claims to be the shepherd of
+the one true church, but he is a false shepherd as only Jesus is the true
+shepherd. Many try works for salvation which again leads you to brown
+pastures. This verse says we lie down in green pastures. Sheep lie down
+for rest and also when they feel safe and secure from predators. Jesus
+provides us that security not only from Satan but also Jesus provides
+eternal security that cannot be lost if one is a true believer. Jesus is
+the only one who gives true rest. (Matthew 11:28-29 ¶ Come unto me, all ye
+that labour and are heavy laden, and I will give you rest.
+29 Take my yoke upon you, and learn of me; for I am meek and lowly in
+heart: and ye shall find rest unto your souls.) Jesus leads us to still
+waters, not some raging river. Notice Jesus leads and we must follow to
+get to these still waters. Sheep will not drink from fast moving water,
+but will die of dehydration first. Sheep cannot swim and will drown if
+they fall in the moving water. The same applies to people who want a calm
+life, not a roaring river. Jesus brings this to us and lets us drink from
+the living water of himself rather than the poisoned water of Satan that
+will lead to death. (John 7:38 He that believeth on me, as the scripture
+hath said, out of his belly shall flow rivers of living water.) If we obey
+the voice of Jesus and come to him then we will have peace in our lives
+and drink of the calm still water that only Jesus gives. Jesus will only
+provide the best water for his sheep.
+
+(Psalm 23:3 He restoreth my soul: he leadeth me in the paths of
+righteousness for his name's sake.) If we become one of Jesus' sheep then
+he will restore our souls. Because of Adam's sin, we are all now born with
+a sin nature. When Adam sinned the link between his spirit and soul with
+God was broken. He was on a path to hell until God provided a way through
+his Son Jesus to restore that link between God and man. When we get saved,
+our soul is reunited with Jesus and the link is no longer broken. We are
+all born with the broken link and it can only be fixed by calling upon
+Jesus to save you. Jesus leads us in the paths of righteousness for his
+name's sake. There is no holier name than that of Jesus and God must do
+what he says he will do in order to keep his name holy. Jesus will never
+lead us on a path of destruction. We will always be led on a path of
+righteousness if we obey God and listen to our shepherd. It is only when
+we wander off that we end up on a sinful path. Notice that Jesus leads us.
+We are to follow him. He never expects us to go on our own and have to
+confront the evils of this world by ourselves, but he will always lead us
+along the way. (John 12:26 If any man serve me, let him follow me; and
+where I am, there shall also my servant be: if any man serve me, him will
+my Father honour.) We must follow Jesus if we want the paths of
+righteousness. For those Christians who backslide and wander away, Jesus
+will always go for you to try and bring you back. A shepherd does the same
+for his sheep. One that continues to wander will often have a splint
+placed on a leg so it hobbles when it walks and it must stay close to the
+shepherd until it learns to stay nearby and not wander off. Jesus does
+this to backslidden Christians by allowing Satan to bring them trials so
+that they will return back to Jesus.
+
+(Psalm 23:4 Yea, though I walk through the valley of the shadow of
+death, I will fear no evil: for thou art with me; thy rod and thy staff
+they comfort me.) Throughout life if we are following Jesus and serving
+him then we will often be attacked by Satan but we do not need to fear
+death. Many Christians around the world literally put their lives on the
+line everyday just for being a Christian but Jesus said do not fear death
+as he will be with us. Jesus said he would never leave us or forsake us
+and that includes even at our deaths. (Deuteronomy 31:8 And the LORD, he
+it is that doth go before thee; he will be with thee, he will not fail
+thee, neither forsake thee: fear not, neither be dismayed.) Jesus said
+where two or three are gathered then he is in the midst of us. (Matthew
+18:20 For where two or three are gathered together in my name, there am I
+in the midst of them.) When Christians die they are carried by angels to
+heaven to be with God. We know this from the story of the rich man and
+Lazarus when Lazarus was carried to paradise by angels. (Luke 16:22 And it
+came to pass, that the beggar died, and was carried by the angels into
+Abraham's bosom: the rich man also died, and was buried;) When we die we
+must pass through Satan's realm in order to get to heaven. God does not
+make us pass through this on our own, but sends holy angels to bring us to
+him. They fight for us. God tells us in this verse that when we are
+nearing death and are in the shadow of death then we do not need to fear
+since God will be with us. Our death is precious to God and our death
+brings about real life not what we perceive as life here on this corrupt
+earth. (Psalm 116:15 Precious in the sight of the LORD is the death of his
+saints.) This verse teaches us that no matter what life brings us as we
+walk close to death in perilous places then Jesus will always be with us.
+We should never fear darkness since we always have the light of Jesus in
+our hearts if we are truly saved.
+
+The number 23 means death and we see once again this meaning here in
+Psalm 23. It is not a coincidence that even chapter and verse numbers are
+inspired and this is why this is Psalm 23 and not another psalm. Some
+corrupt bibles, especially some Roman Catholic bibles change this to Psalm
+22 losing the connection to death.
+
+The rod and staff of our shepherd Jesus will comfort us in our times
+of need including as we near death and also following death. Jesus uses
+the rod and staff to drive away evil. During the millennium Jesus will
+rule all nations with a rod of iron and will keep evil at bay. (Revelation
+12:5 And she brought forth a man child, who was to rule all nations with a
+rod of iron: and her child was caught up unto God, and to his throne.) The
+staff was used by the shepherd for walking and fending off enemies of the
+sheep as well as counting his sheep. The rod was carried on his belt and
+was basically a club used to fight off animals and things trying to harm
+his sheep.
+
+(Psalm 23:5 Thou preparest a table before me in the presence of mine
+enemies: thou anointest my head with oil; my cup runneth over.) Jesus
+prepares a table before us in the presence of our enemies which they
+cannot touch. Jesus provides us with all of the food we need to survive if
+we just obey him. Jesus is the bread of life and is the only food that we
+need and he also quenches our thirst. No other food can satisfy us or
+bring us everlasting life. (John 6:35 And Jesus said unto them, I am the
+bread of life: he that cometh to me shall never hunger; and he that
+believeth on me shall never thirst.) Our enemies will see how God provides
+for us when we are following him. Just as a shepherd provided a meal for
+his sheep whether in a trough or a field with no work done by the sheep,
+Jesus does the same for us. Jesus anoints our head with oil. This
+represents not only giving us the Holy Ghost when we are saved, but also
+we as children of the King are princes and princesses and royalty was
+anointed before their coronation. David was anointed as king of Israel. A
+shepherd would use oil on a sheep's wounds and often times the host would
+pour oil on an honored guests head. Jesus does the same for us. The cup of
+Jesus runneth over and we can never take too much from Jesus. Jesus
+provides for us and he never runs out of anything including food and
+water. One day Jesus will provide a banquet for his bride the church at
+the marriage supper of the Lamb. (Revelation 19:9 And he saith unto me,
+Write, Blessed are they which are called unto the marriage supper of the
+Lamb. And he saith unto me, These are the true sayings of God.)
+
+(Psalm 23:6 Surely goodness and mercy shall follow me all the days of
+my life: and I will dwell in the house of the LORD for ever.) If we are a
+sheep of Jesus and obey his voice then goodness and mercy shall follow us
+all the days of our lives. This does not mean that we will not have
+trouble, but that with Jesus in control Satan cannot take away our joy
+unless we let him. God's mercy knows no limit as he will always forgive
+those who truly repent. God only brings good to us. It is us that bring
+about the bad often times due to our sin or wandering from God. As
+Christians we will dwell in the house of the LORD forever with Jesus.
+
+Jesus prepares a mansion for us. (John 14:2 In my Father's house are
+many mansions: if it were not so, I would have told you. I go to prepare a
+place for you.) This verse shows that if we are true believers then we can
+never lose our salvation. God will never kick us out of his house. (John
+10:28 And I give unto them eternal life; and they shall never perish,
+neither shall any man pluck them out of my hand.)
+
+David had many trials during his life, but no matter what the
+situation was whether running from Saul, or his own sons, God always had
+mercy on him and always brought goodness to the situation even when all
+hope seemed lost. God always provided David and his men with food and
+drink. God does and will do the same for all true believers. This goodness
+goes back to the green pastures and still waters that we saw earlier in
+verse 2 that God will provide for those on the paths of righteousness.
+When we wander from those paths, then the mercy of God will bring us
+back. 
+
+As we saw in this psalm, Jesus will be our shepherd and bring us
+comfort and rest for all those who call upon him for salvation. If you are
+not saved do so today so that you will not need to fear death.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

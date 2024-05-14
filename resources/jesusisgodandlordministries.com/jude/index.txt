@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,532 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jude
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Jude is one of the shortest books in the new testament and in
+scripture with only twenty five verses. Jude is the twenty sixth book in
+the new testament and sixty fifth book in the Holy Bible. The writer Jude
+is a brother of Jesus and was not a believer until after the resurrection
+of Jesus. He was also the brother of James who wrote James. The purpose of
+this short book was to address the heresy of Gnosticism that was making
+headways in the church.  Jude does not seem to be writing to any specific
+local church, but rather the church as a whole. Gnosticism said that God
+did not come in the flesh and that knowledge was more important than faith
+and that only certain people were given this secret knowledge. One early
+Christian is reported to have said that John wrote the gospel of John to
+show the falsehood of Gnosticism and that Jesus was God in the flesh and
+the Son of God. This may or may not be true.
 
-Username or email _____________________
+(Jude 1 Jude, the servant of Jesus Christ, and brother of James, to
+them that are sanctified by God the Father, and preserved in Jesus Christ,
+and called:) This verse clearly shows that Jude is the brother of James
+and of Jesus, but Jude does not call Jesus his brother, but rather he says
+he is a servant of Jesus Christ. This shows how Jude was now a believer
+and understood that Jesus was the Jewish Messiah (Christ). He writes this
+short book to those who are sanctified by God the Father and preserved in
+Jesus Christ and who have been called by Jesus. He was referring to true
+Christians who were preserved in their faith of Jesus Christ and had not
+been corrupted by the teachings of Gnosticism. This preservation by Jesus
+is confirmation of how if a person is saved then they cannot lose their
+salvation. [Once saved, always saved.] Only Jesus as God can preserve our
+salvation, not us.   
 
-Reset password
+(Jude 2 Mercy unto you, and peace, and love, be multiplied.) Jude
+wishes that mercy, peace, and love be multiplied on the Christians he is
+writing to.
+
+(Jude 3 Beloved, when I gave all diligence to write unto you of the
+common salvation, it was needful for me to write unto you, and exhort you
+that ye should earnestly contend for the faith which was once delivered
+unto the saints.) Jude says it was necessary to write to the people so
+that they would once again contend (stand for) for the faith that was
+first preached to them rather than being persuaded by Gnosticism and other
+false doctrines. Jude was saying that the original gospel they had heard
+had not changed. The first part shows that Jude had originally wanted to
+write about the common salvation, but the Holy Ghost would not allow him
+to as there was an urgent matter that he needed to write about instead and
+that was to stand up for the faith that was originally taught to them and
+to fight against Gnosticism and other false beliefs. This shows scripture
+is inspired and the writers only wrote what the Holy Ghost directed them
+to.
+
+(Jude 4 For there are certain men crept in unawares, who were before
+of old ordained to this condemnation, ungodly men, turning the grace of
+our God into lasciviousness, and denying the only Lord God, and our Lord
+Jesus Christ.) Jude shows in this verse how certain men had crept in
+unawares to deceive the people with this false Gnosticism and to turn them
+away from God and the truth. These were false teachers who pretended to be
+Christians and had deceived the people in the church. Jude says these were
+ungodly men. These men had denied the Lord Jesus Christ who is the only
+Lord, not Satan or anyone else. By denying Jesus they also had denied God
+the Father. These men had turned the grace of God into lasciviousness
+(sexual lust). 
+
+(Jude 5 I will therefore put you in remembrance, though ye once knew
+this, how that the Lord, having saved the people out of the land of Egypt,
+afterward destroyed them that believed not.) Jude says that he wants to
+remind those false Christians in the church that God will destroy them
+just as he did with those Israelites who did not believe even after God
+had saved the people out of Egypt. Jude says the people once knew this
+truth, but they had now become so fallen away that they no longer knew it.
+Hebrews shows how God did not let the Israelites enter the Promised Land
+because of their unbelief. (Hebrews 3:19 So we see that they could not
+enter in because of unbelief.)
+
+(Jude 6 And the angels which kept not their first estate, but left
+their own habitation, he hath reserved in everlasting chains under
+darkness unto the judgment of the great day.) Jude speaks of the angels of
+Genesis 6 who left their first estate of heaven where they were supposed
+to live when God made them and they came down to earth to mate with women.
+This sin produced the giants. (Genesis 6:2 That the sons of God saw the
+daughters of men that they were fair; and they took them wives of all
+which they chose.) (Genesis 6:4 There were giants in the earth in those
+days; and also after that, when the sons of God came in unto the daughters
+of men, and they bare children to them, the same became mighty men which
+were of old, men of renown.) For this sin, God has placed them in
+everlasting chains in the bottomless pit in darkness until the day they
+our judged before God. It is at this time that they will be cast into the
+lake of fire for all eternity. (II Peter 2:4 For if God spared not the
+angels that sinned, but cast them down to hell, and delivered them into
+chains of darkness, to be reserved unto judgment;) Other angels that fell
+with Satan are not locked up at this time including Satan. These angels
+are locked up because they tried to corrupt all of mankind's DNA and
+prevent Jesus from being born as a man without sin so that Satan and the
+rebellious angels would not be cast into hell which was made for them.
+(Matthew 25:41 Then shall he say also unto them on the left hand, Depart
+from me, ye cursed, into everlasting fire, prepared for the devil and his
+angels:)
+
+(Jude 7 Even as Sodom and Gomorrha, and the cities about them in like
+manner, giving themselves over to fornication, and going after strange
+flesh, are set forth for an example, suffering the vengeance of eternal
+fire.) Here God connects the sin of the angels in verse 6 with the sin of
+Sodom and Gomorrha and the three cities around them. This shows that the
+sin committed by the angels in verse 6 was sexual. Just as the people of
+Sodom and Gomorrha were guilty of homosexuality as seen by the phrase
+"going after strange flesh", these angels also went after strange flesh by
+mating with women which God never intended. God also never intended for
+people to be homosexuals and this is why God destroyed these cities. The
+people of Sodom and Gomorrha and the other cities that were destroyed all
+will spend eternity in the lake of fire just as the angels of verse 6
+will. Those who commit homosexuality and never repent will also spend
+eternity in the lake of fire.
+
+(Jude 8 Likewise also these filthy dreamers defile the flesh, despise
+dominion, and speak evil of dignities.) These false teachers in the church
+"filthy dreamers" also defile the flesh by teaching false doctrines that
+will send people to hell. These people despise authority and speak evil of
+those over them. This includes not only governmental people, but also
+church leaders such as the pastors and deacons. They also reject the
+authority of the Lord Jesus Christ as head of the church as they deny him.
+Just as the Israelites had rejected the authority of Moses and God, these
+people do the same bringing much harm not only to themselves, but also to
+those who they brainwash with their false teachings.
+
+(Jude 9 Yet Michael the archangel, when contending with the devil he
+disputed about the body of Moses, durst not bring against him a railing
+accusation, but said, The Lord rebuke thee.) This verse shows Michael is
+an archangel, the only one given that description in scripture. Elsewhere
+Michael is one of the chief princes. (Daniel 10:13 But the prince of the
+kingdom of Persia withstood me one and twenty days: but, lo, Michael, one
+of the chief princes, came to help me; and I remained there with the kings
+of Persia.) The devil wanted the body of Moses and Michael got in a
+dispute with him over it, but never accused Satan as Satan was a more
+powerful angel and in authority and so instead he just said the Lord
+rebuke thee. Michael understood that it is only God who has authority to
+bring accusation against Satan.
+
+(Jude 10 But these speak evil of those things which they know not:
+but what they know naturally, as brute beasts, in those things they
+corrupt themselves.) This verse shows how the evil doers in the church had
+no problem speaking evil of those things they know not of, but as natural
+sinners continue in their sin. People often speak evil of things they know
+nothing about. Jude compares them to animals (brute beasts). We saw how in
+verse 9 Michael even as an archangel and one of the chief princes did not
+accuse Satan, yet these ungodly men had no problem doing so against
+people.
+
+(Jude 11 Woe unto them! for they have gone in the way of Cain, and
+ran greedily after the error of Balaam for reward, and perished in the
+gainsaying of Core.) Jude says they have gone in the way of Cain. We know
+Cain was the first murderer in scripture when he killed his brother Abel
+and the first to refuse to repent and later go to hell. Cain refused to
+turn back to God even when God gave him many chances. Cain rejected the
+way of the cross and wanted works for his salvation. The error of Balaam
+is their reward. Balaam was the Midianite hired by the Moabite king to
+curse Israel. God used a talking ass to get Balaam's attention who then
+was used by God to instead bless Israel rather than curse Israel. Balaam
+would later influence the Israelites (intermarriage to Moabites) to commit
+many sins and to follow false gods. (Numbers 25:1-3 And Israel abode in
+Shittim, and the people began to commit whoredom with the daughters of
+Moab.
+2 And they called the people unto the sacrifices of their gods: and the
+people did eat, and bowed down to their gods.
+3 And Israel joined himself unto Baal-peor: and the anger of the LORD was
+kindled against Israel.) (Numbers 31:16 Behold, these caused the children
+of Israel, through the counsel of Balaam, to commit trespass against the
+LORD in the matter of Peor, and there was a plague among the congregation
+of the LORD.) (Revelation 2:14 But I have a few things against thee,
+because thou hast there them that hold the doctrine of Balaam, who taught
+Balac to cast a stumblingblock before the children of Israel, to eat
+things sacrificed unto idols, and to commit fornication.) God had the
+Israelites kill him. (Numbers 31:8 And they slew the kings of Midian,
+beside the rest of them that were slain; namely, Evi, and Rekem, and Zur,
+and Hur, and Reba, five kings of Midian: Balaam also the son of Beor they
+slew with the sword.)  Balaam knew the truth about God, yet he still
+rejected it and this applies to all three men. Core is a reference to
+Korah who led a rebellion against Moses and Aaron and God had the earth
+swallow him up. Korah was rejecting the men chosen by God and therefore
+rejecting God. (Numbers 16:32 And the earth opened her mouth, and
+swallowed them up, and their houses, and all the men that appertained unto
+Korah, and all their goods.) God took the lives of all of these men and
+all three are now in hell. God said woe unto these ungodly men causing the
+false lies in the church, for their destruction will be similar to these
+three men.  
+
+(Jude 12 These are spots in your feasts of charity, when they feast
+with you, feeding themselves without fear: clouds they are without water,
+carried about of winds; trees whose fruit withereth, without fruit, twice
+dead, plucked up by the roots;) Jude says these ungodly men who have
+entered the church pretended to be godly in order to deceive the people.
+They ate with the people without fear and pretended to be righteous by
+giving to the poor. Some say they took communion with the church without
+fear when God said he has taken the lives of those who take it unworthily.
+This may or may not be referenced here. I believe it just refers to actual
+feasts or meals that the church had in order to have fellowship just as is
+often done today. Baptists are notorious in their eating and usually there
+is always fried chicken. Jude describes these men as fakes similar to a
+cloud without water. Clouds carry water to water the earth and with no
+water they are useless. This applies to professing Christians who bear no
+fruit which is a sign of a false Christian. They are of no use any more
+than the unsaved. We see this in the reference to the fruit all dried up
+and the trees without fruit. Scripture says you can know a true Christian
+by their fruit. (Matthew 7:20 Wherefore by their fruits ye shall know
+them.) As ungodly men they could not bring forth any good fruit. (Matthew
+7:18 A good tree cannot bring forth evil fruit, neither can a corrupt tree
+bring forth good fruit.) These men are carried by the wind just as many
+are carried by false doctrines. Jude says these ungodly men are carried
+about just as clouds are by the wind. They follow every new doctrine that
+comes about. (Ephesians 4:14 That we henceforth be no more children,
+tossed to and fro, and carried about with every wind of doctrine, by the
+sleight of men, and cunning craftiness, whereby they lie in wait to
+deceive;) We as Christians are to make sure what is being taught is
+scriptural. Jude says these ungodly men are twice dead showing they are
+not true Christians who are born again. True Christians are born twice and
+die once whereas the unsaved are born once and die twice. This second
+death sends you to the lake of fire. (Revelation 20:14 And death and hell
+were cast into the lake of fire. This is the second death.)
+
+(Jude 13 Raging waves of the sea, foaming out their own shame;
+wandering stars, to whom is reserved the blackness of darkness for ever.)
+Jude continues his description of these ungodly men by saying they are
+like raging waves from a storm that bring about foam. This is the false
+doctrines they spue out of their mouth. Jude says they are like wandering
+stars. Stars are used for navigation and a wandering star is useless for
+this purpose and so is a false preacher like they are to find the true
+gospel. They have no purpose. They have the darkness of hell as their
+eternal destiny.
+
+(Jude 14 And Enoch also, the seventh from Adam, prophesied of these,
+saying, Behold, the Lord cometh with ten thousands of his saints,) Enoch
+prophesied of these false teachers entering the church in the last days.
+In God's eyes the last days started with the death of Jesus and the
+founding of the church. There is only two days left before the millennium
+from the start of the church so we have always been in the last days in
+that sense, but we are truly in the final moments today in our day. Enoch
+was the one who was translated by God to heaven as an example of the
+rapture. And he is speaking of the second coming of Jesus in the last part
+of the verse. All true Christians will return with God to earth at the end
+of the great tribulation. (Hebrews 11:5 By faith Enoch was translated that
+he should not see death; and was not found, because God had translated
+him: for before his translation he had this testimony, that he pleased
+God.) (Revelation 19:14 And the armies which were in heaven followed him
+upon white horses, clothed in fine linen, white and clean.) People often
+say that Jude quotes from the unbiblical book of Enoch for verses 6 and
+14, but that is not true. Enoch does mention the angels spoken of in verse
+6, but it takes from Genesis rather than Jude from it.
+
+(Jude 15 To execute judgment upon all, and to convince all that are
+ungodly among them of all their ungodly deeds which they have ungodly
+committed, and of all their hard speeches which ungodly sinners have
+spoken against him.) Jude continues by saying Enoch prophesied of the
+coming judgment by God on the ungodly who will try to justify their sin
+before a holy God, but God will instead show the ungodly how ungodly they
+really are. Jude uses the word ungodly four times in this verse to show
+they are completely turned over to Satan and have rejected the gospel as
+the number four means gospel.
+
+(Jude 16 These are murmurers, complainers, walking after their own
+lusts; and their mouth speaketh great swelling words, having men's persons
+in admiration because of advantage.) Jude lists various things of these
+ungodly men showing how sinful they really are. They seek after the praise
+of men instead of the praise of God.
+
+(Jude 17 But, beloved, remember ye the words which were spoken before
+of the apostles of our Lord Jesus Christ;) Jude pleads for the church to
+remember the words spoken by the apostles about the Lord Jesus Christ
+rather than those spoken by these ungodly men.
+
+(Jude 18 How that they told you there should be mockers in the last
+time, who should walk after their own ungodly lusts.) Jude continues by
+saying there would be mockers of those who follow Jesus Christ in the last
+days and that is so true today. These people walk after their own ungodly
+lusts rather than follow God and his word.
+
+(Jude 19 These be they who separate themselves, sensual, having not
+the Spirit.) Jude continues by showing how they are not saved and do not
+have the Spirit living in them. They prefer to purposely separate
+themselves from God.
+
+(Jude 20 But ye, beloved, building up yourselves on your most holy
+faith, praying in the Holy Ghost,) Jude says for those who are true
+Christians to build up themselves by increasing their faith and praying in
+the Holy Ghost. (Romans 10:17 So then faith cometh by hearing, and hearing
+by the word of God.) We must stay in the word of God in order to grow.
+This will help us from falling for false doctrines as taught by these
+ungodly men. It is only praying with the help of the Holy Ghost that will
+allow us to keep from being deceived. Many Christians fail to pray
+especially when it comes to discernment so that they are not deceived.
+Jude here contrasts true Christians from the ungodly men spoken of
+earlier.
+
+(Jude 21 Keep yourselves in the love of God, looking for the mercy of
+our Lord Jesus Christ unto eternal life.) Jude tells the believers to stay
+in the love of God looking for his mercy. Jude says if we love God we will
+have eternal life. We see in this verse and in others how Jude refers to
+his brother Jesus as the Lord Jesus Christ thus recognizing that he is God
+and his Lord and only Saviour. Jude is no longer the unbeliever he was
+before the resurrection of Jesus.
+
+(Jude 22 And of some have compassion, making a difference:) Jude says
+that the true believers are to have compassion on those who are sincere in
+seeking the truth rather than condemning them. We must still give them the
+gospel and the truth, but we are to do it lovingly.
+
+(Jude 23 And others save with fear, pulling them out of the fire;
+hating even the garment spotted by the flesh.) Others we are to try to
+lead to the Lord with hell fire and brimstone preaching. We are to hate
+their sin as all sinners and to tell them all about hell. Today many
+preachers do not preach on hell. Some people get saved because of the fear
+of going to hell and others get saved by other means and that is what Jude
+is showing in these last two verses. Different tactics are needed for
+different people when preaching the gospel. Some get saved by tracts,
+others by reading scripture, and some by the giving of the gospel by a
+friend.   
+
+(Jude 24 Now unto him that is able to keep you from falling, and to
+present you faultless before the presence of his glory with exceeding
+joy,) It is only God who can keep us from falling. He always allows a
+Christian to have a way out so as not to sin. God never allows us to be
+tempted above what we can handle. (I Corinthians 10:13 There hath no
+temptation taken you but such as is common to man: but God is faithful,
+who will not suffer you to be tempted above that ye are able; but will
+with the temptation also make a way to escape, that ye may be able to bear
+it.) We will be presented faultless before God at our judgment due to our
+sins being washed away by Jesus. It will be with exceeding joy that we are
+presented before God.
+
+(Jude 25 To the only wise God our Saviour, be glory and majesty,
+dominion and power, both now and ever. Amen.) Jude concludes by saying
+that only God is our Saviour and only he is the wise God. Jude says God
+will have glory and majesty, dominion and power forever. He has always had
+it, does now, and will continue so forever. We will one day get to see
+this glory when we get to heaven.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

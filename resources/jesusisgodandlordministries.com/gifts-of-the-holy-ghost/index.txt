@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,764 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Gifts of the Holy Ghost
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+As Christians every one of us has been given a gift or gifts from the
+Holy Ghost. These gifts are given to us not for our benefit, but rather to
+be used to give honor and glory to God. Those who walk closer to God will
+be blessed with more gifts than someone who is a carnal saved as by fire
+Christian. Most Christians do not realize that all Christians are given at
+least one gift and many do not know what their gift or gifts are. If you
+do not know what your gift is, then pray and ask the Holy Ghost to reveal
+them to you. Make sure you have no unconfessed sin so that God will hear
+you and can use you. As Christians we should never be jealous of another
+Christian who has more gifts than us or a gift that we want. Every one of
+the gifts are important and no one individual Christian's gift makes them
+more important than another Christian who has a different gift that may
+seem like a lesser gift. As a Christian body we need all of the gifts and
+all are essential for the growth of the church. God knows our
+personalities and other attributes as well as our walk with him and so he
+knows best what gifts to give to each of us. Once you learn what your gift
+is then start using it for God to win souls for Jesus. We are given the
+gifts to be used and not just be neglected. If they are not used, the Holy
+Ghost can take them away. Just remember that if you think you cannot speak
+in front of crowds and God has called you to preach, then remember it is
+God that will give you that ability. Moses said he was tongue tied and
+wanted his brother Aaron to do the talking, but Moses soon found out that
+he could speak before the people because it was God who gave him that gift
+and ability. Remember that a gift is something you are given for free and
+have done nothing to earn it. Use what gifts the Holy Ghost has given you
+starting today.
 
-Username or email _____________________
+Jesus as a man was given gifts by the Holy Ghost. (Isaiah 11:1-5 1
+And there shall come forth a rod out of the stem of Jesse, and a Branch
+shall grow out of his roots:
+2 And the spirit of the LORD shall rest upon him, the spirit of wisdom and
+understanding, the spirit of counsel and might, the spirit of knowledge
+and of the fear of the LORD;
+3 And shall make him of quick understanding in the fear of the LORD: and
+he shall not judge after the sight of his eyes, neither reprove after the
+hearing of his ears:
+4 But with righteousness shall he judge the poor, and reprove with equity
+for the meek of the earth: and he shall smite the earth with the rod of
+his mouth, and with the breath of his lips shall he slay the wicked.
+5 And righteousness shall be the girdle of his loins, and faithfulness the
+girdle of his reins.)
 
-Reset password
+Paul reminds us in I Corinthians 12 that all of the gifts from God
+come from the same Spirit meaning all are from the Holy Ghost so no one
+can say they got their gift from a better source than someone else. It is
+only by the Holy Ghost that we can say that Jesus is God. This is one
+thing that shows we are a child of God. (I Corinthians 12:3-12 3 Wherefore
+I give you to understand, that no man speaking by the Spirit of God
+calleth Jesus accursed: and that no man can say that Jesus is the Lord,
+but by the Holy Ghost.
+4 Now there are diversities of gifts, but the same Spirit.
+5 And there are differences of administrations, but the same Lord.
+6 And there are diversities of operations, but it is the same God which
+worketh all in all.
+7 But the manifestation of the Spirit is given to every man to profit
+withal.
+8 For to one is given by the Spirit the word of wisdom; to another the
+word of knowledge by the same Spirit;
+9 To another faith by the same Spirit; to another the gifts of healing by
+the same Spirit;
+10 To another the working of miracles; to another prophecy; to another
+discerning of spirits; to another divers kinds of tongues; to another the
+interpretation of tongues:
+11 But all these worketh that one and the selfsame Spirit, dividing to
+every man severally as he will.
+12 For as the body is one, and hath many members, and all the members of
+that one body, being many, are one body: so also is Christ.) Verse 7 shows
+the gifts are given to us so that it will profit or benefit the body of
+Christ so that the body of Christ may glorify God and do the work required
+by God to win souls for him. Verse 11 shows that the Holy Ghost divides
+the gifts to every man or person as he wills. As I said he knows who will
+use the gifts and who deserves what gifts, but all Christians receive at
+least one gift that they are expected to use to glorify God as seen in
+verse 12. Verse 12 also shows that the church is one body in Christ, but
+is made up of many members with all being just as important as another
+member. Paul then gives examples in the chapter comparing the eye with the
+ear, the nose and the foot showing that it would do no good to have all
+eyes, but not the other parts and the same applies to having all of
+another part. All of the parts are needed to have a complete body and the
+same applies to the gifts given to Christians within the body. (I
+Corinthians 12:20 But now are they many members, yet but one body.) Verses
+8-10 lists nine gifts given to the body by God the Holy Ghost. They are
+the word of wisdom, the word of knowledge, faith, gifts of healing,
+working of miracles, prophecy, discerning of spirits, divers kinds of
+tongues, and the interpretation of tongues.
+
+The first gift mentioned is the gift of wisdom. Wisdom clearly comes
+from God as I have mentioned before in sermons and it is those who fear
+the LORD that will be given this gift. Let us look at a couple verses on
+wisdom. (Psalm 111:10 The fear of the LORD is the beginning of wisdom: a
+good understanding have all they that do his commandments: his praise
+endureth for ever.) (Proverbs 8:11 For wisdom is better than rubies; and
+all the things that may be desired are not to be compared to it.)
+(Proverbs 16:16 How much better is it to get wisdom than gold! and to get
+understanding rather to be chosen than silver!) (Ecclesiastes 2:26 For God
+giveth to a man that is good in his sight wisdom, and knowledge, and joy:
+but to the sinner he giveth travail, to gather and to heap up, that he may
+give to him that is good before God. This also is vanity and vexation of
+spirit.) (Ecclesiastes 9:18 Wisdom is better than weapons of war: but one
+sinner destroyeth much good.) Solomon was the wisest man who ever lived as
+he had prayed and asked God to give him wisdom which God did. Solomon
+mentions wisdom more in his books of Proverbs and Ecclesiastes than does
+anyone else. Wisdom is having experience and knowledge that is used with
+good judgment to make wise decisions. One of the things of a wise person
+is that they will pray and ask God before making a decision. We see from
+some of the verses that were read that Solomon says wisdom is more
+valuable than even gold or rubies. A person is not born with wisdom.
+Wisdom will bring a person closer to God and keep you on the right path of
+life far more than gold or rubies will. Those things will not help your
+eternal soul whereas wisdom will.
+
+The second gift on the list is knowledge. Knowledge is similar to
+wisdom and is often times compared to wisdom in scripture as you cannot
+have wisdom without knowledge especially of God, but they are not the
+same. A person can be very knowledgeable about many topics such as sports
+or some type of work, but these things do not make a person wise or do
+anything for one's soul. It is important to have knowledge, but it needs
+to be the right knowledge such as understanding about God and his word. A
+person's head needs to be filled with the knowledge of God and not secular
+things. Many unsaved people have great knowledge which we refer to as
+being book smart, but they cannot discern the ways of God. Those with the
+gift of knowledge will know God's word and then they should be applying it
+to their lives. Those who have also been given the gift of wisdom most
+likely will. Remember just because a person has been given a gift does not
+mean it is always used. Solomon who prayed for the gift of wisdom also
+prayed for the gift of knowledge as they go hand in hand. We need to be
+knowledgeable in the ways of God, but wise enough to be able to apply
+them. Today some people have photographic memories which are given to them
+by God. God gives gifts not only to saved people, but also the unsaved
+especially to those who he knows will one day be saved. This is why some
+people have musical talents and other gifts, but we also need to remember
+and understand that God does allow Satan to also give people gifts who
+serve him as well and this can be seen especially among musicians,
+athletes, and actors in Hollywood. Here are a few verses on knowledge.
+(Proverbs 1:7 ¶ The fear of the LORD is the beginning of knowledge: but
+fools despise wisdom and instruction.) We see true knowledge from God
+comes after a person learns to fear the LORD. (Proverbs 1:29 For that they
+hated knowledge, and did not choose the fear of the LORD:) Today many of
+the youth do not fear the LORD and this is why they hate knowledge and
+learn nothing in school. (Proverbs 12:1 Whoso loveth instruction loveth
+knowledge: but he that hateth reproof is brutish.) (Proverbs 15:2 The
+tongue of the wise useth knowledge aright: but the mouth of fools poureth
+out foolishness.)
+
+Faith is the third gift on the list. Hebrews gives us a definition of
+faith. (Hebrews 11:1 Now faith is the substance of things hoped for, the
+evidence of things not seen.) Faith is believing that God will do the
+things that he says he will without being able to see any physical
+evidence. We see that God exists because of creation around us, but we
+cannot physically see God. We take it by faith that he exists. We take by
+faith that God created the world just as he said he did. None of us were
+there. The same applies to evolution as no evolutionist was at the Big
+Bang so they by faith believe it. It actually takes greater faith to
+believe that everything is here today because of evolution than it does to
+believe God created everything as he said he did in six days. A person can
+only be saved by having faith in Jesus that he can wash away our sins and
+that he did rise from that grave on the third day and is now seated at the
+right hand of God. (Luke 18:42 And Jesus said unto
+him, Receive thy sight: thy faith hath saved thee.) (Mark 2:5 When Jesus
+saw their faith, he said unto the sick of the palsy, Son, thy sins be
+forgiven thee.) Faith is an important gift as it will allow that person to
+have a strong relationship with God and trust him to guide them in their
+lives. By faith they will trust God to help them witness to people even if
+they feel they are not qualified. Let us look at some verses on faith.
+(Habakkuk 2:4 Behold, his soul which is lifted up is not upright in him:
+but the just shall live by his faith.) Jesus healed many people because
+they had the faith or trust in Jesus that he could and would do for them
+as they asked. Jesus healed the woman who had an issue of blood for twelve
+years. (Matthew 9:22 But Jesus turned him about, and when he saw her, he
+said, Daughter, be of good comfort; thy faith hath made thee whole. And
+the woman was made whole from that hour.) Jesus healed two blind men
+because of their faith. (Matthew 9:29 Then touched he their eyes, saying,
+According to your faith be it unto you.) We need to be making sure that
+our faith is placed in God and not in some physician, politician, or other
+person. (Mark 11:22 And Jesus answering saith unto them, Have faith in
+God.) Men of faith are often filled with the Holy Ghost such as Stephen
+was. (Acts 6:5 ¶ And the saying pleased the whole multitude: and they
+chose Stephen, a man full of faith and of the Holy Ghost, and Philip, and
+Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolas a proselyte
+of Antioch:) The problem with most professing Christians today is that
+they lack faith and fail to ask God to give it to them. They had enough
+faith to get saved, but not enough to continue to believe God's word such
+as he created everything and in a young earth. They fail to have faith to
+get them through their daily lives.
+
+The fourth gift on the list is the gift of healing. Today physicians
+are often given the gift by God to have the knowledge on how to treat
+their patients, but this gift is referring to how Paul and others healed
+people without surgery or medicine. They were completely healed of their
+disease or other problem. Today many people claim to have this gift, but
+they are no more than frauds as they say they have removed a person's
+cancer which cannot be seen, yet they will not heal a person's broken leg
+which can be seen. Those who healed in scripture then their healing could
+clearly be seen such as when the beggar was healed by Peter at the temple.
+(Acts 3:6-9 6 Then Peter said, Silver and gold have I none; but such as I
+have give I thee: In the name of Jesus Christ of Nazareth rise up and
+walk.
+7 And he took him by the right hand, and lifted him up: and immediately
+his feet and ankle bones received strength.
+8 And he leaping up stood, and walked, and entered with them into the
+temple, walking, and leaping, and praising God.
+9 And all the people saw him walking and praising God:) Notice that this
+man was not only healed, but was able to immediately jump and walk around
+and it was obviously a miracle. Those people who are healed by this gift
+are healed when science cannot explain it showing the healing is by God.
+Remember though that God also allows Satan to copy some of these gifts
+such as during the tribulation when the antichrist is healed. I
+Corinthians 12:9 says the "gifts of healing" in the plural so there may
+actually be more than one gift of healing with some people getting more of
+it to allow different types of healing. There is much debate over whether
+people still have this gift today or not. I believe it may not be around
+anymore, but if it is then it is a very limited gift. Some of the gifts
+were only given for the time of the apostles or shortly after and I
+believe this may be one of those gifts. It is possible that this gift will
+return during the tribulation or if it is still around to become more
+common.
+
+The fifth gift is the working of miracles. This gift goes hand in
+hand with healings as all healings are only done by miracles such as
+giving sight to the blind or hearing to the deaf. This gift was used by
+Peter and Paul to raise the dead back to life. Of course Jesus used many
+of these gifts as well. The gift of miracles is clearly a gift from God as
+none of us has the power to do the things done by this gift without God.
+Paul made Elymas a sorcerer blind for a season since he was trying to keep
+the deputy from getting saved. (Acts 13:11 And now, behold, the hand of
+the Lord is upon thee, and thou shalt be blind, not seeing the sun for a
+season. And immediately there fell on him a mist and a darkness; and he
+went about seeking some to lead him by the hand.)
+
+The sixth gift on the list is prophecy. Prophecy is the ability from
+God to foretell future events in detail that will happen exactly as God
+says they will. God had many prophets in both the old and new testaments.
+I believe this is one of the gifts that is probably not around today as
+God does not speak to people the way he did in Bible days. Scripture is
+complete and so man has all of the knowledge that he needs. There are many
+people who claim to be prophets including some who profess to be
+Christians yet God said you can know a false prophet by one whose word is
+not completely fulfilled. (Deuteronomy 18:22 When a prophet speaketh in
+the name of the LORD, if the thing follow not, nor come to pass, that is
+the thing which the LORD hath not spoken, but the prophet hath spoken it
+presumptuously: thou shalt not be afraid of him.) Jesus warned of false
+prophets in our day. (Matthew 7:15 ¶ Beware of false prophets, which come
+to you in sheep's clothing, but inwardly they are ravening wolves.)
+(Matthew 24:11 And many false prophets shall rise, and shall deceive
+many.) (Matthew 24:24 For there shall arise false Christs, and false
+prophets, and shall shew great signs and wonders; insomuch that, if it
+were possible, they shall deceive the very elect.) Many made predictions
+for the 2020 election claiming they were words from God, but all of them
+fell short proving they were false prophets. Do not fear these false
+prophets or listen to them. The greatest false prophet will be the right
+hand man of the antichrist during the tribulation.  
+
+The seventh gift on the list is the discerning of the spirits. This
+gift goes hand in hand with understanding false prophets. John told us to
+test the spirits to see whether they are from God. If they are from God
+then they will say that Jesus came in the flesh. (I John 4:1-3 1 Beloved,
+believe not every spirit, but try the spirits whether they are of God:
+because many false prophets are gone out into the world.
+2 Hereby know ye the Spirit of God: Every spirit that confesseth that
+Jesus Christ is come in the flesh is of God:
+3 And every spirit that confesseth not that Jesus Christ is come in the
+flesh is not of God: and this is that spirit of antichrist, whereof ye
+have heard that it should come; and even now already is it in the world.)
+We know that there are many people who profess to be Christians who enter
+the churches with the sole purpose of destroying it. These are the wolves
+in sheep's clothing. This is an important gift to pray for as many
+Christians are deceived every day by those who profess to be Christians,
+but are really not. This gift will help discern when devils come to you in
+a vision or dream and tell you something. Do as God said and ask the
+spirit if Jesus came in the flesh. If they say no then the spirit or devil
+is from Satan and not God. An angel sent by God will say Jesus came in the
+flesh. Satan's cohorts will not say that Jesus came in the flesh to
+deceive you as they hate Jesus more than they care about losing your soul.
+Today this is a gift that is definitely lacking in the church as most
+Christians cannot see the evil around them and this is one of the reasons
+that the church has so many problems. The other problem is that most
+Christians do not even want this gift because they are blinded and just
+plain do not care. We need to pray that the Holy Ghost gives this gift to
+more people, but I am afraid as long as they are far from God then this
+will not happen.
+
+The eighth gift on the list in I Corinthians 12 is the gift of
+speaking in tongues. Pentecostals believe that you are not saved unless
+you speak in tongues. This is adding works to God's grace and free gift of
+salvation. I believe this gift is probably very rare if at all today. I do
+believe God gives some missionaries the ability to quickly learn a
+language where he has sent them so that the missionary can win souls, but
+the gift in scripture was the miracle of speaking a language that was then
+heard in the other person's language such as at Pentecost when the
+apostles preached in Greek most likely, but everyone heard them as if they
+were speaking their own language. (Acts 2:4-11 4 And they were all filled
+with the Holy Ghost, and began to speak with other tongues, as the Spirit
+gave them utterance.
+5 And there were dwelling at Jerusalem Jews, devout men, out of every
+nation under heaven.
+6 Now when this was noised abroad, the multitude came together, and were
+confounded, because that every man heard them speak in his own language.
+7 And they were all amazed and marvelled, saying one to another, Behold,
+are not all these which speak Galilæans?
+8 And how hear we every man in our own tongue, wherein we were born?
+9 Parthians, and Medes, and Elamites, and the dwellers in Mesopotamia, and
+in Judæa, and Cappadocia, in Pontus, and Asia,
+10 Phrygia, and Pamphylia, in Egypt, and in the parts of Libya about
+Cyrene, and strangers of Rome, Jews and proselytes,
+11 Cretes and Arabians, we do hear them speak in our tongues the wonderful
+works of God.) I think it may be possible that a person can suddenly speak
+Chinese, Greek, or some other language without ever having learned it.
+These languages here in Acts 2 are all real languages unlike in the
+Pentecostal church were they speak gibberish. This gibberish or a language
+that cannot be understood is not from God, but rather Satan and witches
+have said they have taken advantage of this by going into the churches and
+speaking in what the people believe are tongues, but are in reality curses
+being placed on the church and the people by the witch or witches. Paul
+warned about speaking in tongues without having an interpreter. Paul said
+he would rather speak only five words that could be understood than ten
+thousand in an unknown tongue. (I Corinthians 14:19 Yet in the church I
+had rather speak five words with my understanding, that by my voice I
+might teach others also, than ten thousand words in an unknown tongue.)
+Paul said speaking in tongues only edified the individual whereas
+prophesying or interpreting edified God. (I Corinthians 14:4-5 4 He that
+speaketh in an unknown tongue edifieth himself; but he that prophesieth
+edifieth the church.
+5 I would that ye all spake with tongues, but rather that ye prophesied:
+for greater is he that prophesieth than he that speaketh with tongues,
+except he interpret, that the church may receive edifying.) Paul said that
+he could speak the tongues of both man and angel and it is possible that
+the gibberish heard in Pentecostal churches is actually the language of
+devils. (I Corinthians 13:1 Though I speak with the tongues of men and of
+angels, and have not charity, I am become as sounding brass, or a tinkling
+cymbal.)    
+
+The ninth gift on the list is the interpreting of tongues. We see
+there are nine gifts mentioned with the number nine meaning the fruit of
+the Spirit. As we just read the interpreting of tongues is more important
+that the speaking of tongues for unless the people in the church can
+understand what is being spoken then it does no good to speak.
+
+Romans 12:3-8 shows more gifts and shows how we have those gifts by
+the grace of God and by how much faith we have. (Romans 12:3-8 3 For I
+say, through the grace given unto me, to every man that is among you, not
+to think of himself more highly than he ought to think; but to think
+soberly, according as God hath dealt to every man the measure of faith.
+4 For as we have many members in one body, and all members have not the
+same office:
+5 So we, being many, are one body in Christ, and every one members one of
+another.
+6 Having then gifts differing according to the grace that is given to us,
+whether prophecy, let us prophesy according to the proportion of faith;
+7 Or ministry, let us wait on our ministering: or he that teacheth, on
+teaching;
+8 Or he that exhorteth, on exhortation: he that giveth, let him do it with
+simplicity; he that ruleth, with diligence; he that sheweth mercy, with
+cheerfulness.) Verse 4 shows that we are all one body of Christ, but we do
+not all have the same office. God has called different people for
+different things and if he has called you he will equip you with the gifts
+necessary to perform that ministry or office. For example as a preacher I
+am expected to teach. God has given me the gift to be able to teach as
+well as the ability to speak in front of people. As verse 6 shows we get
+our gifts by grace and we are to only use our gift with the portion that
+he has given to us such as this verse mentions prophecy. There are many
+prophets in scripture, but some were given much more prophecy than others
+even though they were all given the gift of prophecy. Verse seven mentions
+the gifts of ministering and teaching. These gifts can be used in many
+ways. As I said a pastor must be able to teach, but God also gives this
+gift to others so they can teach Sunday School or Bible studies in their
+homes. Ministering can be various types of ministry that God has called
+you to. I have a tract ministry and a website ministry to help minister to
+the lost. Others have the ministry of helping others or some other type of
+way that they can minister and help people. Jesus ministered to others. He
+even washed his disciple's feet. Exhortation is the ability to be able to
+strongly urge or advice people to do the right thing. This is some of that
+accountability that all Christians should do with each other. God said to
+exhort with simplicity and not meanness. Those that God has called to rule
+are to do so with diligence or speed and carefulness. They are not to
+delay in ruling over the people the way God has commanded. Moses ruled
+over the people and he did not delay in carrying out God's orders and
+neither should we. We are to show mercy with cheerfulness and not with
+hatred. God showed mercy on all of us who were sinners when he sent his
+only begotten Son to die for us, so we should do no less on others. Many
+of these things in Romans can apply to all Christians and are not
+necessarily just gifts for some though some such as teaching are. Not
+everyone can teach despite how I have heard churches nearly forcing
+someone to teach a Sunday School class because no one wanted to do it. God
+calls people to teach, not we choose them.
+
+I Corinthians 12 concludes the chapter by giving a list of gifts in
+some kind of order. I said earlier that we all have gifts, just that many
+do not use them. I also said that we are all members of the body of Christ
+and all are important with no one more important than another as all of
+the gifts are necessary, but God does still have a ranking of gifts with
+the best gifts being bestowed upon those Christians with the most faith.
+Jesus did not call all of his disciples to be apostles, but that does not
+mean that he did not love all of them equally. Even among the apostles,
+Jesus had his inner core of three in Peter, James, and John. This list
+just means that God uses people in different ways. Let us look at these
+gifts. (I Corinthians 12:28-31 28 And God hath set some in the church,
+first apostles, secondarily prophets, thirdly teachers, after that
+miracles, then gifts of healings, helps, governments, diversities of
+tongues.
+29 Are all apostles? are all prophets? are all teachers? are all workers
+of miracles?
+30 Have all the gifts of healing? do all speak with tongues? do all
+interpret?
+31 But covet earnestly the best gifts: and yet shew I unto you a more
+excellent way.) Paul repeats some of the gifts from earlier in the
+chapter. The first gift that is listed is the apostles who were the
+leaders of the early church. Paul who was an apostle had authority over
+other Christians if he had so chosen and he even said so. (Philemon 8-9 8
+Wherefore, though I might be much bold in Christ to enjoin thee that which
+is convenient,
+9Yet for love's sake I rather beseech thee, being such an one as Paul the
+aged, and now also a prisoner of Jesus Christ.) Enjoin means instruct as
+in this case Paul could have forced Philemon to obey his commands. (I
+Thessalonians 2:6-7 6 Nor of men sought we glory, neither of you,
+nor yet of others, when we might have been burdensome, as the apostles of
+Christ.
+7But we were gentle among you, even as a nurse cherisheth her children:)
+This list shows that apostles were the highest ranking Christians in
+authority in the church and were expected to be obeyed as what they were
+speaking was coming from God. I do not believe that the gift of being an
+apostle is given anymore as it was just for the time of Jesus. Just as
+there is no need for prophets anymore as Jesus has already come, there is
+no longer a need for apostles. The next two rankings were prophets and
+then teachers which would include pastors and preachers as well as
+missionaries. Today the pastor is in charge in the earthly church since we
+do not have apostles or prophets anymore. Jesus is still the overall head
+of the church just as he always has been. Next Paul lists those who can
+perform miracles and then those who have the gifts of healing. Paul next
+lists helps which are those in the church who have the gift to help
+another person. This gift can be used in many ways. A person might have
+the gift to physically help someone do something around their house, they
+might be able to help another Christian financially, or they might have
+the help gift of just cheering them up by calling them when they are alone
+or sending them a card when they are sick and lonely. Next on the list is
+governments. This is the people that God calls not only to lead the
+government in the church such as the pastor and deacons, but also in the
+secular world. People often say that Christians should not be involved in
+politics, but this is not true. God has given the gift for some people to
+rule in our government so that laws and decisions will be made in
+obedience to God's laws. If only unsaved people run our government then
+Christians will soon lose all rights and this nation will become a nation
+of anarchy. God would not give the gift of governments if he never wanted
+some Christians to rule over others. This also applies to the church as I
+already stated though many people want to reject the authority of the
+pastor and his helpers the deacons. Paul next lists diversities of
+tongues. We see how far down on the list this gift is. Paul then goes on
+in verse 29-30 and asks are all people apostles, prophets, teachers,
+workers of miracles, have the gifts of healing, have the ability to speak
+in tongues, or to interpret tongues? Paul is clearly showing how we do not
+all have the same gifts and that some will receive higher gifts then
+others and if someone has a higher gift than another then those people and
+their gift from God need to be respected and obeyed. Paul clearly shows
+not everyone has the gift of teaching as I earlier said some churches want
+to just make anyone a teacher when God clearly only gives the gift to
+certain people. Paul in verse 31 says we all need to pray or covet the
+best gifts. The best gifts only go to those walking the closest to God and
+so by coveting these gifts we will walk closer to God so that we too may
+be blessed with God's grace in receiving them as well.
+
+Ephesians 4 also has a similar list as we just saw in I Corinthians
+12:28-31. (Ephesians 4:7 But unto every one of us is given grace according
+to the measure of the gift of Christ.) This verse again shows we are given
+gifts by God's grace and according to our walk or measure with Jesus
+Christ. God is not going to give someone some great gift who barely is
+even saved and cares nothing about him or has any time for him. (Ephesians
+4:11-12 11 And he gave some, apostles; and some, prophets; and some,
+evangelists; and some, pastors and teachers;
+12For the perfecting of the saints, for the work of the ministry, for the
+edifying of the body of Christ:) Verse 12 shows the gifts are for the work
+of the ministry of winning souls for Jesus and for edifying the body of
+Christ and perfecting the saints so they are more like Jesus. Edifying
+means to give moral instructions. Verse 11 again lists apostles first,
+followed again by prophets as before. We now see a new gift of evangelists
+followed by pastors and teachers. We see here how God makes a distinction
+between evangelists and pastors. Evangelists are those whose sole purpose
+is to go around speaking the gospel to win many souls for Jesus. A
+pastor's job is to stay and preach at a church and he is to win souls as
+all Christians are expected to do, but his main job is to teach scripture
+to the people and to be the leader of the earthly church. A pastor
+concentrates on all of the details of scripture whereas an evangelist
+mainly focus only on the gospel and leading people to the Lord which is
+why they are ranked above a pastor as nothing is more important than being
+saved. The separate category of teachers would include Sunday School
+teachers and others including Christian school teachers. These individuals
+are very important, but the pastor who is also a teacher outranks them as
+is seen on the list. They are not one and the same just as evangelists and
+pastors are not one and the same. Many pastors and churches do not realize
+that God has given some men the gift of being evangelists. I have seen too
+often where a church will have a revival yet they will not use an
+evangelist, but a pastor who comes and speaks and then the pastor may go
+to the other pastor's church for their revival. While they are often good
+preaching and great times of fellowship, too often no one gets saved
+because they are not called to be evangelists. Evangelists have the gift
+to be able to lead people to Jesus in a way that most pastors cannot. We
+need to start using these men and their gifts from God in the church so
+that the church will grow not only numerically, but spiritually. The
+pastor's main job is too grow the church spiritually after the evangelist
+gets the people into the church. We need to work together. I have seen God
+give a godly pastor later the gift of evangelist where the pastor then
+resigned from the church and then served the Lord with his new gift. He
+now has the gift to win souls and teach them. Let us learn to use the
+gifts of the church properly and in order as taught by Paul. We need to
+realize that some gifts are only given to men regardless of how godly a
+female may be. Apostles, evangelists, and pastors are all examples of
+gifts only for men. We must not change the order of the gifts or who we
+think should get them as that is only the decision of God.
+
+Peter spoke a little on gifts. (I Peter 4:8-11 8 And above all things
+have fervent charity among yourselves: for charity shall cover the
+multitude of sins.
+9 Use hospitality one to another without grudging.
+10 As every man hath received the gift, even so minister the same one to
+another, as good stewards of the manifold grace of God.
+11 If any man speak, let him speak as the oracles of God; if any man
+minister, let him do it as of the ability which God giveth: that God in
+all things may be glorified through Jesus Christ, to whom be praise and
+dominion for ever and ever. Amen.) Peter mentions charity in verse 8, but
+this is a gift that I believe every Christian possesses, just that most do
+not use it. Peter in verse 9 mentions hospitality which I believe also all
+Christians should have, but there are definitely some people who have the
+gift of hospitality in welcoming the new people at church, in inviting
+people to their homes especially new people, as well as taking things such
+as food to those who are sick. These people with this gift do these things
+without grudging as they enjoy using the gift that God has given them. A
+church that has one with this gift is blessed and if they have more than
+one even more blessed. Take care of these people as they will take care of
+you. Peter in verse 10 says to use the gift that God gave you to minister
+to others in the church. In verse 11 we see Peter says those who have the
+gift of ministering such as pastors then do so with the ability that God
+has given you. Do not try to do it on your own. Know your limitations and
+remember we are ministers, so just like Jesus we must minister to those
+people in the church in their time of need. Peter is showing how some
+pastors have been given more of the gift than others. We all know of some
+pastors that are much better than others in their teachings. Peter said
+that God must be glorified by the minister.
+
+James said that every good gift is from above meaning God. God will
+never give you a bad gift. (James 1:17 Every good gift and every perfect
+gift is from above, and cometh down from the Father of lights, with whom
+is no variableness, neither shadow of turning.) God gave us our gifts
+without repentance or regret so we need to make sure we do not waste them.
+(Romans 11:29 For the gifts and calling of God are without repentance.)
+
+I have shown how the Holy Ghost as God gives gifts to believers. As
+believers we need to learn what those gifts are and then learn to use
+them. As we grow as Christians, let us pray that God will in his grace
+bestow more gifts upon us. God gives grace to the humble and not the
+proud. (James 4:6 But he giveth more grace. Wherefore he saith, God
+resisteth the proud, but giveth grace unto the humble.) The apostles were
+blessed with many gifts as well as much authority, yet they learned to use
+those around them with gifts they did not have or even ones with similar
+gifts so that together many people night get saved. Remember that is the
+only reason we get gifts, so that we can use them for God. They are not
+for ourselves or for bragging rights over other Christians. I do believe a
+person can lose gifts if they get out of the grace of God. I pray that all
+of us will stay in God's grace and thank God for the gifts he has given
+us. For those who are not saved, remember God gave the greatest gift to
+you in his Son Jesus Christ so that you might be saved. Do not refuse this
+gift, but receive this free gift today by admitting you are a sinner and
+in need of Jesus to be your Saviour. Pray and ask Jesus to save you today.
+If you do then you will receive gifts from the Holy Ghost as well.      
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

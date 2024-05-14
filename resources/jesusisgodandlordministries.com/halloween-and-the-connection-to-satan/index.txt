@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,473 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Halloween and the connection to Satan
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Halloween has always been connected to Satan and is an invitation to
+the occult and witchcraft. It should be obvious to every Christian that
+Halloween does not bring glory to God, but rather Satan. The origins of
+Halloween go back over 2000 years to the Celtic holiday of Samhain
+(pronounced sow-in) and possibly to even before the tower of babel and the
+dispersion of people. Many cultures have had similar days so they all
+might have gotten it from when they were together before being scattered
+after the change of languages at the tower of Babel. The Celts lived in
+ancient Britain and Ireland. The Celts whose leaders were the high priests
+known as Druids have influenced all things in the occult. The Druids were
+sold out to Satan and were very wicked and are considered the leaders of
+the occult. Samhain was celebrated on November 1 as the death of summer.
+On this night the Druids sacrificed people including first born children
+and also animals to Baal (Satan). Baal worship is probably condemned more
+by God in scripture than any other false god. On October 31 the Druids
+went house to house to grab people for sacrifices and often left a
+jack-o-lantern to protect the house from death devils coming back. It was
+a night meant to celebrate death and hell. Large bonfires were burned and
+the people danced around them while wearing masks in attempts to scare off
+the evil spirits. Samhain was meant as a day to honor the lord of the dead
+or Satan. The Celts prepared "treats" for the evil spirits so they would
+not perform "tricks" on them. This has led to our modern trick or treat.
 
-Username or email _____________________
+The modern version of Halloween comes from the Roman Catholic Church
+when as Pope Gregory I attempted to spread Roman Catholicism throughout
+Britain and Ireland he ordered his missionaries in A.D. 601 to secretly
+convert the Druid rituals into Roman Catholic rituals. The Roman Catholic
+Church has a history of doing this type of thing. Samhain became All
+Hallows Day or All Saints Day, a day to celebrate and prayer to "Church
+saints". God condemns praying to the dead. Those who are dead cannot help
+us and by contacting the dead you are only contacting devils. (Deuteronomy
+18:11 Or a charmer, or a consulter with familiar spirits, or a wizard, or
+a necromancer.) As Christians we need to be celebrating Jesus, not
+supposed dead saints. God never commanded us to celebrate the saints in
+scripture. October 31 became known as All Hallows Eve and eventually
+Halloween. The word hallow in Halloween means holy and thus Halloween
+means holy evening. God said his name was holy or hallowed yet Satan has
+made his day holy as a mockery of God the Father. (Matthew 6:9 After this
+manner therefore pray ye: Our Father which art in heaven, Hallowed be thy
+name.) Pope Gregory IV in 835 gave his blessings on All Hallows Eve or
+Halloween and made All Saints Day as a day of obligation for Roman
+Catholics to attend Mass. The Roman Catholic Church wanted her people to
+secretly worship Satan by using Halloween as a deception. The Roman
+Catholic Church later added November 2 as All Souls Day to keep the death
+theme alive and has solely been responsible for the continual celebration
+of Halloween today. Halloween was brought to the United States by the
+Irish Catholics and English and Scottish Anglicans.
 
-Reset password
+Halloween is the most holy day for Satanists. This is one of the days
+along with Christmas, Easter, Thanksgiving, and as close as possible to
+the first day of spring, summer, fall, and winter so they could desecrate
+God's ordained seasons that Satanists are required to make a sacrifice to
+Satan, preferably a person, but if unable an animal usually a cat [black
+if possible, though they really want a white cat according to former
+Satanists as it represents the purity of Jesus who they want to sacrifice]
+is made. Jesus is associated with a lion and Satan always tries to copy
+things of Jesus and distort them and he is also associated with a lion. It
+makes you wonder if the reason they most often sacrifice cats and not dogs
+is because it is symbolic of sacrificing Jesus as the Lion of the tribe of
+Juda (Revelation 5:5) to Satan who is a roaring lion (I Peter 5:8) and
+devours his prey. Is this why so many people are dog lovers and not cat
+lovers as the cat reminds them of Jesus? Dogs in scripture are always
+negative. Many people especially children that go missing and are never
+found are suspected of being used by Satanists for such sacrifices. Often
+times a female Satanist will become pregnant just for the sole purpose to
+sacrifice her baby to Satan. Others will purposely have an abortion on
+Halloween as a sacrifice. Sometimes a Satanist who is attempting to get
+out of Satanism or is disobedient to Satan will himself be sacrificed. One
+way Satanists have made sacrifices on Halloween is to put items in the
+candy to harm or kill children. This was especially bad in the 1970's with
+razor blades, pins, and glass in apples and with poisoned or drug injected
+candy. Satanists at the highest level will often get a personal appearance
+by Satan on Halloween as they perform their sacrifice. This is a night
+filled with sex and violence. Notice how the real Halloween always starts
+at dark. Satan loves the dark as do sinners. (John 3:19 And this is the
+condemnation, that light is come into the world, and men loved darkness
+rather than light, because their deeds were evil.)
+
+Halloween is often thought of as a harmless day of fun and candy. A
+day that a child or adult can dress up as anything they want. Many
+Christians have sadly embraced this satanic holy day and see no problem
+with it. They dress up like the unsaved in evil costumes, carve
+Jack-o-lanterns, and put out Halloween decorations with excitement looking
+forward to the day just like the heathen. Christians often wonder why
+there is no revival in this nation or the world. The reason is because
+they cannot even see the evil of Halloween or see the footprints of Satan
+all over it. Most Christians are spiritually blind to the work of Satan
+and go along with it. Halloween is a time when people dress up as witches,
+ghosts, the devil, werewolves, zombies, grim reaper, skeletons, and other
+satanic things. Masks are often worn. Satanists love to wear masks
+thinking they are hiding their identity from evil spirits. This is why
+they are pushing so hard to make everyone wear masks during this plandemic
+even when they do no good and have been proven unnecessary. Masks were
+often worn on Halloween to try and ward off the evil spirits. Many real
+witches have dressed up in disguise to go out and cast spells on places or
+people. God said to kill witches. (Exodus 22:18 ¶ Thou shalt not suffer a
+witch to live.) This day is used for people to cross dress, males as
+females and females as males. God hates this and calls it an abomination.
+(Deuteronomy 22:5 ¶ The woman shall not wear that which pertaineth unto a
+man, neither shall a man put on a woman's garment: for all that do so are
+abomination unto the LORD thy God.) The homosexual movement got its
+momentum going from this day as major cities such as New York City,
+Washington, D.C., New Orleans and San Francisco had large gatherings of
+cross dressers and of homosexuals dressed in costumes who would publicly
+perform homosexual acts without anyone knowing. Halloween has a long
+history of connection with homosexuality as much was performed on this
+night by Satanists. New York City has the largest Halloween parade. It has
+been said that it was the homosexual community that spread adults dressing
+up in costumes on Halloween. People often put up Halloween decorations a
+month and a half or more before Halloween. Many of the decorations put up
+on Halloween are similar to the costumes and often include things such as
+Satan, witches and brooms [brooms represent astral projecting), black
+cats, spiders and cobwebs, skeletons, skulls, vampires, grip reapers
+(death), ghosts (evil spirits), owls , jack-o-lanterns and many other
+things associated with Satan. Sadly many Christians go along with
+decorating their homes as well as do some churches. Halloween long has had
+a history of crime and violence associated with it including arson and
+murder. Halloween has always glorified death. God said those who love
+death hate him. (Proverbs 8:36 But he that sinneth against me wrongeth his
+own soul: all they that hate me love death.) The leader of Halloween
+parades is Death. Satan is Death. (Revelation 6:8 And I looked, and behold
+a pale horse: and his name that sat on him was Death, and Hell followed
+with him. And power was given unto them over the fourth part of the earth,
+to kill with sword, and with hunger, and with death, and with the beasts
+of the earth.) Satanists always glorify death and darkness. No Christian
+should ever participate in Halloween except to use Halloween as an
+opportunity to beat Satan at his own game. This is the one day a year that
+children will freely come to your door rather than you having to go to
+them. Give them a gospel tract along with candy so that they will have an
+opportunity to hear about Jesus. I recommend Chick tracts which are little
+comic books with the gospel. Children and adults love comic books. Many of
+these children do not go to church and this will be the first time they
+hear the truth about Jesus. There is no point in participating in
+Halloween if you are not going to give the children the gospel. Many
+churches sadly close on Halloween night if it falls on a Sunday falling
+right into the hand of Satan. Many churches today have "Fall Festivals" on
+Halloween with trunk or treat. I am not a huge fan of those as they are
+often Halloween under just another name, but if it is done right it can be
+a time of a true harvest of souls for Jesus. If a church is going to have
+one and the people insist on wearing costumes then have them dress up as a
+Bible character in the appropriate sex and make sure the children that
+come hear stories about Jesus and the characters and how God commanded the
+Israelites to remember their fall harvest. Have teachers there to tell the
+children the truth about Halloween and the connection to Satan and how God
+hates witches and the other things associated with Halloween. (Jude 23 And
+others save with fear, pulling them out of the fire; hating even the
+garment spotted by the flesh.) Along with preferably healthy treats for
+the children, make sure they go home with a tract and if the church can
+afford it a King James Bible. Often times the parents will read the tract
+as well. Invite the parents to come with their children to church. Use
+Halloween for the Lord rather than for Satan. Let us turn the table on
+Satan's day for Jesus.
+
+Halloween is quickly becoming the most popular holiday in the United
+States second only to Christmas and quickly gaining on it. More money is
+spent on Halloween except for Christmas. How sad that much of this money
+is by Christians. Halloween is often spent not only dressing up in
+costumes and trick or treating, but watching scary horror movies that are
+satanic in nature, playing pranks, lighting bon fires [reminiscent of the
+Druids], carving jack-o-lanterns, bobbing for apples, going to haunted
+houses, and playing divination games. Some light candles to put on the
+graves of the dead. These things are all connected to Satan by the true
+meaning of Halloween. God told Christians not to be like the world. We are
+not to love evil or appear like evil to the world. (I Thessalonians 5:22
+Abstain from all appearance of evil.) (III John 11 Beloved, follow not
+that which is evil, but that which is good. He that doeth good is of God:
+but he that doeth evil hath not seen God.) Halloween and New Year's Eve
+are the two main holidays celebrated at night and often involve sinful
+activities. Christmas Eve does on a smaller scale with Santa Claus and the
+drinking, but Halloween is the main night holiday. As Christians we are to
+be children of the day, not the night. (I Thessalonians 5:5 Ye are all the
+children of light, and the children of the day: we are not of the night,
+nor of darkness.) Darkness is not only absence of physical light, but also
+moral light. (Ephesians 5:11 And have no fellowship with the unfruitful
+works of darkness, but rather reprove them.) God said in Ephesians 5:11 to
+reprove the works of darkness and Satan. Reprove means to refute or expose
+and that is what I am doing with this sermon and exposing how Halloween is
+satanic and should be avoided by everyone especially Christians. God told
+the Israelites in Ezekiel 20:7 to cast away the abominations and idols of
+Egypt, but this also applies to the abominations from Ireland we have
+today in Halloween. The Irish are descended from the Celtics. Jesus said
+the harvest is plenteous and he needs harvesters to win souls. I need help
+in exposing the evil satanic Halloween. (Matthew 9:37-38 Then saith he
+unto his disciples, The harvest truly is plenteous, but the labourers are
+few;
+38 Pray ye therefore the Lord of the harvest, that he will send forth
+labourers into his harvest.)
+
+Orange and black are the two colors most associated with Halloween.
+The orange is said to represent the fall harvest and the black the evil
+spirits of Samhain or devils and are said to have been chosen since they
+represent opposites. Satan wants to harvest as many souls with him as he
+can in hell and those who follow Satan will see everlasting death. These
+colors are fitting for such a satanic holiday. In scripture orange
+represents God's judgment and fire and black represents death and famine.
+Satanists are spiritually dead as are all unbelievers and have a famine
+from God. Death and everlasting judgment in the lake of fire will be were
+the Satanists will end up if they do not repent and call upon Jesus to
+save them.  
+
+Trick or treating came about from the Celts who made treats for the
+evil spirits hoping when they came they would accept them rather than play
+"tricks" on them, in other words harm or kill them. This is also why they
+wore masks to try and hide from the evil spirits. Masks were also worn at
+times to try and get a devil to possess them.
+
+Bobbing for apples comes from the Druids who highly valued apple
+magic.
+
+Jack-o-lanterns are derived from the Druids and Celts who decorated
+houses with heads of people they had killed. The original jack-o-lanterns
+were skulls that were hollowed out and a lighted candle made of people fat
+was placed inside them. It was believed the spirit of a person lived in
+their head. Later on pumpkins replaced actual skulls and then faces were
+carved in them and a candle placed inside them as a replica of the former
+skull and candle. The head and the candle represented death and the spirit
+world.
+
+The Celtics often wore masks of false gods and devils that they
+believed allowed them to temporarily take on the qualities of that god or
+devil.
+
+Bats and blood were often used by the Druids in casting spells and it
+was believed that devils would possess these bats. They often used black
+cats that were said to be Satan himself. The Druids believed owls were
+possessed by devils and traveled with witches and their cats. Some said
+the owls were witches in disguise. Owls have had a long association with
+Satan. The Romans called owls "strix" which means witch possibly due to
+this association.
+
+Halloween opens the door to the occult and Satan. Do not think you
+can celebrate Halloween without consequences. It is not harmless. Satan
+and his devils keep an eye on who really loves his day so he might pull
+them more under his control and for Christians to pull you away from God.
+God warned against witchcraft and Christians are to avoid it. Those who
+participate in Halloween have made a covenant with death and agreement
+with hell. Satan applauds you. (Isaiah 28:15 Because ye have said, We have
+made a covenant with death, and with hell are we at agreement; when the
+overflowing scourge shall pass through, it shall not come unto us: for we
+have made lies our refuge, and under falsehood have we hid ourselves:)
+Witches in witchcraft whether under the guise of Wicca, Satanism,
+Freemasonry, or some other occult all believe Halloween is serious and
+believe devils are unleashed on this night. It is on this night that they
+cast their greatest spells. Witches often trample crosses on this night
+and slander and curse saints and blasphemy Jesus. This is also the biggest
+night for recruiting for Satanists. There is a spiritual war going on out
+there whether people believe it or not. (Ephesians 6:12-13 For we wrestle
+not against flesh and blood, but against principalities, against powers,
+against the rulers of the darkness of this world, against spiritual
+wickedness in high places.
+13 Wherefore take unto you the whole armour of God, that ye may be able to
+withstand in the evil day, and having done all, to stand.) Satanists
+believe people who profess to be atheists are bigger fools than Christians
+as Christians at least recognize the spirit world whereas atheists deny
+any God and the spirit world. Halloween celebrates the very things God
+calls abominations, so why would a Christian want to be a part of such a
+day? For the unsaved that may be listening Jesus can save you from Satan
+and the occult. (Acts 26:18 To open their eyes, and to turn them from
+darkness to light, and from the power of Satan unto God, that they may
+receive forgiveness of sins, and inheritance among them which are
+sanctified by faith that is in me.) Jesus wants to save you from the
+darkness of Satan and bring you to the light of Jesus. Call upon Jesus
+today to save you and bring you out of darkness into light and from
+Satan's kingdom to the kingdom of God. If a Satanist is listening the
+blood of Jesus is powerful enough to wash away your sins and even save
+you. For Christians, stop celebrating Halloween except to give the gospel
+to children and adults. Tell them how they are sinners who need to be
+saved and that Jesus died for their sins, was buried and rose again on the
+third day so that they might have everlasting life. Christians do not be a
+part of Satan's world and help support and promote his most holy day.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

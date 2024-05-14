@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,471 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Joseph as a type of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Joseph was a man of God and a type of Jesus. The story of Joseph is
+found in Genesis 37, 39-50. Joseph represented Jesus in many ways. Joseph
+was the eleventh of twelve sons born to Jacob and the first of two born to
+his wife Rachel who was Jacob's favorite wife. Joseph just like Jesus was
+born with the supernatural intervention of God. Rachel's womb was barren
+since God saw that Jacob disliked Leah. (Genesis 29:31 ¶ And when the LORD
+saw that Leah was hated, he opened her womb: but Rachel was barren.) Leah
+would go on to have six sons and one daughter. Rachel's maid Bilhah had
+two sons and Leah's maid had two sons. Rachel blamed Jacob for her
+barrenness, but Jacob understood it was God's doing. (Genesis 30:1-2 And
+when Rachel saw that she bare Jacob no children, Rachel envied her sister;
+and said unto Jacob, Give me children, or else I die.
+2 And Jacob's anger was kindled against Rachel: and he said, Am I in God's
+stead, who hath withheld from thee the fruit of the womb?) When Jacob was
+of old age and it seemed that Rachel would not give birth to any children,
+then God intervened supernaturally and opened the womb of Rachel and
+allowed the birth of Joseph. Without God opening the womb, Rachel would
+have stayed barren. (Genesis 30:22-24 22 ¶ And God remembered Rachel, and
+God hearkened to her, and opened her womb.
+23 And she conceived, and bare a son; and said, God hath taken away my
+reproach:
+24 And she called his name Joseph; and said, The LORD shall add to me
+another son.) Joseph was the favorite son of Jacob. (Genesis 37:3 Now
+Israel loved Joseph more than all his children, because he was the son of
+his old age: and he made him a coat of many colours.) Just as Joseph was
+born supernaturally through intervention of God, so was Jesus. Jesus was
+born of a virgin who was impregnated by God the Holy Ghost. (Matthew 1:18
+¶ Now the birth of Jesus Christ was on this wise: When as his mother Mary
+was espoused to Joseph, before they came together, she was found with
+child of the Holy Ghost.) It is interesting that the future husband of
+Mary was named Joseph.   
 
-Username or email _____________________
+Joseph's ten older brothers hated Joseph because he was the obvious
+favorite of Jacob. His brothers were jealous. (Genesis 37:4 And when his
+brethren saw that their father loved him more than all his brethren, they
+hated him, and could not speak peaceably unto him.) Joseph had a dream
+that he told his brothers and said that one day they would bow down to
+him. This made them hate Joseph even more. (Genesis 37:5 ¶ And Joseph
+dreamed a dream, and he told it his brethren: and they hated him yet the
+more.) In the dream Joseph said his parents and his brothers would bow
+before him. In the dream they are represented as the sun, moon, and eleven
+stars. The sun represented Jacob, the moon his mom, and the eleven stars
+his eleven brothers including his younger brother Benjamin. (Genesis 37:9
+¶ And he dreamed yet another dream, and told it his brethren, and said,
+Behold, I have dreamed a dream more; and, behold, the sun and the moon and
+the eleven stars made obeisance to me.) Later when Joseph became the
+second ruler over Egypt during the famine, his brothers came to Egypt to
+get food and bowed before Joseph. (Genesis 42:6 And Joseph was the
+governor over the land, and he it was that sold to all the people of the
+land: and Joseph's brethren came, and bowed down themselves before him
+with their faces to the earth.) Joseph was a ruler in Egypt and Jesus is
+King of kings. (Genesis 41:40-41 Thou shalt be over my house, and
+according unto thy word shall all my people be ruled: only in the throne
+will I be greater than thou.
+41And Pharaoh said unto Joseph, See, I have set thee over all the land of
+Egypt.) (Revelation 17:14 These shall make war with the Lamb, and the Lamb
+shall overcome them: for he is Lord of lords, and King of kings: and they
+that are with him are called, and chosen, and faithful.) Just as in
+Joseph's dream the sun, moon, and stars bowed before Joseph, the real sun,
+moon, and stars worship Jesus. (Psalm 148:3 Praise ye him, sun and moon:
+praise him, all ye stars of light.) Just as Joseph's brothers originally
+rejected Joseph until their time of need when they bowed before him,
+Jesus' half-brothers also originally rejected Jesus, but ultimately
+worshipped him after his resurrection. Two of Jesus' half-brothers wrote
+books of the Holy Bible. James would call himself a servant of his
+half-brother Jesus as did Jude. (James 1:1 James, a servant of God and of
+the Lord Jesus Christ, to the twelve tribes which are scattered abroad,
+greeting.) (Jude 1 Jude, the servant of Jesus Christ, and brother of
+James, to them that are sanctified by God the Father, and preserved in
+Jesus Christ, and called:) When Joseph's brothers first heard the dream
+that they would bow before Joseph they envied him, but Jacob observed the
+saying. (Genesis 37:11 And his brethren envied him; but his father
+observed the saying.) When Joseph and Mary were looking for Jesus when he
+was 12 after he stayed behind to speak with the Jewish leaders in the
+temple, Mary asked Jesus why he had stayed behind. Jesus said he was about
+his Father's business. Mary kept this saying in her heart. (Luke 2:49 And
+he said unto them, How is it that ye sought me? wist ye not that I must be
+about my Father's business?) (Luke 2:51 And he went down with them, and
+came to Nazareth, and was subject unto them: but his mother kept all these
+sayings in her heart.)
 
-Reset password
+Joseph was persecuted by his brothers especially after he told them
+the dream. One day they saw him coming and hated him and decided to kill
+him. (Genesis 37:18 And when they saw him afar off, even before he came
+near unto them, they conspired against him to slay him.) God said that
+hate was the same as murder. (I John 3:15 Whosoever hateth his brother is
+a murderer: and ye know that no murderer hath eternal life abiding in
+him.) They would throw him in a pit to die, but ultimately decided to sell
+him into slavery. Just as Joseph's brothers tried to stop the calling by
+God for Joseph and the fulfillment of his dream, the leaders of Israel
+tried to prevent the calling of Jesus by God to die on the cross for our
+sins and to also be the Jewish Messiah when they said to Jesus that if he
+was God and King of Israel to come down from the cross. (Matthew 27:42 He
+saved others; himself he cannot save. If he be the King of Israel, let him
+now come down from the cross, and we will believe him.) Jesus as God could
+have done so, but then he would never have redeemed man and allowed for
+salvation of mankind. Satan always tries to stop God's man and God's plan.
+Joseph would be brought to Egypt were he would be the servant of Potiphar.
+(Genesis 39:1 And Joseph was brought down to Egypt; and Potiphar, an
+officer of Pharaoh, captain of the guard, an Egyptian, bought him of the
+hands of the Ishmeelites, which had brought him down thither.) Just as
+Joseph ended up in Egypt, so did Jesus when Joseph brought him and Mary
+down to Egypt to escape from Herod who was planning to kill Jesus.
+(Matthew 2:13 And when they were departed, behold, the angel of the Lord
+appeareth to Joseph in a dream, saying, Arise, and take the young child
+and his mother, and flee into Egypt, and be thou there until I bring thee
+word: for Herod will seek the young child to destroy him.) Just as
+Joseph's brothers wanted him dead, Herod and later the Jewish leaders
+wanted Jesus dead. Potiphar's wife wanted Joseph to lie with her, but he
+refused, so she falsely accused Joseph of raping her and Joseph was
+unjustly put in prison. Joseph stayed in prison until his elevation to
+rule as second in command of Egypt before the coming famine. (Genesis
+39:17-18 And she spake unto him according to these words, saying, The
+Hebrew servant, which thou hast brought unto us, came in unto me to mock
+me:
+18 And it came to pass, as I lifted up my voice and cried, that he left
+his garment with me, and fled out.) Just as Joseph was falsely accused, so
+was Jesus when he was falsely accused of saying he is the Messiah and King
+of Israel when he is. (Luke 23:2 And they began to accuse him, saying, We
+found this fellow perverting the nation, and forbidding to give tribute to
+Cæsar, saying that he himself is Christ a King.) (Mark 15:3 And the chief
+priests accused him of many things: but he answered nothing.) (Matthew
+26:59 Now the chief priests, and elders, and all the council, sought false
+witness against Jesus, to put him to death;) Jesus was persecuted just
+like Joseph. Jesus was betrayed by a man pretending to be his friend.
+(Mark 14:10 ¶ And Judas Iscariot, one of the twelve, went unto the chief
+priests, to betray him unto them.) He was scourged prior to his death on
+the cross and crucified on the cross. (Matthew 27:26 ¶ Then released he
+Barabbas unto them: and when he had scourged Jesus, he delivered him to be
+crucified.) Just as Joseph was arrested, so was Jesus prior to his death
+on the cross. (Genesis 39:20 And Joseph's master took him, and put him
+into the prison, a place where the king's prisoners were bound: and he was
+there in the prison.) (Mark 14:53 ¶ And they led Jesus away to the high
+priest: and with him were assembled all the chief priests and the elders
+and the scribes.)  
+
+Joseph was tempted by Potiphar's wife to lie with him, but Joseph
+refused. (Genesis 39:7-10 7 ¶ And it came to pass after these things, that
+his master's wife cast her eyes upon Joseph; and she said, Lie with me.
+8 But he refused, and said unto his master's wife, Behold, my master
+wotteth not what is with me in the house, and he hath committed all that
+he hath to my hand;
+9 There is none greater in this house than I; neither hath he kept back
+any thing from me but thee, because thou art his wife: how then can I do
+this great wickedness, and sin against God?
+10 And it came to pass, as she spake to Joseph day by day, that he
+hearkened not unto her, to lie by her, or to be with her.) Jesus was
+tempted by Satan for forty days in the wilderness. (Mark 1:13 And he was
+there in the wilderness forty days, tempted of Satan; and was with the
+wild beasts; and the angels ministered unto him.) (Hebrews 4:15 For we
+have not an high priest which cannot be touched with the feeling of our
+infirmities; but was in all points tempted like as we are, yet without
+sin.) Neither Joseph nor Jesus sinned during their temptations.
+
+Joseph forgave his brothers for selling him and their hatred towards
+him. (Genesis 50:17-21 17 So shall ye say unto Joseph, Forgive, I pray
+thee now, the trespass of thy brethren, and their sin; for they did unto
+thee evil: and now, we pray thee, forgive the trespass of the servants of
+the God of thy father. And Joseph wept when they spake unto him.
+18 And his brethren also went and fell down before his face; and they
+said, Behold, we be thy servants.
+19 And Joseph said unto them, Fear not: for am I in the place of God?
+20 But as for you, ye thought evil against me; but God meant it unto good,
+to bring to pass, as it is this day, to save much people alive.
+21Now therefore fear ye not: I will nourish you, and your little ones. And
+he comforted them, and spake kindly unto them.) Scripture also never says
+Joseph sought revenge against Potiphar or his wife. Jesus forgave those
+who crucified him. (Luke 23:34 ¶ Then said Jesus, Father, forgive them;
+for they know not what they do. And they parted his raiment, and cast
+lots.) Jesus' death on the cross also forgives the sins of all those who
+call upon him for salvation. (Ephesians 1:7 In whom we have redemption
+through his blood, the forgiveness of sins, according to the riches of his
+grace;) Let these two men be examples in our lives to forgive.
+
+Joseph was sold for twenty pieces of silver and Jesus was betrayed
+for thirty pieces of silver. (Genesis 37:28 Then there passed by
+Midianites merchantmen; and they drew and lifted up Joseph out of the pit,
+and sold Joseph to the Ishmeelites for twenty pieces of silver: and they
+brought Joseph into Egypt.) (Matthew 26:15 ¶ Then one of the twelve,
+called Judas Iscariot, went unto the chief priests,
+15And said unto them, What will ye give me, and I will deliver him unto
+you? And they covenanted with him for thirty pieces of silver.) Joseph was
+betrayed by his own brothers and Jesus was betrayed by Judas Iscariot who
+had been one of his twelve apostles and a supposed friend.
+
+When Joseph first saw his brothers he hid his identity from them.
+(Genesis 42:7-8 7 And Joseph saw his brethren, and he knew them, but made
+himself strange unto them, and spake roughly unto them; and he said unto
+them, Whence come ye? And they said, From the land of Canaan to buy food.
+8 And Joseph knew his brethren, but they knew not him.) Jesus also
+concealed his identity to his disciples after his resurrection such as
+Mary Magdalene thought he was the gardener and the two men on the road to
+Damascus did not know who he was. (John 20:15 Jesus saith unto her, Woman,
+why weepest thou? whom seekest thou? She, supposing him to be the
+gardener, saith unto him, Sir, if thou have borne him hence, tell me where
+thou hast laid him, and I will take him away.) (Luke 24:16 But their eyes
+were holden that they should not know him.)
+
+Joseph's coat of many colours that was dipped in the blood of the
+goat was a type of Jesus' blood that was shed on the cross for our sins.
+(Genesis 37:31 And they took Joseph's coat, and killed a kid of the goats,
+and dipped the coat in the blood;) This blood on the coat was to represent
+Joseph's death to Jacob. Just as a goat had to die to have his blood to
+cover the sins of the Israelites, the shed blood of Jesus on the cross
+allows salvation and life to all of those who call upon Jesus to save
+them. (Romans 3:25 Whom God hath set forth to be a propitiation through
+faith in his blood, to declare his righteousness for the remission of sins
+that are past, through the forbearance of God;)
+
+Joseph's brothers meant to kill Joseph, but his being sold into Egypt
+would lead to the saving of their lives when he as ruler of Egypt would
+provide food and land for them during the famine. What they intended for
+evil, God made good. (Genesis 50:20 But as for you, ye thought evil
+against me; but God meant it unto good, to bring to pass, as it is this
+day, to save much people alive.) Joseph would be the earthly savior for
+many people as he provided for their needs during the famine. (Genesis
+41:57 And all countries came into Egypt to Joseph for to buy corn; because
+that the famine was so sore in all lands.) By preventing the deaths of his
+brothers he kept the nation of Israel alive. (Genesis 45:7 And God sent me
+before you to preserve you a posterity in the earth, and to save your
+lives by a great deliverance.) Jesus' death on the cross was meant for
+evil by Satan, but it would ultimately bring salvation to all who call
+upon Jesus whether Jew or Gentile. Jesus is the Saviour of the world.
+(Romans 10:13 For whosoever shall call upon the name of the Lord shall be
+saved.) (John 3:15 That whosoever believeth in him should not perish, but
+have eternal life.) If Jesus did not die on the cross, he would not have
+become our Saviour.
+
+Joseph was 30 years old when he was made second in command to pharaoh
+in Egypt. (Genesis 41:46 ¶ And Joseph was thirty years old when he stood
+before Pharaoh king of Egypt. And Joseph went out from the presence of
+Pharaoh, and went throughout all the land of Egypt.) Joseph was told by
+God that pharaoh's dream predicted seven years of plenty in Egypt followed
+by seven years of famine. Joseph revealed himself to his brethren
+[brothers] who were the patriarchs of Israel after two years of famine.
+This makes Joseph 39 years old when he revealed himself to his brothers
+who were Israelites [30 at time of dream followed by 7 years of plenty and
+2 years of famine for 9 years total, so 39 years old]. God used 39 books
+of the old testament to reveal his Son Jesus to the Israelites as well as
+to all people. (Genesis 45:6 For these two years hath the famine been in
+the land: and yet there are five years, in the which there shall neither
+be earing nor harvest.) The number 39 means disease and it is the disease
+of sin throughout the 39 books of the old testament that points to the
+need for Jesus as your Saviour to cure us of our sin diseased soul. Jesus
+is the only cure for the disease of sin. 
+
+Jacob thought his favorite son Joseph was dead, but he later found
+out he was alive. (Genesis 37:33 And he knew it, and said, It is my son's
+coat; an evil beast hath devoured him; Joseph is without doubt rent in
+pieces.) (Genesis 45:26 And told him, saying, Joseph is yet alive, and he
+is governor over all the land of Egypt. And Jacob's heart fainted, for he
+believed them not.) This represented the future resurrection of Jesus
+after his death on the cross. Jesus died and was resurrected and rose
+again from the grave on the third day so that we might have everlasting
+life. (I Corinthians 15:3-4 3 For I delivered unto you first of all that
+which I also received, how that Christ died for our sins according to the
+scriptures;
+4 And that he was buried, and that he rose again the third day according
+to the scriptures:) Just as Jacob doubted that Joseph was alive, so did
+the apostles at first doubt the resurrection of Jesus and many today still
+do. (Luke 24:11 And their words seemed to them as idle tales, and they
+believed them not.) Jesus is indeed resurrected and sits at the right hand
+of God the Father and is today our Saviour if you call upon him. (Hebrews
+10:12 But this man, after he had offered one sacrifice for sins for ever,
+sat down on the right hand of God;) Jesus is risen indeed. If there is one
+listening today who doubts the resurrection of Jesus, today is the day to
+end that doubting and call upon Jesus to save you. Let Jesus be your
+Saviour.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

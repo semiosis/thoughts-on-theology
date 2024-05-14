@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,709 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+3:16 Verses
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Of the 66 books of the Holy Bible, 28 of the 39 old testament books
+have a 3:16 verse and 21 of the 27 new testament books have a 3:16 verse
+for a total of 49 of the 66 books in scripture having a 3:16 verse. The
+number 49 is 7 times 7 with 7 being the number for completeness. The
+number three represents divine completeness and resurrection and the
+number 16 means love. The number 28 means eternal life as the old
+testament had many types to point the people to Jesus who gives eternal
+life to all those who call upon him to be their Saviour. The number 11 for
+the old testament books without a 3:16 verse represents judgment and
+disorder and this is again seen in the old testament in the rebellion of
+Israel as well as Satan and man in general and eternal judgment in the
+lake of fire for all those who reject Jesus as their Saviour. The number
+21 means exceeding sinfulness of sins and this is seen how the old
+testament with the law pointed out how sinful man was and the need for a
+Saviour. The old testament had the animal sacrifices. The new testament is
+all about that Saviour, Jesus Christ and how man who is exceeding sinful
+needs Jesus as their Saviour who made the sacrifice for us. The number six
+for the new testament books without a 3:16 verse means man and shows how
+man needs a Saviour and how Jesus came to earth as the God-man to die for
+us, be buried, and rise again on the third day so that he might be our
+perfect sinless Saviour. Many of these verses will show the connection
+with these numbers with the most famous verse in scripture in John 3:16
+showing the love of Jesus for us that he died for us and was resurrected
+again to life on the third day. John 3:16 is the gospel in a nutshell.
+When someone hears 3:16 verse this is the verse that comes to mind, but
+there are many other great 3:16 verses as we will see that are powerful as
+well. The following old testament books do not have a 3:16 verse: Ezra,
+Esther, Psalms, Song of Solomon, Hosea, Amos, Obadiah, Jonah, Micah,
+Haggai, and Zachariah. The following new testament books do not have a
+3:16 verse: I Thessalonians, Titus, Philemon, II John, III John, Jude.
+Most of the old testament verses deal with sin and most of the new
+testament verses deal with Jesus or point to Jesus in some way. Nearly
+every one of the new testament 3:16 verses could have sermons preached on
+them and done in a series. 
 
-Username or email _____________________
+Genesis the first book in scripture has the first 3:16 verse.
+(Genesis 3:16 Unto the woman he said, I will greatly multiply thy sorrow
+and thy conception; in sorrow thou shalt bring forth children; and thy
+desire shall be to thy husband, and he shall rule over thee.) Sin brought
+about the curse on the woman. By a woman's conception came Jesus. Her
+sorrow brought joy and salvation to the world. (Luke 1:14 And thou shalt
+have joy and gladness; and many shall rejoice at his birth.) (John 16:21 A
+woman when she is in travail hath sorrow, because her hour is come: but as
+soon as she is delivered of the child, she remembereth no more the
+anguish, for joy that a man is born into the world.) (Romans 5:11 And not
+only so, but we also joy in God through our Lord Jesus Christ, by whom we
+have now received the atonement.)  
 
-Reset password
+(Exodus 3:16 Go, and gather the elders of Israel together, and say unto
+them, The LORD God of your fathers, the God of Abraham, of Isaac, and of
+Jacob, appeared unto me, saying, I have surely visited you, and seen that
+which is done to you in Egypt:) God sent Moses off to Egypt to free his
+chosen people. Shows Jesus was the God of the patriarchs.
+
+(Leviticus 3:16 And the priest shall burn them upon the altar: it is the
+food of the offering made by fire for a sweet savour: all the fat is the
+LORD'S.) This verse deals with the peace offering that is a sweet savour
+to God. God gave his Son Jesus to be a sin offering for us that he might
+bring us peace to those who call upon Jesus for salvation.  
+
+(Numbers 3:16 And Moses numbered them according to the word of the LORD,
+as he was commanded.) Moses numbered the Levites, the ones who served the
+LORD. Jesus has also numbered those who will serve him.
+
+(Deuteronomy 3:16 And unto the Reubenites and unto the Gadites I gave from
+Gilead even unto the river Arnon half the valley, and the border even unto
+the river Jabbok, which is the border of the children of Ammon;) God gave
+the Jews their land.
+
+(Joshua 3:16 That the waters which came down from above stood and rose up
+upon an heap very far from the city Adam, that is beside Zaretan: and
+those that came down toward the sea of the plain, even the salt sea,
+failed, and were cut off: and the people passed over right against
+Jericho.) God showed his omnipotence by stopping the waters of the river
+Jordan when the Israelites were preparing to cross over into the Promised
+Land.
+
+(Judges 3:16 But Ehud made him a dagger which had two edges, of a cubit
+length; and he did gird it under his raiment upon his right thigh.)
+
+(Ruth 3:16 And when she came to her mother in law, she said, Who art thou,
+my daughter? And she told her all that the man had done to her.) Naomi was
+asking Ruth in this verse if she was engaged to Boaz. The marriage of Boaz
+and Ruth showed how Gentiles are in God's plan of salvation as well and
+not just Jews. Jesus would descend from the lineage of this marriage as he
+is the one who unites Jews and Gentiles by his shed blood. See Ephesians
+2:11-15.
+
+(I Samuel 3:16 Then Eli called Samuel, and said, Samuel, my son. And he
+answered, Here am I.) Just as Eli called Samuel, so did God who also calls
+everyone to his Son Jesus and God also calls men and women to serve him.
+
+(II Samuel 3:16 And her husband went with her along weeping behind her to
+Bahurim. Then said Abner unto him, Go, return. And he returned.)
+
+(I Kings 3:16 ¶ Then came there two women, that were harlots, unto the
+king, and stood before him.) These women sought justice before Solomon and
+he gave equal justice to a harlot as he did to anyone else just like Jesus
+did and we should.
+
+(II Kings 3:16 And he said, Thus saith the LORD, Make this valley full of
+ditches.)
+
+(I Chronicles 3:16 And the sons of Jehoiakim: Jeconiah his son, Zedekiah
+his son.)
+
+{II Chronicles 3:16 And he made chains, as in the oracle, and put them on
+the heads of the pillars; and made an hundred pomegranates, and
+put them on the chains.) These chains were attached to the pillars of the
+temple and represented our union with Jesus and the hundred pomegranates
+on the chains represented the fruit of the spirit. [No Ezra 3:16]
+
+(Nehemiah 3:16 After him repaired Nehemiah the son of Azbuk, the ruler of
+the half part of Beth-zur, unto the place over against the sepulchres of
+David, and to the pool that was made, and unto the house of the mighty.)
+This verse deals with the repair of the gate of the fountain which
+represents the Christian who after being saved now grows in faith by
+receiving the living water of the Holy Ghost. [John 7:38-39 38 He that
+believeth on me, as the scripture hath said, out of his belly shall flow
+rivers of living water.
+39 (But this spake he of the Spirit, which they that believe on him should
+receive: for the Holy Ghost was not yet given; because that Jesus was not
+yet glorified.)] [No Esther 3:16]
+
+(Job 3:16 Or as an hidden untimely birth I had not been; as
+infants which never saw light.) Job wished he had never been born. [No
+Psalm 3:16]
+
+(Proverbs 3:16 Length of days is in her right hand; and in her left hand
+riches and honour.) This verse refers to finding wisdom which everyone
+needs. To find it a person needs God through his Son Jesus Christ. The
+truly wise will make Jesus their Saviour and win souls for Jesus.
+(Proverbs 11:30 The fruit of the righteous is a tree of life; and he that
+winneth souls is wise.)
+
+(Ecclesiastes 3:16 ¶ And moreover I saw under the sun the place of
+judgment, that wickedness was there; and the place of
+righteousness, that iniquity was there.) Wickedness will be judged one day
+by God. It may seem like the wicked get away with things, but their day
+will come. God allows the wicked around us due to sin. [No Song of Solomon
+3:16]
+
+(Isaiah 3:16 ¶ Moreover the LORD saith, Because the daughters of Zion are
+haughty, and walk with stretched forth necks and wanton eyes, walking and
+mincing as they go, and making a tinkling with their feet:) The women of
+Jerusalem were sinful trying to lure men to them.
+
+(Jeremiah 3:16 And it shall come to pass, when ye be multiplied and
+increased in the land, in those days, saith the LORD, they shall say no
+more, The ark of the covenant of the LORD: neither shall it come to mind:
+neither shall they remember it; neither shall they visit it; neither
+shall that be done any more.) During the Millennial kingdom the ark of the
+covenant will not be remembered as it will not be needed since Jesus will
+be there with the people. This is also a promise by God that the Jews will
+be increased in the land again someday despite the predictions by Jeremiah
+of Judah's destruction. This is seen today in Israel.
+
+(Lamentations 3:16 He hath also broken my teeth with gravel stones, he
+hath covered me with ashes.) Jeremiah represents Judah in this chapter as
+God has temporary rejected Judah as his son by giving stones mixed in
+their bread and covering them in ashes to humiliate them and show they
+need to repent. Jesus may have meant this verse when speaking in Matthew
+7:9. (Matthew 7:9 Or what man is there of you, whom if his son ask bread,
+will he give him a stone?)
+
+(Ezekiel 3:16 And it came to pass at the end of seven days, that the word
+of the LORD came unto me, saying,) Ezekiel waited seven days upon the
+LORD. We also need to learn to wait until God speaks to us.
+
+(Daniel 3:16 Shadrach, Meshach, and Abed-nego, answered and said to the
+king, O Nebuchadnezzar, we are not careful to answer thee in this matter.)
+These men were being threatened to be thrown in the fiery furnace if they
+did not bow down to the golden image (idol). These men were saying that
+they did not care that they had long ago chosen Jesus and their minds
+would not be changed. Christians need to have Jesus settled in their minds
+to be willing to die for Jesus if necessary just as these three Hebrew
+men. [No Hosea 3:16]
+
+(Joel 3:16 The LORD also shall roar out of Zion, and utter his voice from
+Jerusalem; and the heavens and the earth shall shake: but the
+LORD will be the hope of his people, and the strength of the children of
+Israel.) This verse shows how Jesus will be with Israel in her battle
+against the antichrist during the tribulation. With Jesus on your side you
+cannot lose. (Romans 8:31 What shall we then say to these things? If God
+be for us, who can be against us?) [No Amos, Obadiah, Jonah, Micah 3:16]
+
+(Nahum 3:16 Thou hast multiplied thy merchants above the stars of heaven:
+the cankerworm spoileth, and flieth away.)
+
+(Habakkuk 3:16 When I heard, my belly trembled; my lips quivered at the
+voice: rottenness entered into my bones, and I trembled in myself, that I
+might rest in the day of trouble: when he cometh up unto the people, he
+will invade them with his troops.) Habakkuk trembled at the coming
+destruction to Judah and prayed that he might die (rest) before Judah was
+destroyed or either that God would protect him during the invasion of
+Judah by Babylon. We as Americans need to tremble at the coming
+destruction of America if we as a nation do not repent of our sins before
+a holy God.
+
+(Zephaniah 3:16 In that day it shall be said to Jerusalem, Fear thou
+not: and to Zion, Let not thine hands be slack.) Jerusalem will be God's
+capital during the Millennium with Jesus ruling so the people of Jerusalem
+have nothing to fear. [No Haggai, Zachariah 3:16]
+
+(Malachi 3:16 ¶ Then they that feared the LORD spake often one to another:
+and the LORD hearkened, and heard it, and a book of remembrance was
+written before him for them that feared the LORD, and that thought upon
+his name.) This last 3:16 verse of the old testament shows that those who
+feared the LORD spoke to each other to encourage each one and they
+possibly gathered to worship. God always keeps a remnant of his people.
+God recorded this in a book of remembrance and probably does when we
+gather together to worship him as well. Jesus said he is there when two or
+three gather in his name just as he was with these Jews. I pray that
+everyone listening to this sermon fears the LORD and will be found in this
+book. (Matthew 18:20 For where two or three are gathered together in my
+name, there am I in the midst of them.) [28 of 39 old testament books have
+3:16 verses, 11 do not]
+
+(Matthew 3:16 And Jesus, when he was baptized, went up straightway
+out of the water: and, lo, the heavens were opened unto him, and he saw
+the Spirit of God descending like a dove, and lighting upon him:) The
+first 3:16 verse in the new testament is about the baptism of Jesus. We
+see Jesus was obedient to baptism just as we should and how he was
+baptized by immersion setting the example for us and how baptism
+represented being buried in his future death with him and his future
+resurrection giving us a new life in Jesus. We also see the Holy Ghost,
+the third member of the Godhead at Jesus' baptism. It was at the baptism
+of Jesus that he was given approval by God the Father to start his
+ministry. Jesus was publicly anointed by the Holy Ghost as the Messiah at
+his baptism. Notice how Jesus was public about it, not secret like
+Mohammed who was in a cave. This is similar to the ordination of a
+minister.
+
+(Mark 3:16 And Simon he surnamed Peter;) One day Jesus will give all of us
+a new name just as he gave Simon a new name. (Revelation 2:17 He that hath
+an ear, let him hear what the Spirit saith unto the churches; To him that
+overcometh will I give to eat of the hidden manna, and will give him a
+white stone, and in the stone a new name written, which no man knoweth
+saving he that receiveth it.)
+
+(Luke 3:16 John answered, saying unto them all, I indeed baptize you with
+water; but one mightier than I cometh, the latchet of whose shoes I am not
+worthy to unloose: he shall baptize you with the Holy Ghost and with
+fire:) John the Baptist predicted the coming of Jesus who was mightier
+than him and his giving us the Holy Ghost. John the Baptist realized that
+he and none of us compare to Jesus as he was not even worthy to even
+loosen the latchet on Jesus' shoes. We all need to humble ourselves before
+Jesus just like John the Baptist did. Jesus came to baptize us with the
+Holy Ghost which was completed after his ascension and he left the Holy
+Ghost as our Comforter who now indwells believers at the moment of their
+salvation. (John 16:7 Nevertheless I tell you the truth; It is expedient
+for you that I go away: for if I go not away, the Comforter will not come
+unto you; but if I depart, I will send him unto you.) Jesus baptized with
+the Holy Ghost and fire on the day of Pentecost after his ascension. (Acts
+2:3-4 And there appeared unto them cloven tongues like as of fire, and it
+sat upon each of them.
+4 And they were all filled with the Holy Ghost, and began to speak with
+other tongues, as the Spirit gave them utterance.)
+
+(John 3:16 ¶ For God so loved the world, that he gave his only begotten
+Son, that whosoever believeth in him should not perish, but have
+everlasting life.) John 3:16 is the quintessential verse of the bible as
+it represents the whole purpose of scripture in showing that man is a
+sinner and needs a Saviour in Jesus Christ to be reunited with God and
+have everlasting life. This is the gospel in a nutshell. Entire sermons
+could be preached on this verse. I may do one someday. Most people know
+this verse, even unsaved people, or at least have heard it. If a person
+has only memorized one verse in scripture, this is usually the verse. John
+3:16 clearly shows that Jesus is God and is the Son of God. God so loved
+mankind that in order to restore the relationship he once had with man, he
+was willing to give his only begotten Son so that he could die on a cross
+for our sins, be buried, and rise again so that whosever would believe in
+Jesus would have everlasting life and never see spiritual death which is
+the second death. (Revelation 2:11 He that hath an ear, let him hear what
+the Spirit saith unto the churches; He that overcometh shall not be hurt
+of the second death.) John 3:16 consists of 25 words. The number 25 means
+forgiveness of sins and for those who believe in Jesus as this verse says
+they will have their sins forgiven and have everlasting life. Only Jesus
+as God can forgive your sins.
+
+(Acts 3:16 And his name through faith in his name hath made this man
+strong, whom ye see and know: yea, the faith which is by him hath given
+him this perfect soundness in the presence of you all.) Just as the lame
+man was healed, a person can only be healed by faith in Jesus. Only Jesus
+can heal a person both physically and spiritually. It is only in the name
+of Jesus that a person can be healed and not by any other name including
+Allah or anyone else. This shows the power of the name of Jesus.
+(Philippians 2:10-11 10 That at the name of Jesus every knee should bow,
+of things in heaven, and things in earth, and things under the earth;
+11 And that every tongue should confess that Jesus Christ is Lord, to the
+glory of God the Father.)
+
+(Romans 3:16 Destruction and misery are in their ways:) We all are sinners
+and sin will only lead to death and destruction and misery as this verse
+says. (Romans 3:23 For all have sinned, and come short of the glory of
+God;) (Romans 6:23 For the wages of sin is death; but the gift of God is
+eternal life through Jesus Christ our Lord.)
+
+(I Corinthians 3:16 Know ye not that ye are the temple of God,
+and that the Spirit of God dwelleth in you?) When a person becomes a
+Christian by asking Jesus to save them, they are immediately indwelt with
+the Holy Ghost. (I Corinthians 6:19 What? know ye not that your body is
+the temple of the Holy Ghost which is in you, which ye have of God, and ye
+are not your own?) This verse shows the omnipresence of God the Holy Ghost
+and should be a comfort to all believers knowing that God is with us at
+all times even when we have been abandoned by people. This verse should
+also be a reminder for all of us to take care of our bodies since they are
+a temple of God. Christians should not be using harmful substances such as
+drugs, alcohol, tobacco, or vaping or eating lots of junk food and other
+food that is bad for your health. Do not abuse your body by doing harm to
+it and Christians should never attempt suicide. Do not defile it with
+tattoos and body piercings. God warns in verse 17 that anyone who defiles
+the temple (our bodies), God will destroy. I believe many Christians have
+died of disease or other means because of defiling their bodies.
+
+(II Corinthians 3:16 Nevertheless when it shall turn to the Lord, the vail
+shall be taken away.) Israel will one day during the tribulation have her
+eyes opened and the vail removed from her eyes and will see that Jesus is
+her Messiah and Saviour.
+
+(Galatians 3:16 Now to Abraham and his seed were the promises made. He
+saith not, And to seeds, as of many; but as of one, And to thy seed, which
+is Christ.) This verse shows that the promise of the coming Messiah and
+Saviour Jesus Christ was promised to Abraham and his seed. The promise was
+not to all of Abraham's seed such as his children from Hagar or Keturah.
+This promise was made through Isaac, not Ishmael as the Muslims say and
+through Jacob, not Esau whom God hated. (Romans 9:13 As it is written,
+Jacob have I loved, but Esau have I hated.) (Romans 9:7 Neither, because
+they are the seed of Abraham, are they all children: but, In Isaac shall
+thy seed be called.) This verse clearly shows that the promise was only
+made through one particular seed and that seed was Jesus. This also
+matches the prophecy of Genesis 3:15 which also says seed, not seeds.
+(Genesis 3:15 And I will put enmity between thee and the woman, and
+between thy seed and her seed; it shall bruise thy head, and thou shalt
+bruise his heel.) Most of the new corrupt bibles will change seed to
+descendant or offspring which destroys the connection to Genesis 3:15.
+Salvation is only by one man, Jesus Christ, not just any man or many men
+as some religions teach. (Romans 10:13 For whosoever shall call upon the
+name of the Lord shall be saved.)
+
+(Ephesians 3:16 That he would grant you, according to the riches of his
+glory, to be strengthened with might by his Spirit in the inner man;) This
+verse shows how a Christian's spirit is strengthened by the Holy Ghost and
+how a Christian has access to all of the riches of God's glory and power.
+(II Thessalonians 2:14 Whereunto he called you by our gospel, to the
+obtaining of the glory of our Lord Jesus Christ.)
+
+(Philippians 3:16 Nevertheless, whereto we have already attained, let us
+walk by the same rule, let us mind the same thing.) Let us walk and live
+our lives like Jesus. 
+
+(Colossians 3:16 Let the word of Christ dwell in you richly in all wisdom;
+teaching and admonishing one another in psalms and hymns and spiritual
+songs, singing with grace in your hearts to the Lord.) This verse shows
+the importance of good godly music for worshipping. Godly music should be
+a part of the service as much as the sermon, though not replace the
+sermon. A person can be taught doctrine from psalms which are scripture as
+well as from many godly hymns and spiritual songs. Be careful that not all
+hymns have correct doctrine and unfortunately have misled people over the
+years. Godly music should first and foremost honor and glorify God and be
+based off of scripture so that it may as this verse says teach us. This
+verse also shows how wise people will let the word of Christ as found in
+scripture dwell in them. Christians need to absorb scripture in order to
+gain wisdom and the wise person will have asked Jesus to save them. [No I
+Thessalonians 3:16]
+
+(II Thessalonians 3:16 Now the Lord of peace himself give you peace always
+by all means. The Lord be with you all.) Paul wished the peace of Jesus on
+everyone including his enemies. Jesus is the only one who can bring us
+true peace. This does not mean that we will not be attacked by our
+enemies, but true inner peace can only come from Jesus. This is another
+reason why people need to get saved as only saved people will have peace
+in eternity, while the unsaved will burn in the lake of fire.
+
+(I Timothy 3:16 And without controversy great is the mystery of godliness:
+God was manifest in the flesh, justified in the Spirit, seen of angels,
+preached unto the Gentiles, believed on in the world, received up into
+glory.) This verse gives a quick rundown of the life of Jesus. God was
+manifest (made known) in the flesh in the form of Jesus, the God-man.
+Jesus became 100% man, but was still 100% God at the same time. (John 1:14
+And the Word was made flesh, and dwelt among us, (and we beheld his glory,
+the glory as of the only begotten of the Father,) full of grace and
+truth.) This verse starts out "without controversy" in showing how for a
+person that professes to be a Christian, there should be no doubt that
+Jesus as God came in the flesh despite what some cults teach. Jesus was
+justified in the Spirit when he was endorsed and proclaimed by the Holy
+Ghost. (Acts 10:38 How God anointed Jesus of Nazareth with the Holy Ghost
+and with power: who went about doing good, and healing all that were
+oppressed of the devil; for God was with him.) Jesus was seen of angels
+throughout his life; his birth, his life such as when he was in the
+wilderness and elsewhere such as when praying before going to the cross,
+at his crucifixion, resurrection, and ascension as well as when he
+preached to the spirits in hell during his three days in the grave. (Luke
+2:13 And suddenly there was with the angel a multitude of the heavenly
+host praising God, and saying,) (Matthew 4:11 Then the devil leaveth him,
+and, behold, angels came and ministered unto him.) (Luke 22:43 And there
+appeared an angel unto him from heaven, strengthening him.) (John 20:12
+And seeth two angels in white sitting, the one at the head, and the other
+at the feet, where the body of Jesus had lain.) (Acts 1:10 And while they
+looked stedfastly toward heaven as he went up, behold, two men stood by
+them in white apparel;) Jesus preached unto Gentiles such as the Roman
+centurion [Matthew 8:5-13], the Samaritan woman [John 4:4-42], the
+Canaanite woman [Matthew 15:21-28], and later after his resurrection Paul
+became the apostle to Gentiles to preach to them about Jesus. Jesus was
+not only believed on by people he preached to, but today people still
+believe on him. This verse shows Jesus was received up into glory at his
+ascension to sit at the right hand of God the Father. (Mark 16:19 ¶ So
+then after the Lord had spoken unto them, he was received up into heaven,
+and sat on the right hand of God.) The mystery of godliness refers to the
+lack of understanding of the cross that is now revealed through Jesus.  
+
+(II Timothy 3:16 All scripture is given by inspiration of God,
+and is profitable for doctrine, for reproof, for correction, for
+instruction in righteousness:) This verse clearly shows that all scripture
+is not only given by God, but is inspired (God breathed) and without error
+despite what many teach. The King James Bible is God's preserved holy
+words and is inspired, inerrant, and infallible just as the originals
+were. God spoke the words to holy men of God who then wrote them down. (II
+Peter 1:21 For the prophecy came not in old time by the will of man: but
+holy men of God spake as they were moved by the Holy Ghost.) This verse
+shows how we must get our doctrine from scripture, not from man or an
+angel as is done in cults and false religions. Scripture will convict and
+rebuke us of our sins (reproof), will correct us in our errors in doctrine
+or our sinful lives and put us on the right path. Scripture will instruct
+us in righteousness. Scripture can only do these things if someone reads
+scripture. [No Titus, Philemon 3:16]
+
+(Hebrews 3:16 For some, when they had heard, did provoke: howbeit not all
+that came out of Egypt by Moses.) Not everyone who came out of Egypt
+provoked God such as Joshua and Caleb. God always has a remnant of people
+for him that hear and obey unlike most people who hear, but reject God and
+his Son Jesus. Just as Hebrews 3:19 says the people could not enter the
+Promised Land because of unbelief, neither can a person enter heaven
+without belief in Jesus. This is more than believing in Jesus as the
+devils do, but rather placing ones trust in Jesus. Just believing in Jesus
+as the devils do who know he is real without fully trusting in Jesus will
+land a person in hell. (James 2:19 Thou believest that there is one God;
+thou doest well: the devils also believe, and tremble.)
+
+(James 3:16 For where envying and strife is, there is confusion and every
+evil work.) Envying and strife will only lead to evil work whether against
+saved or unsaved. Our focus must always be on Jesus in order to reduce
+strife. We must never be envious of other Christians or churches or this
+will just bring about evil works instead of glorifying Jesus as we should.
+
+(I Peter 3:16 Having a good conscience; that, whereas they speak evil of
+you, as of evildoers, they may be ashamed that falsely accuse your good
+conversation in Christ.) This verse shows that we may be spoken of in an
+evil manner by evildoers for living a godly life, but if we continue to
+live righteously (keep our conscience clean), our lives will ultimately
+prove our accusers wrong not only about us, but God as well. Let us always
+live a godly life that may prove our accusers wrong. Verse 15 says we need
+to always be ready to answer people for the hope that is in us. That hope
+is Jesus and the best way we can do that is by verse 16 and living a godly
+life. (I Peter 4:14 If ye be reproached for the name of Christ, happy are
+ye; for the spirit of glory and of God resteth upon you: on their part he
+is evil spoken of, but on your part he is glorified.)
+
+(II Peter 3:16 As also in all his epistles, speaking in them of these
+things; in which are some things hard to be understood, which they that
+are unlearned and unstable wrest, as they do also the other scriptures,
+unto their own destruction.) Peter tells us in this verse that Paul's
+writings are scripture, but that some teachings are hard to understand.
+The last part of the verse says that we need to not do as some people do
+and twist scripture to try and make it say something it does not in order
+to justify some false doctrine. This is what cults do as well as people
+who are convicted by a certain scripture of their sin.
+
+(I John 3:16 Hereby perceive we the love of God, because he laid down his
+life for us: and we ought to lay down our lives for the brethren.) Jesus
+as God so loved us that he laid down his life for us sinners that we might
+have everlasting life if we call upon him. Jesus said we also should have
+the love for our brethren Christians that we would also be willing to die
+for them just as he died for us. Jesus set the example for us by giving
+the most precious thing that anyone can give, their life. (John 15:13
+Greater love hath no man than this, that a man lay down his life for his
+friends.) Christians can perceive (become aware of) the love of God by
+reading scripture and growing as a Christian.  [No II John, III John, Jude
+3:16]
+
+(Revelation 3:16 So then because thou art lukewarm, and neither cold nor
+hot, I will spue thee out of my mouth.) God does not like lukewarm people
+or churches. He rejects them (spues them out of his mouth). God does not
+want people on the fence. He wants us to pick a side, either Jesus or
+Satan. Jesus said the lukewarm may not have fully rejected him, but in
+God's eyes they have. In God's eyes if you have not chosen Jesus, you have
+chosen Satan. We as Christians need to always stand on the side of God and
+always spread the gospel. We should never be afraid to stand for the
+truth. Too many professing Christians just have an I do not care attitude
+(lukewarm). Christians do not be lukewarm or God will spue you out as this
+final 3:16 verse warns. Churches need to do the same by standing for what
+scripture says and not being indecisive on issues. Too many churches try
+to avoid controversial issues such as the LGBTQ movement when God says
+"are you on my side or not". [21 of 27 new testament books have 3:16
+verses, 6 do not]   
+
+Let these 49 3:16 verses motivate Christians to love Jesus and their
+brother and sister Christians as well as the world by witnessing about
+Jesus and to stay strong and live godly lives and do not become lukewarm
+and be spued out by God. For the unsaved do not make the death of Jesus
+for nought. Do not remain lukewarm. Pick the winning side by picking Jesus
+as your Saviour by repenting of your sins and calling Jesus to be your
+Saviour before it is too late. 
+
+Post navigation
+← Previous Page
+Next Page →
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

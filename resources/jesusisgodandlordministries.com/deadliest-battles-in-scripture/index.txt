@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,447 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Deadliest battles in scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+We honor our war dead on Memorial Day each year on the last Monday of
+May. The United States has lost over 1.3 million dead due to wars. This
+includes killed in action as well as died of wounds, as POW's, or other
+related deaths. America's deaths pale in comparison to such nations as
+Russia who lost over 1.7 million in World War I and as the Soviet Union
+another 8 million or more in World War II and over 27 million with
+civilians. Germany lost 8 million during the two World Wars and another 3
+million civilians. Japan lost over two million dead in World War II and
+close to another million or more civilians. China lost millions in World
+War II. France lost over 1.3 million in World War I. These nations have
+lost more dead in one war than we have in over 250 years. The most
+Americans ever killed in combat on one day were the 2,500 men who died on
+D-Day on June 6, 1944 storming the beaches of Normandy during World War
+II. This pales in comparison to the 27,000 French who died on a single day
+during World War I. We need to remember all of the men who have given
+their lives for this nation so that we may continue to have the freedom to
+worship God. Even one death is tragic, but let us thank God that our death
+tolls have been much smaller than that which many other nations have
+suffered. We must be willing to continue to die if we want to keep our
+freedoms and liberties that we have. They are already being eroded away.
+Jesus died as the commander of the heavenly army so that we may have
+everlasting life. As we remember our war dead, I wanted to look at the
+deadliest battles in scripture. Some battles in World War I and II had
+over a million dead in them and it is believed one battle in World War II
+had over two million dead.
 
-Username or email _____________________
+The deadliest battle in scripture will probably be the future Battle
+of Armageddon at the end of the great tribulation. This battle will entail
+the entire world. It will be a true world war unlike the first two as all
+nations will be involved. This battle will take place in Israel in the
+valley of Megiddo where many battles throughout history have taken place.
+This valley is also known as Jezreel Valley. This battle is also found in
+Zechariah 12:9-11. (Zechariah 12:9-11 ¶ And it shall come to pass in that
+day, that I will seek to destroy all the nations that come against
+Jerusalem.
+10 And I will pour upon the house of David, and upon the inhabitants of
+Jerusalem, the spirit of grace and of supplications: and they shall look
+upon me whom they have pierced, and they shall mourn for him, as one
+mourneth for his only son, and shall be in bitterness for him, as one that
+is in bitterness for his firstborn.
+11 In that day shall there be a great mourning in Jerusalem, as the
+mourning of Hadadrimmon in the valley of Megiddon.) (Revelation 16:14 For
+they are the spirits of devils, working miracles, which go forth unto the
+kings of the earth and of the whole world, to gather them to the battle of
+that great day of God Almighty.) (Revelation 16:16 And he gathered them
+together into a place called in the Hebrew tongue Armageddon.) Devils help
+bring the nations together to battle it out. One side consists of the
+antichrist and his allies and the other side consists of the Oriental
+nations consisting of China and probably Japan, the Koreas, and other
+nations such as maybe Vietnam and they have a 200 million man army.
+(Revelation 9:16 And the number of the army of the horsemen were two
+hundred thousand thousand: and I heard the number of them.) Today China
+already can do this alone with an overabundance of men due to the former
+one child policy where so many girls were killed off. Many men can never
+get married as there are not enough Chinese women. God will dry up the
+Euphrates River in order to allow this large army to get to Israel and
+fight. (Revelation 16:12 And the sixth angel poured out his vial upon the
+great river Euphrates; and the water thereof was dried up, that the way of
+the kings of the east might be prepared.) As the battle rages on, Jesus
+will return for his second coming and both sides will stop fighting each
+other and will turn against Jesus who will quickly defeat them with his
+mouth as he speaks their destruction. Jesus wins. Scripture does not give
+an actual number of deaths, but it does say the blood from the battle will
+be as deep as the horse's bridles for over 200.7 miles. A horse's bridle
+depending on the horse averages four to six feet off of the ground.
+(Revelation 14:20 And the winepress was trodden without the city, and
+blood came out of the winepress, even unto the horse bridles, by the space
+of a thousand and six hundred furlongs.) That is a lot of blood and death.
+We also know that over one half of the people in the world will die during
+the great tribulation. (Revelation 6:8 And I looked, and behold a pale
+horse: and his name that sat on him was Death, and Hell followed with him.
+And power was given unto them over the fourth part of the earth, to kill
+with sword, and with hunger, and with death, and with the beasts of the
+earth.) (Revelation 9:15 And the four angels were loosed, which were
+prepared for an hour, and a day, and a month, and a year, for to slay the
+third part of men.) At today's population of close to 8 billion people
+that is close to four billion people and that is before this great battle.
+There will definitely be hundreds of millions of people who die in this
+great battle, making modern battles pale in comparison.
 
-Reset password
+The Second Battle of Gog and Magog will occur at the end of the
+Millennium when God releases Satan and allows him to stir up the people
+who as the number of the sand of the sea will rebel against Jesus. Jesus
+will quickly kill all of them making it a short, but very deadly battle as
+again hundreds of millions of people will die and possibly in the billions
+as the sand of the sea is a lot of people and many people will be born
+over the thousand years of the millennium. (Revelation 20:7-9 And when the
+thousand years are expired, Satan shall be loosed out of his prison,
+8 And shall go out to deceive the nations which are in the four quarters
+of the earth, Gog and Magog, to gather them together to battle: the number
+of whom is as the sand of the sea.
+9 And they went up on the breadth of the earth, and compassed the camp of
+the saints about, and the beloved city: and fire came down from God out of
+heaven, and devoured them.) Jesus wins.
+
+The First Battle of Gog and Magog as we have been studying shows
+there will also be many battle deaths. This battle will see Russia and
+other nations such as Iran (Persia), Ethiopia, and Libya and other Muslim
+nations attack Israel, but God will supernaturally intervene and will
+destroy 5/6ths of the attackers. (Ezekiel 39:2 And I will turn thee back,
+and leave but the sixth part of thee, and will cause thee to come up from
+the north parts, and will bring thee upon the mountains of Israel:) If
+500,000 people attack and invade Israel that would be 415,000 dead. I
+would not be surprised if the death toll is not much greater. God wins.
+
+The deadliest battle in scripture that we have actual numbers for was
+the Battle of Mount Zemaraim as told in II Chronicles 13 which saw Israel
+led by Jeroboam, who was Israel's first king, fight against Judah led by
+Abijah who was the son of Rehoboam who was the first king of Judah after
+the split of Israel into two kingdoms. Judah won a great victory with help
+from the LORD as he was angry with Jeroboam. Judah killed 500,000
+Israelites out of 800,000 that entered the battle. This spelled the end of
+Jeroboam. (II Chronicles 13:3-4 And Abijah set the battle in array with an
+army of valiant men of war, even four hundred thousand chosen men:
+Jeroboam also set the battle in array against him with eight hundred
+thousand chosen men, being mighty men of valour.
+
+4 ¶ And Abijah stood up upon mount Zemaraim, which is in mount Ephraim,
+and said, Hear me, thou Jeroboam, and all Israel;) (II Chronicles 13:17
+And Abijah and his people slew them with a great slaughter: so there fell
+down slain of Israel five hundred thousand chosen men.) Many historians
+claim that scripture is wrong and has exaggerated the numbers not only
+here but in other battles as well. If God says 500,000 died, then that is
+how many died. I trust and believe God, not fallible historians who do not
+believe in God.
+
+The Battle or siege of Jerusalem as told in II Kings 18-19 saw God
+intervene supernaturally to defeat Judah's enemy. The Assyrian king
+Sennacherib sent troops to siege Jerusalem until Judah surrendered.
+Hezekiah, the king of Judah prayed to God and asked for help. The city had
+been surrounded for some time. The angel of the LORD who was the
+preincarnate Jesus intervened and killed 185,000 Assyrians.  (II Kings
+19:35 ¶ And it came to pass that night, that the angel of the LORD went
+out, and smote in the camp of the Assyrians an hundred fourscore and five
+thousand: and when they arose early in the morning, behold, they were all
+dead corpses.) (Isaiah 37:36 Then the angel of the LORD went forth, and
+smote in the camp of the Assyrians a hundred and fourscore and five
+thousand: and when they arose early in the morning, behold, they were all
+dead corpses.) Jesus won.
+
+The Battle of Samaria can be found in I Kings 20. The king of Syria
+along with 32 other kings came against Samaria, the capital of Israel. God
+allowed the wicked Ahab who was the king of Israel to defeat Syria and the
+other kings because he was tired of the sins of Syria. God and Israel
+prevailed as Israel killed 100,000 Syrians on the seventh day of the
+battle followed by another 27,000 who died the next day for a total of
+127,000 dead. (I Kings 20:29-30 And they pitched one over against the
+other seven days. And so it was, that in the seventh day the battle was
+joined: and the children of Israel slew of the Syrians an hundred thousand
+footmen in one day.
+30 But the rest fled to Aphek, into the city; and there a wall fell upon
+twenty and seven thousand of the men that were left. And Ben-hadad fled,
+and came into the city, into an inner chamber.)
+
+The Battle of Karkor which is also known as the Battle of the Valley
+of Moreh can be found in Judges 7-8 and was a battle between the
+Israelites led by Gideon and his three hundred man army against the
+Midianites who were oppressing Israel with slavery and control of the
+nation. God used Gideon and his 300 men to show that he alone gives
+victory and not the Israelites themselves. Gideon and his ragtag army with
+the help of God killed 120,000 Midianites and freed Israel from the
+bondage of Midian. God won. (Judges 8:4 ¶ And Gideon came to Jordan, and
+passed over, he, and the three hundred men that were with him, faint, yet
+pursuing them.) (Judges 8:10 ¶ Now Zebah and Zalmunna were in Karkor, and
+their hosts with them, about fifteen thousand men, all that were left of
+all the hosts of the children of the east: for there fell an hundred and
+twenty thousand men that drew sword.)
+
+Pekah the king of Israel fought against Ahaz and the nation of Judah.
+God allowed the Israelites to kill 120,000 Judahites because they had
+forsaken God. God will even use a people and their wicked king whom he
+does not approve of their sins to destroy another nation including his own
+chosen people since they had rejected God including their own wicked king.
+(II Chronicles 28:5-6 Wherefore the LORD his God delivered him into the
+hand of the king of Syria; and they smote him, and carried away a great
+multitude of them captives, and brought them to Damascus. And he was also
+delivered into the hand of the king of Israel, who smote him with a great
+slaughter.
+
+6 ¶ For Pekah the son of Remaliah slew in Judah an hundred and twenty
+thousand in one day, which were all valiant men; because they had forsaken
+the LORD God of their fathers.)
+
+The Battle of Medeba is found in II Samuel 10 and I Chronicles 19.
+When the king of Ammon died, David sent men to give his condolences, yet
+the men were mistreated which angered David. The Ammonites realized this
+and hired Syrians to help them fight against Israel. The Israelites went
+on to kill 87,000 Syrians in the Battle of Medeba (7,000 charioteers and
+40,000 cavalry [horsemen] and 40,000 infantry [footmen]) and claim
+victory. (II Samuel 10:18 And the Syrians fled before Israel; and David
+slew the men of seven hundred chariots of the Syrians, and forty thousand
+horsemen, and smote Shobach the captain of their host, who died there.) (I
+Chronicles 19:18 But the Syrians fled before Israel; and David slew of the
+Syrians seven thousand men which fought in chariots, and forty thousand
+footmen, and killed Shophach the captain of the host.)
+
+During the time of the judges and not a long time past the death of
+Joshua, the nation of Israel saw a civil war between Benjamin and the
+other eleven tribes after the Benjaminites had killed the wife of a Levite
+after brutally gang raping her all night. The Battle of Gibeah is found in
+Judges 20. Israel (the eleven tribes) had 22,000 killed on the first day
+of the battle. (Judges 20:21 And the children of Benjamin came forth out
+of Gibeah, and destroyed down to the ground of the Israelites that day
+twenty and two thousand men.) Benjamin killed 18,000 more Israelites on
+the second day of the battle. (Judges 20:25 And Benjamin went forth
+against them out of Gibeah the second day, and destroyed down to the
+ground of the children of Israel again eighteen thousand men; all these
+drew the sword.) On day three of the battle, the Israelites had 30 killed
+and Benjamin had 25,100 killed. (Judges 20:35 And the LORD smote Benjamin
+before Israel: and the children of Israel destroyed of the Benjamites that
+day twenty and five thousand and an hundred men: all these drew the
+sword.) This battle saw over 65,130 men killed not including those in the
+city. Israel won.
+
+The Battle of Aphek in I Samuel 4 pitted the Philistines against the
+Israelites at Aphek. The Philistines killed four thousand Israelites who
+then went and got the ark of the covenant hoping that God would help them,
+but God did not as the Israelites had turned from him and he wanted to
+teach them a lesson. (I Samuel 4:2 And the Philistines put themselves in
+array against Israel: and when they joined battle, Israel was smitten
+before the Philistines: and they slew of the army in the field about four
+thousand men.) After the ark of the covenant arrived, the battle continued
+and led to the deaths of 30,000 more Israelite footmen (infantry) for a
+total of 34,000 Israelites killed. (I Samuel 4:10-11 ¶ And the Philistines
+fought, and Israel was smitten, and they fled every man into his tent: and
+there was a very great slaughter; for there fell of Israel thirty thousand
+footmen.
+11 And the ark of God was taken; and the two sons of Eli, Hophni and
+Phinehas, were slain.) The Philistines captured the ark of the covenant
+and killed the two sons of the high priest and proclaimed victory.
+
+As we remember our war dead on Memorial Day, let us never forget the
+sacrifice these men made for our liberty and freedom of worship of God.
+Let us never forget the God that gave us those victories and let us pray
+for our nation to turn back to God so that he will continue to give us
+victories before he decides to let us be destroyed by our enemies. Let us
+remember these great battles from biblical history that they not be
+forgotten and learn from them to always honor the true living God Jehovah
+who is Jesus. For those who are not saved please call upon Jesus now so
+that you can proclaim victory and no longer be among the war dead of
+Satan, but a living child of Jesus. Let us never forget those men and
+women who have died for Jesus in the spiritual war that we fight each and
+every day. May God bless America and more importantly, may America bless
+God.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

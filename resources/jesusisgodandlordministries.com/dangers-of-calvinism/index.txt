@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,420 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Dangers of Calvinism
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+There are two main views of theology known as Calvinism and
+Arminianism with each having five points. A third view is Lutheranism from
+former Roman Catholic priest Martin Luther who led to the Protestant
+Reformation. This view is found mainly only in Lutheran churches.
+Calvinism came about in the 1500's by French theologian John Calvin and
+Arminianism in 1610 by Dutch Reform theologian Jacobus Arminius. All three
+are wrong with Arminianism being the closest to biblical truth and with
+Calvinism being very dangerous. Each of the three contains some truth, but
+also wrong doctrines. Baptists since the 1600's have long been associated
+with Arminianism over Calvinism since it was the most biblical, though as
+I said all are wrong and one needs to just follow scripture. Methodists
+and Pentecostals are also heavily Arminian with Presbyterians being
+Calvinistic. Reform denominations are also heavily Calvinistic. Today many
+Baptists and especially Southern Baptist leaders and preachers have gotten
+away from scripture due to using false corrupt bibles and have been
+pushing the false and dangerous Calvinism. The Southern Baptist bible the
+Christian Standard Bible (CSB), formerly known as the Holman Christian
+Standard Bible (HCSB), even makes changes in the text to support
+Calvinism. John Calvin was a Roman Catholic who broke away and started
+Calvinism as an alternative view of Lutheranism and as a competing
+denomination. We should never follow the doctrines named after a man,
+follow God's word.
 
-Username or email _____________________
+The five points of Arminianism are Free Will, Conditional Election,
+Unlimited Atonement, Resistible Grace, and Falling From Grace. Sometimes
+the acronym DAISY is used with slightly different wording.
 
-Reset password
+The five points of Lutheranism are Original Sin, Unconditional
+Election, Unlimited Atonement, Resistible Grace, and Falling From Grace.  
+
+The five points of Calvinism are known by the acronym TULIP. Some
+people are said to be five point Calvinists or five point Arminianists or
+three point Calvinists and two point Arminianists or some combination.
+Some people call a certain combination of the two the five points of
+Evangelicalism. I am not anything as I just go by scripture as we all
+should. The TULIP acronym stands for Total Depravity, Unconditional
+Election, Limited Atonement, Irresistible Grace, and Perseverance of the
+Saints.
+
+Total Depravity teaches that man due to Adam and Eve's sin is totally
+depraved, spiritually dead and cannot repent. Calvinism says God must
+initiate the work in order to save a person. It is true that all people
+are born with a sin nature due to Adam's sin and all are born spiritually
+dead, but it is not true that we cannot repent and be saved. It is true
+that man cannot save themselves, but not true that everyone cannot call
+out to Jesus for salvation. Arminianism says we have a free will to choose
+to obey the Holy Ghost and to repent or not. Most people never do get
+saved because they ignore the conviction by the Holy Ghost, but not due to
+not being an elect or because they cannot repent. Lutheranism calls this
+Original Sin which is a term taken from Roman Catholicism. Scripture says
+the Holy Ghost convicts people that they are a sinner in need of a Saviour
+as they are unable to save themselves. Man will not call out to Jesus
+without conviction by the Holy Ghost, but the Holy Ghost convicts everyone
+and not just certain people as Calvinism teachings. (Romans 3:10-11 As it
+is written, There is none righteous, no, not one:
+11There is none that understandeth, there is none that seeketh after God.)
+Every person can choose to repent of their sins if they want. Both John
+the Baptist and Jesus preached that people needed to repent. (Mark 1:14-15
+14 Now after that John was put in prison, Jesus came into Galilee,
+preaching the gospel of the kingdom of God,
+15 And saying, The time is fulfilled, and the kingdom of God is at hand:
+repent ye, and believe the gospel.) Jesus never said that unless I allow
+you too, then you cannot repent as taught by Calvinism. Jesus would not
+preach repentance nor have others preach repentance if man was unable to
+repent. Jesus calls out for all to repent, not just a few. (II Peter 3:9
+The Lord is not slack concerning his promise, as some men count slackness;
+but is longsuffering to us-ward, not willing that any should perish, but
+that all should come to repentance.) True biblical repentance is realizing
+that something is sin in the same way that God sees it as sin. You are to
+then stop doing it. If someone is unsaved then they need to call out to
+Jesus to save them before changing their lives. True repentance is not as
+many teach that we need to change our lives before we are saved. God will
+save us just as we are, the filthy wretched sinners that we are. God will
+clean us up after we are saved by the Holy Ghost convicting us of sin and
+us then repenting of the sin and not doing it anymore. If we had to change
+before being saved, then few would be saved and that is works salvation.
+We cannot clean up ourselves since we are sinners and that is the whole
+point of why we need Jesus as our Saviour. All of us are as filthy rags.
+(Isaiah 64:6 But we are all as an unclean thing, and all our
+righteousnesses are as filthy rags; and we all do fade as a leaf; and our
+iniquities, like the wind, have taken us away.)
+
+Unconditional Election says that people did nothing on their own to
+be elected by God for their salvation. Calvinism says that God elects
+people for salvation based on his will and nothing that the sinner has
+done whereas Arminianism says that God foreknew who would believe on Jesus
+before the foundation of the world and therefore they are elected for
+salvation due to the fact that they chose Jesus as their Saviour.
+Scripture says we are the elect of God since we chose Jesus as our
+Saviour, not because he just decided to choose us over someone else. God
+knew who would get saved before the foundation of the world and so he knew
+who would be the elect, but he never prohibited all people from being the
+elect. (I Peter 1:2 Elect according to the foreknowledge of God the
+Father, through sanctification of the Spirit, unto obedience and
+sprinkling of the blood of Jesus Christ: Grace unto you, and peace, be
+multiplied.) (Ephesians 1:4-5 4 According as he hath chosen us in him
+before the foundation of the world, that we should be holy and without
+blame before him in love:
+5 Having predestinated us unto the adoption of children by Jesus Christ to
+himself, according to the good pleasure of his will,) Ephesians 1:4-5
+means that God knew who would be saved, but he never prevented someone who
+wanted to be saved from being saved as many places in scripture show. We
+are predestinated in the sense that God being omniscient knows who will be
+saved even before they are born but he does not force anyone to be saved
+or prevent someone who truly wants to be saved. It is true that we do not
+have to do anything to be saved, but we do need to realize that we are a
+sinner and call upon Jesus to save us or else we will not be saved. You
+are not just saved because you are one of the elect. You are one of the
+elect because you are saved. The idea of only the elect being saved can be
+seen in changes made in modern bibles in verses such as Luke 2:14 where
+modern bibles change "good will toward men" to phrases such as "to those
+with whom God is pleased [NLT (NASB is similar)]", "to those on whom his
+favor rests [NIV]", and "men of goodwill [Roman Catholic bibles, NWT]. All
+Roman Catholic bibles have some Calvinism in them. I Thessalonians 1:4 is
+another verse often changed by modern bibles to show God chose people
+rather than we choose God by free will. God does convict us that we our
+sinners who need a Saviour, but we must decide to choose Jesus or reject
+him. Jesus does not force himself on anyone who does not want him. Many
+people do not choose God, but instead Satan. Jesus died for all, not just
+those who please him as in reality none of us please him enough to deserve
+salvation. (Luke 2:14 Glory to God in the highest, and on earth peace,
+good will toward men.)  
+
+Limited Atonement is the belief that Jesus only died on the cross for
+a limited number of people, only his elect rather than for all people.
+Scripture is clear that Jesus died for everyone and not just for his elect
+that he knew would get saved. This is dangerous teaching as this leads
+people not to witness to certain people believing they were not one of the
+elect so it is just a waste of time. Arminianism says that he died for
+everyone just as scripture says. Satan wants people to believe that they
+cannot be saved no matter how much they desire to be. Satan also casts
+doubt into people on being assured they are saved. I John 5:13 says we can
+know we are saved. (I John 5:13 These things have I written unto you that
+believe on the name of the Son of God; that ye may know that ye have
+eternal life, and that ye may believe on the name of the Son of God.) I
+John 2:2 is clear that Jesus died on the cross not just for those he knew
+would get saved, but for the whole world meaning everyone. (I John 2:2 And
+he is the propitiation for our sins: and not for ours only, but also for
+the sins of the whole world.) (II Corinthians 5:14-15 14 For the love of
+Christ constraineth us; because we thus judge, that if one died for all,
+then were all dead:
+15 And that he died for all, that they which live should not henceforth
+live unto themselves, but unto him which died for them, and rose again.)
+
+Irresistible Grace says that all of those who are elected by God
+cannot refuse the grace that God gave them and they will be saved no
+matter what. Arminianism says that man has a free will and can refuse the
+grace of God. Scripture says that God gave man a free will and he can
+freely accept the free gift of God to receive his Son Jesus as their
+Saviour or he can freely reject the grace of God and die in their sins.
+All people can receive this grace of God, not just the elect. It is true
+that we are saved by grace, but those of us who are saved and part of the
+elect of God had to choose to receive Jesus as Saviour and did not just
+automatically be saved just because we are one of the elect. We could have
+refused the grace. [Ephesians 2:5 Even when we were dead in sins, hath
+quickened us together with Christ, (by grace ye are saved;)] (Ephesians
+2:8 For by grace are ye saved through faith; and that not of yourselves:
+it is the gift of God:) This teaching by Calvinism along with the other
+false teachings such as limited atonement can make people say that no
+matter what they cannot be saved or for an unsaved person to say that
+there is no need to call upon Jesus because if I have been chosen by God
+as one of his elect then I will still be saved even if I do nothing. This
+is similar to many Jews believing since they are God's chosen people then
+they get a free guaranteed ride to heaven. This is not true as they must
+call on Jesus the same as everyone else. No one is saved without admitting
+they are a sinner and calling upon Jesus including the so called elect of
+Calvinism. God called all people to salvation, just that most people
+reject Jesus. (Matthew 22:14 For many are called, but few are chosen.)
+(John 3:18 ¶ He that believeth on him is not condemned: but he that
+believeth not is condemned already, because he hath not believed in the
+name of the only begotten Son of God.)
+
+Calvinism is correct in its fifth point of Perseverance of the Saints
+with Arminianism wrong with its fall from grace. Calvinism teaches that
+once you are saved you cannot lose that salvation since you are one of the
+elect. Arminianism says that a person can fall from grace and lose their
+salvation. Scripture is clear that for all who are truly saved and washed
+in the blood of Jesus, then they cannot lose their salvation. It is true
+that a person can backslide and move away from God and not be as strong or
+faithful of a Christian that they once were, but if they were truly saved
+then you cannot lose your salvation. Many places show this. (John 3:16 ¶
+For God so loved the world, that he gave his only begotten Son, that
+whosoever believeth in him should not perish, but have everlasting life.)
+(John 5:24 Verily, verily, I say unto you, He that heareth my word, and
+believeth on him that sent me, hath everlasting life, and shall not come
+into condemnation; but is passed from death unto life.) (John 6:47 Verily,
+verily, I say unto you, He that believeth on me hath everlasting life.)
+Jesus said in all of these verses that those who believed on him as their
+Saviour will have everlasting life. Everlasting means it lasts forever and
+cannot be lost. Nearly all denominations including some Baptist ones
+preach that you can lose your salvation, but scripture is clear that you
+cannot. You cannot have everlasting life if you can lose it and if this
+was true then Jesus would be a liar and a sinner and could not be our
+Saviour. This does not mean that Christians have free reign to sin though.
+(Romans 6:15 What then? shall we sin, because we are not under the law,
+but under grace? God forbid.) Most modern bibles show this false belief by
+saying "are being saved" instead of "saved" which not only shows work
+salvation but also that a person could potentially lose their salvation.
+
+
+Calvinism is dangerous in that it teaches that only certain people
+are elect and that Jesus died on the cross only for these people and that
+if you are one of the elect then you will be saved automatically due to
+nothing you do and for those who are not saved but desire to be then
+unless they are one of the elect then they cannot be saved no matter how
+sincere they are since Calvinism teaches that people cannot repent even
+though Jesus taught repentance. Scripture clearly shows these doctrines
+are wrong as it says that we do not do anything to save ourselves, but we
+must call out to Jesus to save us. If a person never does that then they
+will die in their sins. Scripture says we can repent and that Jesus died
+for all people, but that most would reject him as their Saviour. It is
+this calling out to Jesus that makes us one of the elect, not because
+Jesus only allowed us to be saved and no one else. Jesus desires that all
+be saved as we saw in II Peter 3:9. Stay clear of the dangerous teachings
+of Calvinism which are anti-scriptural and will lead many to hell. For
+those who are not saved, call upon Jesus today as he will save you so that
+you too may become one of the elect that he foreknew.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

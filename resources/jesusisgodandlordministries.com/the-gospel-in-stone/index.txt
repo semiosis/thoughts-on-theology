@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,491 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Gospel in Stone
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+I have previously preached on the gospel in the stars. Today I am
+going to preach on another controversial subject that is a parallel to
+that sermon. The Great Pyramid in Egypt is God's gospel in stone. Some
+call it the Bible in Stone. Joseph A. Seiss wrote Miracle in Stone on this
+topic. Just as God revealed to Adam the gospel in the stars, I believe
+that God had Noah and maybe Shem to build the Great Pyramid for a witness
+after the flood. Noah would obviously had help in building the pyramid,
+but God used Noah to get it done. The gospel in stone has been taken over
+by Satan to become pyramidology just as Satan changed the gospel in the
+stars to astrology. Freemasonry and other occultists have tried to
+sabotage the gospel in stone. People have tried to link the Great Pyramid
+with UFO's and aliens saying they built it in order to discredit it. Satan
+always attacks God's word and twists it for his own evil purpose. All
+other pyramids are just Satan's copies of the real thing. Most preachers
+will avoid this subject yet God speaks of it in scripture just as he does
+the gospel in the stars and he has left the physical evidence in the Great
+Pyramid.
 
-Username or email _____________________
+The Great Pyramid is located in Giza, Egypt and is the last remaining
+of the ancient seven wonders of the world. It is located about nine miles
+south of Cairo, the capital of modern Egypt. The Egyptians and secularists
+claim this pyramid was built for pharaoh Khufu and that is why it is
+sometimes referred to as Khufu's pyramid, but I will show you that no
+pharaoh was ever buried in it. The Great Pyramid is the oldest and largest
+of the ancient pyramids in Egypt with all others being much smaller and
+not as well built. The Great Pyramid was the only pyramid built with
+passage ways inside and the only one with ventilation. The others as tombs
+for the pharaohs were not ventilated in order to preserve the body. This
+is one thing that shows that Khufu was not buried here besides the fact
+that the tomb is empty and there is no evidence of anyone ever being
+buried there. There are no inscriptions in the pyramid to any pharaoh.
 
-Reset password
+There is dispute on how old the pyramid is with secularists claiming
+it is about 4,600 years old as they claim that was when Khufu lived. This
+would place it before the Genesis flood that occurred about 4,400 years
+ago. Those who understand that this pyramid was built as a witness for God
+still disagree on who built it and when. Some claim that Adam built it
+while others say it was Enoch with this being the only structure to
+survive the flood. There is some evidence to back up Enoch. Others say it
+was Noah or Shem after the flood. I believe it was Noah and Shem after the
+flood who built it as it was a witness for after the flood. Remember at
+this time there was still no written Bible. I also do not think the
+pyramid could have survived the violence of the global flood with the
+earthquakes, violent waves, volcanic eruptions and other things, but if
+God did have it built prior to the flood by Enoch or someone else and
+wanted to preserve it for his glory then he could. For the sake of this
+sermon we will assume that it was built after the flood by godly men and
+not Egyptians for a dead pharaoh.
+
+The Great Pyramid covers 13 acres at its base and about five acres on
+each side. It is 454.5 feet tall and was the tallest structure in the
+world for about 3,400-3,600 years. It has been said there are 2.3 million
+stones in the pyramid and enough to build a four foot high wall and one
+foot thick for 3,600 miles. Napoleon claimed the stones could build a ten
+foot wall all the way around France. Some of the stones are said to weigh
+up to 80 tons (some say only 50-70 tons, but no matter what they are
+heavy) which we could not even move today. Even with helicopters and other
+modern construction equipment we could not build the Great Pyramid today
+and especially at the accuracy that it was built. The original pyramid was
+covered in 144,000 polished casing stones that made it shine. The
+Egyptians called it the Shining Light as it shone forth light from the sun
+that is believed would have been seen on the moon. Most of these have
+since been removed and stolen by thieves. The stones were so closely put
+together that you often times could not even find the seams and you cannot
+even get a piece of paper to fit in between them. This shows the
+protection of Jesus that nothing gets through and how Jesus as the
+foundation of the church has his people tightly fitted together to form
+one body of Christ. As Christians we have Jesus living in us. (Ephesians
+2:20-21 20 And are built upon the foundation of the apostles and prophets,
+Jesus Christ himself being the chief corner stone;
+21 In whom all the building fitly framed together groweth unto an holy
+temple in the Lord:) The 144,000 represents the future Jewish witnesses
+during the tribulation with 12,000 from each of the twelve tribes of
+Israel. (Revelation 7:4 And I heard the number of them which were sealed:
+and there were sealed an hundred and forty and four thousand of all the
+tribes of the children of Israel.) The shining stones represent Jesus as
+the light of the world which one must have in order to be saved. Jesus is
+the true light and Satan the false light. (John 8:12 ¶ Then spake Jesus
+again unto them, saying, I am the light of the world: he that followeth me
+shall not walk in darkness, but shall have the light of life.) The
+Israelites were forced to make bricks which were used in many later
+pyramids which can help date the time of the exodus. (Exodus 5:7 Ye shall
+no more give the people straw to make brick, as heretofore: let them go
+and gather straw for themselves.)
+
+God said he would place a witness to him in Egypt and this is the
+Great Pyramid. (Isaiah 19:19-20 19 In that day shall there be an altar to
+the LORD in the midst of the land of Egypt, and a pillar at the border
+thereof to the LORD.
+20 And it shall be for a sign and for a witness unto the LORD of hosts in
+the land of Egypt: for they shall cry unto the LORD because of the
+oppressors, and he shall send them a saviour, and a great one, and he
+shall deliver them.) God says he would place an altar to the LORD in the
+midst of the land of Egypt, but he also says it will be a pillar at the
+border thereof. Verse 20 shows it is to be for a sign and for a witness
+showing that the Great Pyramid was built for a purpose to glorify God and
+not as a burial tomb for a heathen pharaoh. It also speaks of a coming
+Saviour which is Jesus. We know from Joshua that not all altars for God
+were built for sacrifices such as when the two and a half tribes on the
+other side of the Jordan built an altar as a witness so that they as well
+as the tribes on the other side would always serve God and the two and a
+half tribes would not be forgotten by the other tribes on the other side
+of the Jordan. These verses clearly show the altar is for a witness and
+not for sacrifice. (Joshua 22:26-28 26 Therefore we said, Let us now
+prepare to build us an altar, not for burnt offering, nor for sacrifice:
+27 But that it may be a witness between us, and you, and our generations
+after us, that we might do the service of the LORD before him with our
+burnt offerings, and with our sacrifices, and with our peace offerings;
+that your children may not say to our children in time to come, Ye have no
+part in the LORD.
+28 Therefore said we, that it shall be, when they should so say to us or
+to our generations in time to come, that we may say again, Behold the
+pattern of the altar of the LORD, which our fathers made, not for burnt
+offerings, nor for sacrifices; but it is a witness between us and you.)
+God forbid altars used for sacrifices to be made of hewn stone, but this
+same restriction did not apply to altars built as witnesses such as the
+Great Pyramid which was made of hewn stone. (Exodus 20:25 And if thou wilt
+make me an altar of stone, thou shalt not build it of hewn stone: for if
+thou lift up thy tool upon it, thou hast polluted it.) People say how can
+the altar, which in this case is the Great Pyramid, be in both the middle
+of Egypt and on the border of Egypt. Ancient Egypt used to be divided into
+the Upper Kingdom and the Lower Kingdom. The Great Pyramid is built on the
+border of these two kingdoms and when they united it was now also in the
+middle of Egypt just as God said. The Great Pyramid is also at the border
+where the fertile Nile Delta with all of its crops meets the desert of the
+Sahara where nothing grows. There is a spiritual application here as well
+as only Jesus is the living water and everything else brings death just
+like what is found in the desert.
+
+The Great Pyramid was built as a witness for God. I already showed
+the connection to the 144,000 witnesses and Jesus as the light of the
+world. The Great Pyramid has three chambers inside it. As I previously
+stated no other Egyptian pyramid has any chambers let alone multiple ones.
+The pyramid also has air ventilation which no tomb has. There is one broad
+chamber that descends down to a pit that is actually dug into the bedrock
+and goes down below the pyramid. This chamber represents the broad path of
+destruction which most people take and they end up in hell and the lake of
+fire (the pit). They end up here for rejecting Jesus as their Saviour.
+Jesus said we need to take the narrow path for everlasting life. (Matthew
+7:13-14 13 ¶ Enter ye in at the strait gate: for wide is the gate, and
+broad is the way, that leadeth to destruction, and many there be which go
+in thereat:
+14 Because strait is the gate, and narrow is the way, which leadeth unto
+life, and few there be that find it.) There are 153 steps inside the Great
+Pyramid which matches the 153 fish of John 21:11. (John 21:11 Simon Peter
+went up, and drew the net to land full of great fishes, an hundred and
+fifty and three: and for all there were so many, yet was not the net
+broken.) Some have said this represents the number of nations that will be
+in the millennial kingdom. Whatever the meaning of the number I do know
+there is some significance to it and it is no coincidence. One thing it
+shows in John is the security of the believer of once saved, always saved
+(net does not break) and this may be the same in the pyramid. The middle
+chamber is known by Egyptologists as the Queen's chamber named by Arabs
+many years ago. It is agreed even by scholars that it was never intended
+for burial of a queen. This passage partly ascends to the top of the
+pyramid, but suddenly at the 25^th block level of the pyramid it becomes a
+straight passage parallel with the ground. The shaft goes to about the
+middle of the pyramid and dead ends. Some red colored stone has been found
+in it. This passage represents the Israelites who started out as God's
+chosen people and on the right path to heaven (ascending section), but
+then the straight path shows the Jews rejecting Jesus and bringing about
+his crucifixion. The dead end shows that without Jesus you cannot move on.
+The red represents the blood on their hands from then until Jesus returns
+at his second coming. (Matthew 27:25 Then answered all the people, and
+said, His blood be on us, and on our children.) The final main passage
+ascends towards the top of the pyramid and is known as the King's chamber
+and is located on the 50^th row of stones. The chamber is made of red
+granite stone and only contains an open empty coffer box. This coffer box
+has the exact same cubic capacity of the ark of the covenant. Not a
+coincidence. This passage represents the red blood shed by Jesus on the
+cross for all mankind for us sinners to receive salvation and how we must
+ascend for true life. The empty tomb represents the empty tomb of Jesus
+and his resurrection which guaranteed us everlasting life. The granite
+represents Jesus as the Rock and the stone upon which all must be built
+upon. (I Corinthians 10:4 And did all drink the same spiritual drink: for
+they drank of that spiritual Rock that followed them: and that Rock was
+Christ.) (Matthew 21:44 And whosoever shall fall on this stone shall be
+broken: but on whomsoever it shall fall, it will grind him to powder.) We
+must swallow our pride and fall upon Jesus as we come to him and admit
+that we are a sinner and ask for him to save us. If we reject him he will
+fall on us and crush us. This is even seen in the very large stones in the
+Great Pyramid. The passage is a narrow passage unlike the broad one that
+descends down to the pit. I already read in Matthew 7:13-14 how we must
+take the narrow path to get to Jesus and everlasting life. The fact that
+the chamber is located on the 50^th row represents the Holy Ghost.
+Pentecost was fifty days after passover and it was on this day that the
+Holy Ghost was first received by believers and the church was started. All
+true believers are a temple of the Holy Ghost. (I Corinthians 6:19) The
+Jubilee for the Israelites was every fifty years when no crops where to be
+planted and all slaves were released and debts forgiven. This represented
+the debt forgiven of our sins when we are saved and now are indwelled with
+the Holy Ghost. The King's chamber contains two ventilation shafts which
+represent how Jesus brings breath and life to us. I have already mentioned
+how a tomb has no ventilation shafts as those inside are dead. It has been
+said that the pyramid was built so that the light of the star Sirius would
+shine into the King's chamber through these air shafts (some say the
+Queens's chamber) when it rose. This may or may not be true, but as I
+showed in my sermon The Gospel in the Stars Sirius represents Jesus as the
+Prince so it would connect the two stories of the gospel presented by God.
+
+The Great Pyramid is the only Egyptian pyramid that does not have a
+top stone. The top of the pyramid is flat. People try to say this stone
+was removed over the years, but this is not true as it was intentionally
+built this way. The missing top stone represents the rejection of Jesus
+not only by the Jews, but by nearly all people since Cain. Jesus is the
+cornerstone upon which all must be built upon, but he is also the top
+stone that completes the link to restore our relationship to God. This is
+done by receiving Jesus as your Saviour. The cornerstone is the bottom
+stone on the corner which the rest of a building is built upon. The way
+the pyramid is designed with this flat top, if a top stone was placed on
+it then it would be both a cornerstone since this is the only spot that
+covers all four corners as if it was the foundation as well as a capstone
+(top stone or pyramidion) to seal off and complete the pyramid and the
+salvation that all men need. I already read Ephesians 2:20 which shows
+Jesus is the chief corner stone. (Matthew 21:42 Jesus saith unto them, Did
+ye never read in the scriptures, The stone which the builders rejected,
+the same is become the head of the corner: this is the Lord's doing, and
+it is marvellous in our eyes?) Matthew shows how it was the Lord's doing
+that Jesus was the corner stone and would be rejected and I believe it was
+also the Lord's doing to intentionally leave off the top stone of the
+pyramid representing the rejection of Jesus.
+
+There is only one door going into the pyramid just as there is only
+one door to everlasting life and Jesus is that door that we must enter
+through. (John 10:9 I am the door: by me if any man enter in, he shall be
+saved, and shall go in and out, and find pasture.) Jesus said in John 10:1
+that those who try to enter through another door are thieves and that is
+what happened in the Great Pyramid. This door was so well hidden that it
+was only recently found and robbers broke into the pyramid as they could
+not find a door. Jesus and the gospel is hidden to most as they are not
+saved and willingly reject Jesus. (II Corinthians 4:3 But if our gospel be
+hid, it is hid to them that are lost:) The Great Pyramid has been damaged
+over the years and I think even this was allowed with purpose just as
+Jesus was wounded on the cross for us. It is not destroyed just as Jesus
+was not destroyed as he rose from the grave.
+
+The Great Pyramid was built using the pyramid inch which is slightly
+larger than the British inch. This is known since inside the Ante-chamber
+is a granite leaf that shows the scale of construction of the Great
+Pyramid. A Hebrew cubit was 25 pyramid inches. It was at that time called
+the sacred inch and was the same inch used to build Noah's ark, the ark of
+the covenant, and Solomon's temple. Stonehenge was also built with this
+measurement and there is some evidence that it may be linked to the Great
+Pyramid, but I would have to do more research on that. The base length of
+the pyramid is 365.24 which equals an earth solar year of 365.24 days. A
+solar year is one revolution of the earth around the sun. Enoch died at
+365 years old for a connection to him. A biblical calendar is 360 days.
+The height of the pyramid times one billion is the distance from the earth
+to the sun. The cubit of 25 inches times ten million gives the polar
+radius of the earth. These measurements were not known by the Egyptians at
+the time. There is a diagram inside the pyramid measured in inches with
+each inch supposedly representing a year that many have said shows world
+events such as the birth of Jesus and the two world wars. This may be
+accurate and maybe not, but it would not surprise me if it was. I would
+have to do more research, but I would not rely strictly on it for prophesy
+as interpretations could be wrong. Trust your King James Bible for that.
+
+The pyramid contains other earth measurements such as the Great
+Pyramid weighs exactly 1/10 billionth as much as the earth. The pyramid
+was built using the mathematical PI (3.14) which was not known by the
+Egyptians, but God as the great mathematician knew of it. The molten sea
+in Solomon's temple also was based off of PI used for the radius of a
+circle's circumference compared to its diameter which is 3.14. (II
+Chronicles 4:2 ¶ Also he made a molten sea of ten cubits from brim to
+brim, round in compass, and five cubits the height thereof; and a line of
+thirty cubits did compass it round about.) The pyramid is aligned with
+true north and is located exactly on the longest longitude line and the
+longest latitude line on earth. It is located at the only point the two
+meet. This divides all earth landmass into four equal places with the
+Great Pyramid at its center point so there is an equal amount of land on
+all four quarters of the pyramid. Whoever God had build the pyramid knew
+the dimensions of the earth which God had to reveal to them. There are
+many other measurements as well revealed in the Great Pyramid.
+
+I have clearly shown that it was God who was the architect of the
+Great Pyramid and not the Egyptians. There are far too many things that
+are beyond the ability of people to have done the things that this pyramid
+represents. Just as with the stars, God left his gospel story in stone. I
+have often wondered if the Great Sphinx that is located nearby also has a
+connection. The Great Sphinx has the head of a man and the body of a lion
+and has been said to be of pharaoh Khufu, but I believe it represents
+Jesus as the God-man showing him as man and the back as the Lion of the
+tribe of Juda as seen in Revelation 5:5. It faces from west to east with
+east meaning Jesus Christ having it point people to Jesus. For those who
+are not saved please call upon Jesus today as we see God cared so much
+about you that he left the message of his Son Jesus Christ in stone. Stone
+is a hard permanent substance just as life with Jesus is. The new
+Jerusalem may be a pyramid shape with the Great Pyramid as a type of it.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

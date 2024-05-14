@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,397 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus versus Mohammad
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Islam claims that both Jesus and Mohammad were prophets with Mohammed
+being the last prophet and the greatest prophet. Scripture clearly shows
+that there is no comparison between the two historical figures and how
+Jesus is really the greater.  
 
-Username or email _____________________
+Mohammad was born a man of a woman just like the rest of us, but
+Jesus was born of a virgin so the miraculous account of Jesus starts with
+his birth. (Isaiah 7:14 Therefore the Lord himself shall give you a sign;
+Behold, a virgin shall conceive, and bear a son, and shall call his name
+Immanuel.) The Koran also admits that Jesus was born of a virgin, but
+Mohammed was not. (Surah 19:20 She wondered, "How can I have a son when no
+man has ever touched me, nor am I unchaste?") Unchaste means involved in
+sexual activity.
 
-Reset password
+Mohammad claimed to be only a man which he was, yet Jesus said he was
+the Son of God and yet also still man as the Son of man. Mohammed said he
+was a prophet and nothing more. (John 10:30 I and my Father are one.)
+(John 10:36 Say ye of him, whom the Father hath sanctified, and sent into
+the world, Thou blasphemest; because I said, I am the Son of God?) (Mark
+10:45 For even the Son of man came not to be ministered unto, but to
+minister, and to give his life a ransom for many.) Scripture shows Jesus
+to be the Creator. (John 1:3 All things were made by him; and without him
+was not any thing made that was made.) (Colossians 1:16 For by him were
+all things created, that are in heaven, and that are in earth, visible and
+invisible, whether they be thrones, or dominions, or principalities, or
+powers: all things were created by him, and for him:) Mohammed was just a
+creature and was made by the Creator and he never claimed otherwise.   
+
+Mohammed said he received his revelation from an angel and he claimed
+he did not know if it was evil or not, but Jesus said he got his from God
+the Father. (John 5:19 Then answered Jesus and said unto them, Verily,
+verily, I say unto you, The Son can do nothing of himself, but what he
+seeth the Father do: for what things soever he doeth, these also doeth the
+Son likewise.) God was pleased of his Son Jesus as he personally
+commissioned him into the ministry whereas the angel Gabriel supposedly
+called Mohammed. (Matthew 3:17 And lo a voice from heaven, saying, This is
+my beloved Son, in whom I am well pleased.)  
+
+Mohammed fought in many battles and encouraged his followers to
+fight. He killed many people whereas Jesus never killed anyone, but rather
+raised people from the dead. (Luke 7:14-15 14 And he came and touched the
+bier: and they that bare him stood still. And he
+said, Young man, I say unto thee, Arise.
+15 And he that was dead sat up, and began to speak. And he delivered him
+to his mother.) Jesus also never fought in any battles, but instead said
+to love your enemies. (Matthew 5:44 But I say unto you, Love your enemies,
+bless them that curse you, do good to them that hate you, and pray for
+them which despitefully use you, and persecute you;) Jesus condemned the
+people that were trying to make him king in order to overthrow the Roman
+government, yet Mohammed encouraged disorder against government.
+
+Mohammed stole from many people as he conquered them whereas Jesus
+never stole from anyone. God condemns thievery. (Exodus 20:15 Thou shalt
+not steal.)
+
+Mohammed had at least eleven wives [some sources say over twenty],
+including Aisha that he married when she was six. He was married to many
+at the same time and he also had concubines. Many of his wives had been
+divorced. God condemns such things. (Matthew 5:32 But I say unto you, That
+whosoever shall put away his wife, saving for the cause of fornication,
+causeth her to commit adultery: and whosoever shall marry her that is
+divorced committeth adultery.) Jesus never married. The church is the
+bride of Jesus.
+
+Mohammed had little regard for females. Mohammed said that a man
+could beat his wife in Surah 4:34. Mohammed said in the Hadith that women
+were only half as smart as men and that the majority of those in hell were
+women. He also said you could mortgage women. 
+
+Mohammed owned slaves while Jesus never did. Jesus cared for the
+poor, the lame, slaves, and others while Mohammed oppressed them and used
+them for his purpose. This fact alone should discourage blacks from
+converting to Islam.
+
+Mohammed is never said to have performed any miracles, yet Jesus
+performed many miracles during his ministry including raising the dead,
+giving sight to the blind, hearing to the deaf, and walking to the lame.
+He did other miracles as well such as feeding five thousand men with five
+loaves of bread and two fishes, casting out devils, healing lepers, and
+walking on water. (Luke 7:21-22 21 And in that same hour he cured many of
+their infirmities and plagues, and of evil spirits; and unto many that
+were blind he gave sight.
+22 Then Jesus answering said unto them, Go your way, and tell John what
+things ye have seen and heard; how that the blind see, the lame walk, the
+lepers are cleansed, the deaf hear, the dead are raised, to the poor the
+gospel is preached.) The Koran also says Jesus did many miracles including
+also raising the dead and healing lepers. It also attributes some to Jesus
+that scripture never says he did. Surah 3:49 is speaking of Jesus. (Surah
+3:49 and ˹make him˺ a messenger to the Children of Israel ˹to proclaim,˺
+'I have come to you with a sign from your Lord: I will make for you a bird
+from clay, breathe into it, and it will become a ˹real˺ bird-by Allah's
+Will. I will heal the blind and the leper and raise the dead to life-by
+Allah's Will. And I will prophesize what you eat and store in your houses.
+Surely in this is a sign for you if you ˹truly˺ believe.)   
+
+Mohammed was never said by Muslims to be able to have foreknowledge
+of things whereas it attributes this to Jesus. Muslims say that Jesus was
+able to answer all questions that were asked of him and to know what
+things a person had in their homes or what they had just eaten. Scripture
+describes this attribute of Jesus as well. We call this omniscience which
+is an attribute of God only and means all knowing. Jesus in scripture read
+people's thoughts. (Matthew 9:4 And Jesus knowing their thoughts said,
+Wherefore think ye evil in your hearts?)
+
+Mohammed taught Muslims to pray repetitious prayers which God
+condemns whereas Jesus taught his disciples to pray from their heart.
+Muslims pray five times a day facing Mecca and say the same words over and
+over. (Matthew 6:7 But when ye pray, use not vain repetitions, as the
+heathen do: for they think that they shall be heard for their much
+speaking.) Muslims make a big show of praying whereas Jesus taught to pray
+privately in your closet. (Matthew 6:5-6 5 ¶ And when thou prayest, thou
+shalt not be as the hypocrites are: for they love to pray standing in the
+synagogues and in the corners of the streets, that they may be seen of
+men. Verily I say unto you, They have their reward.
+
+6 But thou, when thou prayest, enter into thy closet, and when thou hast
+shut thy door, pray to thy Father which is in secret; and thy Father which
+seeth in secret shall reward thee openly.)  
+
+Mohammed taught that people who did not willingly become Muslims must
+be forced to become Muslims or be killed. Jesus never taught that. Jesus
+said to preach the gospel to all creatures, but if they refuse and want to
+go to hell then their blood is on them. Jesus never said you had to kill
+someone who refused to become a Christian.
+
+Mohammed brought darkness to the world as he turned people away from
+Jesus and to Satan who Allah is. Allah was the moon god of Mohammed's
+tribe and so Mohammed was pushing idolatry. Scripture says behind every
+idol is a devil. God condemns idolatry. (Exodus 20:3 Thou shalt have no
+other gods before me.) Jesus on the other hand brought light to the world
+as he came as the Saviour of the world. Jesus came to bring us salvation
+from sin and Satan whereas Mohammed put Muslims in bondage to sin. The
+Koran recognizes that Jesus brought the gospel to man and approves of it.
+They just say that scripture has distorted the gospel, but they do see it
+as a good thing. Jesus said he was the only way to heaven. (John 14:6
+Jesus saith unto him, I am the way, the truth, and the life: no man cometh
+unto the Father, but by me.)  
+
+Mohammed admitted to being a sinner as does the Koran whereas Jesus
+was the only sinless man or any person to ever live. (Surah 48:2 so that
+Allah may forgive you for your past and future shortcomings,perfect His
+favour upon you, guide you along the Straight Path,) (II Corinthians 5:21
+For he hath made him to be sin for us, who knew no sin; that we might be
+made the righteousness of God in him.) (I Peter 2:22 Who did no sin,
+neither was guile found in his mouth:)   
+
+Mohammed often times saved his own life at the expense of the lives
+of others. Jesus gave his life for his friends and enemies. Jesus even
+taught that we should be willing to give our lives for our friends whereas
+Mohammed said to save yourself. (John 15:13 Greater love hath no man than
+this, that a man lay down his life for his friends.) Jesus gave his life
+as the passover sacrificial lamb so that everyone might be saved. (I John
+3:16 Hereby perceive we the love of God, because he laid down his life for
+us: and we ought to lay down our lives for the brethren.)  
+
+Mohammed had thoughts of suicide after getting the supposed
+revelations from Gabriel whereas Jesus was obedient to God's calling and
+faced the devil in the wilderness. (Matthew 4:1 Then was Jesus led up of
+the Spirit into the wilderness to be tempted of the devil.) Jesus never
+ran away from his calling or acted like a coward as Mohammed did. The
+Hadith confirms that Mohammed had suicidal thoughts.
+
+Mohammed taught that Muslims need to take pilgrimages to Mecca when
+Jesus said to go out into the world and preach the gospel, but never said
+a Christian had to go to Jerusalem, his empty tomb, or anywhere else.
+
+Mohammed said that Allah had abrogated or replaced some parts of the
+Koran whereas Jesus taught that all of scripture is inspired and
+profitable for doctrine. (II Timothy 3:16 All scripture is given by
+inspiration of God, and is profitable for doctrine, for reproof, for
+correction, for instruction in righteousness:) He said he came to fulfill
+the law, not get rid of it. (Matthew 5:17 ¶ Think not that I am come to
+destroy the law, or the prophets: I am not come to destroy, but to
+fulfil.) Jesus never said any part of scripture was no longer valid as
+many people say today.
+
+Mohammed died and his body remained in the grave while his soul and
+spirit went to hell. Jesus died for our sins so that we did not have to
+die. He took our place on the cross for us. Jesus died and was buried and
+rose again from the grave on the third day. (Mathew 28:6 He is not here:
+for he is risen, as he said. Come, see the place where the Lord lay.)
+(Mark 16:6 And he saith unto them, Be not affrighted: Ye seek Jesus of
+Nazareth, which was crucified: he is risen; he is not here: behold the
+place where they laid him.) The tomb of Jesus has remained empty since
+that day and Jesus remains alive today never to die again. Jesus sits at
+the right hand of God the Father in heaven. Jesus is the true way to
+heaven and not Mohammed or Islam. Mohammed was a false prophet and was
+from Satan and not God. Allah is not God, but rather a devil. For Muslims
+listening then please leave Islam and realize that Jesus is the only way
+of salvation. Jesus is the true Prophet of God and the true final prophet
+and the only one that spoke the truth. Mohammed will only lead you on a
+path to hell. The life of Jesus was much greater than that of Mohammed and
+even the Koran bears that out if you truly open your eyes to see. Reject
+Mohammed and choose Jesus today and choose life.       
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,2 +1,4 @@
+Refresh: hymns/index.html
+
 Click here...
 

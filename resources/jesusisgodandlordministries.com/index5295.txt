@@ -1,2 +1,4 @@
+Refresh: king-james-bible/index.html
+
 Click here...
 

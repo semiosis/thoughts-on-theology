@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,419 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Work is from God
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Americans celebrate Labor Day on the first Monday in September. This
+is a day set aside to honour workers who labor hard all year long. Labor
+Day was first celebrated as a federal holiday in 1894, but previously was
+celebrated by 30 states with the first in 1887 by Oregon. Canada also
+celebrates Labour Day on the first Monday in September and more than 80
+nations celebrate International Worker's Day on May 1. Labor Day weekend
+is considered the unofficial end of summer with summer having unofficially
+started on Memorial Day weekend. It was often said that a person was not
+to wear white after Labor Day and many still do not today. I personally
+think this is foolish. It is good to remember American workers and those
+around the world. People working are what keep this nation running and
+thriving.
 
-Username or email _____________________
+Work is ordained by God and therefore people need to do some kind of
+work if they are able to and not expect a free handout. No matter what
+your disability is, most people can do some type of work. Work keeps us
+busy and away from trouble and sin. Idle time is often said to be of the
+devil and that is often true as the non-worker has too much time on their
+hands and gets bored and then seeks trouble and sin. Many often think of
+work as a burden, punishment, or curse from God, but in reality it is a
+blessing especially when doing work for God. Many liberals today are
+trying to attack God's command for man to work by telling them not to work
+and just let the government or the rich take care of them. This is
+socialism and is from Satan, not God. God said that if a person does not
+work they do not eat. (II Thessalonians 3:10 For even when we were with
+you, this we commanded you, that if any would not work, neither should he
+eat.) God himself worked so why does man think they do not have to work.
+(Genesis 2:2-3 And on the seventh day God ended his work which he had
+made; and he rested on the seventh day from all his work which he had
+made.
+3 And God blessed the seventh day, and sanctified it: because that in it
+he had rested from all his work which God created and made.) Christians
+need to remember when they are at work and may have a job they do not
+like, that we work for God and not our earthly boss. We need to always
+give our best even when our coworkers may not be. Let the boss see Jesus
+in your work and always have a strong work ethic. (Colossians 3:23-24 And
+whatsoever ye do, do it heartily, as to the Lord, and not unto men;
 
-Reset password
+24 Knowing that of the Lord ye shall receive the reward of the
+inheritance: for ye serve the Lord Christ.) We can see work as drudgery or
+we can see it for what it was intended as a "gift of God". (Ecclesiastes
+3:13 And also that every man should eat and drink, and enjoy the good of
+all his labour, it is the gift of God.) (Ecclesiastes 5:19 Every man also
+to whom God hath given riches and wealth, and hath given him power to eat
+thereof, and to take his portion, and to rejoice in his labour; this is
+the gift of God.)  
+
+From the very beginning God put man to work and expects for each of
+us to continue to work. After God created Adam the first person, he placed
+him in the garden of Eden to till, dress, and keep the garden. (Genesis
+2:5 And every plant of the field before it was in the earth, and every
+herb of the field before it grew: for the LORD God had not caused it to
+rain upon the earth, and there was not a man to till the ground.) (Genesis
+2:15 And the LORD God took the man, and put him into the garden of Eden to
+dress it and to keep it.) Prior to Adam's sin, work was intended to be
+easy, but his sin put a curse on the ground and today work is often hard.
+(Genesis 3:17-19 And unto Adam he said, Because thou hast hearkened unto
+the voice of thy wife, and hast eaten of the tree, of which I commanded
+thee, saying, Thou shalt not eat of it: cursed is the ground for thy sake;
+in sorrow shalt thou eat of it all the days of thy life;
+18 Thorns also and thistles shall it bring forth to thee; and thou shalt
+eat the herb of the field;
+19 In the sweat of thy face shalt thou eat bread, till thou return unto
+the ground; for out of it wast thou taken: for dust thou art, and unto
+dust shalt thou return.) With sin came harder work, but God still said we
+had to work. Genesis 2 clearly shows how man was working prior to the sin
+of man, so this proves that work is not a curse from God due to sin. Even
+Genesis 3:17 after the curse says the ground is cursed for thy sake
+showing how even hard work is meant for us as good. It builds muscles and
+keeps us in shape and our minds in working order. Often when people
+retire, they just sit around and their bodies start to decay and they soon
+die. Even in retirement, people need to continue to work in a garden or
+something to keep them busy and occupied or they will soon die. If retired
+do something for the Lord. God never in scripture talks of retirement. We
+must work for God until the day we die. This applies to those in the
+ministry as well. If God has called you to be a pastor or missionary, you
+do not retire just because you are getting older and have done it for so
+many years. God called you to the ministry until the day you die. Some
+people have gotten saved after they turned to Jesus after a life of hard
+work so the curse truly was "for thy sake" for these people. God will
+still have work for people to do in the new earth as his servants will
+serve him. What this work entails scripture does not say, but it will be a
+pleasure to serve God. (Revelation 22:3 And there shall be no more curse:
+but the throne of God and of the Lamb shall be in it; and his servants
+shall serve him:) People will also work during the millennium as many
+Christians will be rulers in various forms helping Jesus rule the kingdom.
+(Revelation 20:6 Blessed and holy is he that hath part in the first
+resurrection: on such the second death hath no power, but they shall be
+priests of God and of Christ, and shall reign with him a thousand years.)
+Other Christians may be witnessing for Jesus and Christians still with
+their natural bodies will most likely be working on farms or other types
+of jobs as they do today. Man was intended to work six days and then rest
+and worship Jesus on the seventh. This again shows that God wants people
+working. (Exodus 20:9 Every man also to whom God hath given riches and
+wealth, and hath given him power to eat thereof, and to take his portion,
+and to rejoice in his labour; this is the gift of God.) (Exodus 23:12 Six
+days thou shalt do thy work, and on the seventh day thou shalt rest: that
+thine ox and thine ass may rest, and the son of thy handmaid, and the
+stranger, may be refreshed.)
+
+God expects Christians to work for him. God calls some to work for
+him in the ministry full time and others God has working a secular job.
+Those that God has working a job still need to work for God besides their
+earthly job. All Christians need to be witnessing for Jesus whether by
+talking to people, handing out tracts, making movies for Jesus, radio,
+television, or internet ministries or whatever means God tells you to do.
+This includes the disabled who may not be able to work a secular job. God
+can use you in some way to reach someone whether you call people on the
+phone and witness to them or some other job God may have for you. All can
+pray. Doing work for God should be a pleasure and not a burden as a
+person's secular job may be. God said the harvest is ripe as the time
+nears before his return. God expects us to take advantage of this harvest
+and win as many souls for him as we can while we have time. (Luke 10:2
+Therefore said he unto them, The harvest truly is great, but the labourers
+are few: pray ye therefore the Lord of the harvest, that he would send
+forth labourers into his harvest.) (John 4:35 Say not ye, There are yet
+four months, and then cometh harvest? behold, I say unto you, Lift up your
+eyes, and look on the fields; for they are white already to harvest.) Too
+many Christians disobey God and do no work for him. Let no one listening
+today be one of those Christians. God said he would not forget the work
+that we do for him. (Hebrews 6:10 For God is not unrighteous to forget
+your work and labour of love, which ye have shewed toward his name, in
+that ye have ministered to the saints, and do minister.) As Hebrews 6:10
+says, our work we do for God should be a labour of love, not begrudging
+work. We should work for God because we love him. (Matthew 25:21 His lord
+said unto him, Well done, thou good and faithful servant: thou hast been
+faithful over a few things, I will make thee ruler over many things: enter
+thou into the joy of thy lord.) (Revelation 22:12 And, behold, I come
+quickly; and my reward is with me, to give every man according as his work
+shall be.) What we do for the Lord today will determine what we do for him
+during the millennial reign of Jesus and during eternity. The more we do
+for Jesus today, the more responsibility we will get later. God expects
+Christians to walk worthy of the Lord in the way we live, work, and do for
+him. (Colossians 1:10 That ye might walk worthy of the Lord unto all
+pleasing, being fruitful in every good work, and increasing in the
+knowledge of God;) A Christian can increase in the knowledge of God by
+studying the word of God [scripture]. Christians do not spend all of your
+time working here on earth for something that will burn up, but rather for
+Jesus and things that will last for eternity. Make sure you have time for
+Jesus and work for him. For the unsaved person this also applies, but you
+need to get saved so you can do work that counts toward eternity. The meat
+that does not perish is the meat that Jesus will give to those who are
+saved and serve him willingly and with a loving heart. (John 6:27 Labour
+not for the meat which perisheth, but for that meat which endureth unto
+everlasting life, which the Son of man shall give unto you: for him hath
+God the Father sealed.)
+
+Let us work for the Lord while there is still time, for the time will
+come when we can no longer do work for God. We must witness while it is
+still day and we have the freedom. Sometimes God will close a door in a
+nation and make getting the gospel out very difficult and someday the
+rapture will come and we will not be able to witness anymore. The night
+will have come. Jesus warned us of this. (John 9:4 I must work the works
+of him that sent me, while it is day: the night cometh, when no man can
+work.)
+
+Christians in the Holy Bible worked for God such as Moses who led
+God's people out of Egypt, the prophets who preached for God, and the
+apostles who started the church. (I Thessalonians 2:9 For ye remember,
+brethren, our labour and travail: for labouring night and day, because we
+would not be chargeable unto any of you, we preached unto you the gospel
+of God.) (II Thessalonians 3:8 Neither did we eat any man's bread for
+nought; but wrought with labour and travail night and day, that we might
+not be chargeable to any of you:) Jesus himself worked as a carpenter
+before starting his ministry and performed many miracles which were the
+work of his Father as well as much other work for God the Father. (Mark
+6:3 Is not this the carpenter, the son of Mary, the brother of James, and
+Joses, and of Juda, and Simon? and are not his sisters here with us? And
+they were offended at him.) (John 5:17 ¶ But Jesus answered them, My
+Father worketh hitherto, and I work.) Jesus did his greatest work when he
+died on the cross so that all people might have everlasting life and
+finished the work of the Father. (John 4:34 Jesus saith unto them, My meat
+is to do the will of him that sent me, and to finish his work.)  
+
+For the person whose burden is heavy whether from sorrow, pain,
+grief, fear, worry, but most of all sin, turn to Jesus. (Matthew 11:28-30
+¶ Come unto me, all ye that labour and are heavy laden, and I will give
+you rest.
+29 Take my yoke upon you, and learn of me; for I am meek and lowly in
+heart: and ye shall find rest unto your souls.
+30 For my yoke is easy, and my burden is light.) If you are unsaved, admit
+that you are a sinner and believe that Jesus can save you and then call
+upon Jesus to save you and give you everlasting life by entering your
+heart and living there. If you do so Jesus will carry your burden and your
+soul will have rest. Jesus said that a person was to do the work of God
+and that work was to believe in Jesus and the work he did on the cross for
+each and every one of us. Believing in the work of the cross will bring
+you salvation. (John 6:29 Jesus answered and said unto them, This is the
+work of God, that ye believe on him whom he hath sent.) For the Christian
+who has a heavy burden, call upon Jesus and he will also carry yours. The
+closer a Christian walks with Jesus, the lighter their burden will become.
+This does not mean that a Christian will not still have sorrow, grief,
+pain, fear, and worry in their lives, but with Jesus in our lives it is
+much easier to bear them when they come. With Jesus a Christian will
+always get through it in some way even if that means God will take them
+home to him to ease their pain. Jesus said for a Christian to deny himself
+and take up his cross and follow him. (Matthew 16:24 ¶ Then said Jesus
+unto his disciples, If any man will come after me, let him deny himself,
+and take up his cross, and follow me.) Jesus was saying to always put
+Jesus first in your life and to be willing to die for him. A person that
+is willing to do that will walk close to God and the closer you walk with
+God, the more Jesus will lighten the load of your burden. By trusting in
+Jesus we can eliminate worry as we know that Jesus will do what is best
+for us. Worry is a sin. By trusting in Jesus a person can enter into the
+rest of Jesus. (Hebrews 4:10-11 For he that is entered into his rest, he
+also hath ceased from his own works, as God did from his.
+11 Let us labour therefore to enter into that rest, lest any man fall
+after the same example of unbelief.) Labor Day may be set apart for the
+worker to have rest, but a person can only have true rest when they have
+Jesus as their Saviour and for those who are saved when they fully trust
+in Jesus to lead their lives. This does not mean we will not have to
+physically work, but that the burden will be light and those trusting in
+Jesus will have rest in eternity as they enjoy worshipping and serving God
+rather than suffering everlasting torment in the lake of fire. May
+everyone seek the true rest of Jesus. Christians start serving the Lord if
+you are not and if you are unsaved, get saved today.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

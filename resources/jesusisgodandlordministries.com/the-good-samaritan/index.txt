@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,461 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Good Samaritan
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Anyone who has been a Christian for very long has heard the story of
+the Good Samaritan. Many people say this story was not real but just a
+parable by Jesus. The text never says this and seems to point to a true
+story of history. Jesus was being tempted by a lawyer into how he might
+receive eternal life. Lawyers are always trying to tempt people and many
+people were always trying to tempt Jesus. Jesus proceeds to tell the story
+of what we refer to as the Good Samaritan in answering the lawyer's
+question.
 
-Username or email _____________________
+(Luke 10:25-37 25 ¶ And, behold, a certain lawyer stood up, and
+tempted him, saying, Master, what shall I do to inherit eternal life?
+26 He said unto him, What is written in the law? how readest thou?
+27 And he answering said, Thou shalt love the Lord thy God with all thy
+heart, and with all thy soul, and with all thy strength, and with all thy
+mind; and thy neighbour as thyself.
+28 And he said unto
+him, Thou hast answered right: this do, and thou shalt live.
+29 But he, willing to justify himself, said unto Jesus, And who is my
+neighbour?
+30 And Jesus answering said, A certain man went down from Jerusalem to
+Jericho, and fell among thieves, which stripped him of his raiment, and
+wounded him, and departed, leaving him half dead.
+31 And by chance there came down a certain priest that way: and when he
+saw him, he passed by on the other side.
+32 And likewise a Levite, when he was at the place, came and looked on
+him, and passed by on the other side.
+33 But a certain Samaritan, as he journeyed, came where he was: and when
+he saw him, he had compassion on him,
+34 And went to him, and bound up his wounds, pouring in oil and wine, and
+set him on his own beast, and brought him to an inn, and took care of him.
+35 And on the morrow when he departed, he took out two pence, and gave
+them to the host, and said unto him, Take care of him; and whatsoever thou
+spendest more, when I come again, I will repay thee.
+36 Which now of these three, thinkest thou, was neighbour unto him that
+fell among the thieves?
 
-Reset password
+37 And he said, He that shewed mercy on him. Then said Jesus unto
+him, Go, and do thou likewise.)
+
+Let us look at the background to the story told by Jesus. In verse 25
+we see a certain lawyer asked Jesus "what shall I do to inherit eternal
+life?" This lawyer was not sincere in knowing how to be saved, but like a
+typical lawyer he was trying to tempt Jesus or in other words trick Jesus
+into saying something that contradicted scripture. Jesus as always when he
+was being tempted by someone turned the tables on the individual who was
+trying to tempt him. Jesus said to the lawyer "What is written in the law?
+how readest thou?" Jesus was saying you are a lawyer and an expert on the
+law of Moses and a teacher and yet you ask me such a dumb question as
+"What shall I DO to INHERIT eternal life?". The question asked by the
+lawyer shows his ignorance as a person cannot do anything to receive an
+inheritance. If you have to do something for the inheritance then it is
+work and the inheritance is no longer an inheritance but rather your
+wages. An inheritance is something that someone else is giving you for
+nothing you have done. They did the work for you. The lawyer like most
+people always want to do works to get to heaven yet God says we are saved
+by grace and not by our works. (Ephesians 2:8-9 For by grace are ye saved
+through faith; and that not of yourselves: it is the gift of God:
+9Not of works, lest any man should boast.) People do not want to admit
+that we are never good enough to get to heaven on our own. Most do not
+want to admit that they are helpless individuals who must rely on Jesus
+rather than themselves for everlasting life. Jesus was telling the lawyer
+that you as a lawyer should know the law and that what is written in the
+law is that a person must obey the law with perfection if they want to get
+to heaven by works, but that the lawyer should know that that is
+impossible.
+
+In verse 27 the lawyer says to Jesus "Thou shalt love the Lord thy
+God with all thy heart, and with all thy soul, and with all thy strength,
+and with all thy mind; and thy neighbour as thyself.". Jesus tells the
+lawyer in verse 28 that he has answered correctly and that he then had to
+obey the law perfectly as he had stated if he wanted to get to heaven by
+the law. The lawyer knew that that was impossible for a person to do so
+and in verse 29 he tries to weasel his way out by finding a loophole.
+Lawyers are great at doing this. The lawyer knew he had not always obeyed
+the law or anyone else and that Jesus had turned the tables on him and had
+trapped him. He knew he had to try and find a way out. The lawyer knew
+that he nor anyone else had always loved the Lord thy God with all his
+heart, soul, strength, and mind. No one ever has. In fact Jesus loved us
+first before we loved him. (I John 4:19 We love him, because
+he first loved us.) The lawyer was honest enough to himself to know that
+he had not always obeyed the law and he knew that breaking even one law
+would doom him so he knew he had to find a way out. He understood that it
+is the law of God, not the laws of God as it is all one. James says if you
+break even one point you have broken the whole law. A person may only have
+told a lie but they are guilty of breaking the whole law. (James 2:10 For
+whosoever shall keep the whole law, and yet offend in one point, he is
+guilty of all.) The part that really got to the lawyer was he had said
+that a person was to love their neighbor as thyself and Jesus said that he
+was correct and that he must do this for everlasting life. The lawyer knew
+he had many neighbors that he did not like so he tried to justify himself
+and get out of his predicament by saying to Jesus in verse 28 "And who is
+my neighbour?". People are always trying to make themselves better than
+their "neighbor" in order to make themselves feel better. The way the
+lawyer stated the question was as if to say what do you mean by neighbor.
+Am I really to love the Gentile dogs or Samaritans or those who despise
+lawyers and have been mean to me? Do I really have to help the poor and
+give them my hard earned money? The Jews of his day hated the Samaritans
+especially and most Gentiles. The lawyers really hated them. Jesus knew
+this. Instead of coming to Jesus by faith as the worthless sinner that he
+was, the lawyer was still trying to justify himself and come to Jesus by
+works and the law. It was with the question "who is my neighbor" that
+Jesus proceeds to tell the lawyer the true story of the Good Samaritan.
+Jesus tells this true story to the lawyer to teach him that religion and
+the law will not save him or anyone else. In the story the priest
+represents religion and the Levite the law. The lawyer, as well as the
+Jewish people, were very familiar with both priests and Levites. In the
+story is also a wounded helpless man with no hope for survival who
+represents all of the unsaved who cannot save themselves. Religion (the
+priest) should be able to help this man and if not the law (the Levite)
+should. Jesus shows that religion and the law cannot save this poor man.
+Paul was a religious man before he got saved and what did he do in his
+zeal but beat and imprisoned Christians. Religion will never save anyone.
+
+In verse 30 we see a certain man went down from Jerusalem to Jericho.
+The fact that Jesus says "a certain man" shows Jesus was speaking of a
+real certain person and not just any man and was not telling a parable.
+This can be seen in verse 25 when it says "a certain lawyer" whom everyone
+agrees was a real lawyer. This is also seen in Luke 16:19-31 which tells
+the true story of a certain rich man and Lazarus. This is also a true
+story and not a parable as many people falsely teach. Jesus as God is
+omniscient (all knowing) and knew about this man and his encounter on the
+Jericho road. Jericho was not far from Jerusalem and was known as a sinful
+city. The road to Jericho was full of robbers and thieves who waited for
+people as they traveled and going to Jericho led a person to sin. Jericho
+was physically down from Jerusalem at a lower elevation, but was also down
+spiritually from Jerusalem. In scripture the directions given relate to
+Jerusalem physically and spiritually. Jerusalem was the location of the
+temple and in theory the most holy people and the city of God. It was also
+located on a mountain. In scripture, going down represents going down
+spiritually from God. The person moves away from God and towards sin. This
+can be seen even with Abram who went down into Egypt to a land of sin. God
+told Abram to settle in the Promised Land and not in Egypt. When a famine
+hit, instead of trusting God, Abram went down to Egypt and away from God.
+(Genesis 12:10 ¶ And there was a famine in the land: and Abram
+went down into Egypt to sojourn there; for the famine was grievous in the
+land.) We see in verse 30 that this certain man on his way down to Jericho
+was beaten and wounded and robbed by thieves who even stole his raiment
+(clothing) and then left him half dead. This certain man was walking the
+wrong road as he traveled. He was walking the broad road of destruction.
+He had his back to Jerusalem, the city of God and his face toward the
+sinful city of Jericho as he headed down to the city. This man's life was
+also heading down spiritually just as he physically was headed down to
+Jericho. This led the man to be attacked. When we turn our backs to God,
+this opens the door for us to be attacked by Satan.
+
+In verse 31 we see a priest who by chance came upon him as he was
+walking down from Jerusalem to Jericho, but instead of helping him he
+crossed over to the other side and continued on his journey leaving him to
+die. The priest who represents religion shows how religion cannot save
+anyone. When this man truly needed help, the priest (religion) abandoned
+him and passed by him on the other side of the road. This is what religion
+does. It abandons a person's soul to hell as it cannot save anyone. It
+will leave you to die as this priest did. The priest was going to let this
+man just die and he would have been guilty of killing the man if the Good
+Samaritan had not stopped to help save this man's life.
+
+In verse 32 we see a Levite comes by and also leaves the wounded man
+to die and he also passes by on the other side of the road. The Levites
+helped with duties in the temple. Both the priest and Levite pass by on
+the other side so they will not even have to look at him or hear his moans
+and cries for help. It is the belief of "out of sight out of mind". This
+is what these men were trying to do. The Levite, who represents the law,
+showed by passing on the opposite side that the law just like religion
+cannot save anyone. The law can only point a person to the fact that they
+are a sinner in need of a Saviour in Jesus, but it will never save anyone
+just like religion. (Romans 3:20 Therefore by the deeds of the law there
+shall no flesh be justified in his sight: for by the law is the knowledge
+of sin.)  
+
+I have heard many preachers and Sunday school teachers say the priest
+and the Levite could not stop and help this man because if they did they
+would become polluted and unclean and then they could not perform their
+duties at the temple. Priests were assigned to the temple for only a week
+at a time and only during certain times of the year. This is false
+teaching as verses 31 "came down a certain priest" and 32 "And likewise a
+Levite" show the priest and the Levite were headed down from Jerusalem on
+the Jericho road just like the man that was attacked. This shows that both
+the priest and Levite had completed their duties in Jerusalem and where
+heading home and therefore they had no excuse for not helping the wounded
+and dying man. These men were supposed men of God yet instead of helping
+the man, they went to the other side to avoid him.  
+
+In verse 33 we see a certain Samaritan saw the man and had compassion
+on him. The phrase "a certain Samaritan" again shows this was a real
+person and not just a parable being told by Jesus. The Samaritan was hated
+by the Jews of which the wounded man most certainly was a Jew, yet the
+Samaritan saw him and had compassion on him. The Samaritan represents
+Jesus as the Great Physician. Jesus had compassion on everyone who has
+ever lived. He had so much compassion that he gave his life for sinners
+like all of us so that people may call upon him for salvation and receive
+the free gift of everlasting life.
+
+In verse 34 we see the Samaritan had more than just compassion for
+the man.  He actually did something for him. He bound up (tended to) the
+man's wounds as best as he could, then placed him on his beast while he
+walked and then brought him to an inn to receive help and rest. The
+Samaritan in essence change places with the wounded man by now having him
+on the beast while the Samaritan was walking on the ground. This is what
+Jesus does for us. He took our place on the cross and he washes our wounds
+of sin away with his own blood, binds them and then gives us rest by
+having us cast our burdens on him. The Samaritan used his expensive oil
+and wine to try and help this man just as Jesus as God humbled himself by
+becoming a man and has given Christians all of his wealth. A person can
+only be healed by the great Physician of Jesus. Only Jesus can heal a sin
+laden heart. Oil in scripture represents the work of the Holy Ghost by
+anointing and the wine represents the cleansing of the person by the word
+of God in Jesus. The person must be anointed (convicted) by the Holy Ghost
+first before they can receive the wine. Wine as an alcohol is a cleansing
+agent. Notice the Samaritan applied the oil first and then the wine. Many
+people are like the Samaritan in that they have compassion on people but
+unlike the Good Samaritan they never stop to actually help the person,
+especially to tell the person about Jesus. In this verse we see how the
+wounded man never tried to help the Samaritan, but rather let the
+Samaritan do everything. He never refused the help of the "enemy" in the
+Samaritan. When people are dying they will usually except help from even
+their worst enemy. This represents how people must come to Jesus as they
+are and let Jesus do all the work and healing and never try to help Jesus
+with salvation. The Samaritan brought the dying man to the inn which
+represents the church. It is here that the man could receive the gospel
+and the help he needed. The church needs to teach people to do like this
+Samaritan and go out on the Jericho road and bring in the lost to tell
+them about Jesus.
+
+In verse 35 we see how the Samaritan left two pence and paid the
+man's bills, a man he never had met. Two pence was two days wages and here
+represents God's unlimited wealth. He told the innkeeper that when he came
+again he would give him more money if it was needed, just to make sure he
+took care of the wounded man. Jesus paid our sin bill with his death on
+the cross and Jesus has promised us Christians access to all of his wealth
+and promised us he will return for us one day. The two pence represents
+the only two things we all need; the Holy Ghost and the word of God. The
+word of God gives us the gospel and the way of salvation and the Holy
+Ghost convicts us of our need to be saved and our need for a Saviour.
+
+In verse 36 Jesus asks the lawyer which of these three was neighbor
+unto the wounded man. Was it the priest, Levite, or the Samaritan? Jesus
+stated that these men were all neighbors of the wounded man by his
+question. Jesus was showing the lawyer that "our neighbor" is not just the
+person that lives next door to us, but is everyone that we come into
+contact with. We as Christians need to remember this true story and be
+neighborly by telling everyone we see about Jesus so that we may lead them
+to Jesus and save their souls from everlasting fire and damnation.
+
+In verse 37 the lawyer tells Jesus that the neighbor is the one who
+showed mercy. The lawyer still never learned his lesson as his hatred for
+the Samaritans still exists as he cannot even say the name Samaritan, but
+rather says "He that shewed mercy on him". Jesus tells the lawyer to then
+go and do likewise. Jesus had taught the lawyer and all of us a lesson in
+this true story. Jesus had taken what was a foolish question from a lawyer
+who was supposed to know scripture and who had tried to trick him and
+turned the table on him by showing him the failure of trying to get to
+heaven by religion, the law, and his works and that instead he needed to
+trust in Jesus as his Saviour. The same applies to all of us. Jesus taught
+us that everyone is our neighbor. Remember this true story and not a
+parable as many falsely teach and its lesson to not only help our
+"neighbors", but also to never take the broad road down to Jericho which
+leads to destruction and hell, but to always take the narrow road that
+goes up to Jerusalem and leads to salvation and everlasting life.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

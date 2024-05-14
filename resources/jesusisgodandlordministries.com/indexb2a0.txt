@@ -1,2 +1,4 @@
+Refresh: jude/index.html
+
 Click here...
 

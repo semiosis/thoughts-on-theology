@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,451 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Prayer
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The first Sunday in November is International Day of Prayer for the
+Persecuted Church or International Day of Prayer (IDOP) as it is usually
+called. This is a day set aside each year by Christians to remember and
+pray for persecuted Christians around the world.  
 
-Username or email _____________________
+Prayer is one of the most powerful weapons that a Christian has along
+with the word of God (scripture). Prayer is long reaching with a long
+range and is long lasting. Every Christian can pray no matter how rich or
+poor they are, where they live, how old they are, male or female, or
+whether they are free or in bonds. Satan hates prayer warriors. Prayer
+warriors are those Christians who are walking with God and are always
+praying for their fellow Christians. For a person to be effective in their
+prayer they first need to make sure they have no unconfessed sin and are
+right with God. God will not listen when we have sin that we have not
+confessed. Our prayers will be ineffective. The only prayer God will hear
+from an unbeliever is the one when they ask Jesus to save them. God wants
+all Christians to be prayer warriors though some people definitely have
+the gift of compassion and caring more than others so they have more
+effective prayers. When we pray we need to believe that what we pray for
+will be answered by God. If we do not truly believe God can answer the
+prayer than more than likely he will not. God will not answer those who
+lack faith. (Mark 11:24 Therefore I say unto you, What things soever ye
+desire, when ye pray, believe that ye receive them, and ye shall have
+them.) When we pray we need to pray in Jesus' name for it to be effective
+and he will answer the prayer. Jesus himself said he would. (John 14:13-14
+And whatsoever ye shall ask in my name, that will I do, that the Father
+may be glorified in the Son.
+14 If ye shall ask any thing in my name, I will do it.) Now this verse
+does not mean we can ask for something that we know is a sin or against
+God's will as God will not answer that prayer. God will answer Christian's
+prayers, though it will be in his timing and his way and according to his
+will. Sometimes God will answer yes and sometimes he will answer no and
+sometimes he makes us wait. We may be praying for a loved one who is lost,
+but it may take 50 years for God to answer that prayer. Other times we may
+be praying for a certain job, but God will say no as he has an even better
+job planned for you and sometimes he will answer yes right away. A
+Christian is to just pray and not worry about how God will answer the
+prayer. Sometimes when we pray for a sick and dying Christian, God will
+heal them up and other times he will take them home to be with him.
+Sometimes by taking them home is the answer to our prayers. We pray and
+ask God to heal them and this is the best way to heal them as now they are
+pain free and with God. We are never to argue with God over the answers to
+our prayers. Sometimes God will never reveal to us the answer to our
+prayers directly such as when Job was asking God what he did wrong to
+deserve his punishment. God never revealed to Job that he was allowing
+Satan to test him, but rather blessed him with a double portion at the end
+of the test. This was mainly because Job stayed faithful to God during the
+whole ordeal.
 
-Reset password
+God wants all Christians to be prayer warriors. We are always to be
+in prayer. (I Thessalonians 5:17 Pray without ceasing.) We as Christians
+need to pray about everything. We should pray and ask the blessing on our
+food before we eat including in a public place. Do not be ashamed of God.
+Too many Christians eat without praying just like an animal and are not
+even thankful for the food God provides for them. God said if we pray over
+our food it will be sanctified and this is why we can eat even the unclean
+foods that the Israelites were not allowed to eat. (I Timothy 4:4-5 For
+every creature of God is good, and nothing to be refused, if it be
+received with thanksgiving:
+5 For it is sanctified by the word of God and prayer.) Jesus prayed before
+eating such as when he fed the five thousand and the four thousand.
+(Matthew 14:19 And he commanded the multitude to sit down on the grass,
+and took the five loaves, and the two fishes, and looking up to heaven, he
+blessed, and brake, and gave the loaves to his disciples, and the
+disciples to the multitude.) (Matthew 15:36 And he took the seven loaves
+and the fishes, and gave thanks, and brake them, and gave to his
+disciples, and the disciples to the multitude.) Jesus also prayed before
+the last supper just before going to the cross. (Matthew 26:26-27 ¶ And as
+they were eating, Jesus took bread, and blessed it, and brake it, and
+gave it to the disciples, and said, Take, eat; this is my body.
+27 And he took the cup, and gave thanks, and gave it to them,
+saying, Drink ye all of it;) Jesus was a prayer warrior who was always
+praying to God the Father. Shortly before his death, Jesus prayed for
+himself, his apostles and for all of those who would become Christians in
+the future. (John 17:5 And now, O Father, glorify thou me with thine own
+self with the glory which I had with thee before the world was.) (John
+17:9 I pray for them: I pray not for the world, but for them which thou
+hast given me; for they are thine.) (John 17:20 Neither pray I for these
+alone, but for them also which shall believe on me through their word;)
+Jesus wants us as Christians to stay in the world to tell others about
+Jesus, but not to be a part of the world. Jesus prayed this for his
+apostles and disciples. (John 17:15 I pray not that thou shouldest take
+them out of the world, but that thou shouldest keep them from the evil.)
+As I mentioned before God may not always answer our prayer the way we
+want. A persecuted Christian may pray for the safety of their life, but
+God may still allow Satan to take their life if it is God's will for his
+purpose. By taking that life, many people might be saved. It is similar to
+praying for a sick baby. God may allow that child to die so the nurses and
+physicians may be saved when they never would have otherwise and that
+child is home with God. Many other times in Jesus' life he prayed. He
+often went to the garden of Gethsemane to pray. Sometimes he went up to
+the mountain and prayed all night and other times he got up early before
+sunrise to pray. (Matthew 14:23 And when he had sent the multitudes away,
+he went up into a mountain apart to pray: and when the evening was come,
+he was there alone.) Jesus would start his day off with prayer. We as
+Christians need to follow the example of Jesus and pray when we rise, for
+our meals, and throughout the day. A person can pray while driving or
+while at work, but a prayer warrior will have time dedicated just for
+prayer. Jesus said to go in a closet and pray. Now I do not believe you
+literally need to be in a closet, but you do need a place where you are
+undisturbed and alone with God such as how Jesus went up into the mountain
+to be alone. (Matthew 6:6 But thou, when thou prayest, enter into thy
+closet, and when thou hast shut thy door, pray to thy Father which is in
+secret; and thy Father which seeth in secret shall reward thee openly.)
+Sometimes it is necessary for a Christian to spend all day or night in
+prayer just like Jesus depending on the prayer request. Some prayer
+requests such as casting out devils require not only prayer, but fasting
+as well. (Matthew 17:21 Howbeit this kind goeth not out but by prayer and
+fasting.) As a prayer warrior we are told after putting on the whole
+armour of God to pray always for all saints and with perseverance.
+(Ephesians 6:18 Praying always with all prayer and supplication in the
+Spirit, and watching thereunto with all perseverance and supplication for
+all saints;) The prayer warrior will not give up until their prayer is
+answered yes. Too many Christians never pray for anything let alone spend
+hours in prayer then they wonder why God is not close to them. If they do
+pray they only pray once and then give up. Prayer is nothing more than
+talking to God. The Holy Ghost will help us with our prayers when we do
+not know what to say for he knows what we need. (Romans 8:26 Likewise the
+Spirit also helpeth our infirmities: for we know not what we should pray
+for as we ought: but the Spirit itself maketh intercession for us with
+groanings which cannot be uttered.) God said to make our requests before
+him by prayer. (Philippians 4:6 Be careful for nothing; but in every thing
+by prayer and supplication with thanksgiving let your requests be made
+known unto God.) We pray with our spirit. Our spirit is the part that
+worships God. (I Corinthians 14:15 What is it then? I will pray with the
+spirit, and I will pray with the understanding also: I will sing with the
+spirit, and I will sing with the understanding also.)   
+
+We are told in James that when a Christian is sick to have the elders
+of the church pray over him and anoint them with oil. These verses also
+show how prayer of the faith will save the sick. We also see how God
+answered Elijah's prayer to withhold rain. (James 5:13-18 Is any among you
+afflicted? let him pray. Is any merry? let him sing psalms.
+14 Is any sick among you? let him call for the elders of the church; and
+let them pray over him, anointing him with oil in the name of the Lord:
+15 And the prayer of faith shall save the sick, and the Lord shall raise
+him up; and if he have committed sins, they shall be forgiven him.
+16 Confess your faults one to another, and pray one for another, that ye
+may be healed. The effectual fervent prayer of a righteous man availeth
+much.
+17 Elias was a man subject to like passions as we are, and he prayed
+earnestly that it might not rain: and it rained not on the earth by the
+space of three years and six months.
+18 And he prayed again, and the heaven gave rain, and the earth brought
+forth her fruit.) Notice verse 16 says the "effectual fervent prayer of a
+righteous man availeth much". This is your prayer warrior. This shows how
+God will hear the righteous person who is never ending in their prayer and
+how this kind of prayer is effective. This shows how for a prayer to be
+effective, the one praying needs to have God forgive their sins first
+before he will hear their prayer. We must be like the lady in the movie
+War Room that stays in the fight with prayer. Remember we are fighting a
+spiritual battle and prayer is a vital necessity in order for victory.
+Prayer should be the first thing Christians reach for rather than the last
+thing as most Christians tend to do. Christians often try to do everything
+themselves first and then turn to God when we should be turning to God
+first. God should be our first line of defense. We are to pray for those
+Christians in bonds. (Hebrews 13:3 Remember them that are in bonds, as
+bound with them; and them which suffer adversity, as being yourselves also
+in the body.)
+
+As Christians we need to pray for each other to be bold to witness
+for Jesus. Paul even asked for prayer for him to be bold and have
+opportunities to pray and said we are to continue in prayer. Too many
+Christians pray once or twice and then they give up when they feel God has
+not answered their prayer. We are to continue in prayer. (Colossians 4:2-3
+Continue in prayer, and watch in the same with thanksgiving;
+3 Withal praying also for us, that God would open unto us a door of
+utterance, to speak the mystery of Christ, for which I am also in bonds:)
+
+When men pray they are not to have their head covered. This is one
+reason that men should never wear a hat in church. (I Corinthians 11:4
+Every man praying or prophesying, having his head covered, dishonoureth
+his head.)
+
+Jesus taught the people how to pray during his sermon on the mount in
+Matthew 6:9-15. This is often referred to as the Lord's Prayer though I
+believe the prayers I mentioned of Jesus praying in John 17 should be the
+Lord's Prayer. Jesus taught us in Matthew 6 that we are to pray to God the
+Father in Jesus' name. We do not pray to Mary or anyone else. We get to
+God the Father by Jesus only. Today the military and many others are
+trying to prohibit praying in Jesus' name. A prayer is only effective when
+we pray in Jesus' name otherwise there is no point in praying. Jesus also
+taught his disciples how to pray when they asked. It should be noted that
+they did want to know how to pray. We should too. Too many Christians
+today do not care about praying and never do. (Luke 11:1 And it came to
+pass, that, as he was praying in a certain place, when he ceased, one of
+his disciples said unto him, Lord, teach us to pray, as John also taught
+his disciples.) The rest of the prayer is found in Luke 11:2-4. Jesus
+taught all people that when we pray we are not to pray using vain
+repetitions as do the heathen or for example the Roman Catholics, Jews,
+and Muslims. God will not hear those prayers. We are to pray from the
+heart, not some memorized words. (Matthew 6:7-8 But when ye pray, use not
+vain repetitions, as the heathen do: for they think that they shall be
+heard for their much speaking.
+8Be not ye therefore like unto them: for your Father knoweth what things
+ye have need of, before ye ask him.) We see here how God the Father just
+as the Holy Ghost already knows what we need before we pray. Notice the
+verse says the things we need, not the things we want. Too many Christians
+pray for things thing want such as a new boat or car, but they do not need
+them. God will make sure his children have what they need, but not all
+will get the things they want.
+
+Jesus also commands us to pray for our enemies and for those who
+persecute us. This is not easy, but we need to pray for them so they might
+be saved. If they are saved they will no longer be our enemies. Much
+greater persecution is coming to the United States of America so we need
+to heed God's words. Jesus prayed for his enemies and we must as well.
+Many Christians around the world pray for their enemies everyday as they
+are beaten and imprisoned and some killed. (Matthew 5:44 But I say unto
+you, Love your enemies, bless them that curse you, do good to them that
+hate you, and pray for them which despitefully use you, and persecute
+you;)
+
+We need to pray that God will send many people to try and win souls.
+(Matthew 9:37-38 Then saith he unto his disciples, The harvest truly is
+plenteous, but the labourers are few;
+38 Pray ye therefore the Lord of the harvest, that he will send forth
+labourers into his harvest.) Let us always pray for missionaries as well
+as those pastors and preachers who preach God's word. Pray for me. We need
+to pray for the lost.
+
+God over the years has healed many people of their illnesses such as
+cancer and he will continue if Christians continue in prayer. I have
+personally seen the power of prayer many times not only in healing of
+people, but in answer to many other prayer requests.
+
+God said that we have access to his riches and power. Jesus said he
+could call down twelve legions of angels if he chose. (Matthew 26:53
+Thinkest thou that I cannot now pray to my Father, and he shall presently
+give me more than twelve legions of angels?) God will protect us with the
+same. Just as God protected Job with a hedge around his house and family
+he will do the same for those prayer warriors that love him. Jack Chick
+had a former witch who was a Satanist who got saved tell him about the
+time when Satan wanted him killed and sent many witches and devils to his
+house only to be blocked by a large amount of angels protecting Jack and
+his house. Missionaries have also told stories of protection. 
+
+Prayer is a must for Christians as this is how we talk to God. All
+Christians should want to pray so they can talk to God. We all need to
+learn to become prayer warriors and pray for each other and all Christians
+and for the lost and their salvation. God answers prayers and Satan knows
+this and this is why he hates praying Christians. Prayer is the most
+powerful weapon a Christian has against Satan and we need to start using
+it. Remember to pray many times every day and for every aspect of your
+life. There is nothing too insignificant for God that he does not want you
+to come to him in prayer. The more we pray the stronger a Christian we
+will become and more hated of Satan. Become a prayer warrior today and
+keep Satan at bay.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,501 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the feasts of Passover and Unleavened Bread
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Jesus can be found in the feast of passover as he can in all Jewish
+feasts. Passover is the first of the seven annual feasts that God gave to
+the Israelites and is the first of the three mandatory feasts that
+Israelite males were required to come to Jerusalem with a sacrifice.
+Pentecost and the feast of tabernacles are the other two. Passover in
+Hebrew is pasach meaning "to suffer" and is a one day feast. Jesus
+suffered for us on the cross. The feast of passover is connected with the
+feast of unleavened bread which immediately follows it. As time went by
+and even today the two feasts combined are often referred to as passover
+though God has them separate, though they are connected. Passover occurs
+in either March or April of our calendar depending on the year. It is
+normally near the time of Easter. The Israelites were commanded to
+celebrate passover on the fourteenth day of the first month of Nisan
+(Originally called Abib). This had previously been the seventh month, but
+God told Moses to change the calendar and make this the first month.
+(Leviticus 23:5-8 In the fourteenth day of the first month at even is the
+LORD'S passover.
+6 And on the fifteenth day of the same month is the feast of unleavened
+bread unto the LORD: seven days ye must eat unleavened bread.
+7 In the first day ye shall have an holy convocation: ye shall do no
+servile work therein.
+8 But ye shall offer an offering made by fire unto the LORD seven days: in
+the seventh day is an holy convocation: ye shall do no servile
+work therein.) Passover is a one day feast immediately followed by the
+seven day feast of unleavened bread.
 
-Username or email _____________________
+Passover came about due to the events in Egypt. Moses had returned to
+Egypt to free his people from pharaoh and their hardship. When pharaoh
+refused to let the Israelites leave, God brought on the ten plagues. The
+tenth plague was the death of the firstborn of everyone including the
+Israelites if they did not obey God's command. This included both people
+and animals of the people. Most of the plagues only affected the
+Egyptians, but this plague would also affect those Israelites who
+disobeyed God's commands for what to do. The Israelites were commanded to
+put the blood of a lamb that they were to eat that night. This blood was
+to be dipped with hyssop and placed on the two side posts of the door as
+well as on the lintel which is the top beam of a door. If the death angel
+saw this blood on the door, he would passover and go to the next, hence
+the name of the feast. If this blood was not on the door, including
+Israelites, then the angel would kill the firstborn of people and beast.
+The family had to be inside of the house when the angel came in in order
+to be safe from death. (Exodus 12:21-24 ¶ Then Moses called for all the
+elders of Israel, and said unto them, Draw out and take you a lamb
+according to your families, and kill the passover.
+22 And ye shall take a bunch of hyssop, and dip it in the blood that is in
+the bason, and strike the lintel and the two side posts with the blood
+that is in the bason; and none of you shall go out at the door of his
+house until the morning.
+23 For the LORD will pass through to smite the Egyptians; and when he
+seeth the blood upon the lintel, and on the two side posts, the LORD will
+pass over the door, and will not suffer the destroyer to come in unto your
+houses to smite you.
+24 And ye shall observe this thing for an ordinance to thee and to thy
+sons for ever.) The Israelites were commanded to celebrate the passover
+forever as well as the feast of unleavened bread. The Jews still celebrate
+it today as commanded. The blood that was placed on the door made a cross
+and it represents the blood Jesus would shed for us at Calvary as our
+passover lamb. The significance is important in that the family had to be
+inside the house with the blood on the door. Today a person is only safe
+from death by being washed in the blood of Jesus. Without that blood, no
+one is safe. The Israelites were commanded to only place this blood on
+their houses for this first passover as it shows that we are saved from
+the blood for all time. We do not need to keep being washed in the blood
+of Jesus. We cannot lose our salvation and keep getting resaved. By being
+in the house, this represented being safe in the arms of Jesus similar to
+Noah and his family who were safe in the ark during the global flood.
+Outside of Jesus, we have no life and neither did the Israelites who
+disobeyed God's command. This placing of the blood on the door by the
+Israelites was the only way they could be safe which represents the fact
+that there is only one way to heaven and that is by the blood of Jesus.
+The LORD himself would pass over the houses and if the blood was on the
+door, then he forbad the destroyer from killing the firstborn. The LORD
+saw the blood as representative of his Son Jesus and his future death on
+the cross. The destroyer was most likely Satan himself, but as always
+Satan could not touch those who were covered by the blood of the lamb
+representative of Jesus' blood just as he today cannot touch the
+everlasting souls of those who are washed in the blood of Jesus. The
+hyssop is a small minty plant that was required to be dipped in the blood
+in order to spread the blood. The hyssop is seen throughout scripture as
+being used to cleanse, such as someone who had touched a dead body.
+(Numbers 19:18 And a clean person shall take hyssop, and dip it in the
+water, and sprinkle it upon the tent, and upon all the vessels, and upon
+the persons that were there, and upon him that touched a bone, or one
+slain, or one dead, or a grave:) The hyssop seems to be representative of
+the people transferring their sins to the blood and the blood being
+transferred back to them as a washing and cleansing away of their sins.
+This was only symbolic rather than actually cleansing them, but
+represented the future cleansing of sin by Jesus. Jesus was given vinegar
+on hyssop when he was on the cross just before he died. The vinegar
+represents the sin of the world and God's wrath because of that sin. Jesus
+was symbolically transferring by the hyssop the sins of the world and the
+wrath of God upon himself as he drank the vinegar. Vinegar is bitter just
+as sin is. After drinking Jesus said it is finished and died. Once Jesus
+took upon the sins of the world it was finished and his work on the cross
+completed. (John 19:29-30 Now there was set a vessel full of vinegar: and
+they filled a spunge with vinegar, and put it upon hyssop, and put it to
+his mouth.
+30When Jesus therefore had received the vinegar, he
+said, It is finished: and he bowed his head, and gave up the ghost.) The
+Israelites were commanded to only kill a lamb for this passover. This lamb
+had to be without blemish and was to be eaten with bitter herbs. The
+bitter herbs represent the vinegar that Jesus drank while he was on the
+cross. The lamb had to be a male without blemish since it represented
+Jesus who was perfect and without sin. (Exodus 12:3-10 ¶ Speak ye unto all
+the congregation of Israel, saying, In the tenth day of this month they
+shall take to them every man a lamb, according to the house
+of their fathers, a lamb for an house:
+4 And if the household be too little for the lamb, let him and his
+neighbour next unto his house take it according to the number of the
+souls; every man according to his eating shall make your count for
+the lamb.
+5 Your lamb shall be without blemish, a male of the first year: ye shall
+take it out from the sheep, or from the goats:
+6 And ye shall keep it up until the fourteenth day of the same month: and
+the whole assembly of the congregation of Israel shall kill it in the
+evening.
+7 And they shall take of the blood, and strike it on the two side posts
+and on the upper door post of the houses, wherein they shall eat it.
+8 And they shall eat the flesh in that night, roast with fire, and
+unleavened bread; and with bitter herbs they shall eat it.
+9 Eat not of it raw, nor sodden at all with water, but roast with fire;
+his head with his legs, and with the purtenance thereof.
+10 And ye shall let nothing of it remain until the morning; and that which
+remaineth of it until the morning ye shall burn with fire.) (II
+Corinthians 5:21 For he hath made him to be sin for us, who knew no sin;
+that we might be made the righteousness of God in him.) The people took
+this lamb from the flock on the tenth day of the month and kept it in
+their house until it was killed on the fourteenth. By this time they would
+become attached to the lamb. This makes it harder to kill. This is
+representative of Jesus and his entrance to Jerusalem on the tenth of
+Nisan or Palm Sunday. Jesus was chosen or selected to be king, but he
+refused. Jesus died as our passover lamb on passover on the 14^th of
+Nisan, having been selected on the tenth on the same day that the Jews
+would have chosen their lamb. (I Corinthians 5:7 Purge out therefore the
+old leaven, that ye may be a new lump, as ye are unleavened. For even
+Christ our passover is sacrificed for us:) The Israelites were told to be
+dressed and be ready to leave at an instants notice. This is
+representative of the fact that we always need to be ready for the rapture
+and the return of Jesus at a moment's notice as well as be ready for the
+attack of Satan. Those families who shared the passover lamb is symbolic
+of sharing Jesus with our neighbors. Jesus as the Lamb of God took away
+the sins of the world. (John 1:29 ¶ The next day John seeth Jesus coming
+unto him, and saith, Behold the Lamb of God, which taketh away the sin of
+the world.)
 
-Reset password
+The feast of unleavened bread immediately follows the passover and is
+seven days long. The Israelites had to prepare unleavened bread for the
+night of the first passover as they had to be ready to leave at a moment's
+notice and did not have time for the bread to rise. Leaven in scripture is
+representative of sin and Jesus as the perfect sacrifice had no sin which
+is represented by this bread. Also when a person gets saved, they are
+washed in the blood of Jesus and so they are without sin in the eyes of
+God even though we still sin after being saved, but God only sees the
+blood of Jesus and not our sin. (Revelation 1:5 And from Jesus
+Christ, who is the faithful witness, and the first begotten of the dead,
+and the prince of the kings of the earth. Unto him that loved us,
+and washed us from our sins in his own blood,) We saw in I Corinthians 5:7
+how we became unleavened after being washed in the blood of Jesus. The
+Israelites were not to have any leaven around in the house or elsewhere
+for the seven days of the feast. On the seventh and last day of the feast
+the Israelites were to have a feast to the LORD. The feast of the first
+fruits is also during this time with it occurring on the first day after
+the weekly sabbath. (Leviticus 23:10-11 Speak unto the children of Israel,
+and say unto them, When ye be come into the land which I give unto you,
+and shall reap the harvest thereof, then ye shall bring a sheaf of the
+firstfruits of your harvest unto the priest:
+11 And he shall wave the sheaf before the LORD, to be accepted for you: on
+the morrow after the sabbath the priest shall wave it.) Fifty days after
+the feast of first fruits is the feast of weeks or Pentecost.  
+
+The passover is eaten at sunset when the new day starts in the Hebrew
+world. This is the hour that is spoken of in scripture that Jesus told his
+disciples to have the passover meal ready for the hour. The Last Supper
+was the passover meal eaten by the disciples.
+
+Today in Israel, before the passover the house is cleansed of all
+leaven (yeast). Usually a small amount is left and "hidden" so a child can
+search the house and find it and rid the house of the last of the leaven.
+After the house is cleansed just before the start of the passover meal,
+the head woman lights candles and says a blessing. The man then makes sure
+everyone has some of the "fruit of the vine" or wine in a cup. The seder
+as the meal is called is divided into four parts with the people drinking
+four times from the cup. The four drinks or cups are known as the cup of
+sanctification which remembers "I will bring you out of Egypt", the cup of
+plagues remembers "I will deliver you from their bondage", the cup of
+redemption remembers "I will redeem you", and the cup of praise (Hallel)
+remembers "I will take you for my people". (Exodus 6:6-7 Wherefore say
+unto the children of Israel, I am the LORD, and I will bring you out from
+under the burdens of the Egyptians, and I will rid you out of their
+bondage, and I will redeem you with a stretched out arm, and with great
+judgments:
+7 And I will take you to me for a people, and I will be to you a God: and
+ye shall know that I am the LORD your God, which bringeth you out from
+under the burdens of the Egyptians.) After the blessing of the first cup
+the people would do a ceremonial hand washing. It was at this time that
+Jesus took a towel and washed the disciples feet. Next parsley is passed
+around as one of the bitter herbs. They dip the parsley into salt water.
+The green parsley is said to represent our lives and the salt water our
+tears. During this first cup session this is when the Afikomen is removed
+from the matzah bag or bread bag which contains three pieces of bread. The
+afikomen is the middle piece of bread. The head male takes this middle
+piece and breaks it in half and wraps one half in a white linen cloth and
+hides it. During the second cup session the head of the house takes
+another piece of bread and says this is the bread of our affliction
+representing how the body of Jesus as the bread of life was afflicted and
+pierced on the cross. This bread is passed around and each person breaks
+off a piece. After this comes the second partaking of bitter herbs. This
+time the head of the house takes a piece of bread and dips it in
+horseradish with enough on it to bring tears to his eyes when he eats it.
+This bread is then passed around for all to do the same thing. This may be
+the point when Jesus mentioned the coming betrayal by one of the apostles
+who of course was Judas Iscariot. A mixture of chopped apples and spices
+or charoseth is put on bread and a bite eaten and then passed around for
+all to do the same. This mixture represents the mortar and labor used to
+make bricks in Egypt. The sweet food reminds the Jewish people that their
+labor seems sweet as their redemption draws near. They also eat a
+hardboiled egg that reminds them the temple is no more. At the end of the
+passover meal, the children look for the "missing afikomen" the middle
+piece of bread that was removed and hidden. This middle piece represents
+Jesus as the second person of the Godhead with the other two pieces
+representing God the Father and the Holy Ghost. The afikomen had been
+wrapped up before being hidden which represents Jesus being wrapped in a
+shroud and buried in the tomb for three days. After the child finds the
+afrikomen which represents Jesus' resurrection, the bread is broken into
+pieces and a piece given to all to be eaten which is meant as a reminder
+that God has broken their bondage and redeemed them at passover. This is
+the last of the food to be eaten as Jesus is all we need. This was the
+bread that Jesus broke at the Last Supper representing his soon to be
+broken body on the cross for our sins. The third cup is also drunk at this
+time. It was this third cup that Jesus was drinking when he instituted the
+Lord's supper or communion. The third cup with red wine represents the
+blood of Jesus that he shed on the cross for us. (Luke 22:20 Likewise also
+the cup after supper, saying, This cup is the new testament in my blood,
+which is shed for you.) After the meal the Jews say more prayers and then
+sing a hymn which is Psalms 113-118, the same hymn Jesus sang with his
+disciples at the Last Supper and then they drink the fourth cup. This hymn
+contains Psalm 118:22 which is the part about Jesus being the cornerstone
+that the builders rejected speaking of how the Jews rejected Jesus as
+their Messiah at his first coming. (Psalm 118:22 The stone which the
+builders refused is become the head stone of the corner.) The fourth cup
+or Hallel is sometimes known as Elijah's cup. The Jews will set an empty
+chair at the table directly across from the head of the house. The Jews
+believe that Elijah will come at passover in announcing the coming
+Messiah. They get this from Malachi 3:1. (Malachi 3:1 Behold, I will send
+my messenger, and he shall prepare the way before me: and the Lord, whom
+ye seek, shall suddenly come to his temple, even the messenger of the
+covenant, whom ye delight in: behold, he shall come, saith the LORD of
+hosts.) This verse is actually speaking of the then future coming of John
+the Baptist who prepared the way for the first coming of Jesus. Jesus
+himself said that it was John the Baptist. (Matthew 17:10-13 And his
+disciples asked him, saying, Why then say the scribes that Elias must
+first come?
+11 And Jesus answered and said unto
+them, Elias truly shall first come, and restore all things.
+12 But I say unto you, That Elias is come already, and they knew him not,
+but have done unto him whatsoever they listed. Likewise shall also the Son
+of man suffer of them.
+13 Then the disciples understood that he spake unto them of John the
+Baptist.) Elijah will come just before the return of Jesus at his second
+coming just as it is told in Malachi 4:5. (Malachi 4:5 ¶ Behold, I will
+send you Elijah the prophet before the coming of the great and dreadful
+day of the LORD:) John the Baptist was the forerunner or type of Elijah
+who preceded the first coming of Jesus and Elijah will the second coming.
+Elijah along with Moses will be one of the two witnesses during the
+tribulation. At the end of passover the Jews open the front door and look
+outside for Elijah. When they do not see him they say "next year in
+Jerusalem", not understanding that Jesus their Messiah has already come.
+
+Scripture seems to tell of a future event that most likely will happen on
+passover as the Jews have a great exodus from Russia just as they did from
+Egypt. It seems that one day they will celebrate the exodus from Russia in
+place of the exodus from Egypt on passover. These Russian Jews will return
+to the land of Israel. This may occur because of the Battle of Gog and
+Magog when Russia attacks and invades Israel along with many Muslim
+nations and God intervenes supernaturally just as he did in Egypt. Many
+Jews have been leaving Russia for years, but scripture seems to tell of
+one great final exodus. (Jeremiah 31:8 Behold, I will bring them from the
+north country, and gather them from the coasts of the earth, and with them
+the blind and the lame, the woman with child and her that travaileth with
+child together: a great company shall return thither.) This exodus seems
+to also include Jews coming back to Israel from all over the world so it
+may be after Israel signs the "peace" treaty with the antichrist.
+(Jeremiah 16:14-15 ¶ Therefore, behold, the days come, saith the LORD,
+that it shall no more be said, The LORD liveth, that brought up the
+children of Israel out of the land of Egypt;
+15 But, The LORD liveth, that brought up the children of Israel from the
+land of the north, and from all the lands whither he had driven them: and
+I will bring them again into their land that I gave unto their fathers.)
+In scripture the land of the north is Russia as all directions are from
+Jerusalem and the nation farthest north is Russia.
+
+We see that passover clearly represents Jesus in all of the things
+that are done. This is just the first feast of many throughout the Jewish
+year that point the Jewish people to their Messiah, Jesus Christ. I pray
+that any Jews who are not saved that they will look at the Jewish feasts
+and see how they point to Jesus and get saved so that you can truly enjoy
+the feasts with spiritually opened eyes realizing the symbolism behind
+them. Call upon Jesus now.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,499 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+False Religion of Judaism
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Many people do not realize that Judaism is a false religion as much
+as Islam, Hinduism, Buddhism, or the many other false religions. Judaism
+is not the religion of the Israelites as mentioned in the old testament.
+The Israelites that followed God's commands in the old testament were
+following the true religion or true beliefs of God. This was continued by
+Christianity. The Jews over time started changing what God commanded them
+to do and as all religions started adding to it. Today it is a dead
+religion that any Jew following it will end up in hell as much as a Muslim
+following Islam. I often preach that we need to bless the Jewish people
+and to pray for them and support them as this is what scripture commands
+us to do. This is still true, but we also need to warn the Jews that their
+religion is a dead religion and that it is not the same beliefs that God
+gave to Moses. We are to support Israel, but that does not mean we condone
+everything they do or the false beliefs of Judaism. Few preachers have the
+courage to tell the truth about Judaism. Many just believe that
+Christianity came from it. True Christianity came from the laws of Moses,
+but never contained the false beliefs of Judaism. God never started
+Judaism. Judaism is man's attempt to "improve" on what God did. Just as
+the Israelites were not satisfied with God as their king but wanted a man,
+the Jews were not satisfied with the worship that God gave them and made
+their own religion which is Judaism.
 
-Username or email _____________________
+Judaism is named after the nation of Judah which was named for one of
+the sons of Israel. After king Solomon died the twelve tribes of Israel
+were divided into two separate kingdoms. The ten northern tribes became
+Israel and the two southern tribes of Judah and Benjamin along with the
+Levites became the nation of Judah. Judaism became a distortion of the
+true beliefs that God gave to the Israelites. The nation of Israel was
+full of sin and was taken captive by the Assyrian empire and the people
+were spread all over the world. Judah lasted for a little longer, but her
+sin was just as worse if not even worse. She was taken captive by the
+Babylonians for 70 years which would influence her beliefs.
 
-Reset password
+By the time of Jesus the Jews had added much tradition to their
+beliefs with tradition overriding what scripture said. A good example is
+how the Pharisees had added many extra laws to the sabbath from what God
+commanded. The sabbath had become a burden to the people rather than a day
+of rest and worship of God. The Jews added the Talmud to the writings of
+the old testament. Many of the traditions and false teachings of Judaism
+come from the Talmud. There are actually two Talmuds. The main one is the
+Babylonian Talmud which came about around A.D. 200. This is where most of
+their beliefs come from. The second Talmud came about around A.D. 400 and
+is known as the Talmud of the Land of Israel or the Jerusalem Talmud. Both
+Talmuds contain both a Mishnah and a Gemara. These two Talmuds do not
+agree in places which shows they are not inspired by God. Together these
+two books make up what is known as the Talmud. The Talmud according to the
+World Book Encyclopedia is "a collection of legal and ethical writings, as
+well as Jewish history and folklore. It serves primary as a guide to the
+civil and religious laws of Judaism. Orthodox Jews believe the laws in the
+Talmud were given to Moses by God and passed down orally from generation
+to generation." It was in 200 that these oral laws were written down as
+the Mishnah. Later on scholars explained the Mishnah and their
+interpretations were written down as the Gemara and these two books
+together make up the Talmud. God warned about avoiding these Jewish
+fables. (I Timothy 1:4 Neither give heed to fables and endless
+genealogies, which minister questions, rather than godly edifying which is
+in faith: so do.) (Titus 1:14 Not giving heed to Jewish fables, and
+commandments of men, that turn from the truth.) (II Peter 1:16 For we have
+not followed cunningly devised fables, when we made known unto you the
+power and coming of our Lord Jesus Christ, but were eyewitnesses of his
+majesty.) II Peter 1:16 shows true Christianity never came from Judaism.
+One of the factors that brought about the Talmud was Jesus. As many Jews
+and Gentiles turned to Jesus and got saved, the Jews who as a whole
+rejected Jesus as the Messiah felt they needed to save their religion. The
+Jews had already long been corrupting the beliefs with oral tradition of
+which Jesus often condemned them over. It was due to this corruption by
+the Pharisees and other leaders over time that they were blinded to
+realize that Jesus was their Messiah. The Jews had made tradition of more
+importance than what scripture said. Besides the Talmud the Jews have the
+old testament which they refer to as the Tanakh with the first five books
+of Moses (Genesis to Deuteronomy) as the Torah. Most Jews only read the
+Torah and much of the rest is ignored except parts at certain times. Any
+parts that show Jesus as the Messiah especially Isaiah 53 are ignored and
+are not to be read. Today the Talmud is more important than the Bible.
+Many of the traditions that God condemned the Jews over are contained in
+the Talmud showing the Jews never learned. In Judaism with the Talmud and
+specifically the Gemara, man's words have become greater than God's word.
+The Jewish bible contains the same as our old testament except that we
+divide it into 39 books and the Hebrew bible is made up of 24 books. They
+combine I and II Samuel into one book and do the same to I and II Kings
+and I and II Chronicles. Ezra and Nehemiah are combined as one book and
+the twelve minor prophets as one book. 
+
+We need to understand that today there are many Jews who are of
+Jewish heritage, but are very secular and many consider themselves
+atheists and do not belong to Judaism. These Jews are often very liberal.
+The Jew Karl Marx started communism and many Jews are very liberal and
+support the New World Order. Then there are Jews who say they belong to
+the religion of Judaism. Judaism just like Christianity or Islam has
+different sects or denominations. During the days of Jesus, you had
+different groups from today such as the Pharisees and scribes, Sadducees,
+Herodians, Zealots, Essences (who stashed the dead sea scrolls), and
+Christianity which until the time of the destruction of the temple in AD
+70 was considered a sect and was known as the Nazarene sect. (Acts 24:5
+For we have found this man a pestilent fellow, and a mover of sedition
+among all the Jews throughout the world, and a ringleader of the sect of
+the Nazarenes:) The religion of the Jews was not referred to as Judaism at
+that time, but just the Jewish religion and the people as Jews. Today
+Judaism is made up of Orthodox Jews with a subgroup known as the
+ultraorthodox. These Jews are the strictest Jews who try and follow all
+the laws of the Talmud and will not even turn on a light switch on the
+sabbath. They refuse to do military service. Some other subsects of
+Orthodoxy Judaism are the Hasidic Jews who are very hard to reach for
+Jesus. The Orthodox Jews highly follow the teachings of Rabbi Moses ben
+Maimon better known as Maimonides and his teachings known as Maimonides 13
+principles. Maimonides lived in the 1100's. His teachings have superseded
+scripture. Orthodox Jews wear special clothing. Conservative Judaism is
+not as strict as the Orthodox. They believe that oral law is divine and
+that the rabbis can interpret both the written and oral law. Reformed
+Judaism is often referred to as Liberal or Progressive Judaism in many
+countries. Reformed Judaism was started in the 1800's and rejects most of
+the ritual and ceremonial laws of the Torah. Reformed Judaism emphasizes
+Jewish tradition. This sect makes up most Jews as most Jews are also
+politically liberal. Reconstructionist Judaism is similar to reformed
+Judaism but lets the community decide what observances to follow. This
+shows how Jews do not obey scripture but make up their own rules. A small
+amount of Jews belong to Humanistic Judaism which denies God but
+emphasizes Jewish culture and history. These Jews obviously have forgotten
+that it was God that provided that history. There are a few other small
+groups. Messianic Jews are Jews who have received Jesus as their Saviour,
+but consider themselves Jews and they still follow Jewish customs. They
+are not recognized as part of Judaism by the Jewish religious leaders as
+they deny Jesus and despise him even today. A few groups in between the
+sects of the days of Jesus and today that no longer exist are the
+Sephardic Jews and the Ashkenazi Jews.  
+
+Jews worship in synagogues and the leaders are called rabbis. Jews
+were never intended to have synagogues. God gave them first the tabernacle
+and then the temple and worship was to have been done at the temple in
+Jerusalem. As time went by especially after the diving of Israel into two
+kingdoms then synagogues became important as the northern tribes were
+forbidden from going to the temple in Jerusalem by the evil kings. The
+Jews will rebuild the temple during the tribulation and will restart
+animal sacrifices. Since the Jews have not had a temple since AD 70 and
+cannot perform animal sacrifices to what they believed removed their sins,
+they have made works as the way of salvation. All false religions have
+works as the way to heaven. Jews are forbidden to mention the name of
+Jesus or to learn about him. Jesus is Yeshua in Hebrew. Family members
+will often punish another one who is caught reading the new testament or
+talking about Jesus. When one gets saved they are usually shunned by the
+rest of the family as a traitor to Judaism.
+
+Judaism does retain some of the beliefs of Christianity such as the
+worship of one God, the Genesis account of creation, and other stories and
+beliefs. Many liberal Jews accept evolution. Judaism just like
+Christianity is a monotheistic religion and both claim rightfully descent
+from Abraham. Judaism differs in the rejection of the new testament as
+well as in the rejection of the Godhead (trinity). Judaism denies Jesus is
+God as well as being the Son of God and the Messiah. Judaism denies the
+Holy Ghost is a person. Remember some of the Jewish believers in the old
+testament rightfully believed the same as we do, but that Judaism is a
+distortion of what God gave to the Jewish people and is a false religion.
+Judaism accepts the old testament, the Talmud, various rabbis and
+traditions for their beliefs, while rejecting the new testament. Judaism
+has rejected some of the things in the old testament. Judaism agrees with
+Christianity by believing man was created in God's image and man is fallen
+due to Adam's sin and needs salvation. In Judaism sin is disobeying the
+laws in the old testament. Remember the Pharisees added many manmade laws
+as well. Salvation in Judaism is by one's works and obeying Biblical and
+rabbinical laws and will also be by future animal sacrifices.
+
+Judaism has not only added to God's word with the Talmud, but has
+made tradition of more importance than the word of God. Judaism rejects
+the new testament and Jesus and has minimized much of the old testament as
+well. I mentioned how works have become the way of salvation and Jews look
+forward to the day that the temple is rebuilt and animal sacrifices
+restarted. Sacrifices will never save you, only the blood of Jesus.
+(Hebrews 10:4 For it is not possible that the blood of bulls and of goats
+should take away sins.) All false religions have work for their salvation.
+Scripture says we are saved by grace through faith, not works. A person's
+faith must be placed in Jesus, not themselves. (Ephesians 2:8-9 For by
+grace are ye saved through faith; and that not of yourselves: it is the
+gift of God:
+9Not of works, lest any man should boast.) Most Jews in reality know very
+little about what is in scripture (old testament) and most do not care to
+know. The day will come at the end of the tribulation that the remaining
+one third of Jews who are still alive will all be saved. (Zechariah 13:8-9
+And it shall come to pass, that in all the land, saith the LORD, two parts
+therein shall be cut off and die; but the third shall be left therein.
+9 And I will bring the third part through the fire, and will refine them
+as silver is refined, and will try them as gold is tried: they shall call
+on my name, and I will hear them: I will say, It is my people: and they
+shall say, The LORD is my God.) Jews have little hope for salvation and
+they only hope they will get to heaven. By trusting what God taught Moses
+they could know they will go to heaven if they trust and believe in Jesus.
+Judaism has distorted God's word so that today Jews have no assurance of
+going to heaven. Scripture says that those who trust in Jesus as their
+Saviour can know they will go to heaven. (I John 5:13 These things have I
+written unto you that believe on the name of the Son of God; that ye may
+know that ye have eternal life, and that ye may believe on the name of the
+Son of God.) Due to Judaism's hatred for Jesus they have intentionally
+dropped years from their calendar. The Jewish calendar is supposed to be
+based off of the date of creation yet many years were dropped so it would
+not match up with Jesus. Their calendar in 2022 is the year 5778 when it
+should be just under 6000. Many of the Jewish feasts have had customs
+added to them by the Jews over the years that God never ordained. In
+summary Judaism is a false religion as it adds to God's word (Talmud) as
+well as removes from God's word (new testament) and salvation is by works
+and Judaism rejects Jesus as her Messiah.  
+
+The Star of David is the symbol used for Israel and Judaism and is on
+the flag of Israel. The Star of David is made up of two triangles
+overlapping with one pointing up that supposedly represents God and one
+pointing down that supposedly represents man. This symbol is not from God
+and God never gave it to the Jewish people to use. In fact God condemned
+its use. This again shows that Judaism is a false religion. These verses
+may be speaking of the symbol being used by the Jews or at least a similar
+one. The star represented false gods worshipped by the Jews and their
+neighbors. Solomon married many wives that worshipped these false gods.
+Sometimes the Star of David is associated with Solomon which makes sense
+as he had been influenced by false gods. The Seal of Solomon is believed
+to have been nothing more than the Talisman of Saturn. Satanists and
+Freemasons love Solomon. (Amos 5:26 But ye have borne the tabernacle of
+your Moloch and Chiun your images, the star of your god, which ye made to
+yourselves.) (Acts 7:43 Yea, ye took up the tabernacle of Moloch, and the
+star of your god Remphan, figures which ye made to worship them: and I
+will carry you away beyond Babylon.) It does seem that God may be giving
+us a clue that Solomon may have used the hexagram for sinful worship as he
+collected the same amount of gold annually as the number of the beast in
+Revelation. (I Kings 10:14 ¶ Now the weight of gold that came to Solomon
+in one year was six hundred threescore and six talents of gold,)
+(Revelation 13:18 Here is wisdom. Let him that hath understanding count
+the number of the beast: for it is the number of a man; and his number is
+Six hundred threescore and six.) I do not believe that it is a coincidence
+that Solomon is connected to the mark of the beast. Remember the Roman
+Catholic Church which will give us the antichrist uses the same symbol.
+The papal mitre even has the symbol on it as do many Roman Catholic
+churches and other things in Roman Catholicism. The Star of David is
+nothing more than a hexagram which is used by Satanists, Luciferians,
+witches, Freemasons, astrologers, New Agers, other occultists, and the
+Roman Catholic Church whose pope will be the antichrist as well as by
+Mormons and others. The fact that even the Roman Catholic Church uses the
+Star of David shows it is not a Jewish symbol. No scripture backs up David
+using it so by calling it the Star of David is just a way to deceive
+people about the true origin and meaning of it. The Star of David is
+essentially a double pyramid which is highly representative in Freemasonry
+which is Satanism in disguise. Many secular Jews have been Freemasons or
+belonged to other satanic organizations such as the Illuminati that are
+working on bringing in the New World Order. The Star of David consists of
+six points, six triangles, six sides of the hexagon and represents the
+number of the beast which is 666. The six pointed star is always satanic.
+Satanists use the Star of David to represent 666 so it is not speculation.
+The Star of David is used by witches to call devils. In fact witches are
+said to place a "hex" (curse) on people and this saying comes from
+hexagram. Some Satanists have said it is necessary to have a hexagram
+present in order to call forth devils. The horns of the Freemason god
+Baphomet who represents Satan can be seen on the points of the top
+triangle which points downward. I mentioned how the two triangles are
+supposed to represent God and man. This is similar to in Freemasonry where
+Baphomet points up and down and they say "as above, so below". This
+references Satan, not God. Mystical Kabbalist Jews in the Dark Ages are
+known to have used the Star of David. These Jews were into the occult. The
+Jewish Rothschild family, of whom most were Satanists, has a long
+connection with the New World Order and their family symbol is a red
+hexagram and they are controlled by the Jesuits and they control much of
+the world's finances. Israel today is secretly controlled by the Roman
+Catholic Jesuits who are bringing in the New World Order and control the
+world's wealth. This is one of the reasons for the Star of David on the
+national flag as well as the fact that many of the Jewish leaders are
+Freemasons and Illuminati. The Star of David is placed on Jewish
+synagogues. This was supposedly done to match the Christian cross, but in
+reality marks them as servants of Satan and Judaism as a false religion.
+
+Because Israel and the Jews have rejected Jesus, God has blinded them
+since the death and resurrection of Jesus until his second coming. (II
+Corinthians 3:13-16 And not as Moses, which put a vail over his face, that
+the children of Israel could not stedfastly look to the end of that which
+is abolished:
+14 But their minds were blinded: for until this day remaineth the same
+vail untaken away in the reading of the old testament; which vail is done
+away in Christ.
+15 But even unto this day, when Moses is read, the vail is upon their
+heart.
+16 Nevertheless when it shall turn to the Lord, the vail shall be taken
+away.) This does not mean that individual Jews cannot be saved as many
+have, but the Jewish people as a whole are spiritually blind. They
+rejected Jesus because they listened to their religious leaders and
+followed tradition rather than the word of God in recognizing that their
+Messiah was in front of them in Jesus. I plead with any Jews that may be
+listening to search out the whole of scripture in the old and new
+testaments and see how Jesus fulfilled all of the Messianic prophecies.
+You may go to my website at www.jesusisgodandlordministries.com and look
+under the section For Precious Jewish Souls for more information including
+a listing of many of the prophecies fulfilled by Jesus. Precious Jewish
+soul, you must realize that Judaism is a dead and false religion that will
+not save you and being Jewish will not save you either nor your works or
+sacrifice of animals or fulfilling the feasts. You must admit that you are
+a sinner, we have all broken the ten commandments, and then realize that
+you cannot save yourself and need a Saviour and that Saviour is Jesus.
+Jesus was a Jew and one of you. He is not an evil man as Jewish religious
+leaders have taught that you are to avoid. Only you will answer before God
+for your decision, not your religious leaders, family, or friends as they
+will answer for themselves. Call upon Jesus to save you now before it is
+eternally too late. (John 3:16 ¶ For God so loved the world, that he gave
+his only begotten Son, that whosoever believeth in him should not perish,
+but have everlasting life.)     
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

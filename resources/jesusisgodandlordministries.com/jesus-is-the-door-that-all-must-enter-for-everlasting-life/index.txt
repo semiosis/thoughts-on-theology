@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,468 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus is the door that all must enter for everlasting life
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Jesus is the door that all must enter through for eternal life. Jesus
+is the only door. There is no other door that a person may enter for
+eternal life. The Holy Bible has several types representative of Jesus as
+the door for everlasting life.
 
-Username or email _____________________
+The first type in scripture is the door on Noah's ark. Genesis 6-9
+tells of the story of the global flood of Noah's day [it was global unlike
+how many people believe it was a local flood] and how God commanded Noah
+to build an ark. The people of the world had become so wicked and had been
+corrupted by the angels who reproduced with women producing the giants
+that God wished he had never made man on the earth. Noah was a just man
+and had found grace in God's eyes. (Genesis 6:4-8 4 There were giants in
+the earth in those days; and also after that, when the sons of God came in
+unto the daughters of men, and they bare children to them, the
+same became mighty men which were of old, men of renown.
 
-Reset password
+5¶ And GOD saw that the wickedness of man was great in the earth,
+and that every imagination of the thoughts of his heart was only evil
+continually.
+6 And it repented the LORD that he had made man on the earth, and it
+grieved him at his heart.
+7 And the LORD said, I will destroy man whom I have created from the face
+of the earth; both man, and beast, and the creeping thing, and the fowls
+of the air; for it repenteth me that I have made them.
+8 But Noah found grace in the eyes of the LORD.) God decided to save Noah
+and those who would repent and listen to Noah's preaching. God commanded
+Noah to build an ark 300 cubits long by 50 cubits wide by 30 cubits tall.
+Most people say this is 450 feet long by 75 feet wide and 45 feet tall
+based on an 18 inch cubit, but I believe there is evidence to show it was
+most likely built based on the royal cubit of 20.6 inches making the ark
+515 feet long by 86 feet wide by 51.5 feet tall [156.9 meters long by 26.2
+meters wide by 15.6 meters tall]. The ark was to be built with only one
+door and God said that only those on the ark would survive the flood. Noah
+was to bring animals on the ark and his wife, three sons and their wives.
+Anyone else that called on God for salvation could also enter the ark and
+be saved, but all ignored the plea and warning and perished. (Genesis
+6:15-16 15 And this is the fashion which thou shalt make it of: The length
+of the ark shall be three hundred cubits, the breadth of it fifty cubits,
+and the height of it thirty cubits.
+16 A window shalt thou make to the ark, and in a cubit shalt thou finish
+it above; and the door of the ark shalt thou set in the side
+thereof; with lower, second, and third stories shalt thou make it.) There
+was only one door on the ark as it represented that there is only one door
+in Jesus for salvation. Those outside the ark perished and those inside
+the ark were saved. God himself closed the door and was in the ark with
+Noah and his family. (Genesis 7:16 And they that went in, went in male and
+female of all flesh, as God had commanded him: and the LORD shut him in.)
+Jesus is always with those who enter the door through him as he lives
+within them. God called Noah and his family into the ark and he calls all
+people to come to him today for salvation. (Genesis 7:1 And the LORD said
+unto Noah, Come thou and all thy house into the ark; for thee have I seen
+righteous before me in this generation.) There was only one door that
+could save those on earth at that time and that was the single door of the
+ark. Just as Noah and his family entered through one door to be saved, so
+must everyone also enter only one door in Jesus to be saved. Jesus
+provided mercy to Noah and his family even in his time of judgment on the
+earth and he will provide mercy today to all of those who call upon Jesus
+to save them.  
+
+Just before God sent the last of the ten plagues on Egypt, God
+commanded the Israelites to sacrifice an unblemished lamb and to spread
+the lamb's blood on the top and sides of the door posts that went into
+their houses. This instituted the feast of passover. (Exodus 12:5 Your
+lamb shall be without blemish, a male of the first year: ye shall
+take it out from the sheep, or from the goats:) (Exodus 12:7 And they
+shall take of the blood, and strike it on the two side posts and on the
+upper door post of the houses, wherein they shall eat it.) If an Israelite
+obeyed the command then when the angel passed over the door, those inside
+the house would live, but if the blood was not there the tenth plague of
+the death of the firstborn would apply to that house just as it would to
+the Egyptians. (Exodus 12:13 And the blood shall be to you for a token
+upon the houses where ye are: and when I see the blood, I will pass over
+you, and the plague shall not be upon you to destroy you, when I smite the
+land of Egypt.) This passover door was a type of the door of Jesus. The
+lamb without blemish that was sacrificed was a type of the sinless Jesus
+who was our passover lamb and was called the Lamb of God. (I Corinthians
+5:7 Purge out therefore the old leaven, that ye may be a new lump, as ye
+are unleavened. For even Christ our passover is sacrificed for us:) (John
+1:29 ¶ The next day John seeth Jesus coming unto him, and saith, Behold
+the Lamb of God, which taketh away the sin of the world.) (II Corinthians
+5:21 For he hath made him to be sin for us, who knew no sin; that we might
+be made the righteousness of God in him.) The blood on the door posts was
+in the shape of a cross and represented the fact that only the blood of
+Jesus that he shed for us on the cross of Calvary will wash away our sins.
+The cross was the door that allowed man to be reconciled with Jesus and
+opened the door to eternal life. Just as the Israelites who obeyed God's
+command were spared the tenth plague and the death of the firstborn, those
+who obey God and call upon Jesus to save them will be saved. The
+Israelites had only one passover door, just as Jesus is the only door for
+salvation.
+
+The door [vail] in the temple and the tabernacle that entered into
+the holy of holies was a type of Jesus. There was only one door into the
+holy of holies. The holy of holies was a place that only the high priest
+could enter and only once a year on the day of atonement [known as Yom
+Kippur today] which was on the tenth day of the seventh month [normally
+September, but sometimes October]. Yom Kippur is considered the holiest
+day of the year by Jews, even by Jews who are not religious. On this day
+the high priest had to make a sacrifice for himself [a bull] and for the
+nation of Israel [a goat]. (Leviticus 16:11 And Aaron shall bring the
+bullock of the sin offering, which is for himself, and shall make an
+atonement for himself, and for his house, and shall kill the bullock of
+the sin offering which is for himself:) (Leviticus 16:15 ¶ Then shall he
+kill the goat of the sin offering, that is for the people, and bring his
+blood within the vail, and do with that blood as he did with the blood of
+the bullock, and sprinkle it upon the mercy seat, and before the mercy
+seat:) The blood had to be placed upon the mercy seat which was located on
+the top of the ark of the covenant. This blood sacrifice allowed the
+peoples sins to be covered by the blood for forgiveness for the year by
+God's mercy and was symbolic of the future sacrifice of Jesus on the
+cross. This blood did not save the people, but pointed to Jesus and his
+death on the cross. When Jesus shed his blood for us on the cross, it no
+longer covered our sins, but washed them away for all of those who enter
+the door of Jesus by confessing they are a sinner in need of Jesus as
+their Saviour and call upon him to save them. After the high priest
+finished the sacrifice for himself and the people, he released a second
+goat into the wilderness. The high priest had two goats and had cast lots
+to see which one was sacrificed to the LORD and which one was the
+scapegoat. This scapegoat that was released into the wilderness
+represented the removal of Israel's sins that were carried away never to
+return. I believe it may be that the two goats are also representative of
+the old and new testaments with the sacrificed goat representing the old
+testament and the sacrifices which covered our sins and the law how it
+only pointed out to you that you were a sinner in need of a Saviour, but
+could not save you. The scapegoat represented the new testament with it
+representing Jesus carrying away our sins as far as the east is from the
+west as the shed blood of Jesus washes our sins away never to be
+remembered by God just as the sins on the scapegoat were never returned to
+Israel. (Leviticus 16:10 But the goat, on which the lot fell to be the
+scapegoat, shall be presented alive before the LORD, to make an atonement
+with him, and to let him go for a scapegoat into the wilderness.) The high
+priest could enter the holy of holies only through one door and only after
+the blood sacrifice of an animal. People can only enter heaven through the
+door of Jesus and only after accepting him as Saviour and his blood
+sacrifice for us. Unlike the "door" of the holy of holies which only the
+high priest could enter and only one day of the year, the door of Jesus
+can be entered every day of the year by anyone who calls upon him to save
+them.  
+
+The sheep gate (door) is represented by Jesus. Jesus is the good
+shepherd and the chief Shepherd and we are his sheep. (John 10:11 I am the
+good shepherd: the good shepherd giveth his life for the sheep.) (I Peter
+5:4 And when the chief Shepherd shall appear, ye shall receive a crown of
+glory that fadeth not away.) People are referred to as sheep by Jesus.
+Sheep are dumb animals and they need a leader. This is why everyone needs
+Jesus who is the great shepherd. (Hebrews 13:20 Now the God of peace, that
+brought again from the dead our Lord Jesus, that great shepherd of the
+sheep, through the blood of the everlasting covenant,) At night the
+shepherd would put his sheep in a sheepfold and he would sleep in front of
+the opening and thus was the door. Jesus as our shepherd said he was the
+door of the sheep. (John 10:7 Then said Jesus unto them again, Verily,
+verily, I say unto you, I am the door of the sheep.) People (sheep) need
+to pass through the door of Jesus for safety and salvation. There is no
+other door that one can enter for everlasting life. Jesus said that anyone
+who tried to enter through another door, such as by doing good works as in
+Roman Catholicism and all false religions, or who tried to lead others
+through another door, was a thief and a robber. (John 10:1 Verily, verily,
+I say unto you, He that entereth not by the door into the sheepfold, but
+climbeth up some other way, the same is a thief and a robber.) (John 10:8
+All that ever came before me are thieves and robbers: but the sheep did
+not hear them.) Jesus said the thief cometh to kill and destroy. (John
+10:10 The thief cometh not, but for to steal, and to kill, and to destroy:
+I am come that they might have life, and that they might have it more
+abundantly.) Jesus came not to destroy, but to save his sheep. (John 10:9
+I am the door: by me if any man enter in, he shall be saved, and shall go
+in and out, and find pasture.) Anyone who will call upon the Shepherd with
+sincerity to save them will be saved. All sheep (people) must enter
+through the door of the great Shepherd, the Lord Jesus Christ for
+salvation. Those who enter the door of Jesus who is the great Shepherd
+will find pasture in heaven. 
+
+The strait (narrow) gate which means narrow is the narrow way and is
+the only way to Jesus. Jesus himself said this in Matthew 7:13-14.
+(Matthew 7:13-14 13 ¶ Enter ye in at the strait gate: for wide is the
+gate, and broad is the way, that leadeth to destruction, and many there be
+which go in thereat:
+
+14 Because strait is the gate, and narrow is the way, which leadeth unto
+life, and few there be that find it.) Most people want to take the broad
+way which will lead to destruction, death, and eternity in hell and the
+lake of fire. Jesus said the narrow way was the only way to find life, but
+few would find it. All false religions as well as even many Christian
+denominations and cults such as Roman Catholicism, Eastern Orthodoxy,
+Mormonism, and Jehovah's Witnesses all lead their people on the broad way
+through the wide gate by saying there are many ways to heaven such as by
+works, through Allah, Buddha, Mary, the pope, Baptism, or any of a dozen
+other ways. They all teach that a person can get to heaven without calling
+upon Jesus to save them, but Jesus says otherwise that only he is the door
+to eternal life and it is by the strait (narrow) gate. (Ephesians 2:8-9 8
+For by grace are ye saved through faith; and that not of
+yourselves: it is the gift of God:
+9 Not of works, lest any man should boast.)  
+
+The stone door in front of the tomb of Jesus proved no obstacle to
+his resurrection. Jesus as God was able to pass through that door with no
+problem even though it was intended to keep his body inside. (Mark 15:46
+And he bought fine linen, and took him down, and wrapped him in the linen,
+and laid him in a sepulchre which was hewn out of a rock, and rolled a
+stone unto the door of the sepulchre.) Jesus as our resurrected Saviour
+was able to overcome death and defeat Satan by rising from the dead and
+passing through that door to allow all people who receive him as Saviour
+to be able to pass through the door of death as well.
+
+Now is the time to call upon Jesus for salvation, as the day will
+come when the door of Jesus is shut and it will be eternally too late.
+Jesus said in (Luke 13:24-27 24 ¶ Strive to enter in at the strait gate:
+for many, I say unto you, will seek to enter in, and shall not be able.
+
+25When once the master of the house is risen up, and hath shut to the
+door, and ye begin to stand without, and to knock at the door, saying,
+Lord, Lord, open unto us; and he shall answer and say unto you, I know you
+not whence ye are:
+
+26 Then shall ye begin to say, We have eaten and drunk in thy presence,
+and thou hast taught in our streets.
+27 But he shall say, I tell you, I know you not whence ye are; depart from
+me, all ye workers of iniquity.) Many will come knocking on the door, but
+Jesus will have it shut never to be open for them again. I am sure this
+happened to people during the flood of Noah's day, but the door of the ark
+was closed and it was too late for those on the outside. The same applies
+today for those who continue to reject Jesus as their Saviour. The day
+will come when they are no longer convicted by the Holy Ghost and will not
+be allowed to be saved as they have hardened their heart to the point of
+no return. In the parable of the ten virgins as told by Jesus in Matthew
+25, we see that the five unwise virgins had the door shut on them as they
+went to get oil for their lamps since they were not prepared for his
+coming. (Matthew 25:10-13 10 And while they went to buy, the bridegroom
+came; and they that were ready went in with him to the marriage: and the
+door was shut.
+11 Afterward came also the other virgins, saying, Lord, Lord, open to us.
+12 But he answered and said, Verily I say unto you, I know you not.
+13 Watch therefore, for ye know neither the day nor the hour wherein the
+Son of man cometh.) Once the door was shut by Jesus, it was too late for
+the five unwise virgins who missed the bridegroom of Jesus. Do not be like
+these unwise virgins who were not prepared, but be saved before the door
+is shut. Once you die the door is shut and it is too late if you have
+never entered the door of Jesus. Once you are dead, you can no longer be
+saved.
+
+When we preach the gospel of Jesus to the lost in a dying world, we
+open the door of Jesus to them. May we give them the gospel while we can
+and while there is still time. This can be as simple as giving them a
+gospel tract. Paul prayed that God would open the door for him to preach
+the gospel. (Colossians 4:3 Withal praying also for us, that God would
+open unto us a door of utterance, to speak the mystery of Christ, for
+which I am also in bonds:) God will open the door to those who are sincere
+in trying to reach the lost for Jesus. Jesus himself knocks at the door of
+every person wanting them to let him come into them as their Saviour. For
+those who truly seek to enter the door of Jesus, Jesus will always allow
+you to enter. (Revelation 3:20 Behold, I stand at the door, and knock: if
+any man hear my voice, and open the door, I will come in to him, and will
+sup with him, and he with me.) No man can shut the door of the true church
+or of the gospel though many have tried. No man can shut the door of Jesus
+and neither can Satan. Only Jesus can shut the door. (Revelation 3:8 I
+know thy works: behold, I have set before thee an open door, and no man
+can shut it: for thou hast a little strength, and hast kept my word, and
+hast not denied my name.) Everyone ever born is a sinner on a path to
+death and must decide on their own to choose to enter through the door of
+Jesus or not. (Romans 3:23 For all have sinned, and come short of the
+glory of God;) (Romans 6:23 For the wages of sin is death; but the gift of
+God is eternal life through Jesus Christ our Lord.) If there is anyone
+here today or anyone who is listening to this video that is not saved,
+please open the door of Jesus today so that you might have everlasting
+life. Jesus is the only door to everlasting life and no other door will
+give you life.      
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

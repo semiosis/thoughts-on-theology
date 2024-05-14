@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,444 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Miracles at the Crucifixion of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Five miracles will be seen that happened at the crucifixion of Jesus
+until his resurrection.
 
-Username or email _____________________
+1. The first miracle was the darkness on the whole earth.
 
-Reset password
+Matthew 27:45 Now from the sixth hour there was darkness over all the land
+unto the ninth hour.
+
+Mark 15:33 And when the sixth hour was come, there was darkness over the
+whole land until the ninth hour.
+
+(Luke 23:44 And it was about the sixth hour, and there was a darkness over
+all the earth until the ninth hour.  
+
+Luke 23:45a And the sun was darkened,)
+
+Many people try to say this was an eclipse of the sun to deny this
+miracle and that it was confined only to area around Jerusalem and Judea.
+They are wrong on both accounts. Passover always occurred during a full
+moon. A solar eclipse can only occur during a new moon. No astronomical
+records of the time mention a solar eclipse. Scripture also says the
+darkness lasted for three hours from the sixth hour to the ninth hour
+which is from noon to 3 pm. The longest ever recorded total solar eclipse
+is only about seven minutes, nowhere near three hours as occurred here and
+it did not darken the whole earth, nor do any solar eclipses.     
+
+Luke 23:44 clearly tells us this supernatural darkness covered the whole
+earth.
+
+Two Greek historians from that time wrote of the worldwide darkness.
+Both of these men were pagans, so were not recording it to try and defend
+scripture. The first was Thallus who was alive at the time of the
+crucifixion, wrote in his book Third History around A.D. 52, "that
+darkness totally covered the land at the time of the passover". In another
+place he says "On the whole world there pressed a most fearful darkness".
+The second Greek was Phlegon who lived near Ephesus. He wrote in his
+Collection of Olympiads and Chronicles, "At the sixth hour the day was
+turned into dark night, so that the stars in the heavens were seen".
+Notice he not only mentions the darkness, but even starting the same sixth
+hour as recorded in scripture. The Romans also recorded this as they were
+known for recorded events in their empire. One Roman historian wrote "At
+the same time at noonday there was a great darkness." Roman archives could
+be studied by the public.
+
+Amos prophesied of this darkness in about 750 B.C.
+
+Amos 8:9-10 9 And it shall come to pass in that day, saith the Lord GOD,
+that I will cause the sun to go down at noon, and I will darken the earth
+in the clear day:
+10 And I will turn your feasts into mourning, and all your songs into
+lamentation; and I will bring up sackcloth upon all loins, and baldness
+upon every head; and I will make it as the mourning of an only son, and
+the end thereof as a bitter day.
+
+It can be clearly seen that there was a supernatural darkness over
+the whole earth from the sixth hour to the ninth hour. This was no
+ordinary darkness, but as one historian said a great and fearful darkness.
+The reason as stated could not be from an eclipse. Jesus is the light of
+the world. (John 8:12, John 9:5, Revelation 21:23 et cetera) Jesus was on
+the cross from the third to the ninth hours (9 am to 3 pm). For the final
+three hours, God the Father could not look upon his Son Jesus as Jesus
+bore the sins of the whole world for all who will ever live. Jesus was
+dying and he is the light of the world. There was darkness for the last
+three hours of Jesus' crucifixion since it was at this point he took on
+the sins of the whole world. Sin always brings in darkness. No light in
+sin. This was the first time Jesus cried out as the pain of carrying sin
+far outweighed his physical pain from the crucifixion. Also at this time
+God the Father and God the Holy Ghost had to forsake Jesus as he took on
+the sins of the world. This hurt Jesus more than anything else. All of
+creation mourned for his death, except man who prefers darkness. (John
+3:19 And this is the condemnation, that light is come into the world, and
+men loved darkness rather than light, because their deeds were evil.).
+Mankind got the darkness they wanted.
+
+2. Jesus gave up the ghost
+
+Matthew 27:50 ¶ Jesus, when he had cried again with a loud voice, yielded
+up the ghost.
+
+Mark 15:34 And at the ninth hour Jesus cried with a loud voice, saying,
+Eloi, Eloi, lama sabachthani? which is, being interpreted, My God, my God,
+why hast thou forsaken me?
+
+Mark 15:37  And Jesus cried with a loud voice, and gave up the ghost.
+
+Luke 23:46 ¶ And when Jesus had cried with a loud voice, he said, Father,
+into thy hands I commend my spirit: and having said thus, he gave up the
+ghost.
+
+John 19:30 When Jesus therefore had received the vinegar, he said, It is
+finished: and he bowed his head, and gave up the ghost.
+
+Jesus gave up the ghost and died. He himself gave his life for you
+and me and the world. No man took it. No person can will themselves to
+death at a precise moment, even when one commits suicide. He died
+precisely at the ninth hour (3 pm) to obey the law, for this was the time
+of the sacrifice of the passover lambs. (I Corinthians 5:7 Purge out
+therefore the old leaven, that ye may be a new lump, as ye are unleavened.
+For even Christ our passover is sacrificed for us:) Jesus chose the time
+of his death. He cried out with a loud voice just before he died,
+something no ordinary person would have been able to due under his
+condition. This shows he should have been able to live awhile longer, but
+he chose this specific time for his death. God, not man was in control.
+
+The Roman centurion recognized the miracle in how Jesus determined
+the time of his death, not them.
+
+Mark 15:39 ¶ And when the centurion, which stood over against him, saw
+that he so cried out, and gave up the ghost, he said, Truly this man was
+the Son of God.
+
+The Christian historian Tertullian who lived from 160-220 wrote "At
+his own free-will, he with a word dismissed from his spirit, anticipating
+the executioner's work."
+
+3. Veil of the temple torn.
+
+Matthew 27:51 And, behold, the veil of the temple was rent in twain from
+the top to the bottom; and the earth did quake, and the rocks rent;
+
+Mark 15:38 And the veil of the temple was rent in twain from the top to
+the bottom.
+
+Luke 23:45 And the sun was darkened, and the veil of the temple was rent
+in the midst.
+
+At the time that Jesus gave up the ghost (died), the veil of the
+temple was torn into two pieces in the middle of it from top to bottom.
+The veil separated the holy of holies from the rest of the temple and was
+to be accessed only by the high priest once a year on the day of
+atonement. (Exodus 30:10 And Aaron shall make an atonement upon the horns
+of it once in a year with the blood of the sin offering of atonements:
+once in the year shall he make atonement upon it throughout your
+generations: it is most holy unto the LORD.) (Hebrews 9:7 But into the
+second went the high priest alone once every year, not without blood,
+which he offered for himself, and for the errors of the people:) At the
+time it was torn (ninth hour or 3 pm), this was the exact hour that the
+Jews would sacrifice their passover lambs. The veil was torn from top to
+bottom as it was done by God and showed access to him was now not just for
+the high priest once a year, but for all believers at any time day or
+night any day of the year through his Son Jesus. All true Christians are
+priests. This also was an indication that animal sacrifices were no longer
+needed as the ultimate sacrifice in Jesus as our passover lamb was
+complete.  The veil was a reminder that we as sinners were to remain
+separate from God, but now we as sinners through the blood of Jesus could
+have direct access to God.
+
+The veil was according to Jewish tradition four inches thick and was
+at least 30 feet tall. Supposedly it was so strong and heavy, that even a
+team of horses could not rip it. It was nothing for God to tear it in
+half.
+
+4. Earthquake at the time of the death of Jesus.
+
+When Jesus died on the cross for you and me and all mankind, there
+was a great earthquake. It should be noted that Jesus gave up his life and
+died for us and that no one took it from him.
+
+Matthew 27: 51 And, behold, the veil of the temple was rent in twain from
+the top to the bottom; and the earth did quake, and the rocks rent;
+
+The whole earth shook at the fact that the Creator of the universe
+was dead and it was its way of showing mourning. If only all of man felt
+the same way. Some Romans did get saved that day by the events on the
+cross as seen in Matthew 27:54.
+
+Matthew 27:54  Now when the centurion, and they that were with him,
+watching Jesus, saw the earthquake, and those things that were done, they
+feared greatly, saying, Truly this was the Son of God.
+
+The earthquake at the crucifixion is also mentioned by the Greek
+Thallus when he said "the rocks were rent by an earthquake, and many
+places in Judea and other distrcts were thrown down." The Greek Phlegon
+also mentons the earthquake. He said "there was an earthquake in Bithynia
+which overthrew many houses in the city of Nice (Nicea)." I believe even
+as was recorded by these men that this was a worldwide quake and not just
+a local event, just as the darkness was worldwide. Jesus and his death
+effected all people of the earth and not just the Jews in Judea or
+Jerusalem. The earthquake was to show the power of God and how they had
+crucified God the Creator himself, but that he stills lives and is in
+power and control.
+
+When the earth shook, it opened up graves and rent rocks. The amateur
+archeologist Ron Wyatt, a humble Christian who had asked God to allow him
+to find things from scripture that would help him win souls for Jesus and
+not just find things for himself to get glory, said he found the ark of
+the covenant buried in a tunnel under the cross of Jesus. It was most
+likely put there by Jeremiah. According to Ron Wyatt, he found evidence of
+the earthquake at the crucifixion site as mentioned in scripture. He said
+the rocks below the cross of Jesus were rent in pieces. There was also a
+crack in the ground under the cross where blood had seeped in the ground.
+He found that the blood of Jesus had gone through this crack in the ground
+and dripped into the mercy seat of the ark of the covenant showing Jesus
+again fulfilled the law. As our passover lamb, and the ultimate sin
+offering to cover all the sins of man, not his, his blood was placed on
+the mercy seat just as the high priest would place the blood of the sin
+offering on the mercy seat on the day of atonement. Just like our Saviour
+to do this and again show he is who he says he is and is God. Jesus would
+later place his blood on the heavenly mercy seat as the final sacrifice
+was made once and for all.
+
+5. The graves were opened up.
+
+Matthew 27:52  52 And the graves were opened; and many bodies of the
+saints which slept arose,
+53 And came out of the graves after his resurrection, and went into the
+holy city, and appeared unto many.
+
+Notice that God opened the graves of certain saints. He did not open
+all graves, but some of his children in Jerusalem as another witness
+against the Jews. Notice that only saved people were brought back to life.
+God never returns unsaved people from hell. Hell is a final solution for
+all who reject Jesus as their Saviour except when they get cast into the
+lake of fire. These saints graves were opened on the day of the
+crucifixion, but the bodies did not come out of the graves until after the
+resurrection of Jesus on Sunday morning. Even here again Jesus obeyed the
+law and did not present the saints to their families before Sunday or the
+Jews would have been unclean for the passover and sabbath. Jesus is the
+first fruits of resurrection. Jesus had to rise first before anyone else
+could including those whose graves were opened. (I Corinthians 15:20 But
+now is Christ risen from the dead, and become the firstfruits of them that
+slept.) (I Corinthians 15:23 But every man in his own order: Christ the
+firstfruits; afterward they that are Christ's at his coming.)  
+
+All of these miracles were done to show Jesus is God and as final
+signs to the Jews that Jesus was their Messiah. The Jews would be given 50
+days after the resurrection of Jesus to think about what they had seen on
+the cross and repent and call upon Jesus when Peter spoke on Pentecost.
+
+Many miracles were done by Jesus just before his crucifixion, during
+the crucifixion and in the days after until his resurrection and even
+after that. Some examples are Jesus healed the ear of Malchus cut off by
+Peter at the time of the arrest of Jesus. Another is how the grave clothes
+were left in the tomb just as they had been on Jesus and the napkin had
+been folded. The ultimate miracle of course was the resurrection of our
+Lord and Saviour Jesus Christ on that third day, which allows us eternal
+life with Jesus for those who will repent and call upon his name. His
+resurrection was the defeat of Satan and shows he is God. Only God could
+raise himself from the dead. Let us not be like most of the Jews of that
+day, but let us receive Jesus as the Roman centurion did, the penitent
+thief on the cross, and some Jews.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

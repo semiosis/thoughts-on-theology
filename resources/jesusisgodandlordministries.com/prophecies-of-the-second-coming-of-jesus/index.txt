@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,464 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Prophecies of the Second Coming of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The second coming of Jesus is a future event that is well predicted
+in scripture. It is mentioned over three times as much (some say over 900
+verses) as the first coming of Jesus and will be fulfilled just as
+accurate as his first coming. Only a handful of verses will be discussed.
 
-Username or email _____________________
+The second coming of Jesus will be in two parts. The first part will
+be the rapture. Only saved believers will see Jesus as he calls them home
+to be with him. The second part will be after the seven year tribulation
+when Jesus will return visibly on a white horse with his bride for the
+whole world to see. Shortly after this he will start his one thousand year
+millennium reign. When Jesus comes visibly he will land on the mount of
+Olives near Jerusalem just as he said in Acts.
 
-Reset password
+The first part will be the rapture when Jesus will come in the clouds
+to receive his bride the church. Jesus will be invisible to unsaved people
+and will not set foot on the earth, but remain in the clouds. The dead in
+Christ will rise first, followed by those saved people who are living at
+the time of his return. {I Thessalonians 4:13-18 13 But I would not have
+you to be ignorant, brethren, concerning them which are asleep, that ye
+sorrow not, even as others which have no hope.
+14 For if we believe that Jesus died and rose again, even so them also
+which sleep in Jesus will God bring with him.
+15 For this we say unto you by the word of the Lord, that we which are
+alive and remain unto the coming of the Lord shall not prevent them which
+are asleep.
+16 For the Lord himself shall descend from heaven with a shout, with the
+voice of the archangel, and with the trump of God: and the dead in Christ
+shall rise first:
+17 Then we which are alive and remain shall be caught up together with
+them in the clouds, to meet the Lord in the air: and so shall we ever be
+with the Lord.
+18 Wherefore comfort one another with these words.) (I Corinthians
+15:51-54 51 Behold, I shew you a mystery; We shall not all sleep, but we
+shall all be changed,
+52 In a moment, in the twinkling of an eye, at the last trump: for the
+trumpet shall sound, and the dead shall be raised incorruptible, and we
+shall be changed.
+53 For this corruptible must put on incorruption, and this mortal must put
+on immortality.
+54 So when this corruptible shall have put on incorruption, and this
+mortal shall have put on immortality, then shall be brought to pass the
+saying that is written, Death is swallowed up in victory.)
+
+There are many professing Christians who do not believe in the
+rapture and say the word is not found in scripture. I have just shown a
+few verses that show there will be a rapture. Enoch and Elijah were types
+of the future rapture. The word is not found in scripture just as trinity
+is not found, but the concept is as I have shown. The trinity is known in
+scripture as the Godhead and many verses show the existence of the trinity
+and the same is true of the rapture. Theologians often need a word to
+describe certain truths. The word rapture is from the Latin word rapere or
+rapio which means to snatch or caught up as seen in the English. There are
+different opinions on the timing of the rapture. There is the
+pre-tribulation rapture view, the mid-tribulation, post tribulation, and
+the post tribulation pre wrath view. The difference is when it occurs
+compared to the tribulation. I believe the pre-tribulation view is the
+correct view. God has always taken his people out prior to his judgment.
+He does allow man's judgment, but his people are saved from his wrath,
+such as Noah and his family before the flood or Lot and his family prior
+to the destruction of Sodom and Gomorrah. (Revelation 3:10-11 10
+Because thou hast kept the word of my patience, I also will keep thee from the hour of temptation, which shall come upon all the world, to try them that dwell upon the earth.
+11Behold, I come quickly: hold that fast which thou hast, that no man take thy crown.)
+There is a possibility that the post tribulation wrath view is correct
+since God does remove his people from his wrath, but not man's
+tribulations. God did say we will have tribulation. Matthew 24:29 says
+Jesus will come after the sun and the moon go dark and Revelation 6:12
+says after the sixth seal is opened the sun and moon are dark. Starting
+with the sixth seal judgment, the rest of the judgments are the wrath of
+God, the first five having been the tribulation of man. I am not
+completely convinced on this view and for now I believe the pre-trib view
+is the correct view. For more on the pre wrath view, see Dr. Kent Hovind's
+WOE videos, What On Earth is About to Happen ... For Heaven's Sake?
+Believers will get their glorified bodies at the time of the rapture.
+
+The second part of Jesus' second coming will be when Jesus returns to
+earth visibly for the world to see along with his bride, the church with
+all riding on white horses. This is often referred to as the Glorious
+Appearing to distinguish it from part one, the rapture. (Titus 2:13
+Looking for that blessed hope, and the glorious appearing of the great God
+and our Saviour Jesus Christ;) He will land on the mount of Olivet
+(Olives) just as the angel said when he ascended into heaven. (Acts 1:9-12
+9 And when he had spoken these things, while they beheld, he was taken up;
+and a cloud received him out of their sight.
+10 And while they looked stedfastly toward heaven as he went up, behold,
+two men stood by them in white apparel;
+11 Which also said, Ye men of Galilee, why stand ye gazing up into heaven?
+this same Jesus, which is taken up from you into heaven, shall so come in
+like manner as ye have seen him go into heaven.
+12 Then returned they unto Jerusalem from the mount called Olivet, which
+is from Jerusalem a sabbath day's journey.) When Jesus returns, the mount
+will split into two. (Zechariah 14:1-5 1
+Behold, the day of the LORD cometh, and thy spoil shall be divided in the
+midst of thee.
+2 For I will gather all nations against Jerusalem to battle; and the city
+shall be taken, and the houses rifled, and the women ravished; and half of
+the city shall go forth into captivity, and the residue of the people
+shall not be cut off from the city.
+3 Then shall the LORD go forth, and fight against those nations, as when
+he fought in the day of battle.
+
+4 ¶ And his feet shall stand in that day upon the mount of Olives,
+which is before Jerusalem on the east, and the mount of Olives shall
+cleave in the midst thereof toward the east and toward the
+west, and there shall be a very great valley; and half of the mountain
+shall remove toward the north, and half of it toward the south.
+5 And ye shall flee to the valley of the mountains; for the valley of the
+mountains shall reach unto Azal: yea, ye shall flee, like as ye fled from
+before the earthquake in the days of Uzziah king of Judah: and the LORD my
+God shall come, and all the saints with thee.)
+
+Jesus said that no one will know the day or the hour of his second
+coming. It will be unexpected. (Matthew 25:13
+Watch therefore, for ye know neither the day nor the hour wherein the Son of man cometh.)
+(Mark 13:32
+¶ But of that day and that hour knoweth no man, no, not the angels which are in heaven, neither the Son, but the Father.)
+(Matthew 24:42
+¶ Watch therefore: for ye know not what hour your Lord doth come.)
+(Matthew 24:44
+Therefore be ye also ready: for in such an hour as ye think not the Son of man cometh.)
+(Matthew 24:36-39 36
+¶ But of that day and hour knoweth no man, no, not the angels of heaven, but my Father only.
+37
+But as the days of Noe were, so shall also the coming of the Son of man be.
+38For as in the days that were before the flood they were eating and drinking,   
+marrying and giving in marriage, until the day that Noe entered into the ark,
+39And knew not until the flood came, and took them all away; so shall also the coming of the Son of man be.)
+This fits today. This is why everyone needs to get saved now if they are
+not already saved so they will not miss out on the rapture and eternal
+life with Jesus. Today is the day of salvation. I do believe it is
+possible that the rapture will occur on the day of the feast of trumpets
+(today called Rosh Hashanah) which falls normally in September, but can
+occasionally occur in early October. All of the past significant events of
+Jesus always occurred on a Jewish holiday and most likely his second
+coming events will as well. No matter when it will be I do believe it is
+very soon and in my lifetime.
+
+Jesus said he will come quickly. (Revelation 22:7
+Behold, I come quickly: blessed is he that keepeth the sayings of the prophecy of this book.)
+(Revelation 22:12
+And, behold, I come quickly; and my reward is with me, to give every man according as his work shall be.)
+(Revelation 22:20 He which testifieth these things
+saith, Surely I come quickly. Amen. Even so, come, Lord Jesus.)
+
+Jesus warned us to pay attention to the signs of his future coming.
+There will be scoffers of his second coming. (II Peter 3:3-4 3 Knowing
+this first, that there shall come in the last days scoffers, walking after
+their own lusts,
+4 And saying, Where is the promise of his coming? for since the fathers
+fell asleep, all things continue as they were from the beginning of the
+creation.) There will be a falling away, just as there is today, and the
+antichrist will be revealed. (II Thessalonians 2:1-4 1 Now we beseech you,
+brethren, by the coming of our Lord Jesus Christ, and by our gathering
+together unto him,
+2 That ye be not soon shaken in mind, or be troubled, neither by spirit,
+nor by word, nor by letter as from us, as that the day of Christ is at
+hand.
+3 Let no man deceive you by any means: for that day shall not come, except
+there come a falling away first, and that man of sin be revealed, the son
+of perdition;
+4 Who opposeth and exalteth himself above all that is called God, or that
+is worshipped; so that he as God sitteth in the temple of God, shewing
+himself that he is God.) These signs show Jesus will return soon. (Luke
+21:25-31 25
+¶ And there shall be signs in the sun, and in the moon, and in the stars; and upon the earth distress of nations, with perplexity; the sea and the waves roaring;
+26
+Men's hearts failing them for fear, and for looking after those things which are coming on the earth: for the powers of heaven shall be shaken.
+27
+And then shall they see the Son of man coming in a cloud with power and great glory.
+28
+And when these things begin to come to pass, then look up, and lift up your heads; for your redemption draweth nigh.
+29 And he spake to them a parable; Behold the fig tree, and all the trees;
+30
+When they now shoot forth, ye see and know of your own selves that summer is now nigh at hand.
+31
+So likewise ye, when ye see these things come to pass, know ye that the kingdom of God is nigh at hand.)
+
+
+Jesus said he would not drink wine again until he set up his kingdom.
+(Mark 14:25
+Verily I say unto you, I will drink no more of the fruit of the vine, until that day that I drink it new in the kingdom of God.)
+
+Jesus will return with signs from heaven. (Matthew 24:29-31 29
+¶ Immediately after the tribulation of those days shall the sun be darkened, and the moon shall not give her light, and the stars shall fall from heaven, and 
+the powers of the heavens shall be shaken:
+30And then shall appear the sign of the Son of man in heaven: and then shall all the tribes of the earth mourn, and they shall see the Son of man coming in 
+the clouds of heaven with power and great glory.
+31And he shall send his angels with a great sound of a trumpet, and they shall gather together his elect from the four winds, from one end of heaven to the other.)
+
+The Jews will see the Messiah they pierced. (Zechariah 12:10-11 10
+And I will pour upon the house of David, and upon the inhabitants of
+Jerusalem, the spirit of grace and of supplications: and they shall look
+upon me whom they have pierced, and they shall mourn for him, as one
+mourneth for his only son, and shall be in bitterness for him, as one that
+is in bitterness for his firstborn.
+11 In that day shall there be a great mourning in Jerusalem, as the
+mourning of Hadadrimmon in the valley of Megiddon.)
+
+Jerusalem will be surrounded before his return. (Luke 21:20
+And when ye shall see Jerusalem compassed with armies, then know that the desolation thereof is nigh.)
+
+Jesus shall separate the nations and judge them. The holy angels will
+come with him in his return. (Matthew 25:31-34 31
+¶ When the Son of man shall come in his glory, and all the holy angels with him, then shall he sit upon the throne of his glory:
+32And before him shall be gathered all nations: and he shall separate them one from another, as a shepherd divideth his sheep from the goats:
+33
+And he shall set the sheep on his right hand, but the goats on the left.
+34Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:)
+
+Jesus will reign forever. (Isaiah 9:7 Of the increase of his
+government and peace there shall be no end, upon the throne of David, and
+upon his kingdom, to order it, and to establish it with judgment and with
+justice from henceforth even for ever. The zeal of the LORD of hosts will
+perform this.)  
+
+A strong delusion will come to unbelievers. (II Thessalonians 2:11-12
+11 And for this cause God shall send them strong delusion, that they
+should believe a lie:
+12 That they all might be damned who believed not the truth, but had
+pleasure in unrighteousness.)
+
+Jesus came the first time as a baby to save the lost. The second time
+he will come as King and Judge. (Psalm 96:13 Before the LORD: for he
+cometh, for he cometh to judge the earth: he shall judge the world with
+righteousness, and the people with his truth.) (Psalm 2:6 Yet have I set
+my king upon my holy hill of Zion.) (Daniel 2:44 And in the days of these
+kings shall the God of heaven set up a kingdom, which shall never be
+destroyed: and the kingdom shall not be left to other people, but it shall
+break in pieces and consume all these kingdoms, and it shall stand for
+ever.)
+
+Jesus will come in power and with vengeance. Vengeance belongs to the
+LORD. (Zephaniah 1:14-15 14 The great day of the LORD is near, it is near,
+and hasteth greatly, even the voice of the day of the LORD: the mighty man
+shall cry there bitterly.
+15 That day is a day of wrath, a day of trouble and distress, a day of
+wasteness and desolation, a day of darkness and gloominess, a day of
+clouds and thick darkness,) (Romans 12:19 Dearly beloved, avenge not
+yourselves, but rather give place unto wrath: for it is written, Vengeance
+is mine; I will repay, saith the Lord.)  
+
+All the world will worship Jesus. (Philippians 2:9-11 9 Wherefore God
+also hath highly exalted him, and given him a name which is above every
+name:
+10 That at the name of Jesus every knee should bow, of things in heaven,
+and things in earth, and things under the earth;
+11 And that every tongue should confess that Jesus Christ is Lord, to the
+glory of God the Father.)
+
+Those who look forward to his return will be rewarded. (II Timothy
+4:8 Henceforth there is laid up for me a crown of righteousness, which the
+Lord, the righteous judge, shall give me at that day: and not to me only,
+but unto all them also that love his appearing.) (James 1:12
+Blessed is the man that endureth temptation: for when he is tried, he
+shall receive the crown of life, which the Lord hath promised to them that
+love him.)
+
+Jesus is coming so we must be ready. If there is someone who is not
+saved, I plead that today might be the day. Jesus is coming sooner than we
+think and you do not want to be left behind. For those Christians who are
+not living right with God, today is the day to get right with God. Even so
+come Lord Jesus.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

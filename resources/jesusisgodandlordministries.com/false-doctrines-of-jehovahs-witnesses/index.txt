@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,1294 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+False Doctrines of Jehovah's Witnesses
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Jehovah's Witnesses are one of the largest cults. There are about 8.7
+million Jehovah's Witnesses worldwide. They were founded by Charles Taze
+Russell in the late 1870's when he founded the Bible Student movement in
+Pittsburg, Pennsylvania around this time and he started the Zion's Watch
+Tower Tract Society in 1881 to publish tracts and his writings and print
+material for the movement. This was renamed the Watch Tower Bible and
+Tract Society in 1896. After the death of Charles Russell in 1916, groups
+broke away from the Bible Student movement, but the main group was taken
+over by Joseph Franklin Rutherford who maintained control of the Watch
+Tower Society and its properties. He changed much of the doctrine that
+Russell taught. He renamed the organization the Jehovah's Witnesses in
+1931 to separate them from the other Bible Student movement groups that
+had broken off. He got the name from Isaiah 43:10. (Isaiah 43:10 Ye are my
+witnesses, saith the LORD, and my servant whom I have chosen: that ye may
+know and believe me, and understand that I am he: before me there was no
+God formed, neither shall there be after me.) They had previously been
+known as Bible Students and around the time of the name change sometimes
+as Russellites or Rutherfordites. Many people left after the Jehovah's
+Witnesses predicted the physical coming of Jesus in 1914 and it then never
+came. They tried to justify it by saying it was an invisible return. Today
+the Watch Tower Bible and Tract Society is located in Warwick, New York
+moving there after a long time in Brooklyn, New York City, New York. They
+publish The Watchtower and Awake magazines as well as their own bible the
+New World Translation of the Holy Scriptures. "The Watchtower shows us the
+significance of world events in the light of Bible prophecies. It comforts
+people with the good news of God's Kingdom and promotes faith in Jesus
+Christ. Awake! shows us how to cope with today's problems and builds
+confidence in the Creator's promise of a peaceful and secure new world.
+[JW website]" They also publish tracts and other material such as books
+and videos for their cult. These magazines contain the doctrine for
+Jehovah's Witnesses.
 
-Username or email _____________________
+The Jehovah's Witnesses as many cults have their own bible known as
+the New World Translation. This has been changed and updated many times
+including changes made to support their false doctrines. (Proverbs 30:6
+Add thou not unto his words, lest he reprove thee, and thou be found a
+liar.) They also remove many verses, phrases, and words from their bible
+compared to God's preserved word found in the King James Bible. It seems
+grace is often removed such as in Ephesians 2:8. Footnotes are often found
+in their bible to explain away missing verses or other doctrinal issues.
+God warned not to add or subtract from his word. (Revelation 22:18-19 For
+I testify unto every man that heareth the words of the prophecy of this
+book, If any man shall add unto these things, God shall add unto him the
+plagues that are written in this book:
+19 And if any man shall take away from the words of the book of this
+prophecy, God shall take away his part out of the book of life, and out of
+the holy city, and from the things which are written in this book.) The
+translators of the NWT are anonymous. They say this is so God gets the
+glory, but it also hides the credentials of the men to see if they are
+qualified and also avoids any direct criticism to any individuals. The
+five men who are suspected of translating the original NWT had no
+knowledge of Hebrew or Greek except one man who had about two years of
+Greek. How can you translate from the original languages as they claim was
+done if you cannot even read them? The Jehovah's Witnesses website says
+"we continue to use many translations of the Bible in our witnessing work.
+In fact, while we provide a copy of the New World Translation at no
+charge as part of our free Bible study program, we are also happy to study
+with those who prefer to use other translations." These are the words of
+the leaders, so use your King James Bible to witness to them and tell them
+what their website says if they do not want you to use it. Some JW's have
+said they have used the NIV (New International Version) when witnessing
+since many people feel more comfortable with it than the NWT. Over 90% of
+the changes in the NWT from the KJB are matched in the NIV which shows how
+corrupt it is. Most professing Christians would never use a NWT yet they
+have no problem using an NIV.
 
-Reset password
+The leaders of the Watch Tower Society known as the Governing Body of
+Jehovah's Witnesses decide on doctrines as they interpret scripture rather
+than having God the Holy Ghost interpret scripture and getting their
+doctrine from scripture. All cults do this and have only the leaders
+interpret and also add their own additions to scripture. The NWT was
+intentionally changed as is done by cults that have their own bible such
+as Roman Catholicism to fit their false doctrines rather than change their
+false doctrines to match scripture. The Watchtower magazines override
+scripture. This is what Jehovah's Witnesses are to read and trust, not the
+bible. The August 15, 1950 Watchtower on page 263 admitted that it was not
+inspired, so precious Jehovah's Witnesses souls, why trust a non-inspired
+magazine from man when you can trust the inspired words of God found in
+the King James Bible. The King James Bible is what was used by Jehovah's
+Witnesses until the leaders got tired of it convicting them of their sins
+and so they created their own false bible based off of the corrupt
+Alexandrian manuscripts influenced by the Roman Catholic Church. The
+Jehovah's Witnesses claim to disagree with and hate the Roman Catholic
+Church, yet they use the same corrupt Roman Catholic manuscripts for their
+bible, had some Jesuits on their original translating committee and even
+share some beliefs. I believe this is just another deception. The March
+22, 1980 Awake magazine on page 4 admitted that the leaders are not
+infallible and their writings are not inspired as are the writers of the
+Holy Bible. They do believe scripture is inspired. The NWT in notes in the
+back of the bible does not use BC for "Before Christ" and AD for "In the
+year of our Lord" for dates, but rather the secular BCE (Before the Common
+Era) and CE (Common Era). BCE has the same dates as BC and CE the same
+dates as AD, but this is just a way to minimize Jesus when the history of
+the world is divided in time by his birth as a man in Bethlehem. Other
+literature also uses BCE and CE dating especially CE when dating future
+events. Why would supposed Christians change and deny the date of Jesus
+and be ashamed to date things around the birth of Jesus?  
+
+Jehovah's Witnesses are required to go door to door to try and get
+people to join their cult. They are normally required to attend meetings
+five nights a week. The Watchtower that members of the cult read is not
+the same as the one they give to the public. The members issue has all of
+their false doctrines and other prophecy predictions. The public one tries
+to seem like true Christianity for the most part in order to suck people
+into their cult and once they are sucked in then they will receive their
+true beliefs. All cults do this.  
+
+The leaders of the Jehovah's Witnesses have predicted many false
+prophecies about the return of Jesus. The Watch Tower Society is
+considered God's prophet. (See Watchtower magazine April 1, 1972, pg. 197)
+Jesus said no one can know when he will return yet they thought they did.
+(Matthew 24:36 ¶ But of that day and hour knoweth no man, no, not the
+angels of heaven, but my Father only.) God said that if a prophet claimed
+to speak for God and it did not come true then they were not from God.
+JW's have proved they are not from God with their many false prophecies.
+(Deuteronomy 18:22 When a prophet speaketh in the name of the LORD, if the
+thing follow not, nor come to pass, that is the thing which the LORD hath
+not spoken, but the prophet hath spoken it presumptuously: thou shalt not
+be afraid of him.) They predicted that Jesus would return to earth in 1914
+after the battle of Armageddon to start his 1,000 year reign. After this
+failed they changed it to 1915 when the battle would be and the return of
+Jesus, removing the year zero. All governments would be overthrown at this
+time. World War 1 was going on at this time. This was changed to 1918,
+1925, 1941, and 1975. It never happened. In 1918 God was supposed to have
+destroyed many churches and church members by the millions. Remember they
+believe they are the only true church. 1925 was supposed to be "the
+establishment of the kingdom in Palestine, ten years later than thought"
+and the old testament prophets were to return here on earth. They never
+did return so they built a mansion in San Diego between 1929-1930 to bring
+them back. They now cover this up and try to say it was built for
+President Rutherford. The mansion was sold in 1948 as it was an
+embarrassment. [From the Watch Tower publication "Millions Now Living Will
+Never Die" on pages 89-90.] Armageddon was to happen and millions living
+at the time would never die. In 1975 Armageddon was imminent. They now say
+Jesus came invisibly in 1914 and he will not return visibly. Scripture
+says he does. (Matthew 24:27 For as the lightning cometh out of the east,
+and shineth even unto the west; so shall also the coming of the Son of man
+be.) (Revelation 19:14 And the armies which were in heaven followed him
+upon white horses, clothed in fine linen, white and clean.) These false
+prophecies could all be found in their Watchtower magazine. These failed
+prophecies are one of the things that have caused many members to leave
+the cult. If the Watch Tower leaders misinterpret scripture here on
+prophecies, can you trust them on their other interpretations such as
+salvation?  
+
+Jehovah's Witnesses believe that Lucifer was the second being created
+after Jesus who was then supposedly the archangel Michael. They say Satan
+was appointed by Jehovah to watch over the earth. He became jealous of
+Jehovah and rebelled and seduced Adam and Eve and became Satan and was
+given 6,000 years by Jehovah to try and seduce all mankind to him and when
+he fails Jehovah will reestablish his kingdom.
+
+Charles Taze Russell was a 33^rd degree Freemason. Freemasonry is
+satanic. Many claim Charles was not a Freemason yet he is even buried in a
+Freemason cemetery which he would not have been allowed if he was not one.
+God would never use a satanic Freemason to be the leader of his church as
+Charles supposedly was. Jehovah's Witnesses (JW's) as all cults believe
+they are the only way to heaven.    
+
+JW's refer to the old and new testaments as the Hebrew-Aramaic
+scriptures and the Christian Greek scriptures and is labeled as such in
+their bible. They say this is done to prevent confusion that part of
+scripture is outdated and irrelevant, but this denies the new covenant or
+testament given by Jesus as the testator and his death for us. "Jehovah's
+Witnesses believe that the entire Bible is "inspired of God and
+beneficial." (2 Timothy 3������16) That includes both the Old Testament and the
+New Testament, as they are commonly called. Generally, Jehovah's Witnesses
+refer to these sections of the Bible as the Hebrew Scriptures and the
+Christian Greek Scriptures. In this way, we avoid giving the impression
+that some parts of the Bible are outdated or irrelevant. [from their
+website jw.org]" (Hebrews 9:15-17 And for this cause he is the mediator of
+the new testament, that by means of death, for the redemption of the
+transgressions that were under the first testament, they which are called
+might receive the promise of eternal inheritance.
+16 For where a testament is, there must also of necessity be the death of
+the testator.
+17 For a testament is of force after men are dead: otherwise it is of no
+strength at all while the testator liveth.) The NWT changes the word
+testament to covenant to support this belief of not calling them the old
+and new testaments.    
+
+Jehovah's Witnesses do not have churches. They have Kingdom Halls and
+a group of these makes up a congregation which are overseen by a group of
+elders. Jehovah's Witnesses do not ordain men, but rather let any man that
+is well versed in their beliefs to lead the service. Their bible changes
+the word church to congregation to support their belief.
+
+Jehovah's Witnesses do not believe in war which contradicts
+scripture. I do agree we should not seek war and should avoid it if
+possible, but God said there is a time for peace and a time for war. When
+drafted they claimed to be conscientious objectors. God even commanded at
+times for the Israelites to go to war and true Christians are always in a
+spiritual warfare or at least should be. (Ecclesiastes 3:8 A time to love,
+and a time to hate; a time of war, and a time of peace.) (Ecclesiastes 3:3
+A time to kill, and a time to heal; a time to break down, and a time to
+build up;)
+
+Jehovah's Witnesses try to stay separate from the world which means
+anyone who is not one of them. They will talk to them, but generally avoid
+them unless out trying to convert them. They avoid politics and stay
+neutral during wartime. Jesus did say for us to be in the world, but not a
+part of the world, but this does not mean we avoid politics and war. I
+already have shown how God said there is a time for war and Christians
+should be involved in politics so ungodly people are not making ungodly
+decisions and laws. Jesus said to love our neighbor. We need to witness to
+all people. They again twist scripture to keep their seclusion. This is
+what cults do. They avoid the world and anyone who is not one of them.
+
+Jehovah's Witnesses do not celebrate birthdays, any national holidays
+or days such as Mother's Day, Father's Day, Christmas, and Easter. They do
+not honor their country, flag, or national anthem. They do not salute the
+flag or say the pledge of allegiance considering it worship. They do not
+vote or hold public office. One change that can be seen in the NWT since
+they do not believe in saluting a flag is the removal of the standard in
+various verses in Numbers. The Israelites were to have their standard or
+flag next to them when they camped. The KJB in Numbers 1:52 says "by his
+own standard" which is changed in the NWT to "according to his three-tribe
+division".    
+
+Jehovah's Witnesses claim they do not tithe and are not required to.
+They claim all of their money comes from anonymous donors. I am sure they
+are pressured to tithe, but they give it "anonymously". God commands us to
+tithe and says those who do not rob from him. (Malachi 3:8 ¶ Will a man
+rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee?
+In tithes and offerings.)
+
+Jehovah's Witnesses say their beliefs have changed over the years due
+to the increase in their knowledge as they learn scripture. They say the
+apostles changed as they learned as they did not originally understand all
+scripture. I do agree we can and should learn and some minor things may
+change as we learn and understand scripture better, but the basic major
+doctrines should not change. This is just an excuse to justify their
+changes over the years and any future ones that may come. Two examples of
+changes are the cross was changed to a torture stake and prohibition on
+blood transfusions.
+
+The Jehovah's Witnesses as all cults will try to prevent their members
+from leaving and those that do are usually shunned by their family and
+friends. They use threats of them losing their salvation if they do not
+stay a Jehovah's Witness and other tactics. They use fear tactics such as
+a constant reminder that the battle of Armageddon is near and they are not
+to socialize with non-Jehovah's Witnesses. They are also reminded of the
+penalties if they disobey any Watch Tower rules. They are referred to as
+little children as if the Watch Tower is their dad and mom. They often
+control information Jehovah's Witnesses get or at least try. This applied
+more in previous days before modern technology.
+
+This is only some of the many false doctrines of Jehovah's Witnesses.
+They refer to their beliefs collectively as "the Truth". 
+
+1. Only true church.  Jehovah's Witnesses as all cults claim that they are
+the only true church and only Jehovah's Witnesses can be saved.
+
+2. Jesus is a created being. Jehovah's Witnesses believe Jesus is a
+created being. They believe he was the first being created and then
+created everything else. Pure blasphemy. Jesus is the Creator and created
+everything and was never created himself. Jesus is God. (Colossians
+1:16-17 For by him were all things created, that are in heaven, and that
+are in earth, visible and invisible, whether they be thrones, or
+dominions, or principalities, or powers: all things were created by him,
+and for him:
+17 And he is before all things, and by him all things consist.) (John
+1:1-3
+In the beginning was the Word, and the Word was with God, and the Word was
+God.
+2 The same was in the beginning with God.
+3 All things were made by him; and without him was not any thing made that
+was made.) John 1:3 says all things were made by Jesus and if he was a
+created being he would be included under "all". Their bible shows this
+belief when Micah 5:2 which says in the King James Bible "whose goings
+forth" is changed to "whose origin" to support Jesus as a created being
+when he was not. The NWT changes "all things" in verses 16 and 17 of
+Colossians 1 to "all other things" to show their belief in Jesus as a
+created being. The NWT changes Colossians 1:15 in KJB "the firstborn of
+every creature" to "the firstborn of all creation" to again try and make
+it look like Jesus is a created being. The NWT changes John 1:18 from "the
+only begotten Son" in the KJB to "the only-begotten god".
+
+3. Jesus was originally the archangel Michael. There is no such thing
+found in scripture. Michael has always been an angel and created and Jesus
+has always been Jesus and God and not created. (John 1:1-2 In the
+beginning was the Word, and the Word was with God, and the Word was God.
+2 The same was in the beginning with God.) Michael will be the one in the
+future to lead the war against Satan and his angels which will lead to
+Satan being cast out of heaven for good. Does Jesus go back to being
+Michael? They actually believe he does. (Revelation 12:7 And there was war
+in heaven: Michael and his angels fought against the dragon; and the
+dragon fought and his angels,) They believe Michael was the first created
+angel and became Jesus when he became a man. Angels do not become men.
+They believe on the day we say Jesus was resurrected, that Jesus was
+recreated as the archangel Michael.
+
+4. Jesus died on a torture stake and not a cross. Jehovah's Witnesses say
+that Jesus died on a torture stake and not a cross as scripture says. This
+belief came about in 1936. They had previously believed in the cross, so
+this shows they change their doctrine over the years. (Matthew 27:40 And
+saying, Thou that destroyest the temple, and buildest it in three days,
+save thyself. If thou be the Son of God, come down from the cross.)
+(Matthew 27:42 Let Christ the King of Israel descend now from the cross,
+that we may see and believe. And they that were crucified with him reviled
+him.) (Mark 15:32 Let Christ the King of Israel descend now from the
+cross, that we may see and believe. And they that were crucified with him
+reviled him.) (John 19:25 ¶ Now there stood by the cross of Jesus his
+mother, and his mother's sister, Mary the wife of Cleophas, and Mary
+Magdalene.) When a person is killed on a torture stake their hands are
+placed above their head, yet scripture says a sign was placed above the
+head of Jesus, not his hands as it would have been if he died on a torture
+stake. Even the NWT says above the head. (Matthew 27:37 And set up over
+his head his accusation written, THIS IS JESUS THE KING OF THE JEWS.) The
+Jehovah's Witnesses, as all cults who have their own bibles, changes their
+bible to match their false doctrines. An example is seen here with torture
+stake used instead of cross. The 2013 edition of the New World Translation
+for Matthew 27:42 is changed to "come down off the torture stake" from the
+KJB "descend now from the cross". Scripture also says that Jesus had nails
+plural in his hands whereas the Jehovah's Witnesses teach that he had one
+nail to go along with their belief of a torture stake. (John 20:25 The
+other disciples therefore said unto him, We have seen the Lord. But he
+said unto them, Except I shall see in his hands the print of the nails,
+and put my finger into the print of the nails, and thrust my hand into his
+side, I will not believe.) Even their bible says nails so this contradicts
+their own teaching.
+
+5. Jesus is not God. Jehovah's Witnesses believe Jesus is not God and deny
+his deity. They say he is ruling in heaven as King, but he is not God. He
+supposedly started ruling in 1914 when he came back to earth invisibly.
+They say even Jesus said his Father was greater than him to try and
+justify it. They get that from John 14:28, but Jesus as the God-man was
+speaking from his man nature and not his divine nature. As a man the
+Father is greater, but not as God. Scripture says Jesus is God. (John
+10:30 I and my Father are one.) They say that Jesus said the Father was
+greater than him in John 14:28 and they are correct except in this verse
+the man part of Jesus was speaking and God the Father is greater than man,
+but in John 10:30 the divine part was speaking and Jesus was showing that
+he and God the Father are one as there is only one God. (Philippians 2:6
+Who, being in the form of God, thought it not robbery to be equal with
+God:) (Colossians 2:9 For in him dwelleth all the fulness of the Godhead
+bodily.) Colossians 2:9 shows Jesus is part of the Godhead and a full
+part. (Hebrews 1:8 But unto the Son he saith, Thy throne, O God, is for
+ever and ever: a sceptre of righteousness is the sceptre of thy kingdom.")
+God the Father or Jehovah is calling Jesus God in Hebrews 1:8. God himself
+has spoken and says Jesus is God. If Jesus was not God we are idolaters
+and Jesus was a fraud for he said he was God and accepted worship. Jesus
+was more than a man as the JW's teach. They say they are Christians, yet
+do not believe the man whom the religion is named after is God. Why do
+they then not call themselves Jehovahians instead of Christians? JW's say
+Jesus is a god just as angels are gods, but he is not God. They even
+change John 1:1 in their bible from "the Word was God" to "the Word was a
+god". Jesus said if anyone does not believe he was God they cannot be
+saved. (John 8:24 I said therefore unto you, that ye shall die in your
+sins: for if ye believe not that I am he, ye shall die in your sins.) If a
+professing Christian says Jesus is not God they are not saved. It is that
+simple. Jesus spoke. Another change found in their bible denying Jesus is
+God can be found in Daniel 3:25 when Jesus was in the fiery furnace with
+the three Hebrew men. The King James Bible says in reference to Jesus
+"like the Son of God" and the New World Translation changes this to
+"resembling a son of the gods". Jehovah's Witnesses say since Adam, a man,
+sinned, then the "second Adam" Jesus also had to be a man and not God in
+order for the atonement for the sin to be on parity; man for man. They
+believe Jesus only atoned for Adam's sin and everyone else is acquitted of
+sin at their death. If Jesus was only a man, he could not atone for
+anyone's sins as he would have been a sinner himself in need of a Saviour.
+Jehovah's Witnesses do not believe Jesus as God came in the flesh since
+they do not believe he is God. They say he was merely born a man.
+Scripture says that whoever says Jesus did not come in the flesh is not of
+God. This proves they are not true Christians. (I John 4:1-3 Beloved,
+believe not every spirit, but try the spirits whether they are of God:
+because many false prophets are gone out into the world.
+2 Hereby know ye the Spirit of God: Every spirit that confesseth that
+Jesus Christ is come in the flesh is of God:
+3 And every spirit that confesseth not that Jesus Christ is come in the
+flesh is not of God: and this is that spirit of antichrist, whereof ye
+have heard that it should come; and even now already is it in the world.)
+The NWT changes John 1:18 from the KJB "only begotten Son" to
+"only-begotten god" to deny the deity of Jesus and make it appear he was
+created. "Thy throne, O God" in the KJB in Hebrews 1:8 is changed to "God
+is your throne" in the NWT to again deny Jesus is God. When Thomas saw
+Jesus after his resurrection he called him his Lord and God and Jesus
+never told him he was not God or refused worship. The NWT agrees in John
+20:28 that Thomas called Jesus God. (John 20:28 And Thomas answered and
+said unto him, My Lord and my God.) This proves Jesus is God. When Stephen
+was stoned to death he asked Jesus to receive his spirit which he could
+not do if he was not God. (Acts 7:59 And they stoned Stephen, calling upon
+God, and saying, Lord Jesus, receive my spirit.) This also shows people do
+have a spirit and go somewhere after death rather than no longer existing
+anymore as JW's teach. Both the KJB and NWT say this. In the next verse
+Stephen asks the Lord to forgive their sin. He just referred to Jesus as
+Lord in verse 59 so you know he was referring to Jesus here. The NWT
+changes this to Jehovah which shows Jehovah is Jesus. (Acts 7:60 And he
+kneeled down, and cried with a loud voice, Lord, lay not this sin to their
+charge. And when he had said this, he fell asleep.) Jesus is not the Son
+in Acts 3:26, but a Servant. The KJB in Acts 3:26 says "God, having raised
+up his Son Jesus", but this is changed in the NWT to "God, after raising
+up his Servant". Jehovah's Witnesses do not worship or pray to Jesus and
+consider it idolatry to do so. This change came about around 1950 when
+they first came out with their bible the New World Translation. The NWT
+changes worshipped when it refers to Jesus to obeisance or bow in two
+verses in the 2013 NWT. One example is found in Matthew 20:20 which
+changes "worshipping him" to "doing obeisance". Jesus gave his seven I am
+statements in John showing he was God and the I AM of the old testament.
+The NWT  changes Exodus 3:14 from the KJB "I AM" to "I SHALL PROVE TO BE"
+in the 1984 edition and to "I will become" in the 2013 edition to
+eliminate the connection of Jesus as God. John 8:58 is changed from the
+KJB "I am" to the NWT of "I have been". Many other verses are changed as
+well such as John 17:5. Here are some more verses from the KJB for
+Jehovah's Witnesses that show Jesus is God. (Psalm 45:6-7 Thy throne, O
+God, is for ever and ever: the sceptre of thy kingdom is a right sceptre.
+7 Thou lovest righteousness, and hatest wickedness: therefore God, thy
+God, hath anointed thee with the oil of gladness above thy fellows.)
+(Hebrews 1:8-10 But unto the Son he saith, Thy throne, O God, is for ever
+and ever: a sceptre of righteousness is the sceptre of thy kingdom.
+9 Thou hast loved righteousness, and hated iniquity; therefore
+God, even thy God, hath anointed thee with the oil of gladness above thy
+fellows.
+10 And, Thou, Lord, in the beginning hast laid the foundation of the
+earth; and the heavens are the works of thine hands:) Since Jehovah's
+Witnesses do not believe Jesus is God, they do not worship him. This
+change can be seen in their bible. The NWT in Hebrews 1:6 changes the KJB
+"let all the angels of God worship him" to "let all God's angels do
+obeisance to him".
+
+6. Deny the Godhead. Jehovah's Witnesses deny the Godhead and say there is
+only one God named Jehovah. This is Unitarianism. Many places in scripture
+show the Godhead is real. (I John 5:7 For there are three that bear record
+in heaven, the Father, the Word, and the Holy Ghost: and these three are
+one.) I John 5:7 is removed from the NWT. (Colossians 2:9 For in him
+dwelleth all the fulness of the Godhead bodily.) I have already shown how
+Jesus called God his Father. Jehovah's Witnesses change Spirit in Genesis
+1:2 in the NWT to God's active force to support their false belief and
+make God the Holy Ghost just a force. This denies his deity and makes the
+Holy Ghost equal with Satan. They also change LORD in their bible to
+Jehovah to again support their belief. They even used the American
+Standard Version bible (ASV) for a while prior to making their own because
+of its extensive use of Jehovah despite its false teachings in it. The
+Holy Ghost is the "holy spirit" all lower case in the NWT again denying
+his deity. They do not believe Jesus or the Holy Spirit is God. The word
+Godhead is replaced all three times it is found in the KJB in the NWT with
+Divine being, Godship, or divine quality depending on the verse.    
+
+7. Salvation is not just by faith. Jehovah's Witnesses say that salvation
+entails believing in Jesus by faith, but that a person also must change
+the way they live (works) and be baptized (of course a Jehovah's Witness).
+JW's as all cults and false religions always add works for salvation. They
+say they do not, but baptism and changing your life are works. Jesus said
+to believe in him and you would be saved. He never said we had to be
+baptized or change our life. A person should be changing their life after
+they are saved as they should not want to live a sinful life anymore, but
+a godly life, but we do this out of obedience, not to save us. Baptism
+will never save anyone. (Acts 16:31 And they said, Believe on the Lord
+Jesus Christ, and thou shalt be saved, and thy house.) (Ephesians 2:8-9
+For by grace are ye saved through faith; and that not of
+yourselves: it is the gift of God:
+9 Not of works, lest any man should boast.) Some verses are changed in the
+NWT that show the doctrine of works salvation. I Corinthians 1:18 is
+changed from the King James Bible "are saved" to the New World Translation
+"are being saved". A person is either saved or they are not. We are not
+being saved. This is works. Revelation 19:8 in the KJB says "righteousness
+of saints" which is changed in the NWT to "righteous acts of the holy
+ones". Ones acts are works. Notice how saints is holy ones. John 17:3 in
+the KJB says "know" in reference to knowing Jesus which is changed in the
+1984 NWT to "taking in knowledge" as if studying God's word is necessary
+for salvation. Jehovah's Witnesses supposedly "study" God's word in their
+Kingdom Hall meetings. We should study scripture to know Jesus, but this
+is not necessary for salvation. Many people have gotten saved who never
+even read any scripture, let alone studied it.  
+
+8. Only 144,000 people will go to heaven. JW's are taught that only a
+144,000 of them will go to heaven and most if not all are already there
+ruling with Jesus in his kingdom. These are the only ones referred to as
+being born again and allowed to take communion. The rest will stay here on
+earth. I have talked with a Jehovah's Witness who said he did not want to
+go to heaven and was glad he was staying here. All who are truly saved
+will go to heaven. They get this number from the 144,000 mentioned in
+Revelation which are Jews, not Jehovah's Witnesses. They claim they have
+replaced the Jews and these verses actually refer to them. (Revelation 7:4
+And I heard the number of them which were sealed: and there were sealed an
+hundred and forty and four thousand of all the tribes of the children of
+Israel.) This verse clearly shows it refers to the twelve tribes of Israel
+and not Jehovah's Witnesses. Even the NWT has the tribes of Israel. This
+belief shows there is not much hope for most Jehovah's Witnesses to go to
+heaven and also shows how much works must be added to salvation to achieve
+the status of being one of the select few. Revelation 14:4 speaks of the
+144,000 as the firstfruits that will be in heaven meaning they are only
+the firsts of many during the tribulation to be in heaven. Most Jehovah's
+Witnesses have no hope to go to heaven, but can only hope to be one of the
+ones who get to stay here on earth rather than be annihilated. The 144,000
+was closed in 1935, though they now say some replacements may be added as
+some of the 144,000 fell from the faith. They say this because most if not
+all of those baptized before 1935 have died or are dying off and only they
+are the ones who get revelations from God and write the Watchtower
+literature. The Jehovah's Witnesses keep lying about the numbers so that
+they can keep the cult alive. If they are all dead who will get
+revelations? According to Watchtower literature, only the 144,000 are the
+real Jehovah's Witnesses and the rest are known as "other sheep, or great
+crowd" and this group stays on earth and does not need to be born again.
+Those who joined after 1935 are part of the "other sheep" and are not real
+Jehovah's Witnesses. This can be explained to them when witnessing to
+them. Jehovah's Witnesses say they cannot know what will happen to them
+until they are resurrected and judged. How sad. I John 5:13 tells us we
+can know we have eternal life if we believe in Jesus as God and believe
+the gospel as in scripture. Those who believe will go to heaven, not just
+144,000 as the JW's believe. (I John 5:13 These things have I written unto
+you that believe on the name of the Son of God; that ye may know that ye
+have eternal life, and that ye may believe on the name of the Son of God.)
+(Romans 10:13 For whosoever shall call upon the name of the Lord shall be
+saved.) Matthew 5:19 in the NWT is changed from the KJB "least in the
+kingdom of heaven" to "'least' in relation to the kingdom of the heavens".
+This tries to justify that only the 144, 000 will go to heaven.
+Philippians 3:20 says our conversation is in heaven as all Christians
+should look forward to going there. The NWT changes the KJB "our
+conversation is in heaven" to "our citizenship exists in the heavens".
+They imply we are citizens of heaven, but do not necessarily live there.
+This is similar to many American citizens living in foreign nations, but
+they are still citizens here in the U.S.
+
+9. No literal hell. Jehovah's Witnesses say there is no fiery hell of
+torment, but people who die will just "pass out of existence". They
+believe in annihilation. All cults either deny hell or at least minimize
+it so that it is not that bad. Jesus talked more about a real hell than he
+did heaven. (Mark 9:45 And if thy foot offend thee, cut it off: it is
+better for thee to enter halt into life, than having two feet to be cast
+into hell, into the fire that never shall be quenched:) This was a real
+story of a real person, not a parable. The rich man who went to hell said
+he was in torment and he is still in hell today being tormented. (Luke
+16:23 And in hell he lift up his eyes, being in torments, and seeth
+Abraham afar off, and Lazarus in his bosom.) The word hell is removed and
+changed in their bible to another word such as Sheol, Gehenna, Hades, and
+Tartarus (all untranslated words) to support their belief of no hell. Some
+verses on hell such as Mark 9:44 and Mark 9:46 which show hell fire is
+never quenched are removed in the NWT. The JW website says this about
+hell: "The final punishment for those who oppose God is, not eternal
+torment, but "everlasting destruction.������" The belief of annihilation can be
+seen in the change in the NWT in Matthew 25:46 where the KJB says
+"everlasting punishment" which is changed in the NWT to "everlasting
+cutting-off". The word damnation in the NWT is also removed and changed to
+judgment.
+
+10. Dead feel nothing. JW's believe that the dead are conscious of nothing
+including pain or pleasure in some spirit realm, but rather do not exist
+except in God's memory. They can only hope to be resurrected in the
+future. JW's believe the saved will be here on earth and the unsaved will
+get a second chance to get saved. There is no second chance after death.
+(Hebrews 9:27 And as it is appointed unto men once to die, but after this
+the judgment:) For Christians when we die we go immediately to God and do
+have pleasure and know we exist. We are alive. (II Corinthians 5:8 We are
+confident, I say, and willing rather to be absent from the body, and to be
+present with the Lord.) I already mentioned how the rich man went to hell
+when he died and he was in torment and he also remembered his brothers and
+did not want them coming to hell as he did, but for Lazarus to be sent to
+them to preach to them. (Luke 16:28 For I have five brethren; that he may
+testify unto them, lest they also come into this place of torment.)  
+
+11. Never display the cross. JW's never wear a cross or display it in
+their congregations or homes. Their worship places are known as Kingdom
+Halls and congregations, not churches. Mormons, another cult do the same.
+No Christian should be ashamed of the cross.
+
+12. Holy Ghost is not God. Jehovah's Witnesses belief the Holy Ghost is
+not God or a person, but rather God's force. They refer to him as "it".
+This denies the deity of the Holy Ghost. I already mentioned the change in
+Genesis 1:2 from Spirit to God's force in their bible. (I John 5:7 For
+there are three that bear record in heaven, the Father, the Word, and the
+Holy Ghost: and these three are one.) (Acts 5:3-4 But Peter said, Ananias,
+why hath Satan filled thine heart to lie to the Holy Ghost, and to keep
+back part of the price of the land?
+4 Whiles it remained, was it not thine own? and after it was sold, was it
+not in thine own power? why hast thou conceived this thing in thine heart?
+thou hast not lied unto men, but unto God.) Ananias lied to the Holy Ghost
+and then verse 4 says he lied to God. Both of these verses show he is God
+and a person as a force cannot be lied to.
+
+13. Jesus was never resurrected in his body. Jehovah's Witnesses believe
+that Jesus died on the cross and passed out of existence and on the third
+day he was recreated as the archangel Michael. "God disposed of Jesus'
+body, not allowing it to see corruption and thus preventing its becoming a
+stumbling block to faith." (The Watchtower, November 15, 1991, page 31).
+They also teach the body of Jesus was hid. They deny a physical
+resurrection of Jesus. Jesus had to be physically resurrected or it served
+no purpose. All people will have their spiritual bodies resurrected
+someday. (I Corinthians 15:44 It is sown a natural body; it is raised a
+spiritual body. There is a natural body, and there is a spiritual body.)
+The resurrection of Jesus is the whole basis of Christianity that
+separates Christianity from all other religions. Jesus is alive today
+whereas all other religious founders such as Mohammed, Buddha, and Joseph
+Smith are dead. Paul even said that without the resurrection of Jesus, our
+faith was for nothing. (I Corinthians 15:14 And if Christ be not risen,
+then is our preaching vain, and your faith is also vain.) Jesus even said
+after his resurrection that he had a body of flesh and bone and told his
+disciples to touch him. (Luke 24:39 Behold my hands and my feet, that it
+is I myself: handle me, and see; for a spirit hath not flesh and bones, as
+ye see me have.) The NWT agrees with the KJB here in this verse. The NWT
+is changed to support this belief in some verses. I Peter 3:18 is changed
+from the KJB "being put to death in the flesh, but quickened by the
+Spirit:" to "put to death in the flesh but made alive in the spirit." The
+KJB says Jesus was made alive (quickened) by the Holy Ghost. It never says
+only in the spirit as in the NWT. All other people in scripture were
+raised physically not spiritually so why would Jesus not have been? Jesus
+said his body was a temple and would be raised in three days. (John 2:19
+Jesus answered and said unto them, Destroy this temple, and in three days
+I will raise it up.) (John 2:21But he spake of the temple of his body.)
+The NWT agrees with the KJB in these two verses.
+
+14. People have no soul. Jehovah's Witnesses believe that people have no
+soul and say there is no invisible soul or spirit that is separate from
+the physical body and that at death of the physical body there is no soul
+or spirit that lives on. Scripture says we have all three and that we
+worship in spirit. (I Thessalonians 5:23 And the very God of peace
+sanctify you wholly; and I pray God your whole spirit and soul and body be
+preserved blameless unto the coming of our Lord Jesus Christ.) (Hebrews
+4:12 For the word of God is quick, and powerful, and sharper than any
+twoedged sword, piercing even to the dividing asunder of soul and spirit,
+and of the joints and marrow, and is a discerner of the thoughts and
+intents of the heart.) How can our soul and spirit be divided if they are
+nonexistent? (Ecclesiastes 12:7 Then shall the dust return to the earth as
+it was: and the spirit shall return unto God who gave it.) Ecclesiastes
+12:7 also shows that when people die they are not annihilated, but rather
+their spirit returns to God. (Zechariah 12:1 The burden of the word of the
+LORD for Israel, saith the LORD, which stretcheth forth the heavens, and
+layeth the foundation of the earth, and formeth the spirit of man within
+him.) (John 4:24 God is a Spirit: and they that worship him must worship
+him in spirit and in truth.) (John 6:63 It is the spirit that quickeneth;
+the flesh profiteth nothing: the words that I speak unto you, they are
+spirit, and they are life.) The NWT makes changes in I John 4:1 since they
+believe people do not have a spirit. The problem is this verse is not
+speaking of the spirit in man, but rather spirits in reference to angels.
+This verse is to warn us to beware of devils who try to deceive us. The
+Jehovah's Witnesses are removing much in this verse so they are not tried
+and found guilty as false prophets. The KJB is changed from "believe not
+every spirit" to "do not believe every inspired expression" in the NWT. If
+something is inspired it means it is from God, so the NWT is saying do not
+always believe God and JW's do not or they would not believe the things
+they do. The NWT changes Genesis 2:7 in the KJB which shows man is really
+a soul that is temporarily in a physical body from "man became a living
+soul" to "man became a living person" to deny that man has a soul.   
+
+15. We have been in the last days since 1914. Jehovah's Witnesses believe
+that we have been living in the last days since 1914 and that some who saw
+those events in 1914 will see the complete destruction of the present
+wicked world [from JW website]. There cannot be many people alive today
+from 1914, let alone a Jehovah's Witness who saw this. A newborn would be
+107 years old as of 2021 and you would have to be older than that to have
+seen the events. As most of the supposed Witnesses who saw this die off
+they have tried to hide this fact or change the date since supposedly only
+these people are true Jehovah's Witnesses who hear from God and can
+determine doctrine. If they all die off, the cult is dead. It is true that
+we are living in the last days, but not the way the Jehovah's Witnesses
+believe. Jehovah's Witnesses teach that Jesus returned in 1914 spiritually
+and set up his kingdom in heaven where he is today reigning in a real
+government. They believe most of the 144,000 are already in heaven with
+Jesus. The second coming of Jesus will be visible to the whole world, not
+invisible or spiritual. (Matthew 24:30 And then shall appear the sign of
+the Son of man in heaven: and then shall all the tribes of the earth
+mourn, and they shall see the Son of man coming in the clouds of heaven
+with power and great glory.) (II Thessalonians 1:7 And to you who are
+troubled rest with us, when the Lord Jesus shall be revealed from heaven
+with his mighty angels,) The NWT bible is changed to show this belief by
+changing Jesus is coming in verses to "presence" as if Jesus is already
+here. Here are a couple examples: I Thessalonians 4:15 is changed from
+"the coming of the Lord" to "the presence of the Lord" and I Thessalonians
+5:23 from "the coming of our Lord Jesus Christ" to "the presence of our
+Lord Jesus Christ". 
+
+16. Jehovah's Witnesses trace back to Abel. Jehovah's Witnesses say they
+only restored true Christianity in their modern start in the late 1870's,
+but they really go all the way back to faithful Abel and say the verses of
+faithful men from Hebrews 11:4-12:1 represents them. They say they got
+their modern name of Jehovah's Witnesses in 1931 from Isaiah 43:10-12.
+These verses are not referring to Jehovah's Witnesses.
+
+17. Jesus is not eternal. Jehovah's Witnesses do not believe that Jesus is
+eternal, but rather a created being as I previously mentioned. Their New
+world Translation bible shows this in John 8:58 where Jesus said he was
+God and eternal by changing from the King James Bible "Before Abraham was,
+I am" to "before Abraham came into existence, I have been". The Pharisees
+recognized Jesus was saying he was God when he said I am and this is why
+they crucified him.
+
+18. God did not purchase the church with his own blood. Jesus as God
+purchased the church with his own blood. Since the Jehovah's Witnesses do
+not believe Jesus is God they had to change Acts 20:28 in their bible to
+say "his own Son" rather than "his own blood" since they believe Jesus was
+just a man. It is subtle and deceitful the way they do things as all cults
+do. Acts 20:28 in the King James Bible is changed from "to feed the church
+of God, which he hath purchased with his own blood" to "to shepherd the
+congregation of God, which he purchased with the blood of his own Son" in
+their New World Translation bible. 
+
+19. Must read two books before being baptized. A Jehovah's Witness must
+read two books and answer a hundred questions before being allowed to be
+baptized. Scripture says to be baptized you just have to believe that
+Jesus Christ is the Son of God, not read books and answer lots of
+questions. (Acts 8:36-37 And as they went on their way, they came unto a
+certain water: and the eunuch said, See, here is water; what doth hinder
+me to be baptized?
+37 And Philip said, If thou believest with all thine heart, thou mayest.
+And he answered and said, I believe that Jesus Christ is the Son of God.)
+I do believe that a person should be asked about their testimony of
+salvation to as best as we can tell see if they are saved and then briefly
+explain to them the reason and meaning of baptism, but it is not necessary
+to read books and ask all these questions.
+
+20. Baptized in the name of Jehovah's Witnesses, not the Godhead.
+Jehovah's Witnesses are baptized in the name of the Watch Tower
+organization, not in the name of the Father, the Son, and the Holy Ghost
+as scripture says. (Matthew 28:19 ¶ Go ye therefore, and teach all
+nations, baptizing them in the name of the Father, and of the Son, and of
+the Holy Ghost:)  
+
+21. New Age Movement terms used in NWT. Many New Age terms are used in the
+NWT. The New Age Movement is from Satan, not God so why would a supposed
+Christian church use these terms in its bible? The New Age Movement is
+part of the coming satanic New World Order. One example is the Holy Ghost
+who is the Comforter is "the helper" in lower case in John 14:26. Lower
+case denies the deity of the Holy Ghost and the term "the helper" is a
+term used by New Agers for devils who possess them or at least assist
+them. This is blasphemy and is close to the unpardonable sin of
+attributing the work of the Holy Ghost to the devil. Jesus himself said in
+(Matthew 12:31-32 ¶ Wherefore I say unto you, All manner of sin and
+blasphemy shall be forgiven unto men: but the blasphemy against the Holy
+Ghost shall not be forgiven unto men.
+32 And whosoever speaketh a word against the Son of man, it shall be
+forgiven him: but whosoever speaketh against the Holy Ghost, it shall not
+be forgiven him, neither in this world, neither in the world to come.) The
+word human is used in the NWT in such places as Hebrews 12:9. Human comes
+from the names of two false gods. Another term used in the NWT is "the
+One" in such places as Revelation 21:5 which is a term New Agers use for
+Satan. I Peter 2:9 changes "generation" to the New Age term and
+evolutionist term "race". There are no races. We are all of one blood.
+Race is a way Satan tries to segregate groups of people against another.
+(Acts 17:26 And hath made of one blood all nations of men for to dwell on
+all the face of the earth, and hath determined the times before appointed,
+and the bounds of their habitation;) The term "the Christ" is also
+sometimes used in place of "Christ" such as Acts 2:31. This is the second
+most popular term used by New Agers after "the One". The term "way" is
+also capitalized in some verses such as Acts 22:4. New Agers used the
+capitalized "Way" to represent the way of the New Age and also Satan.
+These are just some examples. One silly translation found in the NWT is in
+Job 6:6 which in the KJB says "is there any taste in the white of an egg?"
+to "is there any taste in the slimy juice of marshmallow?". This is not a
+New Age term, but shows the errors of translation. The New International
+Version (NIV) which many professing Christians believe is such a great
+version, when it is garbage and a perversion, has sometimes been used by
+Jehovah's Witnesses instead of the NWT when witnessing since it is such a
+popular bible version and people are more comfortable with it. It nearly
+agrees with the NWT in most places. No Christian would ever use a NWT, yet
+they will use the NIV with no problem when it agrees in most places (over
+90%) with the NWT. Wake up Christians. This should be a warning to all
+those who use the NIV on how corrupt it is as the Jehovah's Witnesses will
+use it for their own. 
+
+22. Believe in an old earth. Their website says "Jehovah's Witnesses have
+no objection to credible scientific research that indicates the earth may
+be billions of years old." Their NWT bible makes changes to support this
+belief. The NWT changes the KJB "the first day" and "the second day" along
+with the rest of the other days as found in Genesis 1:5, 1:8, et cetera to
+"a first day", "a second day", et cetera. This allows for any length of
+time for each day and fits in with the day-age theory and other old earth
+beliefs such as the gap theory, all of which are unscriptural. Their own
+website says these were not literal 24 hour days to show this is why this
+change was made in their bible. The website says "the word "day" in the
+Bible can refer to a considerable length of time". The website also says
+the earth and universe existed prior to the creation which again allows
+for an old earth. Scripture says the earth is a little less than 6,000
+years old if you add up the genealogies found in Genesis 5. The NWT also
+changes "end of the world" as found in the KJB in such places as Matthew
+28:20 to "conclusion of the system of things" with a footnote saying this
+means end of an age. Age is not only a New Age term, but is used by modern
+bibles to promote an old earth as evolutionists say that the earth is made
+up of many ages such as the age of dinosaurs in order to promote an old
+earth.
+
+23. A few other changes made in the NWT to fit their doctrines. Jehovah's
+Witnesses are well known for going door to door to try and win converts.
+This is similar to Mormons another cult. Jehovah's Witnesses believe in
+public preaching and have made a change in their bible to show this
+belief. I do believe in public preaching and do admire both of these cults
+for going door to door. I just wish more Baptists would do that, but
+Romans 10:10 is not referring to public preaching like they believe.
+Romans 10:10 is about confessing with our mouths that Jesus is God and
+that Jesus rose from the grave as verse 9 says. We confess this to God.
+Now I do believe a person should confess this to their pastor and before
+the church prior to being baptized, but this verse has nothing to do with
+the door to door evangelism done by Jehovah's Witnesses. (Romans 10:10 For
+with the heart man believeth unto righteousness; and with the mouth
+confession is made unto salvation. [KJB]) (Romans 10:10 For with the heart
+one exercises faith for righteousness, but with the mouth one makes public
+declarationfor salvation. [NWT]) We can see this changed in Hebrews 13:15
+as well. (Hebrews 13:15 By him therefore let us offer the sacrifice of
+praise to God continually, that is, the fruit of our lips giving thanks to
+his name. [KJB]) (Hebrews 13:15 Through him let us always offer to God a
+sacrifice of praise,that is, the fruit of our lipsthat make public
+declaration to his name. [NWT]) The JW's website says of them getting
+their new name of Jehovah's Witnesses "this was a clever move that not
+only provided an official name for the group but also made it easy for
+them to interpret all the Biblical references to "witness" and
+"witnessing" as applying specifically to Jehovah's Witnesses." They admit
+that they now try to say all scripture verses about witness or witnessing
+refer to them and only Jehovah's Witnesses. This is twisting scripture,
+something all cults do.
+
+The comma is moved in Luke 23:43 so that the thief is no longer in
+paradise with Jesus that very day of their deaths as in the KJB to now in
+the NWT Jesus tells the thief that day that someday he will be with him,
+but the thief will not see paradise until sometime in the future. This
+supports their false doctrine that Jesus did not set up his kingdom until
+1914, so the thief would not have been there that day. (Luke 23:43 And
+Jesus said unto him, Verily I say unto thee, To day shalt thou be with me
+in paradise. [KJB]) (Luke 23:43 And he said to him: "Truly I tell you
+today, you will be with me in Paradise." [2013 NWT])
+
+Worship is changed to do obeisance for Jesus since they do not
+believe he is God and do not worship him. One example is Mark 5:6 where
+the KJB "worshipped him" is changed in the NWT to "did obeisance to him".
+This also shows works which JW's believe is necessary for salvation.    
+
+There are many more changes made in their bible than the ones I have
+mentioned.
+
+24. Prohibit blood transfusions. Jehovah's Witnesses teach that scripture
+prohibits blood transfusions. They are not allowed to get them, donate
+blood or even store their own blood for a future blood transfusion. This
+includes the four components of blood as well which are red and white
+blood cells, platelets, and plasma. Many wear a dog tag saying they are a
+Jehovah's Witness and to not give them a blood transfusion. Many have died
+for refusing to get blood. They twist the following scriptures to come up
+with their false doctrine. This came about in 1945 showing how their
+doctrine changes over time as all cults do. This doctrine itself has
+changed over the years. Hospitals are given instructions on how to deal
+with Jehovah's Witnesses. If a Jehovah's Witness gets a blood transfusion
+they will be banned and shunned. Here are some verses used by Jehovah's
+Witnesses to try and justify this false doctrine. (Genesis 9:4 But flesh
+with the life thereof, which is the blood thereof, shall ye not eat.)
+(Leviticus 17:10 ¶ And whatsoever man there be of the house of Israel, or
+of the strangers that sojourn among you, that eateth any manner of blood;
+I will even set my face against that soul that eateth blood, and will cut
+him off from among his people.) (Acts 15:28-29 For it seemed good to the
+Holy Ghost, and to us, to lay upon you no greater burden than these
+necessary things;
+29 That ye abstain from meats offered to idols, and from blood, and from
+things strangled, and from fornication: from which if ye keep yourselves,
+ye shall do well. Fare ye well.) You do not eat the blood in a blood
+transfusion. This thinking is similar to the cult of Roman Catholicism
+that teaches that they are literally drinking the blood of Jesus when they
+are in reality drinking wine. Cults always twist scripture. Mark 7:15 says
+what is from the outside of man cannot defile him, but rather what is
+inside. This shows blood transfusions are ok. (Mark 7:15 There is nothing
+from without a man, that entering into him can defile him: but the things
+which come out of him, those are they that defile the man.)
+
+Verses for witnessing
+
+When witnessing to Jehovah's Witnesses, you need to get them to lose
+trust in the Watch Tower Society as that is their only hope. Here are some
+scriptures for any Jehovah's Witness who may be listening or for others to
+use to show them that Jehovah and Jesus are the same when they deny Jesus
+is. (Isaiah 45:22 Look unto me, and be ye saved, all the ends of the
+earth: for I am God, and there is none else. [KJB]) (Isaiah 45:22 Turn to
+me and be saved, all the ends of the earth, For I am God, and there is no
+one else. [2013 NWT] Jehovah's Witnesses say that only Jehovah is God and
+that this verses use of God refers to Jehovah. Acts 4:12 in reference to
+Jesus says that Jesus is the only name that can save us. (Acts 4:12
+Neither is there salvation in any other: for there is none other name
+under heaven given among men, whereby we must be saved. [KJB]) The NWT
+agrees with the KJB here in Acts. Isaiah 45:23 says every knee will bow to
+God spoken of in verse 22 of Isaiah 45 and he has sworn to himself.
+(Isaiah 45:23 I have sworn by myself, the word is gone out of my mouth in
+righteousness, and shall not return, That unto me every knee shall bow,
+every tongue shall swear. [KJB]) (Isaiah 45:23 By myself I have sworn; The
+word has gone out of my mouth in righteousness, And it will not return:To
+me every knee will bend, Every tongue will swear loyalty [2013 NWT]) Now
+Philippians 2:10-11 repeats this verse, but now says it will be Jesus who
+we will bow before. If we only bow before God and this speaks of Jehovah
+in Isaiah 45:23 then Jesus must be Jehovah and God. (Philippians 2:10-11
+That at the name of Jesus every knee should bow, of things in heaven,
+and things in earth, and things under the earth;
+11 And that every tongue should confess that Jesus Christ is Lord, to the
+glory of God the Father. [KJB]) (Philippians 2:10-11 so that in the name
+of Jesus every knee should bend-of those in heaven and those on earth and
+those under the ground11 and every tongue should openly acknowledge that
+Jesus Christ is Lordto the glory of God the Father. [2013 NWT]) Isaiah
+43:11 says the LORD is the only Saviour, yet Jesus said he was because he
+is Jehovah and our Saviour. (Isaiah 43:11 I, even I, am the LORD; and
+beside me there is no saviour. [KJB]) (Isaiah 43:11 I-I am Jehovah,and
+besides me there is no savior." [2013 NWT]) Acts 4:12 that we just read
+says only the name of Jesus will save you and many other verses say Jesus
+is our Saviour. Isaiah 45:21 says there is only one God and he is the
+Saviour. (Isaiah 45:21 Tell ye, and bring them near; yea, let them take
+counsel together: who hath declared this from ancient time? who hath told
+it from that time? have not I the LORD? and there is no God else beside
+me; a just God and a Saviour; there is none beside me. [KJB]) (Isaiah
+45:21 Make your report, present your case. Let them consult together in
+unity. Who foretold this long ago And declared it from times past? Is it
+not I, Jehovah? There is no other God but me; A righteous God and a
+Savior,there is none besides me. ]2013 NWT]) The NWT says the LORD here is
+Jehovah which shows if Jesus is the Saviour he must be Jehovah.
+Philippians 3:20 shows Jesus is the Saviour. (Philippians 3:20 For our
+conversation is in heaven; from whence also we look for the Saviour, the
+Lord Jesus Christ: [KJB]) The NWT agrees Jesus is the Saviour Jehovah's
+Witnesses are looking for. (Philippians 3:20 But our citizenshipexists in
+the heavens,and we are eagerly waiting for a savior from there, the Lord
+Jesus Christ, [NWT]) All three members of the Godhead are God and so are
+Jehovah. God the Father, God the Son or Jesus Christ, and God the Holy
+Ghost are all Jehovah. Isaiah 40:3 prophesies of John the Baptist
+preparing the way for the LORD who is God. The NWT says preparing the way
+for Jehovah. (Isaiah 40:3 ¶ The voice of him that crieth in the
+wilderness, Prepare ye the way of the LORD, make straight in the desert a
+highway for our God. [KJB]) (Isaiah 40:3 A voice of one calling out in the
+wilderness: "Clear up the way of Jehovah!Make a straight highwaythrough
+the desert for our God. [2013 NWT]) (Matthew 3:3 For this is he that was
+spoken of by the prophet Esaias, saying, The voice of one crying in the
+wilderness, Prepare ye the way of the Lord, make his paths straight.
+[KJB]) (Matthew 3:3 This, in fact, is the one spoken of through Isaiah the
+prophetin these words: "A voice of one calling out in the wilderness:
+'Prepare the way of Jehovah! Make his roads straight.'" [2013 NWT])
+Scripture in other places clearly shows John the Baptist cleared the way
+for Jesus. So if as in the NWT he cleared the way for Jehovah and Jesus is
+who John the Baptist cleared the way for, then Jesus must be Jehovah.
+Isaiah 41:4 and Isaiah 44:6 say Jehovah is the first and the last and then
+verses in Revelation say Jesus is first and last showing he is none other
+than Jehovah and is God who has always existed and was not created.
+(Isaiah 41:4 Who hath wrought and done it, calling the generations from
+the beginning? I the LORD, the first, and with the last; I am he. [KJB])
+(Isaiah 41:4 Who has acted and done this, Summoning the generations from
+the beginning? I, Jehovah, am the First One;And with the last ones I am
+the same." [2013 NWT]) (Isaiah 44:6 Thus saith the LORD the King of
+Israel, and his redeemer the LORD of hosts; I am the first, and I am the
+last; and beside me there is no God. [KJB]) (Isaiah 44:6 This is what
+Jehovah says, The King of Israeland his Repurchaser,Jehovah of armies:' I
+am the first and I am the last.There is no God but me. [2013 NWT])
+(Revelation 1:11 Saying, I am Alpha and Omega, the first and the last:
+and, What thou seest, write in a book, and send it unto the seven churches
+which are in Asia; unto Ephesus, and unto Smyrna, and unto Pergamos, and
+unto Thyatira, and unto Sardis, and unto Philadelphia, and unto Laodicea.
+[KJB]) The NWT removes the phrase "I am Alpha and Omega, the first and the
+last" in Revelation 1:11. (Revelation 1:17 And when I saw him, I fell at
+his feet as dead. And he laid his right hand upon me, saying unto me, Fear
+not; I am the first and the last: [KJB]) (Revelation 1:17 When I saw him,
+I fell as dead at his feet.And he laid his right hand on me and said: "Do
+not be afraid. I am the Firstand the Last, [2013 NWT]) (Revelation 2:8 And
+unto the angel of the church in Smyrna write; These things saith the first
+and the last, which was dead, and is alive; [KJB]) (Revelation 2:8 "And to
+the angel of the congregation in Smyrʹna write: These are the things that
+he says, 'the First and the Last,'who became dead and came to life again:
+[2013 NWT]) (Revelation 22:13 I am Alpha and Omega, the beginning and the
+end, the first and the last. [KJB]) (Revelation 22:13 I am the Alʹpha and
+the O·meʹga, the first and the last, the beginning and the end. [2013
+NWT]) Jesus is the one who was making all of these I am the first and the
+last statements in Revelation so if Jehovah is the first and the last as
+seen in Isaiah 41:4 and Isaiah 44:6 then Jesus must be Jehovah. Revelation
+2:8 says the first and the last died and is now alive. The NWT says the
+first and the last is Jehovah. When did Jehovah die? On the other hand
+this is easy to see as Jesus who is Jehovah did die and is now alive. This
+is the only time God died so the first and the last must be Jesus who is
+Jehovah. Zechariah 12:10 says they will look on him who they pierced.
+(Zechariah 12:10 And I will pour upon the house of David, and upon the
+inhabitants of Jerusalem, the spirit of grace and of supplications: and
+they shall look upon me whom they have pierced, and they shall mourn for
+him, as one mourneth for his only son, and shall be in bitterness for him,
+as one that is in bitterness for his firstborn. [KJB]) (Zechariah 12:10 "I
+will pour out on the house of David and on the inhabitants of Jerusalem
+the spirit of favor and supplication, and they will look to the one whom
+they pierced,and they will wail over him as they would wail over an only
+son; and they will grieve bitterly over him as they would grieve over a
+firstborn son. [2013 NWT]) John 19:37 says this prophecy was fulfilled by
+Jesus when he was crucified and pierced by a spear. (John 19:37 And again
+another scripture saith, They shall look on him whom they pierced. [KJB])
+(John 19:37 And again, a different scripture says: "They will look to the
+one whom they pierced." [2013 NWT]) Revelation 1:7 also shows Jesus is the
+one who was pierced. These comparisons of the many verses all show that
+Jesus is Jehovah, so precious Jehovah's Witness please turn to Jesus now
+and ask him to save you and leave the Jehovah's Witnesses now.  
+
+Signs of a cult.
+
+There are many signs of a cult that are recognized by all cult
+authorities. Here are some of them and we will see how Jehovah's Witnesses
+fit the definition of a cult. Not all signs are shown. Not every cult will
+fit every sign mentioned below. I have already clearly shown how Jehovah's
+Witnesses is false Christianity with all of their false doctrines that
+contradict scripture and now they fit the description of a cult.
+
+1. The leader is the ultimate authority and above the law and is
+infallible. This has been shown in the Governing Body of the Jehovah's
+Witnesses led by the president who make all doctrinal decisions and have
+authority of discipline. They often claim they are equal, but the reality
+is a different story.
+
+2. The group suppresses criticism and one is only to read approved
+sources. The Jehovah's Witnesses have always tried to silence their
+opponents and critics and has often forbad Jehovah's Witnesses from
+reading the truth not only in scripture, but in other books and sources.
+Jehovah's Witnesses are very defensive to anyone who criticizes them and
+will try to silence them. Baptists and true Christians do not do this.
+
+3. Cults try to never let a member leave. Jehovah's Witnesses have a long
+history of doing this to their people. Those that do are normally shunned
+by their families and friends and other Jehovah's Witnesses.
+
+4. Cults claim to be the one true church and salvation is only by them.
+Jehovah's Witnesses say this and like other cults claim they go back to
+the apostles. Salvation is by Jesus Christ, not a church.
+
+5. Only the leaders of the cult can understand their literature. This is
+what Jehovah's Witnesses' leaders say. Jehovah's Witnesses are told they
+can only understand scripture by studying Watch Tower literature along
+with it.
+
+6. Cults add to scripture and often have their own books. I have shown how
+Jehovah's Witnesses add the Watchtower and Awake magazines. Jehovah's
+Witnesses also have their own bible just like Roman Catholicism.
+
+7. Cults subtract from scripture. Jehovah's Witnesses remove many verses
+and words from their bible.  
+
+8. Cults use intimidation and fear for obedience. Jehovah's Witnesses have
+done this over the years threatening expulsion and other punishment. They
+even have their own laws for their community of do's and don'ts.
+
+9. Cults are often involved in illegal activities. Jehovah's Witnesses
+have many cases of child molestation that have never been reported.
+
+10. Cults always distort the gospel and add works for salvation. I have
+already shown this to be true of Jehovah's Witnesses.
+
+11. Cults use means to deceive and control their followers. I already
+mentioned how the leaders will use scare tactics that Armageddon is coming
+soon and that only as a Jehovah's Witness can they be ready. They have
+also manipulated their bible and twisted must scripture as well as their
+literature to deceive the people into believing Jesus is not God. They
+have lied to them about prophecies and about hell.  
+
+12. Cults are often legalistic on how their members must live. Jehovah's
+Witnesses are the same. I have already mentioned some things such as not
+celebrating birthdays and holidays and not allowed blood transfusions.
+JW's are to only associate with other JW's.
+
+13. Cults use Christian terms with different meanings than used in
+scripture or in standard Christianity. Jehovah's Witnesses use many terms
+with different meanings such as being born again where only the 144,000
+are and the meaning of the millennial kingdom.   
+
+14. Normally have other literature, books, et cetera that are considered
+equal or above scripture. Jehovah's Witnesses have the Watchtower and
+Awake magazines and their own bible the New World Translation with changes
+to match their false doctrines.
+
+15. Jesus is replaced by someone-something else or at least very
+minimized. Jehovah's Witnesses deny the deity of Jesus and say he is a
+created being and formerly an angel. Their bible minimizes Jesus by either
+removing his titles or making them lower case removing his deity.
+
+For those who have family members, friends, coworkers, or others that
+we know in the Watch Tower Society, we need to let them know the truth and
+get them out before it is eternally too late. God loves precious Jehovah's
+Witnesses souls as much as anyone else and wishes that all of them would
+call upon him for salvation, but they must get out of the Watch Tower
+Society.
+
+For any precious Jehovah's Witnesses souls that may be listening to
+these sermons on Jehovah's Witnesses, I pray that you get out of the Watch
+Tower Society and turn to the real Jesus of scripture by repenting of your
+sins and admitting you are a sinner and calling upon Jesus to save you.
+Satan who is the god of this world has blinded you. (II Corinthians 4:4 In
+whom the god of this world hath blinded the minds of them which believe
+not, lest the light of the glorious gospel of Christ, who is the image of
+God, should shine unto them.) Let the real Jesus of scripture open your
+eyes. The Watch Tower Society will only lead you to an eternity in the
+lake of fire. You must have the Jesus of scripture as your Saviour, not
+the Jehovah's Witnesses Jesus who is really Satan. Jesus loves all souls
+including Jehovah's Witnesses and wishes that none should perish. Today is
+the day of salvation, Call upon Jesus today before it is eternally too
+late. (II Peter 3:9 The Lord is not slack concerning his promise, as some
+men count slackness; but is longsuffering to us-ward, not willing that any
+should perish, but that all should come to repentance.) [II Corinthians
+6:2 (For he saith, I have heard thee in a time accepted, and in the day of
+salvation have I succoured thee: behold, now is the accepted time; behold,
+now is the day of salvation.)] (Galatians 4:16 Am I therefore become your
+enemy, because I tell you the truth?) 
+
+Precious Jehovah's Witness, if the Watch Tower Society admits they
+are not infallible and their writings are not inspired and they are not
+inspired and they have been wrong many times on prophecy and they have
+lied to you, then how can you trust them for your eternal soul? Why not
+trust the Holy Bible that is inspired rather than the Watch Tower that
+admits it is not inspired. (II Timothy 3:16 All scripture is given by
+inspiration of God, and is profitable for doctrine, for reproof, for
+correction, for instruction in righteousness: [KJB]) (II Timothy 3:16 All
+Scripture is inspired of Godand beneficial for teaching,for reproving, for
+setting things straight, for disciplining in righteousness, [NWT]) Who
+will you trust with your eternal soul? The uninspired Watch Tower Society
+and men who have been wrong in the past and lied to you or the inspired
+Holy Bible and God?  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

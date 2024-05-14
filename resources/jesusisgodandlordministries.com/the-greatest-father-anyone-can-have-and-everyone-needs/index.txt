@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,439 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Greatest Father Anyone Can Have And Everyone Needs
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+As we celebrate Father's Day today, I want to tell you about the
+greatest Father of all.
 
-Username or email _____________________
+This sermon is about the greatest Father anyone can have and everyone
+needs, but only a few people have the privilege to be able to call him
+Father. God the Father is Father to all who are true born again Christians
+washed in the blood of Jesus. He sets the example for all earthly dads to
+follow. God the Father will always be there for you even when your natural
+dad forsakes you. (Psalm 27:10 When my father and my mother forsake me,
+then the LORD will take me up.)  
 
-Reset password
+God the Father never fails in his love for his children. He showed
+his ultimate love for his children as well as for those he desires to be
+his children by sending his only begotten Son, Jesus Christ to die for our
+sins so that we may have eternal life and restore the intended
+relationship with him and man that was broken by the sin of Adam. (John
+3:16 ¶ For God so loved the world, that he gave his only begotten Son,
+that whosoever believeth in him should not perish, but have everlasting
+life.) (II Peter 3:9 The Lord is not slack concerning his promise, as some
+men count slackness; but is longsuffering to us-ward, not willing that any
+should perish, but that all should come to repentance.) Those who receive
+Jesus as their Saviour are adopted by God the Father as his children.
+(John 1:12 But as many as received him, to them gave he power to become
+the sons of God, even to them that believe on his name:) (Romans 8:14-15
+14 For as many as are led by the Spirit of God, they are the sons of God.
+15 For ye have not received the spirit of bondage again to fear; but ye
+have received the Spirit of adoption, whereby we cry, Abba, Father.) As
+children of God we can call him Abba, Father or Daddy. As a good Father he
+chasteneth his children. He does this out of love and not to hurt us just
+as an earthly dad disciplines his children so they will stay on the
+straight and narrow. (Hebrews 12:6 For whom the Lord loveth he chasteneth,
+and scourgeth every son whom he receiveth.) Another way God the Father
+shows us love is that he allows Jesus to be our intercessor before him
+when Satan comes before his throne to accuse us of some sin. Jesus tells
+the Father that our sin has been washed in his blood. We see that God the
+Father is forgiving. (Ephesians 4:32 And be ye kind one to another,
+tenderhearted, forgiving one another, even as God for Christ's sake hath
+forgiven you.) Earthly dads need to follow the example of our heavenly
+Father in forgiving their children when they do wrong.
+
+God the Father is pleased in his Son and his adopted children. This
+is seen at the baptism of Jesus by John the Baptist. (Matthew 3:13-17 13 ¶
+Then cometh Jesus from Galilee to Jordan unto John, to be baptized of him.
+14 But John forbad him, saying, I have need to be baptized of thee, and
+comest thou to me? 15 And Jesus answering said unto him, Suffer it to be
+so now: for thus it becometh us to fulfil all righteousness. Then he
+suffered him. 16 And Jesus, when he was baptized, went up straightway out
+of the water: and, lo, the heavens were opened unto him, and he saw the
+Spirit of God descending like a dove, and lighting upon him: 17 And lo a
+voice from heaven, saying, This is my beloved Son, in whom I am well
+pleased.) (Mark 1:9-11 9 And it came to pass in those days, that Jesus
+came from Nazareth of Galilee, and was baptized of John in Jordan. 10 And
+straightway coming up out of the water, he saw the heavens opened, and the
+Spirit like a dove descending upon him: 11 And there came a voice from
+heaven, saying, Thou art my beloved Son, in whom I am well pleased.) (Luke
+3:21-22 21 Now when all the people were baptized, it came to pass, that
+Jesus also being baptized, and praying, the heaven was opened, 22 And the
+Holy Ghost descended in a bodily shape like a dove upon him, and a voice
+came from heaven, which said, Thou art my beloved Son; in thee I am well
+pleased.) We see this again when Jesus took Peter, James, and John up a
+high mountain and was transfigured before them displaying the true glory
+of his Son Jesus. (Matthew 17:1-9 1 And after six days Jesus taketh Peter,
+James, and John his brother, and bringeth them up into an high mountain
+apart, 2 And was transfigured before them: and his face did shine as the
+sun, and his raiment was white as the light. 3 And, behold, there appeared
+unto them Moses and Elias talking with him. 4 Then answered Peter, and
+said unto Jesus, Lord, it is good for us to be here: if thou wilt, let us
+make here three tabernacles; one for thee, and one for Moses, and one for
+Elias. 5 While he yet spake, behold, a bright cloud overshadowed them: and
+behold a voice out of the cloud, which said, This is my beloved Son, in
+whom I am well pleased; hear ye him. 6 And when the disciples heard it,
+they fell on their face, and were sore afraid. 7 And Jesus came and
+touched them, and said, Arise, and be not afraid. 8 And when they had
+lifted up their eyes, they saw no man, save Jesus only. 9 And as they came
+down from the mountain, Jesus charged them, saying, Tell the vision to no
+man, until the Son of man be risen again from the dead.) (Mark 9:2-9 2 ¶
+And after six days Jesus taketh with him Peter, and James, and John, and
+leadeth them up into an high mountain apart by themselves: and he was
+transfigured before them. 3 And his raiment became shining, exceeding
+white as snow; so as no fuller on earth can white them. 4 And there
+appeared unto them Elias with Moses: and they were talking with Jesus. 5
+And Peter answered and said to Jesus, Master, it is good for us to be
+here: and let us make three tabernacles; one for thee, and one for Moses,
+and one for Elias. 6 For he wist not what to say; for they were sore
+afraid. 7 And there was a cloud that overshadowed them: and a voice came
+out of the cloud, saying, This is my beloved Son: hear him. 8 And
+suddenly, when they had looked round about, they saw no man any more, save
+Jesus only with themselves. 9 And as they came down from the mountain, he
+charged them that they should tell no man what things they had seen, till
+the Son of man were risen from the dead.) (II Peter 1:17-18 17 For he
+received from God the Father honour and glory, when there came such a
+voice to him from the excellent glory, This is my beloved Son, in whom I
+am well pleased. 18 And this voice which came from heaven we heard, when
+we were with him in the holy mount.) We see a third time that God the
+Father speaks audibly to Jesus in answer to his prayer. We not only see
+that God the Father hears and answers our prayers, but also cares about
+what we ask for. Jesus prayed and asked that God the Father's name be
+glorified and it was. This was shortly before he went to the cross for our
+sins. (John 12:28-30 28 Father, glorify thy name. Then came there a voice
+from heaven, saying, I have both glorified it, and will glorify it again.
+29 The people therefore, that stood by, and heard it, said that it
+thundered: others said, An angel spake to him. 30 Jesus answered and said,
+This voice came not because of me, but for your sakes.)
+
+God the Father's house has many mansions prepared by Jesus for all
+those who have received his Son Jesus. (John 14:2 In my Father's house are
+many mansions: if it were not so, I would have told you. I go to prepare a
+place for you.) Our Heavenly Father sent the Comforter, who is the Holy
+Ghost to indwell in believers after Pentecost. He cares enough for his
+adopted children that he does not want us to be alone. Jesus acknowledges
+the Father is righteous in John 17:25. (John 17:25 O righteous Father, the
+world hath not known thee: but I have known thee, and these have known
+that thou hast sent me.)
+
+God the Father raised Jesus from the dead by the Holy Ghost. Without
+Jesus's resurrection, we would still be dead in our sins. (Galatians 1:1
+Paul, an apostle, (not of men, neither by man, but by Jesus Christ, and
+God the Father, who raised him from the dead;) (I Corinthians 15:17 And if
+Christ be not raised, your faith is vain; ye are yet in your sins.) God
+the Father along with Jesus gives us grace, mercy, and peace. (II Timothy
+1:2 To Timothy, my dearly beloved son: Grace, mercy, and peace, from God
+the Father and Christ Jesus our Lord.) (Titus 1:4 To Titus, mine own son
+after the common faith: Grace, mercy, and peace, from God the Father and
+the Lord Jesus Christ our Saviour.)
+
+God the Father will take control of the kingdom from Jesus following
+the end of the millennium after Jesus has conquered death. God the Father
+will run the kingdom during eternity. (I Corinthians 15:24-28 24
+Then cometh the end, when he shall have delivered up the kingdom to God,
+even the Father; when he shall have put down all rule and all authority
+and power.
+25 For he must reign, till he hath put all enemies under his feet.
+26 The last enemy that shall be destroyed is death.
+27 For he hath put all things under his feet. But when he saith all things
+are put under him, it is manifest that he is excepted, which did put all
+things under him.
+28 And when all things shall be subdued unto him, then shall the Son also
+himself be subject unto him that put all things under him, that God may be
+all in all.)
+
+Our Heavenly Father is omnipotent (all powerful), omniscient (all
+knowing), and omnipresent (present everywhere at once). (Revelation 19:6
+And I heard as it were the voice of a great multitude, and as the voice of
+many waters, and as the voice of mighty thunderings, saying, Alleluia: for
+the Lord God omnipotent reigneth.) We see he has foreknowledge in I Peter
+1:2. (I Peter 1:2 Elect according to the foreknowledge of God the Father,
+through sanctification of the Spirit, unto obedience and sprinkling of the
+blood of Jesus Christ: Grace unto you, and peace, be multiplied.) We also
+see in this verse how God already knows who will receive his Son and be
+saved. This does not mean that only those people can be saved only that
+they chose to be saved. All may who seek Jesus be saved. Our heavenly
+Father rides around in a chariot of clouds (Psalm 104:3 Who layeth the
+beams of his chambers in the waters: who maketh the clouds his chariot:
+who walketh upon the wings of the wind:). God the Father has always
+existed and allowed his Son Jesus to create everything for his glory. He
+is the Ancient of Days (Daniel 7:9 ¶ I beheld till the thrones were cast
+down, and the Ancient of days did sit, whose garment was white as snow,
+and the hair of his head like the pure wool: his throne was like the fiery
+flame, and his wheels as burning fire.) He also allows his adoptive
+children to also serve him by telling others about Jesus and in many ways
+in the church.
+
+The Father never changes and will always do his will and pleasure.
+(Isaiah 46:9-10 9 Remember the former things of old: for I am God, and
+there is none else; I am God, and there is none like me, 10 Declaring the
+end from the beginning, and from ancient times the things that are not yet
+done, saying, My counsel shall stand, and I will do all my pleasure:)
+
+When we pray, we are to pray to the Father in the name of Jesus. The
+Father gives us our needs and answers our prayers if it is his will if we
+ask the Father in Jesus's name. This is Jesus's name, not Mary's name or
+any other false god such as Allah. God the Father always provides for his
+children according to his will. (John 16:23 And in that day ye shall ask
+me nothing. Verily, verily, I say unto you, Whatsoever ye shall ask the
+Father in my name, he will give it you.) The Father provides his children
+with perfect gifts, not junk or unwanted things. (James 1:17 Every good
+gift and every perfect gift is from above, and cometh down from the Father
+of lights, with whom is no variableness, neither shadow of turning.) Jesus
+said in Matthew 7:11 If ye then, being evil, know how to give good gifts
+unto your children, how much more shall your Father which is in heaven
+give good things to them that ask him?
+
+God will also sometimes take his children home early who are being
+disobedient. If a believer continues in their sin without confession, God
+may bring them home early. They will not lose their salvation, just their
+earthly life. He does this for his sake and ours. (I John 5:16 If any man
+see his brother sin a sin which is not unto death, he shall ask, and he
+shall give him life for them that sin not unto death. There is a sin unto
+death: I do not say that he shall pray for it.)
+
+God the Father cares so much for us and hates sin so much that when
+his only begotten Son Jesus was on the cross bearing the sins for the
+whole world for all time, he could not even look at his Son. (Mark 15:34
+And at the ninth hour Jesus cried with a loud voice, saying, Eloi, Eloi,
+lama sabachthani? which is, being interpreted, My God, my God, why hast
+thou forsaken me?) (Matthew 27:46 And about the ninth hour Jesus cried
+with a loud voice, saying, Eli, Eli, lama sabachthani? that is to say, My
+God, my God, why hast thou forsaken me?)
+
+God the Father is the Father of all believers. He is the first person
+in the Godhead. We are made in his image. He should be the heavenly
+example to all earthly dads. God the Father is love which all earthly dads
+should follow. All dads should raise their children in a godly manner and
+home. Dads should make time with their family to study scripture together.
+It is his responsibility to be the spiritual leader in the house and to
+teach his children about Jesus. He needs to set the example for the family
+by being a man of God, being a great husband for his wife, loving and
+cherishing her, and being a great dad for his children, loving them and
+spending time with them. Let them know that God is to be first in their
+lives above everything and everyone else including their dad. Make sure
+the family is brought each service to a God fearing Biblically based
+church. Do your best to see that all of your family is won for the Lord,
+so they too will have a heavenly Father.
+
+God the Father is love and this is best seen through his Son. The
+best way to know God the Father is through his Son Jesus Christ. Jesus
+said in John 10:30 I and my Father are one. (John 3:35 The Father loveth
+the Son, and hath given all things into his hand.) (I John 4:8-11 8 He
+that loveth not knoweth not God; for God is love. 9 In this was manifested
+the love of God toward us, because that God sent his only begotten Son
+into the world, that we might live through him. 10 Herein is love, not
+that we loved God, but that he loved us, and sent his Son to be the
+propitiation for our sins. 11 Beloved, if God so loved us, we ought also
+to love one another.) Dads be an example to love the way God does.
+(Proverbs 22:6 Train up a child in the way he should go: and when he is
+old, he will not depart from it.) (Isaiah 54:13 And all thy children shall
+be taught of the LORD; and great shall be the peace of thy children.)
+(Ephesians 6:4 And, ye fathers, provoke not your children to wrath: but
+bring them up in the nurture and admonition of the Lord.) (Proverbs 17:6
+Children's children are the crown of old men; and the glory of children
+are their fathers.) Proverbs 17:6 especially applies to children with a
+godly dad.  
+
+To be able to call God your Father, ye must be born again. I pray
+that all will want him for their Father. Obey the gospel and receive Jesus
+as your Saviour.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

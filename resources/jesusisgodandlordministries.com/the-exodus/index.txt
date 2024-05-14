@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,441 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+The Exodus   
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Many people claim the exodus of the Israelites from Egypt is a myth
+or they minimize it in some way such as saying the Israelites crossed the
+Reed sea and not the Red sea. The whole event is changed to cast doubt on
+the existence of God. One reason that people want to do this is because we
+see in the story how God punishes evil especially to those who mess with
+the Israelites who are God's chosen people as well as how he protects his
+chosen people. This also applies to true Christians that make up the
+church as well that he will protect us. Sinners do not want to believe the
+exodus or this means that God is real and he will then punish them for
+their sins as well.
 
-Username or email _____________________
+The Israelites moved to Egypt when Jacob moved his family to Egypt
+during the seven years of famine that hit all of the land and only Egypt
+had food with his son Joseph second in charge only to pharaoh in Egypt.
+Over time the Israelites were made slaves to the Egyptians who feared that
+their great population growth might cause the people to rebel and conquer
+Egypt. God sent Moses back to Egypt after wondering in the wilderness for
+40 years having escaped Egypt for killing a man. God told Moses to tell
+pharaoh to let his people go. God told Moses that pharaoh would not listen
+so God brought ten plagues against Egypt. You can see my sermon on the ten
+plagues. Following the tenth plague which was the death of the firstborn
+including the death of pharaoh's son then he finally let the Israelites
+go. This is known as the exodus and is described in detail in the book of
+Exodus. God had told the Israelites to be ready to leave at a moment's
+notice which they did after midnight. After the Israelites made their
+departure in the night, pharaoh changed his mind about letting them go and
+he took his army and followed after them in chariots. (Exodus 14:9 But the
+Egyptians pursued after them, all the horses and chariots of Pharaoh, and
+his horsemen, and his army, and overtook them encamping by the sea, beside
+Pi-hahiroth, before Baal-zephon.) Verse 7 says pharaoh had 600 chariots.
 
-Reset password
+Pharaoh and his army cornered the Israelites by the Red sea and the
+people complained, but God used Moses to dry up the Red sea so that the
+Israelites could cross over on dry ground. The Egyptians followed them,
+but God brought the wall of water back upon them and drown them all,
+having preserved all of the Israelites. (Exodus 14:21-30 21 And Moses
+stretched out his hand over the sea; and the LORD caused the sea to
+go back by a strong east wind all that night, and made the sea dry land,
+and the waters were divided.
+22 And the children of Israel went into the midst of the sea upon the
+dry ground: and the waters were a wall unto them on their right hand, and
+on their left.
+
+23 ¶ And the Egyptians pursued, and went in after them to the midst of the
+sea, even all Pharaoh's horses, his chariots, and his horsemen.
+24 And it came to pass, that in the morning watch the LORD looked unto the
+host of the Egyptians through the pillar of fire and of the cloud, and
+troubled the host of the Egyptians,
+25 And took off their chariot wheels, that they drave them heavily: so
+that the Egyptians said, Let us flee from the face of Israel; for the
+LORD fighteth for them against the Egyptians.
+
+26 ¶ And the LORD said unto Moses, Stretch out thine hand over the sea,
+that the waters may come again upon the Egyptians, upon their chariots,
+and upon their horsemen.
+27 And Moses stretched forth his hand over the sea, and the sea returned
+to his strength when the morning appeared; and the Egyptians fled against
+it; and the LORD overthrew the Egyptians in the midst of the sea.
+28 And the waters returned, and covered the chariots, and the
+horsemen, and all the host of Pharaoh that came into the sea after them;
+there remained not so much as one of them.
+29 But the children of Israel walked upon dry land in the midst of the
+sea; and the waters were a wall unto them on their right hand, and on
+their left.
+30 Thus the LORD saved Israel that day out of the hand of the Egyptians;
+and Israel saw the Egyptians dead upon the sea shore.) This verse clearly
+shows that the Israelites crossed the Red sea, not the Reed sea and that
+there was a wall of water around them on both sides. Doubters that say
+they crossed over on the Reed sea which is not even a real sea just deny
+God's word. The Reed sea is shallow enough that a person could walk across
+it and narrow enough that it would not take all night to cross. You cannot
+have a wall of water around you on both sides if the water is not even
+over your head. It would also be highly unlikely for everyone to drown in
+such shallow water and all chariots destroyed. If people would just trust
+the King James Bible they would know the proper translation is the Red
+sea. This was clearly a miracle by God. It would be no miracle to cross
+over a body of water that is at most knee deep. Some modern bibles change
+Red sea to Sea of Reeds such as the New Jerusalem Bible to deny this
+miracle of God. These verses say that the chariot wheels fell off. Ron
+Wyatt found the location where the Israelites crossed over. It was
+actually the Gulf of Aqaba which is one of the arms of the Red sea. It was
+at Nuweiba Beach that they crossed over. This was a large flat beach that
+could hold the roughly two million Israelites before they crossed the Red
+sea. It covers over ten square miles. It is surrounded by mountains with
+only one narrow passage in just as scripture says. Scripture says they
+were shut in. (Exodus 14:3 For Pharaoh will say of the children of Israel,
+They are entangled in the land, the wilderness hath shut them in.) This
+location also has a land bridge under the water that would have been used
+for the Israelites to cross over on after the water was removed by God and
+has a shallow pitch to allow easy access to the water. At this point the
+water is about 900 feet deep which would clearly make a wall of water on
+both sides, but this is shallow compared to over five thousand feet on
+either side of this land bridge. It is about a mile wide allowing for the
+large mass of people to quickly cross. Isaiah 51:10 describes the waters
+were they crossed as waters of the great deep and speaks of the depths of
+the sea. This clearly again shows this was not some shallow water. The
+ransomed in this verse is the Israelites and is a type of how Christians
+in baptism become symbolic new creatures as they come up out of the water
+and pass over to a new life with Jesus Christ. (Isaiah 51:10 Art thou not
+it which hath dried the sea, the waters of the great deep; that hath made
+the depths of the sea a way for the ransomed to pass over?) Notice verse
+22 says they crossed on the dry ground. God not only removed the water,
+but also the mud that would be left after the water is removed. If you
+drain a pond it will still be all muddy yet God even took care of that so
+it was dry ground to cross over on. Ron Wyatt found chariot wheels at the
+bottom of the sea just as scripture says God took off the chariot wheels
+and they match the chariot wheels of the time period used by Egypt in the
+number of spokes. If this was not the spot then how did Egyptian chariot
+wheels get here? What is believed to be an ancient Egyptian fort was found
+at the northern end of the beach. This would have forced the Israelites to
+flee south yet the mountains here go right up to the sea leaving the
+Israelites with nowhere to go except to trust in God. This is the location
+in the water where the chariot wheels were found. Chariot wheels have
+never been found anywhere else in the Red sea.  
+
+Ron Wyatt also found that king Solomon had marked the sight of the
+Red sea crossing into what is now Saudi Arabia with two pillars with
+inscription describing the crossing. One was on the Egyptian side and one
+in Saudi Arabia on the other side. The Saudi side pillar has since been
+taken down by the Saudi government.    
+
+The Israelites lived in the land of Goshen at the top of Egypt in the
+area around the Nile delta which is why it was the best land in Egypt.
+(Genesis 47:6 The land of Egypt is before thee; in the best of the land
+make thy father and brethren to dwell; in the land of Goshen let them
+dwell: and if thou knowest any men of activity among them, then make them
+rulers over my cattle.) God said he did not allow them to go straight from
+there to the Promised Land, but rather detoured them south to cross the
+Red sea since they were weak in the faith and were not ready to fight the
+giants yet and would run back to Egypt. (Exodus 13:17-18 17 ¶ And it came
+to pass, when Pharaoh had let the people go, that God led them
+not through the way of the land of the Philistines, although
+that was near; for God said, Lest peradventure the people repent when they
+see war, and they return to Egypt:
+18 But God led the people about, through the way of the wilderness of the
+Red sea: and the children of Israel went up harnessed out of the land of
+Egypt.) The fact they lived in Goshen shows they did not cross at the
+bottom of the Red sea and they also did not cross north of it in the
+alleged Reed sea since God did not let them take the shortest route, but
+purposely made them have to cross the Red sea to learn to trust in God and
+not in themselves. We need to do the same. (Hebrews 11:29 By faith they
+passed through the Red sea as by dry land: which the Egyptians assaying to
+do were drowned.)   
+
+The Israelites started leaving Egypt on 14 Nisan which became the
+first passover and traveled three days journey into the wilderness and
+crossed the Red sea on 17 Nisan. (Exodus 5:3 And they said, The God of the
+Hebrews hath met with us: let us go, we pray thee, three days' journey
+into the desert, and sacrifice unto the LORD our God; lest he fall upon us
+with pestilence, or with the sword.) This is the same day that Jesus
+Christ later rose from the grave. The crossing of the Red sea was a type
+of the resurrection of Jesus as the Israelites were given a new life under
+God. They also crossed under the water of the Red sea which like the
+Genesis flood is a type of the future baptism by Christians with the
+coming up out of the water in baptism representing resurrection. (I Peter
+3:21 The like figure whereunto even baptism doth also now save us (not the
+putting away of the filth of the flesh, but the answer of a good
+conscience toward God,) by the resurrection of Jesus Christ:) Baptism does
+not save, the resurrection of Jesus does. (I Corinthians 10:1-2 1
+Moreover, brethren, I would not that ye should be ignorant, how that all
+our fathers were under the cloud, and all passed through the sea;
+2 And were all baptized unto Moses in the cloud and in the sea;) Verse 2
+seems to also imply being under the cloud was also a type of baptism with
+this cloud being Jesus and clouds being made of rain water and Jesus is
+the living water. (John 4:10 Jesus answered and said unto her, If thou
+knewest the gift of God, and who it is that saith to thee, Give me to
+drink; thou wouldest have asked of him, and he would have given thee
+living water.) (John 7:38 He that believeth on me, as the scripture hath
+said, out of his belly shall flow rivers of living water.) I Corinthians
+10:11 says these things were for ensamples of things to come to show you
+that the crossing of the Red sea was a type of baptism. (I Corinthians
+10:11 Now all these things happened unto them for ensamples: and they are
+written for our admonition, upon whom the ends of the world are come.)
+Seventeen means victory and God gave the Israelites victory over the
+Egyptians on this day as God drowned all of the Egyptians.   
+
+Ron Wyatt also found other things that confirmed the events after the
+crossing of the Red sea as the Israelites would wander in the wilderness
+for 40 years before God allowed them to enter the Promised Land. Ron found
+the mountain that is the real Mt. Sinai where Moses received the ten
+commandments. The top of this mountain was blackened just as scripture
+says when God spoke from it. (Exodus 19:18 And mount Sinai was altogether
+on a smoke, because the LORD descended upon it in fire: and the smoke
+thereof ascended as the smoke of a furnace, and the whole mount quaked
+greatly.) Many people claim that Mt. Sinai is in Egypt in the Sinai
+Peninsula for which it was named. This cannot be as where they crossed
+over shows they ended up in Saudi Arabia and even scripture says that is
+where they ended up as it says in Arabia. (Galatians 4:25 For this Agar is
+mount Sinai in Arabia, and answereth to Jerusalem which now is, and is in
+bondage with her children.)
+
+Ron also found the rock that Moses struck to give the people water
+while in the wilderness. The rock is about 60 feet high and split down the
+middle and shows evidence of massive water erosion such as would occur
+after the water would be flowing out like a river to provide water for
+over two million people and their animals. (Exodus 12:37 ¶ And the
+children of Israel journeyed from Rameses to Succoth, about six hundred
+thousand on foot that were men, beside children.) This verse does not
+include the women or children in the 600,000. This rock is elevated to
+allow the water to flow out and down across the wilderness just like a
+river. (Exodus 17:6 Behold, I will stand before thee there upon the rock
+in Horeb; and thou shalt smite the rock, and there shall come water out of
+it, that the people may drink. And Moses did so in the sight of the elders
+of Israel.)
+
+Ron also found where Aaron made the golden calf. There is even a
+drawing of the calf on the altar. (Exodus 32:8 They have turned aside
+quickly out of the way which I commanded them: they have made them a
+molten calf, and have worshipped it, and have sacrificed thereunto, and
+said, These be thy gods, O Israel, which have brought thee up out of the
+land of Egypt.) There is also a grave site about four miles from where the
+golden altar was which most likely contains the 3,000 people killed by God
+because of the golden calf and idolatry and also possibly the twenty
+thousand killed by God in the plague associated with this event. It is
+clearly a pre Muslim cemetery. This site is fenced off and guarded by the
+Saudi government. (Exodus 32:28 And the children of Levi did according to
+the word of Moses: and there fell of the people that day about three
+thousand men.) Scripture says that Moses ground the golden calf and
+stirred it in the water and made the people drink of it showing there had
+to be a stream nearby that the people drank from. Aerial evidence in the
+location of where the golden calf was shows that at one time a large
+stream of water did flow in this location just as scripture says. (Exodus
+32:20 And he took the calf which they had made, and burnt it in the fire,
+and ground it to powder, and strawed it upon the water, and made the
+children of Israel drink of it.)
+
+We are told in Exodus 24:4 that Moses built an altar for the people
+to offer sacrifices to God as well as built twelve pillars for the twelve
+tribes of Israel. (Exodus 24:4 And Moses wrote all the words of the LORD,
+and rose up early in the morning, and builded an altar under the hill, and
+twelve pillars, according to the twelve tribes of Israel.) It is believed
+that this location has been found as well. It is impossible for all of
+these things to match up with scripture if they were not the real
+locations including starting with the crossing of the Red sea not the
+non-existent Reed sea. Trust scripture, not man. For more information and
+pictures showing the evidence you can go to Ron Wyatt's website
+www.ronwyatt.com or www.doubtingthomasresearch.com which has a great
+YouTube video showing evidence and Ron Wyatt has his own videos.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

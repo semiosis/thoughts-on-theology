@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,427 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Thankful people in scripture  
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+We just celebrated Thanksgiving on Thursday and today we are going to
+look at some people in scripture who were thankful for what God had done
+for them. We set aside one day each year to give thanks to God for what he
+does for us each and every day, yet we need to learn to be thankful every
+day. We need to thank God every day for all aspects of our lives even the
+things that are not good in our eyes. God has a purpose and plan for even
+the bad things in our lives. We need to learn to trust in God in
+everything and not just the good things and learn to thank God every day
+including the fact that he gave us another day to live. We live in a
+violent sin sick world and people are dying every day so we need to
+rejoice when God lets us breathe for another day.
 
-Username or email _____________________
+The first person from scripture that we will look at is an unnamed
+individual. We will know his name when we get to heaven. We see from this
+example that God knows who they are, but we need to just learn from their
+thankfulness. Even the unnamed are important to God. This unnamed man was
+one of the ten lepers that were healed by God. Ten lepers had cried out to
+Jesus asking him to heal them. They all left as Jesus said to go to the
+priest and they were cleansed when they left, but only this man returned
+after seeing he was healed to thank Jesus for healing him. This man was a
+Samaritan which were enemies of the Jews yet he gave thanks to God whereas
+the other nine which were most likely Jews did not. Some people are never
+grateful. Jesus even said to the leper where are the other nine. Jesus
+said only this stranger returned to give thanks. Because this leper was
+truly thankful Jesus not only cleansed his leprosy, but he also cleansed
+and saved his soul so that one day we will see him in heaven. Leprosy was
+a dreaded disease to get as you had to avoid all people and yet the other
+nine remained in their sins as ungrateful men. (Luke 17:11-19 11 ¶ And it
+came to pass, as he went to Jerusalem, that he passed through the midst of
+Samaria and Galilee.
+12 And as he entered into a certain village, there met him ten men that
+were lepers, which stood afar off:
+13 And they lifted up their voices, and said, Jesus, Master, have mercy on
+us.
+14 And when he saw them, he said unto them, Go shew yourselves unto the
+priests. And it came to pass, that, as they went, they were cleansed.
 
-Reset password
+15 And one of them, when he saw that he was healed, turned back, and with
+a loud voice glorified God,
+16 And fell down on his face at his feet, giving him thanks: and he was a
+Samaritan.
+17 And Jesus answering said, Were there not ten cleansed? but where are
+the nine?
+18
+There are not found that returned to give glory to God, save this stranger.
+19 And he said unto
+him, Arise, go thy way: thy faith hath made thee whole.)
+
+The next person we will look at is Elisabeth who was the mother of
+John the Baptist. John the Baptist would go on to prepare the way for
+Jesus and his ministry. Elisabeth and her husband Zacharias who was a
+priest were unable to have a child as Elisabeth was well past child
+bearing age. In those days it was a disgrace for a woman to not be able to
+have a child and women especially wanted a child hoping they would give
+birth to the Messiah. Godly women would pray for a child especially a son
+unlike many women of today who quickly try to find a way to kill their
+child by abortion. Zacharias had seen an angel who said Elisabeth would
+have a son who would prepare the way for Jesus. Elisabeth was thankful
+when God blessed her with a son. (Luke 1:7 And they had no child, because
+that Elisabeth was barren, and they both were now well stricken in years.)
+(Luke 1:24-25 24 And after those days his wife Elisabeth conceived, and
+hid herself five months, saying,
+25 Thus hath the Lord dealt with me in the days wherein he looked on me,
+to take away my reproach among men.)
+
+Elisabeth's cousin Mary was also thankful to God when she found out
+she was going to give birth to the Messiah Jesus who would come to earth
+as the God-man to save mankind. Mary had been given the special privilege
+to give birth to the Messiah. All Jewish women had always wished they
+would be the one, but it was the young girl Mary who was chosen. Mary did
+not know how it would happen, but she trusted the Lord to make it happen
+just as she was told her cousin Elisabeth had become pregnant in her old
+age. (Luke 1:46-49 46 And Mary said, My soul doth magnify the Lord,
+47 And my spirit hath rejoiced in God my Saviour.
+48 For he hath regarded the low estate of his handmaiden: for, behold,
+from henceforth all generations shall call me blessed.
+49 For he that is mighty hath done to me great things; and holy is his
+name.)
+
+The unknown author of Psalm 111 starts off the psalm by praising God
+and praising God with his whole heart. This shows this man was sincere and
+thankful for all that God had done for him in his life and what he knew
+God would continue to do in his life. (Psalm 111:1-10 1 Praise ye the
+LORD. I will praise the LORD with my whole heart, in the assembly of the
+upright, and in the congregation.
+2 The works of the LORD are great, sought out of all them that have
+pleasure therein.
+3 His work is honourable and glorious: and his righteousness endureth for
+ever.
+4 He hath made his wonderful works to be remembered: the LORD is gracious
+and full of compassion.
+5 He hath given meat unto them that fear him: he will ever be mindful of
+his covenant.
+6 He hath shewed his people the power of his works, that he may give them
+the heritage of the heathen.
+7 The works of his hands are verity and judgment; all his commandments are
+sure.
+8 They stand fast for ever and ever, and are done in truth and
+uprightness.
+9 He sent redemption unto his people: he hath commanded his covenant for
+ever: holy and reverend is his name.
+10 The fear of the LORD is the beginning of wisdom: a good understanding
+have all they that do his commandments: his praise endureth for ever.)
+
+Following the crossing of the Red sea by the Israelites, God closed
+the sea upon the Egyptian army killing all of them including pharaoh.
+Miriam the sister of Moses was thankful for what God had done and so she
+began to dance and sing to God to give him praise and thanks. Her show of
+thankfulness to God rubbed off onto the women around her who joined her in
+giving thanks and praise to God. Oftentimes when people see us thanking
+God then it will encourage others to do the same. We need to influence
+people in godly ways rather than sinful ways. (Exodus 15:20-21 20 ¶ And
+Miriam the prophetess, the sister of Aaron, took a timbrel in her hand;
+and all the women went out after her with timbrels and with dances.
+21 And Miriam answered them, Sing ye to the LORD, for he hath triumphed
+gloriously; the horse and his rider hath he thrown into the sea.)
+
+Hannah was another woman who was left barren by the LORD. She
+desperately wanted to have a son hoping just like Elisabeth did and all
+the Jewish girls to be the one to give birth to the Messiah. Hannah had
+gone before the LORD in prayer at the temple praying and asking for a son.
+This is the first thing we need to do is pray. That shows that we trust
+God to be in control and are thankful that we can pray to him. Hannah
+promised to give her son to God to serve him all his life if God would
+give him a son. Hannah was obedient in doing this and so God blessed
+Hannah with three more sons and two daughters. The child she loaned to God
+was Samuel who was the great prophet and first judge of Israel. When
+Hannah brought Samuel to the temple to live there and serve God she gave
+thanks to God for giving her a son that she could loan to God. (I Samuel
+2:1-2 1 And Hannah prayed, and said, My heart rejoiceth in the LORD, mine
+horn is exalted in the LORD: my mouth is enlarged over mine enemies;
+because I rejoice in thy salvation.
+2 There is none holy as the LORD: for there is none beside thee: neither
+is there any rock like our God.) The prayer continues to verse 11.
+
+David in the fifty one verses of the entire chapter of II Samuel 22
+gives thanks to God and praise for his victory over Saul and the
+Philistines and other of his enemies who had tried to prevent his ruling
+as king. Saul's own family as well as others had attacked David and he had
+just defeated Philistine giants and so David was very thankful to God. He
+put the thanks in the right place as it belongs to God. (II Samuel
+22:48-51 48 It is God that avengeth me, and that bringeth down the people
+under me, 
+49 And that bringeth me forth from mine enemies: thou also hast lifted me
+up on high above them that rose up against me: thou hast delivered me from
+the violent man.
+50 Therefore I will give thanks unto thee, O LORD, among the heathen, and
+I will sing praises unto thy name.
+51 He is the tower of salvation for his king: and sheweth mercy to his
+anointed, unto David, and to his seed for evermore.)
+
+Paul and Silas had been preaching in Philippi when they cast a devil
+out of a woman that had brought much money to the people. This angered the
+people so they beat Paul and Silas with stripes using whips that cut into
+the skin and put them into prison with their feet in stocks that locked
+the feet into place. They would not even have been able to move their
+feet. They were most likely in a cold damp cell yet these two godly men
+still thanked God for the situation they were in that they could have this
+happen to them for serving God. At midnight they sang praises to glorify
+and thank God. Most people would have been bitter and angry and not
+thinking about thanking and praising God for their current situation, but
+not Paul and Silas. Because these two men thanked God instead of being
+ungrateful, the Lord used these two men to lead the Philippian jailor to
+salvation along with his whole house. God gave them freedom for honoring
+him. (Acts 16:25-26 25 ¶ And at midnight Paul and Silas prayed, and sang
+praises unto God: and the prisoners heard them.
+26 And suddenly there was a great earthquake, so that the foundations of
+the prison were shaken: and immediately all the doors were opened, and
+every one's bands were loosed.) (Acts 16:34 And when he had brought them
+into his house, he set meat before them, and rejoiced, believing in God
+with all his house.)
+
+Paul gave thanks to God for the Philippians who partnered with him in
+helping to spread the gospel. (Philippians 1:3-5 3 I thank my God upon
+every remembrance of you,
+4 Always in every prayer of mine for you all making request with joy,
+5 For your fellowship in the gospel from the first day until now;)
+
+Jesus himself gave thanks to God on many occasions. He himself is God
+yet as a man he set the example as always for us to be thankful to God in
+everything and for everything. Here are just a few times that Jesus gave
+thanks to God. Jesus often gave thanks for food just as we should. Jesus
+gave thanks for the food before he fed the five thousand. This
+thankfulness allowed a small lad's lunch of five barley loaves and two
+fishes to feed five thousand. (John 6:11 And Jesus took the loaves; and
+when he had given thanks, he distributed to the disciples, and the
+disciples to them that were set down; and likewise of the fishes as much
+as they would.) When Jesus instituted the Lord's supper he gave thanks
+both for the cup and the bread prior to distributing them. (Luke 22:17-19
+17 And he took the cup, and gave thanks, and
+said, Take this, and divide it among yourselves:
+18 For I say unto you, I will not drink of the fruit of the vine, until
+the kingdom of God shall come.
+
+19 ¶ And he took bread, and gave thanks, and brake it, and gave unto them,
+saying, This is my body which is given for you: this do in remembrance of me.)
+Jesus thanked God the Father for hearing him when he prayed to bring
+Lazarus back from the dead. He thanked God for hearing him and said he
+knew he would hear him. God will always hear the prayer of those who are
+walking with him and Jesus always walked with God. (John 11:41-42 41 Then
+they took away the stone from the place where the dead was laid. And Jesus
+lifted up his eyes, and
+said, Father, I thank thee that thou hast heard me.
+42 And I knew that thou hearest me always: but because of the people which
+stand by I said it, that they may believe that thou hast sent me.)
+
+This was just a few examples of godly individuals who gave God thanks
+for the situations they were in or for what God had done for them. We too
+need to learn to be thankful to God in all situations and for all that he
+does for us and not take God for granted the way the heathen do. Here are
+a couple of verses about giving thanks. (I Thessalonians 5:18 In every
+thing give thanks: for this is the will of God in Christ Jesus concerning
+you.) (Hebrews 13:15 By him therefore let us offer the sacrifice of praise
+to God continually, that is, the fruit of our lips giving thanks to his
+name.) (Colossians 3:17 And whatsoever ye do in word or deed, do all in
+the name of the Lord Jesus, giving thanks to God and the Father by him.)
+For those of us who are saved we need to thank God for sending his Son to
+die on a cross for us and rising again on that third day so that we might
+have everlasting life. Jesus bore our sins on the cross so that we would
+not have to. Let us learn to be thankful all the time unlike the unsaved
+who are rarely thankful. For those who are not saved, call upon Jesus
+today and thank God for saving you. Thank God that he has allowed a way
+for us as wretched sinners to not spend eternity in the lake of fire.
+Remember to thank God every day and not just on Thanksgiving.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

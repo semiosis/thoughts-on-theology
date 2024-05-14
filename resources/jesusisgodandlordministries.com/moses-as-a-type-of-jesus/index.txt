@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,553 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Moses as a type of Jesus
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Moses the great leader of Israel, the man of God, was a type of
+Jesus. Moses wrote the first five books of scripture [Genesis, Exodus,
+Leviticus, Numbers, Deuteronomy] and Psalm 90. Moses said that God would
+raise up a Prophet like unto him. (Deuteronomy 18:15 ¶ The LORD thy God
+will raise up unto thee a Prophet from the midst of thee, of thy brethren,
+like unto me; unto him ye shall hearken;) (Deuteronomy 18:18 I will raise
+them up a Prophet from among their brethren, like unto thee, and will put
+my words in his mouth; and he shall speak unto them all that I shall
+command him.) The life of Moses greatly paralleled the life of Jesus as we
+will see.
 
-Username or email _____________________
+Both Moses and Jesus were born at a time when Israel was under
+foreign control, Moses while Israel was controlled by Egypt and Jesus
+while Israel was under the control of the Roman Empire. Both Moses and
+Jesus had their lives spared while young as the rulers wanted them dead.
+Pharaoh ordered all of the male children born to be killed. (Exodus 1:22
+And Pharaoh charged all his people, saying, Every son that is born ye
+shall cast into the river, and every daughter ye shall save alive.) The
+life of Moses was spared when his mom placed him into an ark of bulrushes
+and placed him into the river where Pharaoh's daughter rescued him and
+raised him as her own son. The ark Moses was placed in was symbolic of the
+safety that Noah and his family had in the ark during the Genesis flood in
+which Jesus dwelt inside with them. People are also safe inside the arms
+of Jesus. Joseph fled with Mary and Jesus to Egypt to escape king Herod
+who ordered all male children under two years old to be killed in order to
+try and kill Jesus so he could not take Herod's throne as King of the
+Jews. (Matthew 2:13 And when they were departed, behold, the angel of the
+Lord appeareth to Joseph in a dream, saying, Arise, and take the young
+child and his mother, and flee into Egypt, and be thou there until I bring
+thee word: for Herod will seek the young child to destroy him.) Both Moses
+and Jesus spent some of their childhood in Egypt and came out of Egypt.
+Moses lived in Egypt until he was 40 and Jesus from about the age of 2
+until the death of Herod. Both Moses and Jesus were raised without
+biological dads; Moses by the daughter of Pharaoh and Jesus was adopted by
+Joseph who was his stepdad. Moses and Jesus both spent time in the
+wilderness before starting their ministries as they were called by God.
+Moses after leaving Egypt spent 40 years in the wilderness tending the
+sheep of his father in law Jethro. Jesus after being baptized by John the
+Baptist was led by the Spirit into the wilderness to be tempted by the
+devil. (Matthew 4:1 Then was Jesus led up of the Spirit into the
+wilderness to be tempted of the devil.) Moses had been a shepherd before
+starting his calling by God. (Exodus 3:1 Now Moses kept the flock of
+Jethro his father in law, the priest of Midian: and he led the flock to
+the backside of the desert, and came to the mountain of God, even to
+Horeb.) Jesus is the good shepherd. (John 10:11 I am the good shepherd:
+the good shepherd giveth his life for the sheep.)
 
-Reset password
+Moses had dealings with the wicked Pharaoh during the ten plagues
+while freeing Israel and Jesus had to deal with the wicked king Herod.
+(Luke 13:31 ¶ The same day there came certain of the Pharisees, saying
+unto him, Get thee out, and depart hence: for Herod will kill thee.)
+Neither feared the king. (Hebrews 11:27 By faith he forsook Egypt, not
+fearing the wrath of the king: for he endured, as seeing him who is
+invisible.) (Luke 13:32 And he said unto them, Go ye, and tell that fox,
+Behold, I cast out devils, and I do cures to day and to morrow, and the
+third day I shall be perfected.)
+
+Moses fasted for 40 days alone before God gave him the ten
+commandments and Jesus fasted for 40 days alone in the wilderness while
+being tempted by Satan. (Exodus 34:28 And he was there with the LORD forty
+days and forty nights; he did neither eat bread, nor drink water. And he
+wrote upon the tables the words of the covenant, the ten commandments.)
+(Matthew 4:2 And when he had fasted forty days and forty nights, he was
+afterward an hungred.)
+
+Moses and Jesus had to deal with people who hardened their hearts.
+Moses dealt with Pharaoh. (Exodus 8:15 But when Pharaoh saw that there was
+respite, he hardened his heart, and hearkened not unto them; as the LORD
+had said.) Jesus had to deal with his own apostle's hearts hardening. We
+as Christians need to be careful that our hearts do not harden. (Mark 6:52
+For they considered not the miracle of the loaves: for their heart was
+hardened.)
+
+Moses climbed mount Sinai to receive the law and Jesus went up into a
+mountain and preached the sermon on the mount. (Exodus 31:18 ¶ And he gave
+unto Moses, when he had made an end of communing with him upon mount
+Sinai, two tables of testimony, tables of stone, written with the finger
+of God.) (Matthew 5:1 And seeing the multitudes, he went up into a
+mountain: and when he was set, his disciples came unto him:) Both Moses
+and Jesus have a connection to the law. Moses received the ten
+commandments from God. Jesus actually wrote the law for Moses and came as
+a man to fulfill the law. (Matthew 5:17 ¶ Think not that I am come to
+destroy the law, or the prophets: I am not come to destroy, but to
+fulfil.)
+
+Moses and Jesus both wrote. Moses wrote down the words of the
+covenant between God and Israel. (Exodus 34:27 And the LORD said unto
+Moses, Write thou these words: for after the tenor of these words I have
+made a covenant with thee and with Israel.) Jesus wrote words on the
+ground before the men who accused the adulteress woman. (John 8:6 This
+they said, tempting him, that they might have to accuse him. But Jesus
+stooped down, and with his finger wrote on the ground, as though he heard
+them not.)
+
+Both Moses and Jesus performed miracles either to or on large bodies
+of water. Moses parted the Red sea and Jesus calmed the sea while a great
+storm was happening. (Mark 4:39 And he arose, and rebuked the wind, and
+said unto the sea, Peace, be still. And the wind ceased, and there was a
+great calm.) Moses performed miracles such as bringing forth water from a
+rock and Jesus performed many miracles such as he gave sight to the blind,
+hearing to the deaf, raised the dead to life, fed thousands, and many
+other miracles.
+
+Both fed hungry people in a wilderness. Moses appealed to God when
+the people murmured against him saying they were hungry and God gave the
+people manna and quails. Jesus fed 5,000 one time and 4,000 another time.
+Both gave water to the people. Moses struck a rock to bring forth water
+for the people. (Exodus 17:6 Behold, I will stand before thee there upon
+the rock in Horeb; and thou shalt smite the rock, and there shall come
+water out of it, that the people may drink. And Moses did so in the sight
+of the elders of Israel.) Jesus as the living water will give living water
+to all those who thirst spiritually and life everlasting. (John 4:14 But
+whosoever drinketh of the water that I shall give him shall never thirst;
+but the water that I shall give him shall be in him a well of water
+springing up into everlasting life.)
+
+Both men had ministries to Israel. Moses led the Israelites out of
+Egypt and led them in the wilderness. Jesus came to bring salvation to
+Israel and all mankind. (Acts 13:26 Men and brethren, children of the
+stock of Abraham, and whosoever among you feareth God, to you is the word
+of this salvation sent.)
+
+Both men were envied and hated. (Psalm 106:16 They envied Moses also
+in the camp, and Aaron the saint of the LORD.) The people rebelled against
+Moses as they wanted to be him. People were jealous of Moses. Jesus was
+delivered up for death because of envy in the people. The Pharisees were
+jealous of Jesus and were afraid of losing their power. (Matthew 27:18 For
+he knew that for envy they had delivered him.) Satan rebelled against the
+Godhead including Jesus when Satan wanted to be God.
+
+Moses and Jesus both spoke face to face with God. God spoke many
+times to Moses such as at the burning bush and on mount Sinai. God spoke
+to Jesus at times such as at his baptism and when Jesus prayed that his
+name be glorified again. (John 12:28 Father, glorify thy name. Then came
+there a voice from heaven, saying, I have both glorified it, and will
+glorify it again.)
+
+Both men suffered disgrace. Moses was brought up as the son of
+Pharaoh's daughter and would have been in the line to become pharaoh.
+Moses threw all of that away to become disgraced in the eyes of Pharaoh in
+order to lead his people out of Egypt. (Hebrews 11:24-25 By faith Moses,
+when he was come to years, refused to be called the son of Pharaoh's
+daughter;
+25 Choosing rather to suffer affliction with the people of God, than to
+enjoy the pleasures of sin for a season;) Jesus was disgraced when as an
+innocent man he died on the cross for our sins. He became a curse for us
+so that we might have everlasting life. (Hebrews 12:2 Looking unto Jesus
+the author and finisher of our faith; who for the joy that was set before
+him endured the cross, despising the shame, and is set down at the right
+hand of the throne of God.)
+
+Moses delivered Israel from Egypt and slavery and Jesus delivered
+those in paradise to a place in heaven and delivered all of those who call
+upon him for salvation from spiritual death and spiritual slavery due to
+sin and the consequences of it. (Ephesians 4:8 Wherefore he saith, When he
+ascended up on high, he led captivity captive, and gave gifts unto men.)
+(Romans 3:23 For all have sinned, and come short of the glory of God;)
+(Romans 6:23 For the wages of sin is death; but the gift of God is eternal
+life through Jesus Christ our Lord.)
+
+Moses was a meek man, more than all those on the earth. [Numbers 12:3
+(Now the man Moses was very meek, above all the men which were upon the
+face of the earth.)] Jesus was also a meek, humble man who said he would
+take on the burdens of people. (Matthew 11:29 Take my yoke upon you, and
+learn of me; for I am meek and lowly in heart: and ye shall find rest unto
+your souls.) Jesus humbled himself when as God he became a man that he
+might die on the cross for our sins and bring salvation to the world.
+(Philippians 2:8 And being found in fashion as a man, he humbled himself,
+and became obedient unto death, even the death of the cross.)
+
+Moses acted as an intercessor or mediator between God and the people
+of Israel. God wanted to destroy Israel and then start a new nation with
+Moses but Moses said he would rather have his name removed from the book
+of life and go to hell for eternity than to have God not keep his word to
+preserve Israel. (Exodus 32:32 Yet now, if thou wilt forgive their sin-;
+and if not, blot me, I pray thee, out of thy book which thou hast
+written.) Jesus as only he as the God-man can do is the intercessor for us
+before God. Jesus was willing to die on the cross for us in order to be
+our intercessor. (Hebrews 7:25 Wherefore he is able also to save them to
+the uttermost that come unto God by him, seeing he ever liveth to make
+intercession for them.)
+
+Moses was not recognized by his own people. (Acts 7:25 For he
+supposed his brethren would have understood how that God by his hand would
+deliver them: but they understood not.) Jesus was also not recognized by
+his own people. (John 1:10-11 10 He was in the world, and the world was
+made by him, and the world knew him not.
+11 He came unto his own, and his own received him not.) Jesus was rejected
+by those he had created.
+
+Moses and Jesus were both faithful. (Hebrews 3:2 Who was faithful to
+him that appointed him, as also Moses was faithful in all his house.)
+Moses was faithful as a servant, but Jesus was faithful as the Son of God.
+Jesus always did the will of God the Father.
+
+The people grumbled about Moses and his leadership. (Numbers 14:2 And
+all the children of Israel murmured against Moses and against Aaron: and
+the whole congregation said unto them, Would God that we had died in the
+land of Egypt! or would God we had died in this wilderness!) Jesus was
+also murmured at by the people because they did not like his teachings.
+This happens still today against preachers who preach God's word. (John
+6:41 The Jews then murmured at him, because he said, I am the bread which
+came down from heaven.)
+
+Moses sent out twelve spies to the Promised Land and Jesus sent out
+the twelve apostles to preach about him. Moses and Jesus were both
+prophets and priests. Both were kings. Jesus is King of kings and Moses
+was king of Jeshurun. (Deuteronomy 33:5 And he was king in Jeshurun, when
+the heads of the people and the tribes of Israel were gathered together.)
+(I Timothy 6:15 Which in his times he shall shew, who is the blessed and
+only Potentate, the King of kings, and Lord of lords;) Both men were
+judges and teachers. (Deuteronomy 4:5 Behold, I have taught you statutes
+and judgments, even as the LORD my God commanded me, that ye should do so
+in the land whither ye go to possess it.) (John 3:2 The same came to Jesus
+by night, and said unto him, Rabbi, we know that thou art a teacher come
+from God: for no man can do these miracles that thou doest, except God be
+with him.) (Exodus 18:13 ¶ And it came to pass on the morrow, that Moses
+sat to judge the people: and the people stood by Moses from the morning
+unto the evening.) (Revelation 19:11 And I saw heaven opened, and behold a
+white horse; and he that sat upon him was called Faithful and True, and in
+righteousness he doth judge and make war.)
+
+Both Moses and Jesus had raised and outstretched arms with two men
+beside them and a war going on. Moses while fighting the Amalekites had
+Aaron and Hur beside him who held his arms up. Jesus while hanging on the
+cross had two thieves beside him all while a spiritual war was going on.
+(Exodus 17:12 But Moses' hands were heavy; and they took a stone, and put
+it under him, and he sat thereon; and Aaron and Hur stayed up his hands,
+the one on the one side, and the other on the other side; and his hands
+were steady until the going down of the sun.) (Matthew 27:38 Then were
+there two thieves crucified with him, one on the right hand, and another
+on the left.)
+
+Moses and Jesus were together at the mount of transfiguration.(Matthew
+17:4 Then answered Peter, and said unto Jesus, Lord, it is good for us to
+be here: if thou wilt, let us make here three tabernacles; one for thee,
+and one for Moses, and one for Elias.)
+
+Both had people weep over their deaths and both had disputes and
+controversies over their bodies as well as important individuals
+interested in their bodies. (Deuteronomy 34:8 ¶ And the children of Israel
+wept for Moses in the plains of Moab thirty days: so the days of weeping
+and mourning for Moses were ended.) (Mark 16:10 And she went and told them
+that had been with him, as they mourned and wept.) Michael the archangel
+disputed over the body of Moses with Satan. (Jude 9 Yet Michael the
+archangel, when contending with the devil he disputed about the body of
+Moses, durst not bring against him a railing accusation, but said, The
+Lord rebuke thee.) Joseph of Arimathaea who was a member of the council
+wanted the body of Jesus. (Mark 15:43 Joseph of Arimathaea, an honourable
+counsellor, which also waited for the kingdom of God, came, and went in
+boldly unto Pilate, and craved the body of Jesus.)
+
+God told Moses to make a fiery serpent out of brass and set it upon a
+pole and that whenever someone was bitten by a fiery serpent if they
+looked at the one on the pole they would live. (Numbers 21:8 And the LORD
+said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it
+shall come to pass, that every one that is bitten, when he looketh upon
+it, shall live.) Jesus said that the brasen fiery serpent represented him
+on the cross as just as the serpent was cursed so was he. (Genesis 3:14
+And the LORD God said unto the serpent, Because thou hast done this, thou
+art cursed above all cattle, and above every beast of the field; upon thy
+belly shalt thou go, and dust shalt thou eat all the days of thy life:)
+(Galatians 3:13 Christ hath redeemed us from the curse of the law, being
+made a curse for us: for it is written, Cursed is every one that hangeth
+on a tree:) Those who look to Jesus and his death on the cross will live,
+those who do not will die and spend eternity in the lake of fire. (John
+3:14 ¶ And as Moses lifted up the serpent in the wilderness, even so must
+the Son of man be lifted up:)
+
+Both kept the passover and Jesus became the passover lamb. (I
+Corinthians 5:7 Purge out therefore the old leaven, that ye may be a new
+lump, as ye are unleavened. For even Christ our passover is sacrificed for
+us:) Both dealt with lepers. Jesus healed the lepers and Moses' sister
+Miriam became a leper after she challenged the authority of Moses.
+(Numbers 12:10 And the cloud departed from off the tabernacle; and,
+behold, Miriam became leprous, white as snow: and Aaron looked upon
+Miriam, and, behold, she was leprous.) (Luke 7:22 Then Jesus answering
+said unto them, Go your way, and tell John what things ye have seen and
+heard; how that the blind see, the lame walk, the lepers are cleansed, the
+deaf hear, the dead are raised, to the poor the gospel is preached.) Both
+Moses and Jesus sang. Moses sang after the victory at the Red sea and
+Jesus sang a hymn after the last supper. (Exodus 15:1 Then sang Moses and
+the children of Israel this song unto the LORD, and spake, saying, I will
+sing unto the LORD, for he hath triumphed gloriously: the horse and his
+rider hath he thrown into the sea.) (Mark 14:26 ¶ And when they had sung
+an hymn, they went out into the mount of Olives.) Both had connections to
+innocent blood. God gave Moses the laws concerning innocent blood. Jesus
+an innocent man shed his blood for you and me and the whole world.
+(Matthew 27:4 Saying, I have sinned in that I have betrayed the innocent
+blood. And they said, What is that to us? see thou to that.)
+
+Moses was offered the world but refused it. He was an heir to the
+throne of Pharaoh and at the time Egypt was a world power and Moses could
+have had it all. He chose God over the world and so should we. Jesus was
+offered the kingdoms of the world if he would have only bowed down to
+Satan and worshipped him. (Luke 4:5-7 5 And the devil, taking him up into
+an high mountain, shewed unto him all the kingdoms of the world in a
+moment of time.
+6 And the devil said unto him, All this power will I give thee, and the
+glory of them: for that is delivered unto me; and to whomsoever I will I
+give it.
+7 If thou therefore wilt worship me, all shall be thine.) Jesus refused
+and someday Jesus will rule this world and Satan will bow down to him.
+
+Both spoke of eternal fire; Moses on the altar and Jesus the fires of
+hell. (Matthew 23:33 Ye serpents, ye generation of vipers, how can ye
+escape the damnation of hell?) Both paid tribute. (Numbers 31:41 And Moses
+gave the tribute, which was the LORD'S heave offering, unto Eleazar the
+priest, as the LORD commanded Moses.) Jesus paid tribute for him and Peter
+when Peter got the coin from the mouth of the fish. (Matthew 17:27
+Notwithstanding, lest we should offend them, go thou to the sea, and cast
+an hook, and take up the fish that first cometh up; and when thou hast
+opened his mouth, thou shalt find a piece of money: that take, and give
+unto them for me and thee.) Both told wicked men to depart or to depart
+from the wicked. (Numbers 16:26 And he spake unto the congregation,
+saying, Depart, I pray you, from the tents of these wicked men, and touch
+nothing of theirs, lest ye be consumed in all their sins.) (Matthew 7:23
+And then will I profess unto them, I never knew you: depart from me, ye
+that work iniquity.) Both spoke of future tribulation. (Deuteronomy 4:30
+When thou art in tribulation, and all these things are come upon thee,
+even in the latter days, if thou turn to the LORD thy God, and shalt be
+obedient unto his voice;) Jesus often spoke of the coming great
+tribulation. (Matthew 24:21 For then shall be great tribulation, such as
+was not since the beginning of the world to this time, no, nor ever shall
+be.)
+
+Moses and Jesus were called God's servants. (Numbers 12:7 My servant
+Moses is not so, who is faithful in all mine house.) Jesus is the Son of
+God yet he became a servant of God as a man. (Matthew 12:18 Behold my
+servant, whom I have chosen; my beloved, in whom my soul is well pleased:
+I will put my spirit upon him, and he shall shew judgment to the
+Gentiles.) We all need to be servants of God.
+
+Moses was clearly a type of Jesus. Many others things could be added.
+Jesus was always greater than Moses. Jesus was the Prophet like unto Moses
+that Moses spoke about. Many thought John the Baptist was when they asked
+him if he was that prophet. This was what they were referring to. (John
+1:21 And they asked him, What then? Art thou Elias? And he saith, I am
+not. Art thou that prophet? And he answered, No.) The people were told to
+hear this Prophet which is Jesus. (Acts 3:22 For Moses truly said unto the
+fathers, A prophet shall the Lord your God raise up unto you of your
+brethren, like unto me; him shall ye hear in all things whatsoever he
+shall say unto you.) (Acts 7:37 ¶ This is that Moses, which said unto the
+children of Israel, A prophet shall the Lord your God raise up unto you of
+your brethren, like unto me; him shall ye hear.) If anyone today who is
+listening is not saved, then please hear this Prophet. Seek Jesus as the
+people were looking for him when John the Baptist came. Jesus said he is
+the only way to life. (John 14:6 Jesus saith unto him, I am the way, the
+truth, and the life: no man cometh unto the Father, but by me.) Call upon
+him today before it is too late.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

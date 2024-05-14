@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,502 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Links
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The following links are helpful for King James Bibles and other sources as
+well as other helpful information from Christian ministries. These links
+are to be helpful for Christians or those interested in knowing more, as
+well as to help support other ministries. I get no money in return and
+they do not even know I added their links. I do not necessarily agree with
+everything sold or written by the links, but overall they are very good.
+One example is I believe the Institute of Creation Research should only
+use the King James Bible, but they do have a very good daily Bible reading
+devotional called Days of Praise that is King James Bible and is free as
+well as they have great resources showing evolution is false. Please
+notify me of any links not working at
+kevin@jesusisgodandlordministries.com. Thank you.
 
-Username or email _____________________
+Links to King James Bibles online or for sale and/or books supporting the
+King James Bible:
 
-Reset password
+http://purebiblesearch.com (Allows you to search for words in the King
+James Bible as well as read the scripture. This is great for someone who
+does not have a concordance. Pastor Michael Hoggard has written two great
+books showing the inspiration of the King James Bible and also has many
+great YouTube videos.)
+
+www.kingjamesbibleonline.org
+
+https://www.jesus-is-savior.com/Bible/KJB/pce.pdf and
+https://www.jesus-is-savior.com/Bible/KJB/pce_minion.pdf (One can print
+out their own Holy Bible. These links are for the Pure Cambridge King
+James Bible which is considered by some the purest King James Bible with
+spelling and punctuation.)
+
+http://www.avpublications.com (Great books defending the King James Bible.
+Highly recommend Dr. Gail Riplinger's books, especially New Age Versions
+and In Awe of Thy Word.)
+
+https://www.thekjvstore.com/ (Sells King James Bibles and other books
+supporting the King James Bible. They sell the King James Bible on DVD
+showing the text with audio read by Stephen Johnston or one by Alexander
+Scourby. The DVD does not show the pilcrows [paragraph markings] in the
+text as in a proper King James Bible. I do not agree with all they sell,
+but overall a great store.)
+
+http://www.vancepublications.com
+
+http://www.samgipp.com
+
+Links to hymns and hymnals:
+
+http://www.hymnsradio.com
+
+http://www.theoldtimegospel.com
+
+http://www.hymnary.org/hymnal/BH1991
+
+https://strivingtogether.com and Living Hymns - Striving Together
+Publications (Sell a great hymnal "Living Hymns". Highly recommend this
+hymnal for all Christians.)
+
+http://www.hymnsuntogod.org (A website listing other websites for hymns
+and has music scores of public domain hymns.)
+
+Link for King James Bible gospel tracts:
+
+https://chick.com/ (Great comic book style gospel tracts and King James
+Bible resources. David W. Daniels has many great books defending the King
+James Bible and also has a vlog. Chick tracts are much better received by
+people than regular tracts. The comic book style is liked even by atheists
+who like the artwork and the stories. I use Chick tracts in my personal
+tract ministry. They also send free Chick tracts to missionaries asking
+for them. You can support them doing this by sending a check to Chick
+Missions Fund.)
+
+http://libertygospeltracts.com/ (A ministry of Liberty Baptist Church in
+Greenville, Michigan, USA)
+
+http://baptisttracts.org/ (A ministry of Parker Memorial Baptist Church)
+
+Link for sermons:
+
+http://www.sermonaudio.com (Not sure all sermons use the King James Bible.
+Highly recommend Pastor J. Harold Smith's sermon "God's Three deadlines."
+Many great preachers are on this site.)
+
+Links for young earth creation ministries and disproving evolution: Note
+most of these do not use the King James Bible.
+
+http://drdino.com (Website for Dr. Kent Hovind's ministry Creation Science
+Evangelism. Great resources and books. I highly recommend the Creation
+Seminar Series of videos. Dr. Hovind defends and uses the King James Bible
+in his books and videos and also has great videos on YouTube.)
+
+http://icr.org (Great daily Bible reading devotional called Days of Praise
+and great resources for disputing fallacies of evolution such as Acts and
+Facts which is free along with Days of Praise. I would recommend if you
+can afford it to give a donation to cover costs to the Institute of
+Creation Research. Unfortunately does not use King James Bible except in
+its Days of Praise.)
+
+https://creation.com/ (Does sell videos and books on showing ufo's and
+their connection to Satan. Unfortunately does not use the King James
+Bible.)
+
+Links for religions:
+
+https://jewsforjesus.org (Unfortunately does not use the King James
+Bible.)
+
+https://www.foi.org/ and http://israelmyglory.org (Ministry to reach lost
+Jews for Jesus Christ. Have good books and a bi-monthly magazine called
+Israel My Glory. Unfortunately they do not use the King James Bible.)
+
+https://www.chosenpeople.com/site/ (Chosen People Ministries is a great
+helpful ministry for Jews seeking answers about their Messiah or life in
+general. They have some helpful books including one on Isaiah 53 and the
+connection to Messiah. Unfortunately they do not use the King James
+Bible.)
+
+www.thestraightway.org (Great website to reach Muslims for Jesus and to
+show the dangers of Islam. The Straight Way of Grace Ministry is a
+ministry of a Christian Usama Dakdok. Offers books and videos to reach
+Muslims. He sells an accurate English translation of the Koran (Qur'an)
+showing how Muslims change it when translating it. He also has a daily
+talk show with a link found on his website. Unfortunately does not use the
+King James Bible.)
+
+http://excatholicsforchrist.com (To reach Roman Catholics for Jesus. Uses
+the King James Bible.)
+
+http://www.reachingcatholics.org/ (A ministry to reach Roman Catholics for
+Jesus with the truth.)
+
+http://sourceflix.com (To reach Mormons for Jesus. Have great videos
+[DVD's] for reaching Mormons that Mormonism is a cult. Unfortunately does
+not use the King James Bible.)
+
+https://www.4witness.org/ (A ministry to reach Mormons and Jehovah's
+witnesses for Jesus, the truth, and get them out of their respective
+cults. Unfortunately it does not use the King James Bible, so use it for
+scripture verses.)
+
+gsnair.org (People's Baptist Ministries to India (PBMI) is a ministry to
+reach lost souls for Jesus mainly in India and the surrounding nations. It
+was founded by Dr. G. S. Nair after his conversion from Hinduism. They use
+and promote the King James Bible as the preserved word of God. They have
+won many souls for Jesus. A great ministry for people looking for the
+truth, especially Hindu's and for Christians who want to help support a
+great soul winning ministry. They always need prayers and money, but use
+the money wisely with great results.
+
+Links for Christian movies:
+
+http://christianfilms.com/ (Dave and Rich Christiano both make and sell
+great Christian movies that present the gospel in an entertaining way.
+Highly recommend all of their movies. They use the King James Bible.)
+
+http://sherwoodpictures.com/ and https://kendrickbrothers.com/
+
+Links for King James Bible preaching churches:
+
+http://middletownbiblechurch.org/ (A great preaching church where "the
+Holy Bible is wholly taught". Has sermons online. This is the church where
+I was saved as a young child by the preaching of the pastor George Parsons
+and a black man who was my Sunday School teacher Steve Thorpe, for which I
+am forever eternally grateful. Praise God for them both and their concern
+for my eternal destiny. May God bless them both and reward them in
+eternity.)
+
+http://kingjamesbiblebaptistchurch.com/ (Great church in New York City.
+They have a great street ministry handing out many tracts, especially
+Chick tracts, winning many souls for Jesus, and defending the King James
+Bible. Great church ministry to support. A church that is fulfilling the
+Great Commission and obeying Jesus.)
+
+http://kjvchurches.com (A website that lists many churches in the USA that
+use the King James Bible and can help you locate one in your area. I
+cannot vouch that what is taught in the church is all scriptural, just
+that they use the King James Bible.)
+
+fundamental.org/kjv-church-directory/ (Another link that lists some
+churches around the world that use the King James Bible. I cannot vouch
+that what is taught in the church is all scriptural, just that they use
+the King James Bible.)
+
+Links for other good ministries:
+
+www.jesus-is-savior.com (Great site, though I do not agree with all,
+especially the old earth belief. Great Resource of articles for
+Christians. Defends the King James Bible.)
+
+www.av1611.org (Dial-the-Truth Ministries is a great resource of articles
+for Christians. Defends the King James Bible.)
+
+http://www.biblebelievers.com/ and
+http://www.biblebelievers.com/AV_TODAY.html (Great resource of articles
+for Christians and those searching. Defends the King James Bible.)
+
+https://www.jesus-is-the-way.com/
+
+www.ronwyatt.com (Website for Ron Wyatt's discoveries and videos.)
+
+www.grantjeffrey.com (Dr. Grant R. Jeffrey wrote many great books which I
+recommend. Most use the King James Bible, except some of his earliest
+ones.)
+
+https://www.persecution.com/ (The Voice of the Martyrs is a great ministry
+supporting and reporting about persecuted Christians around the world.
+Many books about the stories of persecuted Christians. These should
+motivate Christians to tell others about Jesus. Unfortunately does not use
+the King James Bible.)
+
+http://store.kjv1611.org/ (Has many books and resources defending the King
+James Bible.)
+
+grandcanyonmovie.com (Great movie that can be used to witness to people
+showing how God judged the world with the flood and formed the Grand
+Canyon and will judge all of us for our sin and our need for a Saviour.
+This film was produced by Creation Today [A ministry promoting a young
+earth. Unfortunately they do not use the King James Bible.]) 
+
+https://www.swordofthelord.com/ Sword of the Lord Ministries has a great
+newspaper called the Sword of the Lord Newspaper that they sell that is
+available at their website. This ministry is a King James Ministry and is
+independent Baptist. They have many great articles in their newspaper and
+sell a hymnal and many books. 
+
+Links for great places for Christians to visit with their families:
+
+Dinosaur Adventure Land (drdino.com) Dinosaur Adventure Land is free and
+located in Lenox, Alabama. It is a park that is part of Dr. Kent Hovind's
+ministry Creation Science Evangelism. It teaches people about the gospel
+through science. All is taught from a Biblical view and discredits the
+false evolution theory. It is meant to be a fun soul winning park.
+Promotes the true young earth creationism as taught in scripture. Dr. Kent
+Hovind teaches a Bible study every night for those who want to stay and
+listen. He uses the King James Bible. His great Bible studies can also be
+viewed on YouTube. Park does have some camping spots available and has
+some zoo animals. The park has a good bookstore to buy good resources.
+Donations are accepted and appreciated. I have not yet had the privilege
+of visiting this place personally, but I know Dr. Kent Hovind is a sincere
+soul winning Christian who loves the Lord and I know this place will be
+well worth it. Dr. Hovind has a YouTube video showing the park.
+
+https://creationmuseum.org/ The Creation Museum is a part of the ministry
+of Ken Ham's Answers in Genesis located in Petersburg, Kentucky. The
+Creation Museum promotes the Biblical view of a young earth creation. It
+shows the falsehood and dangers of evolution. They present the gospel. The
+museum also has a planetarium, zoo (includes a zorse [horse and zebra] and
+zonkey [zebra and donkey (ass)] showing how the ark contained kinds, not
+species), botanical gardens, and a zipline. Unfortunately it does not use
+the King James Bible for scripture verses. The Creation Museum is a short
+distance from Cincinnati, Ohio. It has a sister museum, the Ark Encounter
+about Noah's ark.
+
+https://arkencounter.com/ The Ark Encounter is a Christian theme park that
+has a life size replica of Noah's Ark according to the dimensions given in
+scripture. (510 feet long, 85 feet wide, and 51 feet high) It is also a
+ministry of Ken Ham's Answers in Genesis which also operates the Creation
+Museum. There is also a zoo and a zipline at the Ark Encounter. It is
+located in Williamstown, Kentucky about 40 minutes drive (45 miles) from
+the Creation Museum. The Ark Encounter promotes a true Biblical view of a
+young earth creation. They present the gospel. Unfortunately the King
+James Bible is not used for scripture verses. Ken Ham has some excellent
+books such as One Blood showing how all people come from one blood whether
+white, black, brown, red or yellow or any other color. Another good book
+by Ken Ham is The Great Dinosaur Mystery Solved showing how dinosaurs are
+mentioned in scripture and walked with man. Unfortunately he does not use
+the King James Bible in his books. His books may be found in the bookstore
+here or at the Creation Museum.
+
+https://discoverycenter.icr.org/ The Discovery Center for Science and
+Earth History is located in Dallas, Texas and is a ministry of the
+Institute of Creation Research. This museum promotes the true Biblical
+view of a young earth creation and shows how evolution is false and
+dangerous. The museum contains a section on Adam and Eve, the Genesis
+flood, tower of Babel, and the Ice Age. (There was only one ice age, not
+many as the evolutionists promote.) There is also a planetarium at the
+museum. They present the gospel. Unfortunately they do not use the King
+James Bible for scripture verses.
+
+https://holylandexperience.com The Holy Land Experience is a Christian
+theme park located in Orlando, Florida. It has shows and contains a small
+model of Jerusalem that is interesting to see. It has a replica of the
+temple and other interesting sites. I do not agree with everything at the
+park, but overall is a place worth visiting. Has a fun rock climbing wall
+for children and adults. Unfortunately they do not use the King James
+Bible for scripture verses.
+
+https://www.canyonministries.org/ Every Christian should try to see the
+wonders of the Grand Canyon, located in Arizona and hike to the bottom if
+they are able. The canyon clearly shows how the Genesis flood rapidly
+created the Grand Canyon in a short time (probably only months or a few
+years and not over millions of years as evolutionist's say. The "little
+Grand Canyon" formed in six days after Mount St. Helens exploded showing
+how rapidly canyons can form.) Canyon Ministries offers tours of the Grand
+Canyon and the Colorado River and explains everything from a Biblical view
+of the creation of the Grand Canyon rapidly due to the Genesis flood. I
+have been to the Grand Canyon and hiked it, but I have not personally been
+on a tour with this ministry, but hear that it is very good. Unfortunately
+as best I can tell, they do not use the King James Bible for scripture
+verses.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

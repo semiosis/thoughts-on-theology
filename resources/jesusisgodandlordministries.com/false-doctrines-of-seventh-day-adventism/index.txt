@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,931 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+False Doctrines of Seventh-day Adventism
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The Seventh-day Adventists (SDA) is another cult and false
+Christianity that is often times missed by people just as Roman
+Catholicism and Eastern Orthodoxy. Many believe they are true Christians
+just like the other two when in reality all three of them are cults.
+Seventh-day Adventists have worked hard especially in the last 30 years or
+so at trying to appear as a true Christian denomination including having
+some scriptural beliefs. They still are not. They like all cults double
+talk saying one thing on their website, but practicing and truly believing
+something else as seen by their writings. There are about 21.7 million
+Seventh-day Adventists worldwide making them one of the largest cults.
+William Miller a onetime Baptist preacher turned deist who said all
+Christian denominations in his day were apostate and false, began a Bible
+study group and predicted the return of Jesus to earth on October 22,
+1844. All cults have supposedly found the truth that was only revealed to
+them. Jesus did not return and his followers known as Millerites called
+this day the Great Disappointment. They went back to the Bible and decided
+that they would study more on the prophecy of the second coming of Jesus.
+Some believed that William Miller had misinterpreted Daniel 8:14 and Jesus
+did not return to earth, but rather entered the heavenly Holy of Holies to
+cleanse the earth. As the group grew, Joseph Bates, James White and his
+wife Ellen G. White joined and really set the stage for the beginning of
+the cult. It was officially established on May 21, 1863 in Battle Creek,
+Michigan. The headquarters later moved to Takoma Park, Maryland until 1989
+when it moved to Silver Spring Maryland. The church is headed by the
+General Conference of Seventh-day Adventists. They decide all doctrine.
+Today the Seventh-day Adventists still focus on the prophecy of the second
+coming of Jesus. In fact the name Adventists comes from Advent which means
+coming in reference to the coming of Jesus such as his first or second
+advent (coming). Many cults focus on the end times. Many groups have
+broken off from the Seventh-day Adventists over the years forming
+subgroups and in effect a cult of a cult just as happened in the cults of
+Roman Catholicism and Mormonism. One was the well-known Branch Davidians
+in Waco, Texas that killed themselves in a standoff with the FBI, local
+law enforcement, and U.S. military between February 28 and April 19, 1993.
+Another was the Worldwide Church of God founded by Herbert Armstrong.
+There are others. Charles Taze Russell the founder of the Jehovah's
+Witnesses once studied with the Adventists.
 
-Username or email _____________________
+I find it interesting that the cults of the Seventh-day Adventists,
+Mormonism, Jehovah's Witnesses, and Christian Science all formed in the
+United States within a fairly small radius of each other over a 40 year
+period. During this time period the second great awakening and the third
+great awakening revivals were taking place in the United States and Satan
+was taking advantage of this to start his own revival of cults. Satan had
+to find a way to counteract the revival happening in America.  
 
-Reset password
+Ellen G. White claimed to have over 2,000 visions and dreams from
+God. Some of the church's teachings are from her supposed visions by God.
+I believe she had another spirit involved, not God. She claimed to have
+only a third grade education and claimed she could not read, but in
+reality she could and plagiarized from many other Christian authors. She
+wrote many books that supposedly came from God including the Great
+Controversy that supposedly tells the story of sin and Satan from the
+beginning until the end of the millennium when sin will finally be
+removed. Adventists are the Christians there at the end. Her writings are
+considered equally inspired just as scripture. She claimed she went to
+heaven and God gave her the vision about the seventh day sabbath, yet the
+vision only came after her dealings with the Seventh Day Baptists. Sounds
+suspicious to me. I believe it is more than a coincidence.  God said to
+test the spirits to see if they were from God or Satan. Did she? I think
+not or maybe she knew what spirit she was dealing with. It was not from
+God or her beliefs would have been different. (I John 4:1-3 Beloved,
+believe not every spirit, but try the spirits whether they are of God:
+because many false prophets are gone out into the world.
+2 Hereby know ye the Spirit of God: Every spirit that confesseth that
+Jesus Christ is come in the flesh is of God:
+3 And every spirit that confesseth not that Jesus Christ is come in the
+flesh is not of God: and this is that spirit of antichrist, whereof ye
+have heard that it should come; and even now already is it in the world.) 
+
+
+Seventh-day Adventists say they believe the Bible is inspired, yet
+they like all cults will then change it and come up with false doctrines.
+Actions speak louder than words. God would not have a woman start his
+church when he forbids women from preaching and they are to be silent in
+the church so why was Adventism started and led by Ellen G. White? (I
+Corinthians 14:34 Let your women keep silence in the churches: for it is
+not permitted unto them to speak; but they are commanded to be under
+obedience, as also saith the law.)
+
+Some of the false doctrines of the Seventh-day Adventists:
+
+1. Saturday worship. Adventists believe that worship is to only be done on
+Saturday just like the fourth commandment says from sunset on Friday night
+to sunset on Saturday night. This was for the Israelites. Today we worship
+on Sunday since Jesus rose from the grave on Sunday. Jesus did away with
+the required worship on Saturday. The disciples met on the first day of
+the week or Sunday. Today we call that the Lord's day. (Acts 20:7 And upon
+the first day of the week, when the disciples came together to break
+bread, Paul preached unto them, ready to depart on the morrow; and
+continued his speech until midnight.) Paul had the churches meet on the
+first day of the week or Sunday to gather tithes. (I Corinthians 16:2 Upon
+the first day of the week let every one of you lay by him in store, as God
+hath prospered him, that there be no gatherings when I come.) This belief
+is where they get their name from with Saturday being the seventh day of
+the week. Ellen White wrote in her book The Great Controversy between
+Christ and Satan on page 605 that those who believe or disbelieve in the
+seventh day sabbath will determine whether they are saved and receive the
+seal of God or for those who disbelieve in the seventh day as the day of
+worship they will receive the mark of the beast. Scripture never says any
+such thing. They as all cults insist if someone disagrees with them they
+will end up in hell. The sabbath has never changed from Saturday, but it
+was for Israel, not Christians. We are just to make sure we have a day of
+rest and that is Sunday. Jesus even said the sabbath was made for man, not
+man for the sabbath. The Adventists are being legalistic like the
+Pharisees who were condemned by Jesus. (Mark 2:27 And he said unto them,
+The sabbath was made for man, and not man for the sabbath:) We should
+avoid working on Sundays if at all possible, but God will not send us to
+hell for doing so. The Adventists believe that Baptists and anyone else
+who worships on Sunday instead of Saturday will be annihilated. I believe
+Baptist churches as well as other denominations who often now have
+Saturday services are wrong and are trying to be like the Seventh-day
+Adventists or at the very least are appeasing weak Christians who want to
+go to church on Saturday night so they have Sunday to play when they
+should be resting and worshipping God. Christians have a day of rest on
+Sunday rather than worship on the sabbath as the fourth commandment says.
+Jesus is our rest, not the sabbath. (Matthew 11:28 ¶ Come unto me, all ye
+that labour and are heavy laden, and I will give you rest.) (Hebrews 4:10
+For he that is entered into his rest, he also hath ceased from his own
+works, as God did from his.) Paul condemned the Galatians for adding the
+law back into salvation. Paul said his work of preaching to them was in
+vain if they do these things. This is what the Seventh-day Adventists do
+by trying to still keep the sabbath (observing days) and making the ten
+commandments part of keeping salvation. (Galatians 4:9-11 But now, after
+that ye have known God, or rather are known of God, how turn ye again to
+the weak and beggarly elements, whereunto ye desire again to be in
+bondage?
+10 Ye observe days, and months, and times, and years.
+11 I am afraid of you, lest I have bestowed upon you labour in vain.)
+Adventists are judging all Sunday worshippers when scripture says not to.
+Colossians is referring to the Saturday sabbath and saying do not judge a
+Christian because they do not worship then. (Colossians 2:16 Let no man
+therefore judge you in meat, or in drink, or in respect of an holyday, or
+of the new moon, or of the sabbath days🙂 Adventists say that only Saturday
+worship is correct and that no one is to work on Saturday yet their
+pastors have to work just as I work on Sunday. Jesus said the Israelite
+priests worked on the sabbath as they had to offer the sacrifices, yet
+they were not guilty. They were doing God's work and that applies to
+preachers on Sunday and Saturday in their case. It is ok to work the
+sabbath when doing God's work as well as essential jobs. (Matthew 12:5 Or
+have ye not read in the law, how that on the sabbath days the priests in
+the temple profane the sabbath, and are blameless?) Most Seventh-day
+Adventists only have a Saturday worship, though some Adventist churches do
+have small groups that meet in an individual's home during the week for
+worship. 
+
+2. Hell is temporary. The unsaved will only go to hell for a temporary
+time and then be annihilated. (Matthew 25:46 And these shall go away into
+everlasting punishment: but the righteous into life eternal.)
+
+3. Annihilation. Adventists belief that an unsaved person is annihilated
+at death after a temporary time in hell and that there is no immortal soul
+and no conscience or awareness after death. The rich man was aware that he
+was in torment in the fires of hell. (Luke  16:23-24 And in hell he lift
+up his eyes, being in torments, and seeth Abraham afar off, and Lazarus in
+his bosom.
+24 And he cried and said, Father Abraham, have mercy on me, and send
+Lazarus, that he may dip the tip of his finger in water, and cool my
+tongue; for I am tormented in this flame.) Matthew 5:22 in the KJB has
+"hell fire" which is changed in their false bible to "never be given
+eternal life" and Matthew 5:29 in the KJB has "hell" which is changed in
+their bible to "lose eternal life". Other verses also remove hell in their
+bible such as Matthew 5:30 which changed the KJB "hell" to "lose out on
+heaven later" as well as many other verses. Their bible says the true
+story of Luke 16:19-31 is "a Jewish folklore" in verse 19, when it is real
+and the rich man is still in torment burning in hell today. Matthew 18:9
+removes the KJB "hell fire" and changes to "end with this life" and adds
+unscriptural words "moral innocence" and "childlike innocence". Scripture
+says we are born with a sin nature. You do not have to teach a child to
+lie or steal. They already know how. They are not innocent.
+
+I often hear people say when a person dies that they passed away. I
+do not believe Christians should use this phrase as it supports the false
+doctrine of annihilation. Flowers pass away, but people pass on as people
+have souls. They either pass on to heaven if they are saved or pass on to
+hell if they are unsaved. Christians should say either died or passed on,
+but not passed away. 
+
+4. Body, soul, and spirit are indivisible.  Adventists believe that the
+body, soul, and spirit cannot be divided. Scripture says the word of God
+can divide them and our bodies stay in the ground at death when the soul
+and spirit go to heaven or hell. (Hebrews 4:12 For the word of God is
+quick, and powerful, and sharper than any twoedged sword, piercing even to
+the dividing asunder of soul and spirit, and of the joints and marrow, and
+is a discerner of the thoughts and intents of the heart.)
+
+5. Soul sleep. When a person dies they will not be aware of anything. This
+is known as soul sleep. The saved people or the righteous people as they
+say (this is works salvation) will be brought to heaven after Jesus'
+second coming and will be in heaven during the millennial reign.
+Christians will be here on earth with Jesus, not be in heaven during the
+millennium. (II Corinthians 5:8 We are confident, I say, and willing
+rather to be absent from the body, and to be present with the Lord.)
+
+6. Jesus will return once he has cleansed the heavenly mercy seat.
+Adventists believe Jesus starting this cleansing process in 1844 when he
+did not return and when he is finished he will come back. Jesus is seated
+at the right hand of God the Father. (Hebrews 12:2 Looking unto Jesus the
+author and finisher of our faith; who for the joy that was set before him
+endured the cross, despising the shame, and is set down at the right hand
+of the throne of God.)
+
+7. Investigative Judgment. Adventists believe in what is known as
+investigative judgment. Ellen White supposedly confirmed this by a vision.
+Adventists believe in 1844 when Jesus began cleansing the holy of holies,
+he began looking at every ones works and those who are righteous enough
+will be saved. This is works salvation that all cults have. Jesus will
+only look at whether a person received him as their Saviour and was washed
+in his blood and not how good a person they were. A Christian's works will
+determine rewards and crowns, but not their salvation. This belief
+minimizes Jesus as God in thinking he needs to search for years through
+books to see who is saved or not. Saved people's name have been written in
+the book of life from before the foundation of the world. Jesus as God
+already knows who will be saved even before the person becomes saved and
+does not need to search for years through a book. (Revelation 17:8 The
+beast that thou sawest was, and is not; and shall ascend out of the
+bottomless pit, and go into perdition: and they that dwell on the earth
+shall wonder, whose names were not written in the book of life from the
+foundation of the world, when they behold the beast that was, and is not,
+and yet is.) The reality is Jesus took away and removed our sins after he
+rose from the grave and then placed his blood on the heavenly mercy seat.
+He did not wait until 1844. This completed Jesus plan of redemption and
+now it was finished so that now our sins are taken away and not just
+covered by animal blood.  
+
+Jesus placed his blood on the heavenly mercy seat after his
+resurrection from the grave on that Sunday, not in 1844 and completed it
+that day. He is not still working on cleansing the heavenly mercy seat. He
+told Mary Magdalene to not touch him when he appeared to her after his
+resurrection that Sunday morning. (John 20:17 Jesus saith unto her, Touch
+me not; for I am not yet ascended to my Father: but go to my brethren, and
+say unto them, I ascend unto my Father, and your Father; and to my God,
+and your God.) This was because he had not ascended to heaven to place his
+blood on the heavenly mercy seat which was necessary to complete his
+redemption for all people. We know the phrase "I am not yet ascended to my
+Father" refers to Jesus as our High Priest going to place his blood on the
+heavenly mercy seat and not his ascension 40 days after his resurrection.
+Jesus reappeared to his disciples that very Resurrection Sunday after he
+completed his mission, whereas after his ascension 40 days later he never
+did reappear here on earth. If Jesus had never placed his blood on the
+mercy seat we would still be dead in our sins. This completed what was
+started on the cross. If Mary had touched him before he had placed his
+blood on the heavenly mercy seat, the blood of Jesus would have been
+polluted. (Hebrews 9:12 Neither by the blood of goats and calves, but by
+his own blood he entered in once into the holy place, having obtained
+eternal redemption for us.) This was seen even in the earthly Israelite
+priests who were not allowed to be touched by anyone before they placed
+the blood of the animal on the earthly mercy seat. Remember the Israelite
+priesthood was just a pattern of the real thing in heaven and what the
+Israelite priest did with placing the blood on the mercy seat was just a
+reminder of the real blood that would be placed on the heavenly mercy seat
+in heaven. The Israelite high priest was a type of Jesus who is the real
+High Priest. (Hebrews 3:1 Wherefore, holy brethren, partakers of the
+heavenly calling, consider the Apostle and High Priest of our profession,
+Christ Jesus;) (Exodus 25:9 According to all that I shew thee, after the
+pattern of the tabernacle, and the pattern of all the instruments thereof,
+even so shall ye make it.) (Hebrews 9:23-24 It was therefore necessary
+that the patterns of things in the heavens should be purified with these;
+but the heavenly things themselves with better sacrifices than these.
+24 For Christ is not entered into the holy places made with
+hands, which are the figures of the true; but into heaven itself, now to
+appear in the presence of God for us:) I previously mentioned in other
+sermons how Jesus also placed his blood on the earthly mercy seat as well
+when his blood ran through a crack in the rocks caused by the earthquake
+at his death and dripped his blood on the earthly mercy seat hidden
+underground below where he was crucified. This was shown by Ron Wyatt.
+Once Jesus completed placing his blood on the heavenly mercy seat on
+Resurrection Sunday, then the cleansing process was complete, not in 1844.
+Jesus then reappeared that same day on that Resurrection Sunday to his
+disciples and then could be touched without being polluted as redemption
+was complete. Some liberal theologians such as John MacArthur say the
+blood of Jesus only represented his death. This is damnable heresy as I
+have shown just as the belief of the Seventh-day Adventists. I have shown
+how without the precious blood of Jesus we would still be dead in our
+sins. The blood of Jesus represents much more than the death of Jesus. It
+represents our redemption and salvation as it was placed on the heavenly
+mercy seat. (Romans 5:9 Much more then, being now justified by his blood,
+we shall be saved from wrath through him.) Romans 5:9 clearly says we are
+saved (justified) by the blood of Jesus, so it is much more than
+representative of his death. Notice that Jesus telling Mary he must ascend
+to heaven to complete the redemption for our sins is found in verse 17 of
+John 20. The number seventeen means victory which we now have over death
+and sin with Jesus completing redemption for us. The very fact that Jesus
+is seated at the right hand of God the Father as mentioned in Hebrews 12:2
+and many other verses in Hebrews and other places in scripture shows that
+Jesus finished "cleansing" the heavenly mercy seat at the time he placed
+his blood on it. A person sits down when the work is complete. The real
+completion of cleansing of the heavenly mercy seat will take place when
+God creates the new heaven.   
+
+8. Baptism is necessary for salvation. Adventists say that a person must
+be baptized before they are saved and without baptism they will not enter
+into the kingdom of heaven. Their website does not say this along with
+many other of their false doctrines to have the appearance of being true
+Christians, but their writings say otherwise. The SDA's book Believe on
+page 182 says "Christ made it clear that He required baptism of those who
+wished to become part of his church, His spiritual kingdom." "In baptism
+believers enter into the passion experience of our Lord." Page 184 says
+"Baptism also marks person's entrance into Christ's spiritual kingdom. It
+unites the new believer to Christ." The SDA website says of baptism
+"Baptism is a symbol of our union with Christ, the forgiveness of our
+sins, and our reception of the Holy Spirit." Baptism does not forgive sins
+and is not even symbolic of it, or the "reception of the Holy Spirit." A
+person receives the Holy Ghost at the moment of true salvation not when
+baptized. They believe a person is born again when they are baptized. They
+like all cults will change a biblical term and give it a new meaning. A
+person is born again when they are saved, not when they are baptized.
+Scripture says a person must believe first and then be baptized after they
+are saved and if a person is truly saved, but never gets baptized they can
+still go to heaven such as the thief on the cross. (Acts 8:36-37 And as
+they went on their way, they came unto a certain water: and the eunuch
+said, See, here is water; what doth hinder me to be baptized?
+37 And Philip said, If thou believest with all thine heart, thou mayest.
+And he answered and said, I believe that Jesus Christ is the Son of God.)
+Jesus told the repentant thief that he would be with him in paradise that
+day. (Luke 23:42 And Jesus said unto him, Verily I say unto thee, To day
+shalt thou be with me in paradise.)
+
+9. Remnant church in Revelation. Adventists teach that they are the
+remnant church remaining in Revelation 14 just before the second coming of
+Jesus. They believe they are the restored true church as all others were
+corrupt. They say they proclaim the "three angels message" of Revelation
+14:6-12. "The universal church is composed of all who truly believe in
+Christ, but in the last days, a time of widespread apostasy, a remnant has
+been called out to keep the commandments of God and the faith of Jesus.
+This remnant announces the arrival of the judgment hour, proclaims
+salvation through Christ, and heralds the approach of His second advent.
+This proclamation is symbolized by the three angels of Revelation 14; it
+coincides with the work of judgment in heaven and results in a work of
+repentance and reform on earth. Every believer is called to have a
+personal part in this worldwide witness." [from SDA 28 Fundamentalist
+Beliefs] The church's original symbol was three angels circling a globe.
+Today it is three flames representative of the Holy Ghost and the three
+angels.
+
+10. Obedience of ten commandments will determine if saved or not.
+Adventists teach in number 18 of their 28 fundamentalist beliefs that we
+will be judged based on our obedience of the ten commandments. Scripture
+says we will be judged on whether we are washed in the blood of Jesus or
+not and not on how well we obeyed the ten commandments. We should obey
+them, but they do not determine our salvation. (Galatians 3:10-13 10 For
+as many as are of the works of the law are under the curse: for it is
+written, Cursed is every one that continueth not in all things which are
+written in the book of the law to do them.
+11 But that no man is justified by the law in the sight of
+God, it is evident: for, The just shall live by faith.
+12 And the law is not of faith: but, The man that doeth them shall live in
+them.
+13 Christ hath redeemed us from the curse of the law, being made a curse
+for us: for it is written, Cursed is every one that hangeth on a tree:)
+For a Christian we have become dead to the law so that we may become the
+bride of Jesus. (Romans 7:4 Wherefore, my brethren, ye also are become
+dead to the law by the body of Christ; that ye should be married to
+another, even to him who is raised from the dead, that we should bring
+forth fruit unto God.) If a person is still married to the law, then they
+cannot marry (be the bride) of Jesus or they are guilty of adultery.
+Romans 7:1-6 shows this with verse 6 saying we are delivered from the law.
+We are not stuck under it with a Saturday sabbath and for our salvation as
+the Seventh-day Adventists teach.  
+
+11. Ellen G. White was a prophet and her writings were inspired.
+Adventists believe that Ellen G. White was a prophet of God and her many
+writings are inspired. Ellen herself said her writings were inspired. [See
+Testimonies Volume 5, page 64 and Spiritual Gifts volume 2, page 293] Her
+writings are considered equal with scripture. This is adding to God's word
+as all cults do. God condemned this in (Revelation 22:18-19 For I testify
+unto every man that heareth the words of the prophecy of this book, If any
+man shall add unto these things, God shall add unto him the plagues that
+are written in this book:
+19 And if any man shall take away from the words of the book of this
+prophecy, God shall take away his part out of the book of life, and out of
+the holy city, and from the things which are written in this book.) When
+they are baptized they must believe in all Seventh-day Adventist teachings
+including those from Ellen White. This is from the official baptism creed
+of the SDA [11 of 13 I know and understand the fundamental Bible
+principles as taught by the Seventh-day Adventist Church. It is my
+purpose, by the grace of God, to order my life in harmony with these
+principles.] Her writings and beliefs have many falsehoods in them which
+show she was not a true prophet and her writings were not inspired. God
+said if a prophet predicted something that was not true, they were not one
+of his prophets. (Deuteronomy 18:22 When a prophet speaketh in the name of
+the LORD, if the thing follow not, nor come to pass, that is the thing
+which the LORD hath not spoken, but the prophet hath spoken it
+presumptuously: thou shalt not be afraid of him.) Here are a few examples
+of her false beliefs that supposedly came in visions from God. Her own
+teachings changed over the years and contradict each other at times. This
+would not happen if inspired from God and true.
+
+1. She said that the brothers of Jesus were older than him when scripture
+says he was the firstborn son of Mary. [See Desire of Ages pages 86-87]
+(Matthew 1:25 And knew her not till she had brought forth her firstborn
+son: and he called his name JESUS.)
+
+2. Angels need a gold card to get in and out of heaven. ["All angels that
+are commissioned to visit earth hold a golden card, which they present to
+the angels at the gates of the city." (Early Writings p.39).] Scripture
+never says such a thing.
+
+3. Saved people in the resurrection will have wings. [See Early Writings
+page 53] We will have bodies like that of Jesus and not have wings. This
+is unscriptural. (Philippians 3:21 Who shall change our vile body, that it
+may be fashioned like unto his glorious body, according to the working
+whereby he is able even to subdue all things unto himself.)
+
+4. She was told the exact time of the return of Jesus. This can be found
+in her Early Writings on pages 15, 34, and 285. Scripture says we cannot
+know. (Mark 13:32 ¶ But of that day and that hour knoweth no man, no, not
+the angels which are in heaven, neither the Son, but the Father.)
+
+5. Jesus did not enter the most holy place in heaven before October 22,
+1844. [Early Writings, page 42] Hebrews which was written long before 1844
+says otherwise. (Hebrews 9:12 Neither by the blood of goats and calves,
+but by his own blood he entered in once into the holy place, having
+obtained eternal redemption for us.)
+
+6. Obeying the ten commandments is the only way to earn favor by God. [See
+Testimonies, volume 4, page 28] (Galatians 3:11 But that no man is
+justified by the law in the sight of God, it is evident: for, The just
+shall live by faith.)
+
+7. A person cannot be assured of their salvation. [See Christ's Object
+Lessons, page 155] (I John 5:13 These things have I written unto you that
+believe on the name of the Son of God; that ye may know that ye have
+eternal life, and that ye may believe on the name of the Son of God.)
+
+8. Jesus's blood does not cancel sin. [See Patriarchs and Prophets, page
+357] (I John 1:7 But if we walk in the light, as he is in the light, we
+have fellowship one with another, and the blood of Jesus Christ his Son
+cleanseth us from all sin.) (Romans 4:7-8 Saying, Blessed are they whose
+iniquities are forgiven, and whose sins are covered.
+8 Blessed is the man to whom the Lord will not impute sin.) 
+
+9. Atonement was not completed on the cross and after placing his blood on
+the heavenly mercy seat following his resurrection, but was finished in
+1844 when Jesus entered the most holy place. [See Testimonies volume 1,
+page 58 and Early Writings page 253] (John 19:30 When Jesus therefore had
+received the vinegar, he said, It is finished: and he bowed his head, and
+gave up the ghost.) Romans was written long before 1844. (Romans 5:11 And
+not only so, but we also joy in God through our Lord Jesus Christ, by whom
+we have now received the atonement.)
+
+10. Jesus was not God. "The man Christ Jesus was not the Lord God
+Almighty." (Letter 32, 1999, quoted in the Seventh-day Adventist Bible
+Commentary, Volume 5, page 1129). Their website says otherwise yet they
+also say they believe her writings. The website is just to deceive people.
+True Christianity is based off of Jesus being God. (Isaiah 9:6 For unto us
+a child is born, unto us a son is given: and the government shall be upon
+his shoulder: and his name shall be called Wonderful, Counsellor, The
+mighty God, The everlasting Father, The Prince of Peace.) (Hebrews 1:8 But
+unto the Son he saith, Thy throne, O God, is for ever and ever: a sceptre
+of righteousness is the sceptre of thy kingdom.)
+
+Ellen White had many other beliefs that contradict scripture such as
+God came up with the plan of salvation after the fall of man when
+scripture says it was before the foundation of the world [See Ephesians
+1:4] and that the tower of Babel was built before the Genesis flood when
+Nimrod was a descendant of Noah after the flood, an angel closed the door
+of the ark at the flood when scripture says God closed the door [See
+Genesis 7:16] and there are many more. Does this sound like a prophet of
+God and true Christianity?
+
+Ellen White also pushed that people should be vegetarians when God
+said we are omnivores eating meat and vegetables. (Genesis 9:3 Every
+moving thing that liveth shall be meat for you; even as the green herb
+have I given you all things.) (I Timothy 4:1-5 Now the Spirit speaketh
+expressly, that in the latter times some shall depart from the faith,
+giving heed to seducing spirits, and doctrines of devils;
+2 Speaking lies in hypocrisy; having their conscience seared with a hot
+iron;
+3 Forbidding to marry, and commanding to abstain from meats, which God
+hath created to be received with thanksgiving of them which believe and
+know the truth.
+4 For every creature of God is good, and nothing to be refused, if it be
+received with thanksgiving:
+5 For it is sanctified by the word of God and prayer.)
+
+Ellen White had at one time said some black slaves did not have a
+soul and would not be resurrected.  
+
+12. Jesus was the archangel Michael. Adventists believe that Jesus was the
+archangel Michael before becoming a man. This is similar to the cult
+Jehovah's Witnesses, but unlike them they do not believe Jesus was
+created, but rather he was the archangel Michael of the old testament
+before becoming Jesus. This is completely unscriptural and denies his
+deity. Jesus in fact created Michael. This change can be seen in their
+bible the Clear Word Bible (CWB) in I Thessalonians 4:16, Jude 9, and
+Revelation 12:7. (Jude 9 Yet Michael the archangel, when contending with
+the devil he disputed about the body of Moses, durst not bring against him
+a railing accusation, but said, The Lord rebuke thee. [KJB]) (In contrast
+to these ungodly men is the Lord Jesus, also called Michael the Archangel,
+for He is in charge of the entire angelic host. When He was challenged by
+Satan about His intentions to resurrect Moses, He didn't come at Satan
+with a blistering attack, nor did he belittle him. He simply said, "God
+rejects your claim to his body." [Clear Word Bible 4^th edition]) ("In
+contrast to these ungodly men is the Lord Jesus Christ, also called
+Michael, the archangel in charge of the entire angelic host. When He was
+challenged by Satan about His intentions to resurrect Moses, He didn't
+come against Satan with a blistering attack nor did he belittle him. He
+simply said, 'God rejects your claim to his body.'" [Clear Word Bible])
+(older version) (I Thessalonians 4:16 For the Lord himself shall descend
+from heaven with a shout, with the voice of the archangel, and with the
+trump of God: and the dead in Christ shall rise first: [KJB]) (When Christ
+descends from heaven as the Archangel, He will give a shout of command-the
+trumpet call of God to the dead-and the dead in Christ will rise first.
+[Clear Word Bible]) (Revelation 12:7 And there was war in heaven: Michael
+and his angels fought against the dragon; and the dragon fought and his
+angels, [KJB]) (This controversy between God and the dragon began years
+ago in heaven. God's Son Michael and the loyal angels fought against the
+dragon and his angels. [Clear Word Bible]) The Seventh Day Adventists
+clearly preach another gospel as Paul said in his epistles. Jesus is
+essential to that gospel, not the archangel Michael. Without Jesus there
+is no gospel.  
+
+13. Have their own bible changed to support their false doctrines.
+Adventists use many bible versions. They originally used the King James
+Bible and some still do, but many use the many modern perversions.
+Adventists also publish the Clear Word Bible (CWB) that is a paraphrase
+version and their own bible which changes verses to match their false
+doctrines. This proves it is not from God as you cannot paraphrase God's
+word. The Adventists are now trying to claim it is not a bible due to so
+much criticism, though it clearly used to say it on the cover. They now
+remove the word "bible" on the cover. It is still listed under bibles in
+their bookstore. They are not mentioned as publishing the bible in the
+bible to hide their identity to keep from controversy. I mentioned the
+change in Jude 9 already. Deuteronomy 5:3 is changed to support their
+false doctrine that worship is still supposed to be on Saturday. God said
+he made the covenant for the Saturday sabbath with the Israelites, not
+people before that day and it does not apply today. (Deuteronomy 5:3 The
+LORD made not this covenant with our fathers, but with us, even us, who
+are all of us here alive this day. [KJB]) (Deuteronomy 5:3 It wasn't only
+with our ancestors that He made a covenant, but with us and with all who
+are alive today. [Clear Word Bible]) These are complete opposites and this
+is an intentional distortion of the word of God. Many other verses are
+changed dealing with the sabbath to fit their false doctrine. Some verses
+changed are Genesis 2:2-3, Exodus 5:5, Exodus 16:5, Exodus 31:13-16,
+Leviticus 23:3, Hebrews 4:4, and others. Acts 20:7 is changed from the
+disciples meeting on Sunday to Saturday to make it look like they still
+worshipped on the sabbath. The KJB says "And upon the first day of the
+week" which is changed in the Clear Word Bible to "After sundown on
+Saturday night". This verse also changes "break bread" in reference to the
+Lord's Supper to "fellowship meal". Revelation 1:10 in the KJB says "I was
+in the Spirit on the Lord's day" which is changed in the Clear Word Bible
+to "On Sabbath morning when I had gone to the rocky island shore to
+meditate and worship". It is clear they make changes to support their
+doctrine rather than change their doctrine to match scripture. (Proverbs
+30:6 Add thou not unto his words, lest he reprove thee, and thou be found
+a liar.)   
+
+14. Works salvation.
+
+I have already mentioned some works needed for salvation such as
+having to be baptized and believing in the writings of Ellen White and
+must obey the ten commandments. They also wash a person's feet when
+celebrating communion, adding works. They add the law to grace and works
+to faith. They must have a "good character". They have even used that
+reference in church tracts. The Adventists also say that only those who
+truly study scripture are saved. A saved person should study scripture,
+but unfortunately most do not and it is not required for salvation. This
+shows continual work must be done to be saved. The Adventists believe that
+a person must endure until the end to be saved. This implies continual
+works and also denies the scriptural once saved, always saved doctrine. A
+person just needs to truly believe and call upon Jesus in order to be
+saved, not endure to the end. Romans shows us that a person is saved
+whether they do any works for God or not as long as they believe on Jesus.
+(Romans 4:5 But to him that worketh not, but believeth on him that
+justifieth the ungodly, his faith is counted for righteousness.) Francis
+D. Nichol an SDA editor and church apologist, in his book, Answers to
+Objections, states on page 243 "Here is our position: Only those will be
+saved who, having been redeemed by the grace of Christ, walk in obedience
+to all the light that God sheds on their way." He was basically saying
+that a person must believe all of the SDA teachings in order to be saved
+including tithing, Ellen Whites writings, works salvation, Saturday
+sabbath, remnant church, baptism saves, et cetera. The New Life Voice of
+Prophecy Guide # 12 says in order to become a Christian a person must do
+these five things: believe, repentance, confession, baptism, obedience of
+the ten commandments. Romans 5:18 says salvation is a free gift, not a
+process of works. (Romans 5:18 Therefore as by the offence of one judgment
+came upon all men to condemnation; even so by the righteousness of one the
+free gift came upon all men unto justification of life.)
+
+15. Do not celebrate Christmas, Easter, Thanksgiving, birthdays, or other
+days.
+
+Seventh-day Adventists do not celebrate Christmas, Easter,
+Thanksgiving, birthdays, or other such days since they say they are not
+found in scripture. This belief is similar to the Jehovah's Witnesses,
+another cult. They are correct in that none of these days are found in
+scripture and therefore if a Christian does not want to celebrate any of
+them then they are not required to, but it is also not wrong for a
+Christian to celebrate them if they so choose as long as they keep the
+holidays to their true meanings. I do think a Christian should at least
+remember the Lord's resurrection. It is true that the only mention of
+celebration of birthdays is by evil men, the pharaoh of Egypt and by
+Herod. God does command us to be thankful, so at the very least
+Thanksgiving should be celebrated by them as well as by all Christians.
+Some Adventists have recently begun to celebrate the Jewish feasts. While
+I am not against Christians celebrating those days, they were basically
+intended for the Israelites, so if they are going to celebrate those days
+then not why days set aside for Jesus?
+
+16. Most are vegetarians.
+
+Most Seventh-day Adventists are vegetarians. We as Christians are
+free to eat meat as well. Those Seventh-day Adventists that do eat meat
+only eat the clean meat that is listed for the Israelites in scripture in
+such places as Leviticus 11. The separation of clean and unclean meat was
+for the Israelites and not Christians. While it is true that it is
+healthier to avoid the unclean animals, we as Christians are not forbidden
+from eating them. SDA's are again being legalistic and being Jews, not
+Christians and adding to scripture what is not found there. They do not
+celebrate so called Christian holidays because they are not found in
+scripture, yet they will not eat meat or at least not unclean meat when
+scripture never forbids Christians from doing so. SDA's that eat meat only
+eat the kosher foods. God told Peter a Jew that now he could eat all food
+as long as it was blessed by God, that the blood of Jesus now made even
+the food clean for the Jews. The Gentiles were never forbidden from eating
+unclean food and Christians are not today. (Acts 10:12-15 Wherein were all
+manner of fourfooted beasts of the earth, and wild beasts, and creeping
+things, and fowls of the air.
+13 And there came a voice to him, Rise, Peter; kill, and eat.
+14 But Peter said, Not so, Lord; for I have never eaten any thing that is
+common or unclean.
+15 And the voice spake unto him again the second time, What God hath
+cleansed, that call not thou common.) (I Corinthians 10:25-26 Whatsoever
+is sold in the shambles, that eat, asking no question for conscience sake:
+26 For the earth is the Lord's, and the fulness thereof.) (Colossians 2:16
+Let no man therefore judge you in meat, or in drink, or in respect of an
+holyday, or of the new moon, or of the sabbath days🙂 I have already read
+Genesis 9:3 and I Timothy 4:1-5 previously showing that we can eat all
+meat if blessed. We as Christians are free to eat meat including the
+unclean animals as long as we have God bless it. Our bodies actually need
+the protein from the meat, especially beef to help fight off evil in the
+spiritual warfare. Jesus himself ate meat with Abraham and fish with his
+disciples.
+
+Signs of a cult.  
+
+There are many signs of a cult that are recognized by all cult
+authorities. Here are some of them and we will see how Seventh-day
+Adventism fits the definition of a cult. Not all signs are shown. Not
+every cult will fit every sign mentioned below. I have already clearly
+shown how Seventh-day Adventist is false Christianity with all of their
+false doctrines that contradict scripture and now they fit the description
+of a cult.
+
+1. The leader is the ultimate authority and above the law and is
+infallible.
+
+2. The group suppresses criticism and one is only to read approved
+sources. The Seventh Day Adventist Church has always tried to silence
+their opponents and critics and discourages Seventh-day Adventists from
+reading the truth not only in scripture, but in other books and sources.
+Seventh-day Adventists are very defensive to anyone who criticizes them
+and will try to silence them. Baptists and true Christians do not do this.
+Seventh-day Adventists have tried so hard to prove they are not a cult
+which would never be necessary if they were not a cult. True Christians
+never have to prove anything.
+
+3. Cults try to never let a member leave. The SDA church heavily
+discourages its members from leaving. The SDA church is rapidly losing
+members and this is why they are trying so hard to appear as true
+Christians.
+
+4. Cults claim to be the one true church and salvation is only by them.
+Seventh-day Adventists believe they are the restored church as all of the
+others had become corrupt and believe they are the remnant church in
+Revelation.  
+
+5. Only the leaders of the cult can understand their literature. Ellen G.
+White and other leaders had the true meaning of scripture and new
+revelations.
+
+6. Cults add to scripture and often have their own books. Seventh-day
+Adventists add Ellen White's writings and they also have their own bible,
+the Clear Word Bible that has made changes that match Adventists false
+doctrines.
+
+7. Cults subtract from scripture. Seventh-day Adventism removes many
+verses and words from their bible.   
+
+8. Cults use intimidation and fear for obedience. Seventh-day Adventism
+has done this over the years threatening excommunication and other
+punishment. They have their own rules the members are to follow.
+
+9. Cults are often involved in illegal activities.
+
+10. Cults always distort the gospel and add works for salvation. I have
+already shown this to be true of Seventh-day Adventists.
+
+11. Cults use means to deceive and control their followers. Seventh-day
+Adventism has a history of deceiving their people and keeping them from
+the truth and then lies about it when questioned on it.
+
+12. Cults are often legalistic on how their members must live. I have
+already mentioned how Seventh-day Adventists have added unscriptural
+burdens for their members such as vegetarianism.
+
+13. Cults use Christian terms with different meanings than used in
+scripture or in standard Christianity. Seventh-day Adventism does this
+with some terms, changing the meanings such as being born again.   
+
+14. Normally have other literature, books, et cetera that are considered
+equal or above scripture. Seventh-day Adventists have Ellen G. White's
+writings.
+
+15. Jesus is replaced by someone-something else or at least very
+minimized. Seventh-day Adventists say Jesus is the archangel Michael.
+Jesus created Michael. SDA minimizes Jesus by either removing his titles
+in their bible or making them lower case removing his deity.
+
+16. Only the leaders are allowed to interpret the Bible for the
+"underdogs" (the non-clergy). Only the General Conference of Seventh-day
+Adventists decides doctrine. It is led by the church president.
+
+17. Cult leaders get new revelations. Ellen G. White had many supposed new
+revelations.
+
+18. Someone is placed above Jesus. This is seen with Ellen G. White.
+
+For those who have family members, friends, coworkers, or others that
+we know who are Seventh-day Adventists, we need to let them know the truth
+and get them out before it is eternally too late. God loves precious
+Seventh-day Adventists souls as much as anyone else and wishes that all of
+them would call upon him for salvation, but they must get out of
+Seventh-day Adventism. I plead that if any Seventh-day Adventists are
+listening to these sermons from this study they will listen and heed to
+what I have taught and will call upon Jesus today to save you and then get
+out of the Seventh-day Adventist church. Call upon Jesus now.   
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

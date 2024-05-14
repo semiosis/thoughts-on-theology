@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,407 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the feast of firstfruits
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Jesus can be found in the Jewish feast of firstfruits just as he can
+in all Jewish feasts. The feast of firstfruits is one of the seven
+authorized feasts that God ordered the Israelites to observe. It is the
+third spring feast and occurs in the Jewish month of Nisan around March or
+April of our calendar. The feast of firstfruits was always on the day
+after the sabbath following passover. It would be on a Sunday or the first
+day of the week. The feast of firstfruits occurs during the feast of
+unleavened bread which is the seven day feast that starts the day after
+passover. The Israelites were to offer an offering on the first day of the
+feast of unleavened bread. The offering of the firstfruits of their barley
+harvest was used for this occasion. The Israelites were to gather an omer
+of barley which is roughly four dry quarts and place it into a sheaf
+[bundle tied together]. Barley was the spring harvest. They were to bring
+this to the priest at the court of the temple or before this to the
+tabernacle. The priest then winnowed (blew air through the grain to remove
+the chaff [husks], parched (dried with heat), and bruised the barley
+grain. This was on the first day of the feast of unleavened bread. The
+next day the priest put some incense on the sheaf and then waved it before
+the LORD and then he threw some of the grain into the fire on the altar
+for an offering to the LORD. The LORD would accept this meat offering and
+then bless the rest of the harvest. The Israelites could not eat any of
+the barley before offering the firstfruits of the barley to the LORD. The
+day the sheaves were waived was the second day of the feast of unleavened
+bread and also the feast of first fruits. (Leviticus 23:4-14 ¶
+These are the feasts of the LORD, even holy convocations, which ye shall
+proclaim in their seasons.
+5 In the fourteenth day of the first month at even is the LORD'S passover.
+6 And on the fifteenth day of the same month is the feast of unleavened
+bread unto the LORD: seven days ye must eat unleavened bread.
+7 In the first day ye shall have an holy convocation: ye shall do no
+servile work therein.
+8 But ye shall offer an offering made by fire unto the LORD seven days: in
+the seventh day is an holy convocation: ye shall do no servile
+work therein.
 
-Username or email _____________________
+9 ¶ And the LORD spake unto Moses, saying,
+10 Speak unto the children of Israel, and say unto them, When ye be come
+into the land which I give unto you, and shall reap the harvest thereof,
+then ye shall bring a sheaf of the firstfruits of your harvest unto the
+priest:
+11 And he shall wave the sheaf before the LORD, to be accepted for you: on
+the morrow after the sabbath the priest shall wave it.
+12 And ye shall offer that day when ye wave the sheaf an he lamb without
+blemish of the first year for a burnt offering unto the LORD.
+13 And the meat offering thereof shall be two tenth deals of fine flour
+mingled with oil, an offering made by fire unto the LORD for a sweet
+savour: and the drink offering thereof shall be of wine, the
+fourth part of an hin.
+14 And ye shall eat neither bread, nor parched corn, nor green ears, until
+the selfsame day that ye have brought an offering unto your
+God: it shall be a statute for ever throughout your generations in all
+your dwellings.) The feast of firstfruits as verse 14 shows was to be
+observed forever by the Israelites, but after the destruction of the
+temple in AD 70, it was no longer observed. Barley was always the grain of
+the poor with wheat being for the rich. I believe the significance of the
+barley shows Jesus not only came as a poor man, but for all people
+including the poor to bring everlasting life to them and make all people
+rich through him.
 
-Reset password
+The Israelites did not observe the feast of firstfruits until they
+had entered the Promised Land as verse 10 shows. It was not celebrated in
+the wilderness. The Israelites had to be in the Promised Land to grow the
+crops as they previously wandered around. This was also done to represent
+how the Jews struggled in the wilderness as they wandered in sin and how
+in the Promised Land they had rest just as a person only has rest in Jesus
+after they are saved. The wilderness represented bondage to sin whereas
+the Promised Land represented the life a Christian has in Jesus after his
+resurrection. Just as the Israelites could not eat any of the barley prior
+to the offering of the firstfruits, neither could a person fully partake
+of their salvation until after the resurrection of Jesus as the
+firstfruits. The old testament saints did not have the Holy Ghost living
+full time in them.
+
+Jesus died on passover as our passover lamb and then he rose from the
+grave on Sunday which was the feast of firstfruits to become the
+firstfruits of resurrection. (I Corinthians 5:7 Purge out therefore the
+old leaven, that ye may be a new lump, as ye are unleavened. For even
+Christ our passover is sacrificed for us:) (I Corinthians 15:20-23 But now
+is Christ risen from the dead, and become the firstfruits of them that
+slept.
+21For since by man came death, by man came also the resurrection of the
+dead.
+22 For as in Adam all die, even so in Christ shall all be made alive.
+23 But every man in his own order: Christ the firstfruits; afterward they
+that are Christ's at his coming.) Jesus had to be the first person to
+receive his glorified resurrected body. This allowed that the rest of us
+will also get a resurrected glorified body someday. New testament
+Christians will get their glorified bodies at the rapture and old
+testament saints at the second coming of Jesus at the end of the great
+tribulation just before the millennium and the thousand year reign of
+Jesus. On that glorious resurrection Sunday that was the feast of
+firstfruits as Jesus rose from the grave, at the same time the priests
+would have been waving the sheaves of grain of the people's offerings to
+the LORD asking for God to accept the offering and bless the rest of the
+barley harvest not realizing that Jesus, their Messiah and High Priest had
+rose from the grave as the firstfruits for all those who would believe in
+him. The priests missed out on the real firstfruits. (Hebrews 3:1
+Wherefore, holy brethren, partakers of the heavenly calling, consider the
+Apostle and High Priest of our profession, Christ Jesus;) Jesus overcame
+death by being the firstfruits of resurrection guaranteeing that those who
+are saved have also overcome spiritual death. (John 11:25-26 Jesus said
+unto her, I am the resurrection, and the life: he that believeth in me,
+though he were dead, yet shall he live:
+26
+And whosoever liveth and believeth in me shall never die. Believest thou this?)
+Jesus asks do you believe he will give you everlasting life. Everyone must
+answer this question for themselves and must answer yes Jesus is the
+resurrection and life and believe if they want everlasting life. The feast
+of firstfruits points to Jesus as our resurrection and life and points to
+his second coming in the fall feasts that we can rejoice over and look
+forward to. The spring feasts show Jesus in his first coming as our
+Saviour and point to Jesus in the fall feasts as our King. 
+
+Seven sabbaths and a day, or fifty days after the feast of
+firstfruits, the Israelites were to celebrate the feast of harvest or
+Pentecost. (Leviticus 23:15-16 ¶ And ye shall count unto you from the
+morrow after the sabbath, from the day that ye brought the sheaf of the
+wave offering; seven sabbaths shall be complete:
+16 Even unto the morrow after the seventh sabbath shall ye number fifty
+days; and ye shall offer a new meat offering unto the LORD.) The
+Israelites were to do no work on Pentecost and were to offer another meat
+offering. God gave the Holy Ghost to believers on Pentecost as his meat
+offering to all true believers. Jesus ascended to heaven so the Comforter
+who is the Holy Ghost could come and live in us. (John 14:26 But the
+Comforter, which is the Holy Ghost, whom the Father will send in my name,
+he shall teach you all things, and bring all things to your remembrance,
+whatsoever I have said unto you.) (I Corinthians 6:19 What? know ye not
+that your body is the temple of the Holy Ghost which is in you, which ye
+have of God, and ye are not your own?
+20 For ye are bought with a price: therefore glorify God in your body, and
+in your spirit, which are God's.) Jesus gave us the firstfruits of the
+Spirit on Pentecost. (Romans 8:23 And not only they, but ourselves also,
+which have the firstfruits of the Spirit, even we ourselves groan within
+ourselves, waiting for the adoption, to wit, the redemption of our body.)
+This verse shows how Christians should look to the day they get their
+glorified, resurrected bodies that is now possible due to Jesus having
+been our firstfruits.
+
+The feast of firstfruits must go hand in hand with passover as the
+passover represents the death of Jesus and the feast of firstfruits his
+resurrection. You cannot have a resurrection without having a death.
+Passover represents Jesus being slain and the feast of firstfruits Jesus
+being raised up. The death of Jesus would have been in vain if he had not
+rose from the grave, so you must have a resurrection with that death. You
+cannot separate these two feasts. (I Corinthians 15:17 And if Christ be
+not raised, your faith is vain; ye are yet in your sins.) Those who are
+saved are still alive even though their physical bodies may be dead thanks
+to Jesus being our firstfruits of resurrection. Thank God for the empty
+grave. (Luke 24:1-7 Now upon the first day of the week, very early in the
+morning, they came unto the sepulchre, bringing the spices which they had
+prepared, and certain others with them.
+2 And they found the stone rolled away from the sepulchre.
+3 And they entered in, and found not the body of the Lord Jesus.
+4 And it came to pass, as they were much perplexed thereabout, behold, two
+men stood by them in shining garments:
+5 And as they were afraid, and bowed down their faces to the earth, they
+said unto them, Why seek ye the living among the dead?
+6 He is not here, but is risen: remember how he spake unto you when he was
+yet in Galilee,
+7 Saying, The Son of man must be delivered into the hands of sinful men,
+and be crucified, and the third day rise again.) Jesus is alive and well
+and sits at the right hand of God the Father with the right hand denoting
+prominence and therefore we can rejoice in our everlasting lives and look
+to the things above in heaven and not focus on the things here on earth.
+(Colossians 3:1 If ye then be risen with Christ, seek those things which
+are above, where Christ sitteth on the right hand of God.)
+
+We as Christians celebrate Easter as Resurrection Day or the day
+Jesus rose from the grave. We really should be celebrating the feast of
+firstfruits as the true Resurrection Day. Some years Easter comes before
+passover which destroys the connection for Christians witnessing to Jews
+about the resurrection of Jesus as you have the resurrection on Easter
+before having the death of Jesus on passover.
+
+Jesus was bound in grave clothes when he was buried. This bounding is
+symbolic of the barley bound in sheaves that would become the firstfruits.
+(Mark 15:46 And he bought fine linen, and took him down, and wrapped him
+in the linen, and laid him in a sepulchre which was hewn out of a rock,
+and rolled a stone unto the door of the sepulchre.)
+
+We see how Jesus as our firstfruits and High Priest ascended to
+heaven after his resurrection that Sunday morning to offer his blood on
+the heavenly altar as a firstfruits offering to God. This completed our
+redemption and allowed us to have everlasting life for those who receive
+Jesus as their Saviour. This was why Jesus told Mary Magdelene not to
+touch him when she saw him by the tomb and thought he was the gardener.
+(John 20:17 Jesus saith unto her, Touch me not; for I am not yet ascended
+to my Father: but go to my brethren, and say unto them, I ascend unto my
+Father, and your Father; and to my God, and your God.) Mary could not
+touch Jesus until he placed his blood on the heavenly altar. Then he
+returned that day to see his disciples and then he could be touched.
+Modern bibles change this to phrases such as "Do not cling to me" or
+something similar and miss the connection. Mary could not even touch
+Jesus, not just cling to him as she would have polluted him if she had
+touched him due to her sin.  
+
+For Jews or anyone who may be listening and are not saved, realize
+that Jesus your Messiah died for yours and my sins on passover and rose
+victoriously from the grave on the feast of firstfruits so that you might
+have eternal life. Call upon Jesus today to save you. See how each Jewish
+feast pointed to Jesus and thank God for sending his Son Jesus to save
+each of us. Start celebrating the feast of firstfruits and all Jewish
+feasts with a new understanding of what Jesus did for us and will bring us
+in the future.    
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

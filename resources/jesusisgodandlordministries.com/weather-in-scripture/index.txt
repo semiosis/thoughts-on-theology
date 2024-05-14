@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,631 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Weather in scripture
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Weather is a topic that is mentioned quite often in scripture. I
+dedicate this sermon to my mom who has always been interested in the
+weather. Scripture talks about floods, droughts, storms, snow and ice,
+rain, clouds, and much more and shows how God is even in control of the
+weather just as he is in everything else in life. We are going to look at
+just some of what scripture has to say about weather. The books of Job and
+Psalms have the most references to weather.  
 
-Username or email _____________________
+Genesis 2:5-6 are the first verses that mention weather. They show
+how prior to the flood there was no rain upon the earth, but rather God
+watered the ground with a mist that came up from the earth. (Genesis 2:5-6
+5 And every plant of the field before it was in the earth, and every herb
+of the field before it grew: for the LORD God had not caused it to rain
+upon the earth, and there was not a man to till the ground.
+6 But there went up a mist from the earth, and watered the whole face of
+the ground.) The next occasion is of the Genesis flood in Genesis 6:17.
+(Genesis 6:17 And, behold, I, even I, do bring a flood of waters upon the
+earth, to destroy all flesh, wherein is the breath of life, from under
+heaven; and every thing that is in the earth shall die.) Today we no
+longer have a mist from the ground, but rather dew which is probably
+similar effects, except dew comes from the clouds rather than the ground.
+(Proverbs 3:20 By his knowledge the depths are broken up, and the clouds
+drop down the dew.)
 
-Reset password
+Floods are mentioned in scripture with most cases dealing with the
+Genesis flood that flooded the whole earth with water. This was a global
+flood and not a local flood. God destroyed all people and land animals
+except those in the ark. God has many chapters and verses that deal with
+this flood. This was the greatest weather event in scripture. Scripture
+also speaks of floods brought by God in general. (Isaiah 28:2 Behold, the
+Lord hath a mighty and strong one, which as a tempest of hail and a
+destroying storm, as a flood of mighty waters overflowing, shall cast down
+to the earth with the hand.) Floods are normally brought by God as
+punishment for man's sin, but they also do benefit man in that when farm
+land is flooded many nutrients are put back into the soil which helps grow
+future crops.  
+
+Rain is mentioned that enough of it and quickly will bring forth
+those floods. The first mention of rain falling on the earth was at the
+start of the Genesis flood when it rained for forty days and forty nights.
+(Genesis 7:12 And the rain was upon the earth forty days and forty
+nights.) We are told that it is God who brings us the rain. (Job 5:10 Who
+giveth rain upon the earth, and sendeth waters upon the fields:) This
+verse shows it is God who waters our crops. Thank God for the rain. God
+watering our crops is always better than us doing it. (Job 38:26-27 26 To
+cause it to rain on the earth, where no man is; on the wilderness,
+wherein there is no man;
+27 To satisfy the desolate and waste ground; and to cause the bud of the
+tender herb to spring forth?) Job 38:26-27 show that God even brings rain
+to places where man does not live to even water the plants of the desert.
+(Psalm 65:9 Thou visitest the earth, and waterest it: thou greatly
+enrichest it with the river of God, which is full of water: thou preparest
+them corn, when thou hast so provided for it.) God brings rain to both the
+unsaved and saved. (Matthew 5:45 That ye may be the children of your
+Father which is in heaven: for he maketh his sun to rise on the evil and
+on the good, and sendeth rain on the just and on the unjust.) God provides
+the rain at times of seasons to water the crops. (Jeremiah 5:24 Neither
+say they in their heart, Let us now fear the LORD our God, that giveth
+rain, both the former and the latter, in his season: he reserveth unto us
+the appointed weeks of the harvest.) God brings small rain of drizzle to
+great rain of a downpour. (Job 37:6 For he saith to the snow, Be thou on
+the earth; likewise to the small rain, and to the great rain of his
+strength.) God mentions the hydrological cycle which is the cycle of water
+falling on the earth and then evaporating back to form new clouds and be
+transported to a new spot to then bring water again upon the earth. Job
+36:27-28 and other verses seem to mention this hydrological cycle as does
+Amos 9:6 where God calleth water from the seas which is where most of it
+comes from for the hydrological cycle and then he pours it upon the earth.
+(Amos 9:6 It is he that buildeth his stories in the heaven, and hath
+founded his troop in the earth; he that calleth for the waters of the sea,
+and poureth them out upon the face of the earth: The LORD is his name.)
+God wrote about the hydrological cycle about 1600 years before man knew
+about it.
+
+Clouds are necessary in order to bring the rain and God said he
+controls the clouds and decides when they drop rain. (Isaiah 5:6 And I
+will lay it waste: it shall not be pruned, nor digged; but there shall
+come up briers and thorns: I will also command the clouds that they rain
+no rain upon it.) (Job 36:27-28 For he maketh small the drops of water:
+they pour down rain according to the vapour thereof:
+28 Which the clouds do drop and distil upon man abundantly.) (Psalm 147:8
+Who covereth the heaven with clouds, who prepareth rain for the earth, who
+maketh grass to grow upon the mountains.) Today man tries to play God by
+seeding the clouds to get them to bring rain upon the earth. This has
+caused storms. The United States was seeding clouds during the Vietnam
+War. When the clouds are full of water they bring forth rain unless God
+prevents them. (Ecclesiastes 11:3 If the clouds be full of rain, they
+empty themselves upon the earth: and if the tree fall toward the south, or
+toward the north, in the place where the tree falleth, there it shall be.)
+We cannot hold back the clouds when they are ready to drop rain just like
+when a bottle is poured out. (Job 38:37 Who can number the clouds in
+wisdom? or who can stay the bottles of heaven,) Following a rain the
+clouds disappear as clouds are just rain water that is suspended.
+(Ecclesiastes 12:2 While the sun, or the light, or the moon, or the stars,
+be not darkened, nor the clouds return after the rain:) (Job 26:8 He
+bindeth up the waters in his thick clouds; and the cloud is not rent under
+them.) Clouds all contain a rainbow as a reminder of God's covenant with
+man to never destroy the earth again with a global flood. We will still
+have local floods. (Genesis 9:13-16 13 I do set my bow in the cloud, and
+it shall be for a token of a covenant between me and the earth.
+14 And it shall come to pass, when I bring a cloud over the earth, that
+the bow shall be seen in the cloud:
+15 And I will remember my covenant, which is between me and you and every
+living creature of all flesh; and the waters shall no more become a flood
+to destroy all flesh.
+16 And the bow shall be in the cloud; and I will look upon it, that I may
+remember the everlasting covenant between God and every living creature of
+all flesh that is upon the earth.) A rainbow is formed by sunlight
+reflecting off of water droplets. Scientists have special instruments
+which have proven that a rainbow is in every cloud just as God said. Jesus
+appeared as a cloud during the day to the Israelites during the forty
+years they wandered in the wilderness to provide shade. Clouds can help
+cool a hot summer day as they block some of the sunlight. (Exodus 40:38
+For the cloud of the LORD was upon the tabernacle by day, and fire was on
+it by night, in the sight of all the house of Israel, throughout all their
+journeys.) God appeared to Moses as a cloud on Mt. Sinai. (Exodus 34:5 And
+the LORD descended in the cloud, and stood with him there, and proclaimed
+the name of the LORD.) Black clouds are usually a sign of a coming rain
+and often a heavy rain. (I Kings 18:45 And it came to pass in the mean
+while, that the heaven was black with clouds and wind, and there was a
+great rain. And Ahab rode, and went to Jezreel.) (II Samuel 22:12 And he
+made darkness pavilions round about him, dark waters, and thick clouds of
+the skies.) Clouds travel in the circuit of heaven. (Job 22:14 Thick
+clouds are a covering to him, that he seeth not; and he walketh in the
+circuit of heaven.) Meteorologists are those who study weather and try to
+predict it. Many times they can learn from the signs God has given, but
+many other times they are wrong since God controls the weather. (Matthew
+16:2-3 2 He answered and said unto them, When it is evening, ye say, It
+will be fair weather: for the sky is red.
+3 And in the morning, It will be foul weather to day: for the sky is red
+and lowring. O ye hypocrites, ye can discern the face of the sky; but can
+ye not discern the signs of the times?) We are told that they will never
+fully understand the clouds and the weather. (Job 36:29 Also can any
+understand the spreadings of the clouds, or the noise of his tabernacle?)
+God balances the clouds in their place as they move across the sky in the
+circuit of heaven. (Job 37:16 Dost thou know the balancings of the clouds,
+the wondrous works of him which is perfect in knowledge?) This verse says
+God is perfect in his knowledge in how to control the entire universe to
+make it work properly. The water in clouds is in liquid droplets of
+various sizes depending on the cloud, not water vapor and water is heavier
+than air so how does God balance the clouds? We now know this is done by
+the weight of the wind that rushes up due to temperature differences to
+hold up and balance the clouds. We then read earlier in Job 36:27-28 how
+God drops the water from the clouds when he is ready to water the earth.
+Clouds block sunlight yet the wind will blow them away to once again
+reveal the sunlight which represents a type of Jesus. We cannot look
+directly at the sun just as we cannot look directly at God, yet the clouds
+blocking some light allow us to see more clearly the sun. God uses the
+clouds as his chariot to ride around. (Psalm 104:3 Who layeth the beams of
+his chambers in the waters: who maketh the clouds his chariot: who walketh
+upon the wings of the wind:) We see in this verse how wind has wings.
+Jesus will return in the clouds at the end of the great tribulation and
+prior to this he will call all Christians both dead and alive up to him in
+the clouds in the rapture. (Mark 13:26 And then shall they see the Son of
+man coming in the clouds with great power and glory.) (I Thessalonians
+4:17 Then we which are alive and remain shall be caught up together with
+them in the clouds, to meet the Lord in the air: and so shall we ever be
+with the Lord.) A cloud that rises out of the west brings rain showers.
+(Luke 12:54 ¶ And he said also to the people, When ye see a cloud rise out
+of the west, straightway ye say, There cometh a shower; and so it is.)
+
+Wind often times is what brings the rain in and the wind will become
+stronger just before that storm. I already said how the wind blows the
+clouds around. A south wind will bring forth heat. (Luke 12:55 And when ye
+see the south wind blow, ye say, There will be heat; and it cometh to
+pass.) Wind will dry up flood waters just as God had it help dissipate the
+Genesis flood waters. (Genesis 8:1 And God remembered Noah, and every
+living thing, and all the cattle that was with him in the ark: and God
+made a wind to pass over the earth, and the waters asswaged;) I already
+read Psalm 104:3 which shows wind has wings, but II Samuel 22:11 also
+mentions it as does Psalm 18:10. This verse also shows how God not only
+rides upon the clouds, but also cherubim. (II Samuel 22:11 And he rode
+upon a cherub, and did fly: and he was seen upon the wings of the wind.)
+Wind can cool us down on a hot day or make us cold on a cold day. Wind can
+be used to bring about destruction. This can be used as punishment for
+man's sin or in the case of Job to allow Satan to test him as the wind
+destroyed his son's house and killed his seven sons and three daughters.
+(Job 1:19 And, behold, there came a great wind from the wilderness, and
+smote the four corners of the house, and it fell upon the young men, and
+they are dead; and I only am escaped alone to tell thee.) Wind cannot be
+seen, only heard, felt, and its effects seen. God also said we do not know
+where it bloweth from or where it goes. (John 3:8 The wind bloweth where
+it listeth, and thou hearest the sound thereof, but canst not tell whence
+it cometh, and whither it goeth: so is every one that is born of the
+Spirit.) It is God who commands the wind to lift up the waves upon water
+during storms. (Psalm 107:25 For he commandeth, and raiseth the stormy
+wind, which lifteth up the waves thereof.) It is God who causes the wind
+to blow. (Psalm 147:18 He sendeth out his word, and melteth them: he
+causeth his wind to blow, and the waters flow.) The wind comes out of
+God's treasuries. Jeremiah 10:13 and 51:16 also mention how God brings
+forth the wind out of his treasuries. (Psalm 135:7 He causeth the vapours
+to ascend from the ends of the earth; he maketh lightnings for the rain;
+he bringeth the wind out of his treasuries.) This verse also shows he
+makes lightning to go with the rain. Lightning during a rainstorm helps
+crops grow as it splits the nitrogen in the atmosphere to allow it to be
+absorbed by the crops and grow better. God keeps the wind in his fists.
+(Proverbs 30:4 Who hath ascended up into heaven, or descended? who hath
+gathered the wind in his fists? who hath bound the waters in a garment?
+who hath established all the ends of the earth? what is his name, and what
+is his son's name, if thou canst tell?) People say Jesus is not spoken of
+in the old testament yet this verse shows that even in the old testament
+God spoke of his son and him as a father. Jesus as God had authority over
+the wind as he calmed the wind and raging sea. (Luke 8:24 And they came to
+him, and awoke him, saying, Master, master, we perish. Then he arose, and
+rebuked the wind and the raging of the water: and they ceased, and there
+was a calm.) There are strong winds and light breezes. Acts speaks of a
+wind known as Euroclydon which is similar to a nor'easter in New England.
+Euroclydon is a very strong wind found in the Mediterranean Sea and
+surrounding area. (Acts 27:14 But not long after there arose against it a
+tempestuous wind, called Euroclydon.) The Holy Ghost is compared to the
+wind as both are invisible, powerful, and can be felt and the effects
+seen. The north wind drives away the rain. My local meteorologist
+confirmed scripture was accurate yet most modern bibles say the north wind
+brings in the rain showing how inaccurate and corrupt they are. (Proverbs
+25:23 The north wind driveth away rain: so doth an angry countenance a
+backbiting tongue.) Blowing wind helps spread plant seeds to grow food for
+animals. We often think of wind as weightless, but God says wind has
+weight and he prepares clouds with the right amount of water which he has
+weighed in order to drop it in the right amount on the right spot on
+earth. Scientists have only recently discovered this truth of wind having
+weight when God knew it all along and had it in his word. (Job 28:24-27 24
+For he looketh to the ends of the earth, and seeth under the whole heaven;
+25 To make the weight for the winds; and he weigheth the waters by
+measure.
+26 When he made a decree for the rain, and a way for the lightning of the
+thunder:
+27 Then did he see it, and declare it; he prepared it, yea, and searched
+it out.)
+
+Sometimes the rain can be violent and bring thunderstorms with
+thunder and lightning. Thunder is the noise that is made from the
+lightning passing through the air which quickly heats it up and then
+quickly expands the air causing the thunder. God's voice has been compared
+to thunder. (Job 40:9 Hast thou an arm like God? or canst thou thunder
+with a voice like him?) (Job 37:2 Hear attentively the noise of his voice,
+and the sound that goeth out of his mouth.) (John 12:28-29 28 Father,
+glorify thy name. Then came there a voice from heaven, saying, I have both
+glorified it, and will glorify it again.
+29 The people therefore, that stood by, and heard it, said that it
+thundered: others said, An angel spake to him.) We cannot understand the
+power of thunder. (Job 26:14 Lo, these are parts of his ways: but how
+little a portion is heard of him? but the thunder of his power who can
+understand?) Lightning is an electrostatic discharge of a tremendous
+amount of electrical energy [100 million to 1 billion volts and billions
+of watts]. Lightning is God's arrows that he casts upon earth. (II Samuel
+22:15 And he sent out arrows, and scattered them; lightning, and
+discomfited them.) (Psalm 18:14 Yea, he sent out his arrows, and scattered
+them; and he shot out lightnings, and discomfited them.) (Psalm 144:6 Cast
+forth lightning, and scatter them: shoot out thine arrows, and destroy
+them.) God makes a path for his lightning to follow. (Job 28:26 When he
+made a decree for the rain, and a way for the lightning of the thunder:)
+(Job 38:25 Who hath divided a watercourse for the overflowing of waters,
+or a way for the lightning of thunder;) God has full control over
+lightning as he directs were it goes as he sends it to all places over the
+earth. (Job 37:3 He directeth it under the whole heaven, and his lightning
+unto the ends of the earth.) Lightning is a quick flash of light which can
+light up the whole night sky. (Psalm 77:17-18 17 The clouds poured out
+water: the skies sent out a sound: thine arrows also went abroad.
+18 The voice of thy thunder was in the heaven: the lightnings lightened
+the world: the earth trembled and shook.) (Ezekiel 1:14 And the living
+creatures ran and returned as the appearance of a flash of lightning.)
+Satan's fall from heaven was described as lightning falling from heaven.
+Just as lightning travels at the speed of light which is the fastest thing
+known at 186,000 miles per second, Satan's fall from heaven was fast as a
+flash of lightning. (Luke 10:18 And he said unto them, I beheld Satan as
+lightning fall from heaven.) Lightning strikes can cause fires both in
+forests and in homes.
+
+Severe thunderstorms especially in the summer can cause hail to fall
+upon the earth. Hail can be very destructive to crops as well as property
+or even people depending on its size. The largest hail mentioned in
+scripture will be about 75 pounds or 100 pounds in size depending on
+interpretation of a talent during the great tribulation. A 75 pound
+hailstone would kill any person hit by one. (Revelation 16:21 And there
+fell upon men a great hail out of heaven, every stone about the weight of
+a talent: and men blasphemed God because of the plague of the hail; for
+the plague thereof was exceeding great.) God has used hailstones before to
+kill people such as the Amorites who were enemies of Israel and therefore
+of God. (Joshua 10:11 And it came to pass, as they fled from before
+Israel, and were in the going down to Beth-horon, that the LORD cast down
+great stones from heaven upon them unto Azekah, and they died: they were
+more which died with hailstones than they whom the children of Israel slew
+with the sword.) The first time hail is mentioned is when God sent hail
+upon the Egyptians as one of the ten plagues. (Exodus 9:23 And Moses
+stretched forth his rod toward heaven: and the LORD sent thunder and hail,
+and the fire ran along upon the ground; and the LORD rained hail upon the
+land of Egypt.) God has often used hail to punish man. (Psalm 78:47-48 47
+He destroyed their vines with hail, and their sycomore trees with frost.
+48 He gave up their cattle also to the hail, and their flocks to hot
+thunderbolts.) Verse 48 shows lightning (thunderbolts) is hot. (Psalm
+105:32 He gave them hail for rain, and flaming fire in their land.)
+Sometimes God also sends fire from heaven and he has also sent sulfur
+balls from heaven upon Sodom and Gomorrah. God has many things in his
+arsenal. (Luke 17:29 But the same day that Lot went out of Sodom it rained
+fire and brimstone from heaven, and destroyed them all.) (Ezekiel 38:22
+And I will plead against him with pestilence and with blood; and I will
+rain upon him, and upon his bands, and upon the many people that are with
+him, an overflowing rain, and great hailstones, fire, and brimstone.) The
+sulphur balls found where Sodom had been have been found to be almost pure
+sulfur compared to most normal sulfur balls found on earth that are around
+30 something percent pure. This is because the ones that hit Sodom were
+sent from heaven.
+
+Violent thunderstorms can also often produce tornadoes or whirlwinds
+as scripture refers to them as. Elijah was taken up into heaven by God in
+a whirlwind as a type of the rapture. (II Kings 2:11 And it came to pass,
+as they still went on, and talked, that, behold, there appeared a chariot
+of fire, and horses of fire, and parted them both asunder; and Elijah went
+up by a whirlwind into heaven.) God answered Job out of a whirlwind. (Job
+40:6 ¶ Then answered the LORD unto Job out of the whirlwind, and said,)
+Tornadoes normally come out of the south just as cold comes out of the
+north. (Job 37:9 Out of the south cometh the whirlwind: and cold out of
+the north.)  
+
+Storms are often violent weather when rain comes. God mentions some
+storms specifically in scripture some of which I have already mentioned
+such as the violent global flood in Genesis, the storm that hit Paul in
+Acts on his way to Rome, and the storm that hit Jesus and his disciples
+while they were in the ship. God sent a storm against Jonah for disobeying
+him. (Jonah 1:4 ¶ But the LORD sent out a great wind into the sea, and
+there was a mighty tempest in the sea, so that the ship was like to be
+broken.) God has full control over the weather, but I believe he does
+allow Satan to sometimes control it such as when Satan used the wind to
+destroy the home of Job's son. I also believe God let Satan bring the
+storm that hit Jesus and his apostles which Jesus calmed. Satan was trying
+to kill not only the disciples, but also Jesus to try and prevent his
+doom. Hurricanes can be violent storms which form over the oceans, but
+they are not directly mentioned in scripture though some of the storms may
+represent them such as the tempests mentioned such as in Acts 27:14.
+Tempests are violent windy storms such as seen in hurricanes. (Isaiah 28:2
+Behold, the Lord hath a mighty and strong one, which as a tempest of
+hail and a destroying storm, as a flood of mighty waters overflowing,
+shall cast down to the earth with the hand.) Heavy winds can bring up a
+different kind of storm such as dust storms that are often seen in desert
+areas. Deuteronomy 28:23-24 seems to be describing dust storms.
+(Deuteronomy 28:23-24 23 And thy heaven that is over thy head shall be
+brass, and the earth that is under thee shall be iron.
+24 The LORD shall make the rain of thy land powder and dust: from heaven
+shall it come down upon thee, until thou be destroyed.)
+
+When God withholds the rain as he sometimes does for punishment of
+sin as we have seen out west and around the world, this will often lead to
+drought. (Haggai 1:11 And I called for a drought upon the land, and upon
+the mountains, and upon the corn, and upon the new wine, and upon the oil,
+and upon that which the ground bringeth forth, and upon men, and upon
+cattle, and upon all the labour of the hands.) (Deuteronomy 11:17 And then
+the LORD'S wrath be kindled against you, and he shut up the heaven, that
+there be no rain, and that the land yield not her fruit; and lest ye
+perish quickly from off the good land which the LORD giveth you.) We see
+the weather extremes from drought to forty days and nights of rain in
+Noah's day. Scripture mentions some droughts that hit lands. Droughts
+often lead to famine as the food cannot grow. Abraham went to Egypt after
+a famine hit where he lived. (Genesis 12:10 ¶ And there was a famine in
+the land: and Abram went down into Egypt to sojourn there; for the
+famine was grievous in the land.) Later Isaac would run off to the land of
+the Philistines during another famine. (Genesis 26:1 And there was a
+famine in the land, beside the first famine that was in the days of
+Abraham. And Isaac went unto Abimelech king of the Philistines unto
+Gerar.) In the days of Joseph a seven year famine hit Egypt and all the
+surrounding area. Joseph under God's guidance kept the people fed.
+(Genesis 45:6 For these two years hath the famine been in the land: and
+yet there are five years, in the which there shall neither be earing nor
+harvest.) Droughts and heat will melt snow. (Job 24:19 Drought and heat
+consume the snow waters: so doth the grave those which have sinned.) The
+melting of snow water is often used for drinking water, but a drought will
+quickly use up (consume) that stored water. Droughts can often lead to
+forest fires especially if lightning strikes. Excessive heat is often
+connected to droughts. God said that cold and heat would always remain
+while the earth existed. This shows that global warming is a fraud as we
+will always have the cold. Global warming is just being used to control
+people and push socialist agendas. (Genesis 8:22 While the earth
+remaineth, seedtime and harvest, and cold and heat, and summer and winter,
+and day and night shall not cease.) Heat is caused by the sun and
+sometimes God withholds the sun. (Job 9:7 Which commandeth the sun, and it
+riseth not; and sealeth up the stars.)
+
+Clouds will drop snow instead of rain when it becomes cold. (Psalm
+147:16-17 16 He giveth snow like wool: he scattereth the hoarfrost like
+ashes.
+17 He casteth forth his ice like morsels: who can stand before his cold?)
+Pure snow is white and God describes our sins being made pure white like
+snow when washed in the blood of Jesus. (Isaiah 1:18 Come now, and let us
+reason together, saith the LORD: though your sins be as scarlet, they
+shall be as white as snow; though they be red like crimson, they shall be
+as wool.) Snow just like rain waters the earth and just like rain snow
+does not return back to heaven after it has fallen. It stays here until it
+evaporates later on. (Isaiah 55:10 For as the rain cometh down, and the
+snow from heaven, and returneth not thither, but watereth the earth, and
+maketh it bring forth and bud, that it may give seed to the sower, and
+bread to the eater:) Snow is also contained in the treasuries of God in
+heaven and is sometimes used by God when he is at war with man. Great
+snowstorms known as blizzards can be devastating. (Job 38:22-23 22 Hast
+thou entered into the treasures of the snow? or hast thou seen the
+treasures of the hail,
+23 Which I have reserved against the time of trouble, against the day of
+battle and war?) Snowfall in mountains can also be a treasure as melting
+snow in the springtime brings much need water to deserts, cities, and many
+other locations. Snow, ice, and frost are often mentioned in the book of
+Job, much more than in any other book. It is believed that Job was living
+when the ice age was still going on and was describing some of it. Ice is
+also seen in scripture with some cases already mentioned. Here is another
+verse that also deals with frost. (Job 38:29 Out of whose womb came the
+ice? and the hoary frost of heaven, who hath gendered it?) Frost is a thin
+layer of ice and hoary frost is icy crystals on the ground that forms at
+night, in essence a winter frozen dew. (Genesis 31:40 Thus I was; in the
+day the drought consumed me, and the frost by night; and my sleep departed
+from mine eyes.) (Exodus 16:14 And when the dew that lay was gone up,
+behold, upon the face of the wilderness there lay a small round thing, as
+small as the hoar frost on the ground.) Frost comes from the breath of
+God. (Job 37:10 By the breath of God frost is given: and the breadth of
+the waters is straitened.) Job 37:10 speaks of the breadth of waters being
+straitened and this may refer to land bridges that were formed during the
+ice age between continents due to frozen water. The breadth (width) now
+becomes narrower (straitened) as the body of water is now passable. We saw
+earlier how cold comes from the north.
+
+God often speaks of weather in scripture and he speaks of many things
+that we have only learned more recently yet God always had these things in
+scripture long ago. Let us read and trust scripture to know more about the
+weather. Let us appreciate the weather more as we realize that God is in
+control of everything and that includes the weather. Remember that God has
+and does often punish people with weather so let us as a nation repent of
+our sins and we will enjoy wonderful weather just as he promised Israel if
+they obeyed his commands. (Deuteronomy 11:14 That I will give you the rain
+of your land in his due season, the first rain and the latter rain, that
+thou mayest gather in thy corn, and thy wine, and thine oil.)  For those
+who are not saved call upon Jesus today so that you may know the one who
+creates and controls the weather and have your sins become white as snow.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,425 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Honour Thy Mother
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Happy Mother's Day to all of the moms. (Exodus 20:12 ¶ Honour thy
+father and thy mother: that thy days may be long upon the land which the
+LORD thy God giveth thee.) God commands us in the fifth commandment to
+honour our father and mother. God will give longer life for those who obey
+him. This is the only commandment that gives this promise. This
+commandment separates the ten commanments into two parts. The first four
+commandments have to do with man's relationship with God and the last six
+starting with this one have to do with man's relationship to man. God
+realizes that for man to get along with each other, it must start in the
+home which is why I believe this is why this commandment is first among
+those related to man. The relationship to one's parents often tends to
+affect how people think about God. God commands us to honour our mother
+always and not just on Mother's Day. Moms are special. They gave birth to
+us and have tended to us when we were hurt. Moms have cooked our meals and
+washed our clothes and gave us love when no one else did except God. The
+best mom is always your own mom even if the person does not realize it.
+She is the one God gave to you.
 
-Username or email _____________________
+Julia Ward Howe had pushed for Mother's Day in 1870. Mother's Day was
+first celebrated in the United States of America in modern times in 1907
+in Grafton, West Virginia at St. Andrews Methodist Church by Anna Jarvis.
+She pushed to make this a national holiday. By 1911 all U.S. states
+celebrated Mother's Day and in 1914 it was made a national holiday on the
+second Sunday in May. The day soon became commercialized and Anna Jarvis
+opposed this by saying the day was intended to honour one's mom with
+personal letters and other ways of love and was not to be exploited
+commercially. People should celebrate Mother's Day to honour the Lord and
+his commandment and not just because it is a holiday that is on the
+calendar and we are expected to observe it because it is on the calendar.
+Mother's Day is also celebrated in other nations. This day helps us to
+remember and obey the fifth commandment. This day is set aside for moms
+who are females from birth, not trasgendered males who think they are moms
+or the female version of homosexual males who have adopted a child and
+think they are moms.
 
-Reset password
+Scripture has much to say about mothers, especially for those who
+dishonour her. Proverbs 29:15 says a child not disciplined brings his mom
+shame. (Proverbs 29:15 The rod and reproof give wisdom: but a child left
+to himself bringeth his mother to shame.) Proverbs 1:8 says not to forsake
+the law of your mother. (Proverbs 1:8 My son, hear the instruction of thy
+father, and forsake not the law of thy mother:) A foolish son is the
+heaviness of his mom. (Proverbs 10:1 The proverbs of Solomon. A wise son
+maketh a glad father: but a foolish son is the heaviness of his mother.)
+God makes moms to be joyful of her children. (Psalm 113:9 He maketh the
+barren woman to keep house, and to be a joyful mother of children. Praise
+ye the LORD.) God says a foolish man despises his mom. (Proverbs 15:20 A
+wise son maketh a glad father: but a foolish man despiseth his mother.)
+God will take the life of those who curse their mom. Even if your mom was
+not always there for you or showed you little love, she is still your mom
+and God commands us to honour them. (Proverbs 20:20 Whoso curseth his
+father or his mother, his lamp shall be put out in obscure darkness.) A
+son that chaseth away his mom brings her shame. (Proverbs 19:26 He that
+wasteth his father, and chaseth away his mother, is a son that causeth
+shame, and bringeth reproach.) God says a generation will come that does
+not honour their mother. This is seen much today as people disobey God in
+all ways, including their moms. (Proverbs 30:11 There is a generation that
+curseth their father, and doth not bless their mother.) We are to honour
+our moms even when they get old. (Proverbs 23:22 Hearken unto thy father
+that begat thee, and despise not thy mother when she is old.) Micah 7:6
+tells us what happens when there is no honour of parents in a house.
+(Micah 7:6 For the son dishonoureth the father, the daughter riseth up
+against her mother, the daughter in law against her mother in law; a man's
+enemies are the men of his own house.) Scripture says to honour older
+women as you would your mom. (I Timothy 5:1-2 1 Rebuke not an elder, but
+intreat him as a father; and the younger men as brethren;
+2 The elder women as mothers; the younger as sisters, with all purity.)
+Jesus himself spoke of the fifth commandment when he rebuked the Pharisees
+who try to find a loophole in not honouring their parents by saying people
+who give money to the treasury, do not have to take care of their parents
+since the money is for God. This was a manmade tradition that Jesus
+condemned. (Matthew 15:4-6 4 For God commanded, saying, Honour thy father
+and mother: and, He that curseth father or mother, let him die the death.
+5 But ye say, Whosoever shall say to his father or his mother, It is a
+gift, by whatsoever thou mightest be profited by me;
+6 And honour not his father or his mother, he shall be free. Thus have ye
+made the commandment of God of none effect by your tradition.) Jesus again
+repeated the commandment to honour your mother. (Mark 10:19 Thou knowest
+the commandments, Do not commit adultery, Do not kill, Do not steal, Do
+not bear false witness, Defraud not, Honour thy father and mother.) Jesus
+followed through with this commandment himself when he made sure his mom
+Mary would be taken care of by John after his death on the cross. (John
+19:25-27 25 ¶ Now there stood by the cross of Jesus his mother, and his
+mother's sister, Mary the wife of Cleophas, and Mary Magdalene.
+26 When Jesus therefore saw his mother, and the disciple standing by, whom
+he loved, he saith unto his mother, Woman, behold thy son!
+27 Then saith he to the disciple, Behold thy mother! And from that hour
+that disciple took her unto his own home.) Paul reminds us to obey this
+commandment and get extended life by God. (Ephesians 6:1-3 1 Children,
+obey your parents in the Lord: for this is right.
+2 Honour thy father and mother; (which is the first commandment with
+promise;)
+3 That it may be well with thee, and thou mayest live long on the earth.)
+Proverbs speaks of a virtuous woman and some of her attributes. (Proverbs
+31:25-28 25 Strength and honour are her clothing; and she shall rejoice in
+time to come.
+26 She openeth her mouth with wisdom; and in her tongue is the law of
+kindness.
+27 She looketh well to the ways of her household, and eateth not the bread
+of idleness.
+28 Her children arise up, and call her blessed; her husband also, and he
+praiseth her.) All moms should strive to be like this woman. Isaiah 66:13
+says God will comfort like a mother. (Isaiah 66:13 As one whom his mother
+comforteth, so will I comfort you; and ye shall be comforted in
+Jerusalem.)
+
+Scripture mentions some mothers who had a bad influence on their
+children. One such mother was Jezebel. This wicked woman not only
+influenced her husband king Ahab, but also her children especially her son
+Joram who became king. Jezebel herself was into witchcraft and influenced
+her children. (II Kings 9:22 And it came to pass, when Joram saw Jehu,
+that he said, Is it peace, Jehu? And he answered, What peace, so long as
+the whoredoms of thy mother Jezebel and her witchcrafts are so many?)
+Another wicked mom was Athaliah. When Athaliah saw that her son, the king
+was dead, she tried to kill off all of her children and any other royal
+seed so that she could be queen. (II Kings 11:1-3 1 And when Athaliah the
+mother of Ahaziah saw that her son was dead, she arose and destroyed all
+the seed royal.
+2 But Jehosheba, the daughter of king Joram, sister of Ahaziah, took Joash
+the son of Ahaziah, and stole him from among the king's
+sons which were slain; and they hid him, even him and his nurse, in the
+bedchamber from Athaliah, so that he was not slain.
+3 And he was with her hid in the house of the LORD six years. And Athaliah
+did reign over the land.) How wicked a mom that could kill her own
+children. Let these women be a warning to moms everywhere to be godly as
+all moms will influence their children either good or evil. Just like
+these wicked moms, some moms today forsake their children, but God the
+Father will never forsake you. (Isaiah 49:15 Can a woman forget her
+sucking child, that she should not have compassion on the son of her womb?
+yea, they may forget, yet will I not forget thee.)
+
+The first mom was Eve who is the mother of all living as all people
+who have ever lived have descended from her and Adam. (Genesis 3:20 And
+Adam called his wife's name Eve; because she was the mother of all
+living.) Eve was the first mom who had to deal with the heartache of
+losing a child, after her son Abel was murdered by her other son Cain. She
+then lost Cain as well when God sent him away. (Genesis 4:14 Behold, thou
+hast driven me out this day from the face of the earth; and from thy face
+shall I be hid; and I shall be a fugitive and a vagabond in the earth; and
+it shall come to pass, that every one that findeth me shall slay me.)
+
+Scripture mentions many godly women that all moms today can emulate.
+Timothy's mother Eunice taught him faith which she was taught by her godly
+mom Lois. If only all moms would be like these two ladies and teach their
+children about Jesus. May this be a goal for all moms. (II Timothy 1:5
+When I call to remembrance the unfeigned faith that is in thee, which
+dwelt first in thy grandmother Lois, and thy mother Eunice; and I am
+persuaded that in thee also.) Mary the mother of Jesus, the man, was
+willing to believe the Holy Ghost would conceive a child in her without a
+man being involved. Mary encouraged people to obey whatever Jesus told
+them to do. (John 2:5 His mother saith unto the servants, Whatsoever he
+saith unto you, do it.) [This was at the wedding in Cana when Jesus turned
+water into wine.] Mary by faith trusted the angel who told her that her
+Son would be the Messiah and she endured the mocking of her Son Jesus, but
+never doubted Jesus at any time despite all of this. Mary was called
+blessed since she had the honour of giving birth to the Messiah in Jesus
+Christ. (Luke 1:28 And the angel came in unto her, and said, Hail, thou
+that art highly favoured, the Lord is with thee: blessed art thou among
+women.) Women in biblical days were considered blessed if they had
+children and the more the better. A woman was considered cursed if she
+could not have children. This shows how it was considered by women an
+honour to be a mom. All Jewish women were wanting to be the one who gave
+birth to the Messiah. Mary was the one chosen by God for this honour.
+Sarah had faith that she could have a child at an old age. She conceived
+Isaac at age 90. (Hebrews 11:11 Through faith also Sara herself received
+strength to conceive seed, and was delivered of a child when she was past
+age, because she judged him faithful who had promised.) Elizabeth the
+mother of John the Baptist also through faith conceived in her old age.
+(Luke 1:36 And, behold, thy cousin Elisabeth, she hath also conceived a
+son in her old age: and this is the sixth month with her, who was called
+barren.) Hannah was a great mom who was barren for a long time, but she
+never gave up on God, but kept praying for a son and told God that if he
+would give her a son, she would dedicate him and give him to the LORD. God
+honoured the request of Hannah with the birth of Samuel who was given to
+the LORD just as she had promised. Samuel became the last judge of Israel
+and Israel's first prophet and was a great man of God. Hannah was blessed
+by God for her willingness to give up Samuel that she was blessed with
+three more sons and two daughters after Samuel. This is told in I Samuel
+2:21. (I Samuel 2:21 And the LORD visited Hannah, so that she conceived,
+and bare three sons and two daughters. And the child Samuel grew before
+the LORD.) Rebekah trusted God in her barrenness and was blessed with
+twins Jacob and Esau. Rebekah was a hard worker and was very hospitable to
+strangers. Rebekah was willing to leave her dad and family in order by
+faith to marry Isaac whom she had never met and go into a new land.
+Rebekah also was willing to be cursed in order to protect her son Jacob.
+(Genesis 27:13 And his mother said unto him, Upon me be thy curse, my son:
+only obey my voice, and go fetch me them.) Deborah was a mother that was
+not afraid to stand up for what was right and for God. She was a judge and
+prophetess of Israel and a military leader who helped deliver Israel from
+her enemies as well as a mother. Ruth is another great mom of scripture.
+Ruth was a Moabitess and daughter in law of Naomi. After her husband died,
+she followed Naomi back to Israel and worshipped her God Jehovah, the true
+God and stopped worshipping her false gods of Moab and gave up her people.
+(Ruth 1:16 And Ruth said, Intreat me not to leave thee, or to return from
+following after thee: for whither thou goest, I will go; and where thou
+lodgest, I will lodge: thy people shall be my people, and thy God my
+God:)Ruth trusted her mother in law and worked hard to support her. She
+married Boaz and would become the great grandmother of king David and a
+part of the genealogy of Jesus. Jochebed was the mother of Moses. By faith
+she and her husband hid Moses from pharaoh who ordered Hebrew male
+children to death. She refused to allow her child to be put to death even
+if it meant disobedience. (Hebrews 11:23 By faith Moses, when he was born,
+was hid three months of his parents, because they saw he was a proper
+child; and they were not afraid of the king's commandment.) Moses would go
+on to lead Israel out of Egypt and would receive the ten commandments from
+God. Rachel the mother of Joseph and Benjamin was willing to support her
+husband Jacob even after she was denied being allowed to marry him after
+Jacob was deceived into marrying Leah when Rachel had been promised to
+him. Rachel was a hard worker who took care of the sheep. Samson's mom's
+name is not mentioned in scripture, but she wanted a son and had been
+praying. The angel of the LORD appeared to her and she was willing to
+trust him and his word and she told her husband Manoah to come and hear
+him. Samson went on to be a Nazarite and judge Israel. There are other
+godly women in scripture as well.
+
+May all moms strive to be godly and raise their children in a godly
+home. A mother never knows what her child may become so she always needs
+to raise him right. Some moms will be blessed enough to have children like
+some of these moms. Moms need to set the example along with dads by
+reading and studying scripture and keeping their children away from evil.
+May no mothers be like the wicked moms mentioned earlier. May all people
+strive to remember their moms not only on this Mother's Day, but always
+and to always honour them as God has commanded us. God bless moms.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

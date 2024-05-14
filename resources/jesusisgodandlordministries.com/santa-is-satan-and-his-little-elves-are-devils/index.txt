@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,493 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Santa is Satan and his little elves are devils
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Santa Claus is depicted as a jolly fat old man with a long white
+beard and wearing a red hat and a red suit with white trim and a black
+belt. He usually wears glasses. He is said to deliver toys to children all
+over the world on Christmas Eve in a sleigh flown by eight or nine
+reindeer if Rudolph goes. Many children believe in his existence. He
+supposedly enters the house through the chimney. His elves make his toys
+where he lives at the North Pole.
 
-Username or email _____________________
+Santa is none other than Satan. Santa Claus has a long connection to
+Satan. The very name Santa is close to Satan. If you move the "n" in Santa
+to the end you have Satan. Notice the serpent ("S") is in the very name of
+both Satan and Santa. Halloween is the holiest day for Satanists, but
+Christmas is also one of the most holy days for Satanists and requires a
+sacrifice just like Halloween. Satan gets many people to commit suicide
+around Christmas and with Santa he keeps children from Jesus. Satan always
+tries to imitate things for God as well as mock the things of God.
+Christmas started out as a pagan holiday, but became known as the day we
+celebrated Jesus' birth in Bethlehem. Satan hated that one of his holidays
+had been changed to celebrate Jesus and he had to take it back, thus the
+birth of Santa Claus. Christmas is now most often thought of as Santa
+Claus and not Jesus. Halloween is the day that many unsuspecting children
+are drawn to the occult as they dress up along with Satanists. Satan
+appears as his true self on Halloween. Christmas is the day that Satan
+uses for his dress up and his costume is Santa Claus. This is another time
+that children are used as the victims. I already mentioned how the name
+Santa comes from Satan by moving the "n". Santa is saint in Spanish. Satan
+also wants people to believe he is holy and a saint when he is vile and an
+adversary of God. Satan wants to mock the true saints of God. Satan is
+anything but holy. Claus means hoof-claws in Old English. Reindeer have
+hooves and take the place of goats. The goat is the symbol often used for
+Satan and is seen in the Freemasonry god Baphomet. Freemasons are satanic
+as Freemasonry is Satanism in disguise. Santa dresses up in a red suit,
+devil red. This is for two purposes. It is to mock the blood of Jesus that
+was shed for everyone so that they might be saved if they called upon
+Jesus and it also represents the much bloodshed by Satan and his helpers.
+A small amount of white is seen on Santa and the elves to steal the purity
+of God. Satan will never bring happiness. Santa goes around yelling Ho Ho
+Ho. One person pointed out which just might be possible that the letter
+"H" is the only letter with five equal lines which when moved just like
+the letter "n" in Santa and combined with the "O" make an upside down
+pentagram which is a symbol of Satan. Ho is also the word used by rappers
+for whores. Something to think about. Some New Agers worship Sanat Kumara.
+Sanat is Satan and this is seen by just switching the "t" and "n" in
+Satan. This name is also similar to Santa which switches the last two
+letters in Santa. Santa is known by many names just as Satan is.
 
-Reset password
+Over the years many drunken homeless pedophiles have used Christmas
+for their pleasure. Christmas is a pedophile's dream. They get to suit up
+in a Santa suit and have endless children sit on their laps while the
+children play with their beards and whisper in their ears. Many mall
+Santa's or elsewhere have put sinful thoughts into children's ears as they
+deceive the children and many have been drunk or made lewd remarks as
+well. Christian parents bring their children to see Santa Claus and get
+their pictures with him. Parents and children just trust anyone wearing a
+Santa suit as a good guy. It is a shame how spiritually blind most
+Christians are. When the children ask Santa for a toy they are really
+praying to Satan and asking Satan and making a deal with him. Children
+pray to Santa at bedtime and are in reality once again praying to Satan
+instead of the true God Jehovah. Children pray to Santa just as parents
+pray to God trusting that Santa will fulfill their wishes. Parents do not
+realize that Satan wants children to have lots of toys and other items to
+keep them distracted from Jesus and to learn to covet which violates the
+tenth commandment. Santa is the god of materialism. Parents will go in
+debt to buy their children presents. Such foolishness. (Exodus 20:17 Thou
+shalt not covet thy neighbour's house, thou shalt not covet thy
+neighbour's wife, nor his manservant, nor his maidservant, nor his ox, nor
+his ass, nor any thing that is thy neighbour's.) Parents are teaching
+their children the wrong message. When parents go along with the lie of
+Santa and encourage their children to believe in Santa they are deceiving
+them and setting them up on a path of destruction. God said do not harm
+the little children. (Luke 17:2 It were better for him that a millstone
+were hanged about his neck, and he cast into the sea, than that he should
+offend one of these little ones.) The parents are also sinning by lying to
+their children and teaching them that lying is ok. God made lying the
+ninth commandment and he hates liars. (Exodus 20:16 Thou shalt not bear
+false witness against thy neighbour.) God said all liars will end up in
+the lake of fire unless they repent and get saved. (Revelation 21:8 But
+the fearful, and unbelieving, and the abominable, and murderers, and
+whoremongers, and sorcerers, and idolaters, and all liars, shall have
+their part in the lake which burneth with fire and brimstone: which is the
+second death.) (Colossians 3:9 Lie not one to another, seeing that ye have
+put off the old man with his deeds;) Parents do not go along teaching your
+children about Santa just because everyone else does. (Proverbs 14:5 A
+faithful witness will not lie: but a false witness will utter lies.) When
+children get older and no longer believe in Santa Claus, they will not be
+forgotten by Satan. Many children will not believe in Jesus when their
+parents tell them about him as they will say that Jesus is just a fairy
+tale just like Santa Claus was or the tooth fairy or the Easter bunny and
+you are lying to us about Jesus as well and Satan for that matter as well.
+Satan will have won. Satan will now pull the children away from God and
+closer to him. Santa Claus encourages obesity in children. Parents are not
+to offend children which they do by lying to them about Santa Claus.
+
+There are towns named after Santa such as Santa Claus, Indiana as
+well as theme parks such as Santa's Village in Jefferson, New Hampshire
+and other things dedicated to Santa Claus. Santa Claus is at the end of
+the Macy's Thanksgiving Parade. Thanksgiving a holiday meant to celebrate
+us being thankful for what God has given us is then turned over to Satan
+as Santa for the next month to turn children away from celebrating the
+birth of Jesus at Christmas and to focus on Santa. Children are encouraged
+to write to Santa and the post office goes along. Christians including
+Baptists see nothing wrong in visiting these places, dressing up as Santa
+Claus, or being part of plays about Santa, or worse having a Santa play in
+church. Christians are bringing Satan right into their churches and they
+are so blind they cannot even see this. Christians including Baptists will
+put Santa decorations around the house and church. Christians will take
+their children to see Santa and will let them dress up as elves. Christian
+parents tell their children Santa brought their presents. Why give the
+glory to Satan. God gave the money to parents and other people to be able
+to buy the gifts, not Satan. Why would parents or individuals who work
+hard all year long want Santa to get credit for what they bought? Children
+need to learn to realize that money does not grow on trees and that no
+matter how good they may have been they cannot have all of the gifts they
+want. Santa is not real and will not bring them to them. Family members
+give them their gifts. People spend more money to celebrate Christmas than
+for any other holiday by far. Much of this is Santa related or at least
+secular that denies Jesus. Christian parents teaching the lie of Santa can
+make themselves and their children lose faith in God when he does not
+answer their prayers the way Santa does. Christians who buy gifts for
+people should spend at least the same amount on Jesus. After all it is
+supposedly his birthday, not ours. Christians should spend at least the
+same amount of money and preferably more for Jesus by giving to
+missionaries, good Christian ministries, buying tracts to issue to people
+while shopping, or in other ways that will win souls for Jesus and bless
+Jesus not Satan the way Santa does. Christians who point out the evil of
+Santa Claus are ridiculed by other Christians, let alone the unsaved. This
+shows the state of Christians in the world today when they will defend
+Satan over Jesus.
+
+Many cities in America and around the world will not let a nativity
+scene with its baby Jesus be in the town square or elsewhere, yet Santa
+Claus is allowed all over the city. Some cities have even had Satanism
+displays and many places that do have nativity displays have had the Jesus
+figure stolen or desecrated showing how much Satan has control of
+Christmas. People do not even see the irony in this as it is supposed to
+be Jesus' birthday, but it is made into Satan's day. Most religious
+Christmas cards have been done away with and replaced with ones dealing
+with Santa Claus and things related to him. Even most Christians have no
+problem sending Santa cards. Christmas postage stamps are normally always
+secular in nature with maybe one religious stamp which is usually a
+depiction of a Roman Catholic Jesus and Madonna (Mary) instead of a
+Biblical Jesus, so even the religious stamp eliminates Jesus. Madonna is
+Italian for "my lady". Roman Catholics refer to Mary as "Our Lady" since
+they believe she is the Queen of Heaven. Lady is the female equivalent of
+Lord as Roman Catholics try to make Mary equal with Jesus. People are no
+longer supposed to say Merry Christmas, but Happy Holidays or Seasons
+Greetings instead just so long as Christ is not mentioned. Holiday means
+holy day. When Christmas is used it is often written as Xmas in order to
+cross out or stamp out Christ once again. Christmas is one of the most
+holy days for Satanists who are required to make a sacrifice to Satan,
+either a person or an animal, preferably a person.  
+
+Santa possesses attributes and things that belong to God. Santa Claus
+is said to live at the North Pole. It is believed heaven is located in the
+north and heaven is where God is. The empty space is where heaven is
+believed to be. (Job 26:7 He stretcheth out the north over the empty
+place, and hangeth the earth upon nothing.) (Psalm 48:2 Beautiful for
+situation, the joy of the whole earth, is mount Zion, on the sides of the
+north, the city of the great King.) Satan has always wanted to be the god
+of heaven. (Isaiah 14:13-14 For thou hast said in thine heart, I will
+ascend into heaven, I will exalt my throne above the stars of God: I will
+sit also upon the mount of the congregation, in the sides of the north:
+14 I will ascend above the heights of the clouds; I will be like the most
+High.) Santa is said to be able to deliver toys to every child in the
+world on Christmas Eve. He is able to be at different malls and other
+locations around the world all at the same time. It is said to be really
+Santa, not a man in a red suit. Santa can travel very quickly. These
+abilities give Santa omnipresence or the ability to be everywhere at the
+same time. This attribute belongs to God only. Santa supposedly knows if a
+child has been bad or good and knows what the child wants for Christmas
+before they tell him. This makes Santa omniscient or all knowing. This
+attribute again only belongs to God. Santa can supposedly squeeze his fat
+body down a skinny chimney with his bag of toys and then is able to make
+the toys normal size again and himself without any damage and all at the
+blink of an eye. He even can come down a chimney with a fire in it and not
+get burnt or even smell of smoke. For Santa to do this he would have to be
+omnipotent or all powerful. He would have to be able to recreate toys and
+other items. Once again only God is omnipotent. (Revelation 19:6 And I
+heard as it were the voice of a great multitude, and as the voice of many
+waters, and as the voice of mighty thunderings, saying, Alleluia: for the
+Lord God omnipotent reigneth.) Satan as an angel can go through walls
+which is essentially what Santa does. Santa reigns as king at the North
+Pole just as Jesus is King, yet Jesus is King of kings. Satan is also the
+ruler or prince of this world. (I Timothy 6:15 Which in his times he shall
+shew, who is the blessed and only Potentate, the King of kings, and Lord
+of lords;) (John 14:30 Hereafter I will not talk much with you: for the
+prince of this world cometh, and hath nothing in me.) Satan tries to steal
+all of the attributes of God and use them under the guise of Santa. Santa
+is said to ride around heaven in a sleigh pulled by eight reindeer or nine
+with Rudolph. God rides around heaven in a chariot of which the sleigh
+represents. (Deuteronomy 33:26 ¶ There is none like unto the God of
+Jeshurun, who rideth upon the heaven in thy help, and in his excellency on
+the sky.) (Psalm 104:3 Who layeth the beams of his chambers in the waters:
+who maketh the clouds his chariot: who walketh upon the wings of the
+wind:) Satan as a cherub has wings which the sleigh also represents.
+(Ezekiel 28:14 Thou art the anointed cherub that covereth; and I have set
+thee so: thou wast upon the holy mountain of God; thou hast walked up and
+down in the midst of the stones of fire.) Santa always travels at night
+just as Satan loves the night and can see in the dark just like Satan.
+Rudolph who leads the sleigh has a red shining nose that can see through
+the fog. This tries to steal from Jesus who is the light of the world.
+(John 8:12 ¶ Then spake Jesus again unto them, saying, I am the light of
+the world: he that followeth me shall not walk in darkness, but shall have
+the light of life.) Getting children used to the idea of Santa flying
+around in the heaven prepares children for the sighting of satanic UFO's.
+Just as God gives spiritual gifts to Christians who are his children,
+Santa brings gifts to his children. Santa brings toys to the good children
+and coal or nothing to the bad children just as God will reward Christians
+with crowns on judgment day and the unsaved will be cast into hell with
+its burning brimstone or sulfur. God gave the gift of his Son Jesus Christ
+who gives everlasting life to those who receive this free gift, whereas
+Santa as Satan brings the gift of everlasting death. Santa never ages or
+dies and seems to have no beginning. He is basically immortal just as God
+is and has always existed. Santa wears red clothing as does Jesus.
+(Revelation 19:13 And he was clothed with a vesture dipped in blood: and
+his name is called The Word of God.) Santa has white hair and so do Jesus
+and God. Santa is a jolly old man and God is the Ancient of days. There is
+nothing jolly about Satan. (Daniel 7:9 ¶ I beheld till the thrones were
+cast down, and the Ancient of days did sit, whose garment was white as
+snow, and the hair of his head like the pure wool: his throne was like the
+fiery flame, and his wheels as burning fire.) (Revelation 1:14 His head
+and his hairs were white like wool, as white as snow; and his eyes were as
+a flame of fire;) Santa is always said to be coming soon at Christmas time
+just as Jesus is coming soon. (James 5:8 Be ye also patient; stablish your
+hearts: for the coming of the Lord draweth nigh.) Santa has elves to help
+him just as Jesus has angels to assist him. Santa gives gifts to people
+just as Jesus gave the gift of himself on the cross for men. (Ephesians
+4:7-8 But unto every one of us is given grace according to the measure of
+the gift of Christ.
+8 Wherefore he saith, When he ascended up on high, he led captivity
+captive, and gave gifts unto men.) Santa wears glasses like the wise old
+owl that supposedly represents wisdom. Owls are connected to Satan. Wisdom
+comes from God, not Satan. Santa Claus is also known as Father Christmas a
+steal from Father God or God the Father and also Kris Kringle which steals
+from Jesus Christ. Kris Kringle comes from the German word Christkindl
+which means Christ child. It is clear that they are equating Santa with
+Jesus.
+
+Santa Claus can be traced back to St. Nicholas and Father Time. St.
+Nicholas was a Roman Catholic bishop that supposedly performed many
+miracles and lived in the 300's. In reality he traces back to the
+Saturnian festival held in December that was very heathen in nature. He is
+celebrated by Eastern Orthodox, Roman Catholics and other denominations
+that worship saints. Ole Nick is said to be the name of a fallen angel or
+the devil. Father Christmas is of English origin back to the 1500's.
+Modern Santa Claus comes from the United States in the early 1800's.  
+
+Santa has many elves to help him. They make the toys in Santa's
+workshop and do other things to assist him. They are extremely loyal to
+Santa. These represent Satan's helpers, the devils who are extremely loyal
+to Satan. Elves have long been associated with Satan and were said to be
+very wicked, so why are Santa's elves thought so fondly of? They perform
+magic which God condemns. They dress in green as a mockery to Jesus. Jesus
+brings life, yet devils represented here as elves bring death. The color
+green means life and Santa's elves are making a mockery of Jesus by saying
+true life is Satan. Just as Santa's red mocks the blood of Jesus, the
+elves green mocks the everlasting life Jesus brings. They wear red under
+the green in honor of their master Santa (Satan). Elves can be traced back
+throughout European history especially in Germany, Iceland, England, and
+Scotland. They were always considered evil beings and were associated with
+Satan. They were thought of as devils. Just as devils present themselves
+as aliens today, they previously presented themselves as elves and then
+later fairies. Elves are depicted with pointy ears representative of the
+horns of Baphomet which represents Satan along with pointy hats and shoes.
+Baphomet is depicted as a goat with wings. Satan is a cherub which have
+wings. Male elves referred to as incubi were said to rape sleeping women.
+This goes along with what happened in Genesis 6. In Norse mythology elves
+were known as "hidden folks". I said elves help Santa with gifts. Prior to
+elves becoming common in Sweden, the Yule goat helped Santa hand out
+gifts. I already mentioned how the goat is associated with Satan. Elves
+are depicted as dwarfs. Dwarfs were also associated with Satan throughout
+history as devils. Elves were always thought of as satanic until modern
+times. They are now associated as innocent helpers of Santa Claus. Satan
+is great at deception. Santa Claus was described as a plump jolly old elf
+in the story Twas the Night Before Christmas originally titled A Visit
+from St. Nicholas. This again supports Satan who is the devil just as
+elves are devils. Santa Claus is called the Christmas Goat in Finland
+again showing the connection to Satan.
+
+Christians get rid of all things to do with Santa Claus and do not
+allow your children to have anything to do with him either, whether on
+television, books, movies, or anything else. Get Satan out of your house
+and your lives and repent of your sins. Remember Santa (Satan) did not
+come to earth to be born as the God-man to die for our sins, only the Lord
+Jesus Christ did. Satan only wants to destroy your life and the lives of
+your children. Santa Claus is a counterfeit god who is nothing more than
+Satan. Turn away from Santa and to Jesus today. Make Christmas about
+Jesus, not Santa and his evil elves. For the unsaved get saved today and
+celebrate Jesus instead of Santa Claus at Christmas and get real life with
+Jesus.      
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

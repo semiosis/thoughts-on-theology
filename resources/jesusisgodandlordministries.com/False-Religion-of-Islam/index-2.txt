@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,578 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+False Religion of Islam
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Islam was founded by Mohammed in AD 610. Mohammed was forty years old
+and claimed to have visions from God by the angel Gabriel. Mohammed
+claimed to continue to get these revelations over the next 22 years and
+this is where the supposed Koran (Qur'an) came from. The Koran is Islam's
+holy book and is considered infallible. Islam and Mormonism where both
+founded by men who claimed to have had a vision from an angel. Paul said
+that even if an angel preached a gospel other than what he preached that
+they were to be accursed. God was warning of such deception. (Galatians
+1:8 But though we, or an angel from heaven, preach any other gospel unto
+you than that which we have preached unto you, let him be accursed.) Satan
+himself appears as an angel of light. (II Corinthians 11:14 And no marvel;
+for Satan himself is transformed into an angel of light.) Supposedly
+Mohammed was told to turn away from the many idols of his people and to
+turn to the one god Allah. In reality all Mohammed did was pick his
+favorite god from the twelve tribal gods his people worshipped. The god he
+chose was the moon god Allah which he then said was the only true god.
+This is why the symbol of Islam is the crescent moon. Mohammed was living
+in Mecca when he founded Islam and stayed there for 12 years before moving
+to Medina in 622. This is known as the Hijra which means emigration.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+In reality Islam was founded when the Roman Catholic Church under the
+authority of the pope had the Roman Catholic Khadija marry Mohammed and
+start a new religion. Khadija had money to do so. The Roman Catholic
+Church wanted to control the Holy Land and Jerusalem when God had given it
+to the Jews. The pope wanted a new religion started to gain control of the
+Holy Land and not make the "Church" look bad and then would control Islam.
+Islam grew too fast and the Roman Catholic Church could no longer control
+Islam and this is one of the reasons for the crusades. The crusades were
+to destroy both the Jews to gain control of the Holy Land as well as to
+destroy Islam which had gotten out of control. Many people including the
+Roman Catholic Church deny the truth of the founding of Islam, but a
+former Jesuit priest Alberto Riviera who was saved revealed the truth. The
+Jesuits were founded to do the dirty work of the pope so he would be told
+the dark secrets of Roman Catholicism. If you compare the two religions
+you will see that they have much in common including the importance of
+Mary. Many Muslims are getting visions from Mary (devils) today just as
+many Roman Catholics are. I believe during the great tribulation, it will
+be apparition Mary and the shared belief by both Roman Catholics and
+Muslims that will unite the Muslims under the pope as the antichrist. The
+Catechism of the Catholic Church (CCC 841) says Muslims worship the same
+god as them and they do not need to be converted to Roman Catholicism as
+they are saved. They are right in that both worship the same god, but that
+god is Satan. Mary is the only female mentioned by name in the Koran and
+even has a chapter (Sura 19) named after her. Jesus is often referred to
+as the son of Mary.
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+Islam and Roman Catholicism share many similarities which can be seen
+since Islam was started by the Roman Catholic Church. Both claim to be the
+only true religion. Both require mandatory fasting. The Roman Catholic
+Church gives titles of God to Mary and worships her and Islam has great
+devotion to Mary as well. She has Sura 19 named after her in the Koran and
+is mentioned 34 times in the Koran. Both base their salvation on good
+works and neither has assurance of salvation, not even its leaders.
+Neither believes in the scriptural atonement with Roman Catholicism having
+purgatory and Islam good works waiting for judgment day to see if enough
+were done. Both claim visions gave them doctrines. Islam got the Koran
+from Gabriel given to Mohammed and the pope got Assumption of Mary. The
+Roman Catholic Church uses rosary beads and Muslims use prayer beads both
+of which have heathen origins. The pope is considered the substitute for
+Jesus here on earth and Mohammed succeeded Jesus as prophet and as the
+greatest prophet. Both have their own way of divorce. Roman Catholicism
+has annulments and Muslim men can divorce their wife by just saying they
+are divorced. Both believe if you leave their religion then you will be
+damned to hell. Both have a long history of hatred to Jews. Both have many
+traditions and beliefs based on heathen origins. Both have added books
+considered scripture. Both have a long history of sexual abuse to children
+and women. Both have used forced conversions over the years with threats
+of death to those who did not comply. Both unite the state with their
+beliefs and both have a holy place as their headquarters. Both have
+pilgrimages and holy wars. Both revere the sun and moon gods. The sun and
+moon is all over the monstrance and the crescent moon is the symbol of
+Islam. Both want the world under their religion and domination. There are
+many other similarities.
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+Islam along with Christianity and Judaism are known as monotheistic
+religions as the followers only believe in one God or god unlike other
+religions that are polytheistic believing in many gods. They are also
+known as Abrahamic religions as all claim to descend from Abraham with
+Christianity and Judaism from Abraham's son Isaac and Islam from Abraham's
+son Ishmael. Islam is the second largest religion in the world after
+Christianity with 1.9 billion Muslims [Moslems] as followers of Islam are
+known as. They were at one time referred to as Mohammedans up to about the
+1950's. It is either the fastest growing major religion or the second
+fastest after Christianity depending on the source. Islam teaches it is
+the only religion. Islam means submission.  
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+When Mohammed moved to Medina he started changing Islam to being more
+violent. When he lived in Mecca he was greatly outnumbered so he was
+persecuted, but after he moved he quickly gained converts and went back to
+Mecca to take control of the people. Most converts to Islam over the years
+are by forced conversions. The difference can be seen in the Koran as well
+as the verses he wrote while in Mecca are of a peaceful religion, but once
+in Medina Islam becomes a warrior religion. Mohammed even claimed in Sura
+(chapter) 9:5 that the Koran verses in Mecca were abrogated which means
+cancelled and were no longer true. (Sura 9:5 ... so kill the polytheists
+wherever you find them ...) [This includes Christians and Jews] It is the
+peaceful verses from Mecca that Muslims will read to people to pretend
+that Islam is a peaceful religion when in reality it is a very dangerous
+religion. Anyone who is not a Muslim is considered an infidel. Muslims
+have always used forced conversions as well as forced taxes known as
+Jizyah to control people. God does not force anyone to become a Christian.
+Notice how this also agrees with how the Roman Catholic Church has
+operated over the years. God said he never changes so if the Koran was
+from God and is considered infallible, then why would he have Mohammed
+write verses in Mecca and then override them in Medina? (Malachi 3:6 For I
+am the LORD, I change not; therefore ye sons of Jacob are not consumed.)
+Islam has a long history of violence and killing people. Islam is known
+for its Jihad or holy wars. Roman Catholicism had the crusades as her holy
+wars. Many of the Muslims who kill and harm people are said to be radical
+Muslims. This is not true. These Muslims are the true Muslims and are the
+only ones truly obeying the Koran. If Christians obeyed the Holy Bible the
+way these so called radicals obey the Koran, then this would be a much
+different world we would live in. Women have no freedom or say in Islam
+and are treated as property. In Islam then religion and government are
+considered one. Lately Islam especially in the United States and Europe
+has been trying to take over by having many children as well as getting
+many people in the government. Islam wants to take over the world.
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+The Koran in Arabic is considered the holy book of Islam. It is
+Qur'an in Arabic. Koran means "read" or "recitation". The Koran takes many
+stories from the Holy Bible and then distorts them such as Abraham
+sacrificing Isaac is changed to sacrificing Ishmael and the Genesis flood
+story is distorted to a local flood. The Koran is considered only correct
+in Arabic yet most Muslims do not speak or understand Arabic. They are
+taught to memorize and site words, but they do not understand them. This
+is also similar to how the Roman Catholic Church made her people listen to
+Mass in Latin long after anyone understood Latin. These things are done
+for control purposes. Many scientific and historical facts are wrong in
+the Koran yet it says it is infallible or without error. Islam teaches
+that the Holy Bible has been corrupted and that is why God gave the Koran
+to Mohammed. Many contradictions exist in the Koran. A good English
+translation of the Koran is the Generous Qur'an by Usama Dakdok.
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+Mohammed, who is the man God used to supposedly start the true
+religion, was married to 23 women including Aisha who was 8 years old when
+Mohammed married her. Some sources say she was 6. He was 53 when he
+married her. God never approved of having multiple wives known as polygamy
+or marrying such a young girl. Mohammed was considered the last and
+greatest of all Muslim prophets.
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+The Muslim calendar starts with year 1 being in 622 when Mohammed
+moved to Medina.  
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+A person supposedly becomes a Muslim at birth if the parents are
+Muslim and one joining Islam becomes a Muslim by saying "There is no true
+god but Allah and Mohammed is the prophet of God." This is known as the
+Testimony of Faith (Shahada).
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+Islam has what is known as the Hadith besides the Koran. Hadiths are
+supposed sayings and traditions of Mohammed that all Muslims are to
+follow. The Koran and the Hadith are the two holy books of Islam.
+
+Islam is broken up into two main branches known as the Sunnis and
+Shiites (Shia). This would be similar to Christian denominations. The
+Sunnis make up the vast majority of Muslims with about 85-90% and most of
+the rest are Shiites with a small percentage made up of what are
+considered cults by Muslims such as the Surfs and the Nation of Islam.
+Following the death of Mohammed dissension arose over who should follow
+Mohammed as the leader of Islam. Some Muslims followed Ali ibn Abi Talib
+and these became the Shia Muslims and some Muslims followed Abu Bakr and
+became the Sunni Muslims. The religious leaders of Islam are known as
+Imams.
+
+A Muslim enters heaven by having their good works outweigh their bad
+works. A Muslim is supposedly only guaranteed heaven if they die in jihad.
+This is one reason for so many Muslim suicide bombers as they believe they
+go straight to heaven. In reality they go straight to hell for rejecting
+Jesus as their Saviour and not because of suicide as so many people
+believe and teach. Muslim men believe they will spend eternity with 72
+virgins in heaven.
+
+All Muslims are expected to follow the Five Pillars of Islam and they
+are considered obligatory.  The first pillar is the Shahada or the
+Declaration of Faith where a person declares that Allah is god and
+Mohammed is his messenger. This supposedly makes a person a Muslim. After
+becoming a Muslim, they are obligated to follow the other four pillars.
+
+The second pillar is Salah or prayer. A Muslim is obligated to pray
+five times a day at certain times while facing Mecca. Notice how they
+copied from the Jews who face Jerusalem. Before praying a Muslim must wash
+his hands, his face, and feet. A Christian can pray in any direction at
+any time and no matter how dirty they are. A Muslim's prayers are just
+repeated sayings. God condemned this vain repetition. (Matthew 6:7 But
+when ye pray, use not vain repetitions, as the heathen do: for they think
+that they shall be heard for their much speaking.) A Muslim kneels on the
+ground and then prostrates his face rocking back and forth. A dedicated
+Muslim can actually wear a spot in his forehead from the ground. The
+mosque is the preferred place for prayer, but a Muslim must perform these
+prayers no matter where they are. The declaration of faith is said in
+every prayer, so it is said five times a day confirming they are a Muslim.
+This faith is the first thing said to a baby and the last thing said to a
+dying person.
+
+The third pillar is Zakat or almsgiving. A Muslim is obligated to
+spend 2.5% of their income on things supporting the Islamic community such
+as the mosques. The rich are to give comparable to their wealth. The money
+is to go to the community that you use. The Muslim must announce to Allah
+they are giving the money and it then must be done the same day. The poor
+are not obligated to give as much money, but then must do good works in
+place of giving money.
+
+The fourth pillar is Sawm (fasting). Muslims are expected to fast
+during the month of Ramadan on the Islamic calendar. This month is
+considered holy by Muslims. Ramadan changes each year on our calendar as
+the Islamic calendar is based on a lunar year. Muslims are obligated to
+fast from sunrise to sunset and to not only avoid eating food or drink but
+to refrain from sex and smoking. They can do all of these things at night.
+At the end of the month they break the fast with a three day feast.
+Fasting is required for all Muslims who have reached puberty and only
+those Muslims with medical issues are exempt from fasting.  
+
+The fifth pillar is Hajj or pilgrimage. A Muslim is expected to make
+the pilgrimage to Mecca at least one time in their lifetime during the
+Islamic twelfth month. All Muslims making the pilgrimage are to wear only
+two white sheets so all pilgrims look alike and there are no class
+distinctions. These sheets are put on just before entering the sanctuary
+area of Mecca as a sign of purity. The Muslim who has made the trip is
+known as a hajj. The main rituals at the pilgrimage are walking seven
+times around the Kaaba, touching the Black Stone, traveling seven times
+between Mount Safa and Mount Marwah, and symbolically stoning the devil in
+Mina. The pilgrimage is supposedly done to walk where Mohammed did and
+hope Allah will give them spiritual insight as well. The black stone was
+supposedly placed there by Mohammed and supposedly fell from heaven to be
+a guide for Adam to build an altar. The black stone is known to have
+occult connections to the Kaaba before Mohammed and with the fertility
+goddess. The framework of the black stone is said to resemble the exterior
+female genitalia (vulva). Muslims believe the stone was originally white
+but became black from the sins of all the people touching it. Muslims
+attempt to kiss the stone if possible during their hajj. The male changes
+his headdress after making the hajj from the black checkered headdress to
+a red checkered headdress. The Shiite Muslims five pillars are the same
+with slight differences.
+
+The Shiite Muslims look for the twelfth imam to come at the end of
+time and restore peace and establish Islam throughout the world. They
+believe the first eleven successors to Mohammed were the first eleven
+Imams. The twelfth imam is supposedly alive and has been in occultation or
+waiting supernaturally for his return. Supposedly the twelfth imam will
+return with Jesus whom Muslims refer to as Isa. In order for him to return
+the world must be fighting and much violence going on. This is one reason
+that Muslims are also fighting either themselves or someone else. The
+first eleven imams were all murdered. Both sects of Islam are always
+fighting each other. If this was the true religion of God, this would not
+be true. God said to love your enemies, but Muslims are always killing.
+(Matthew 5:44 But I say unto you, Love your enemies, bless them that curse
+you, do good to them that hate you, and pray for them which despitefully
+use you, and persecute you;)
+
+The three holiest cities in Islam are Mecca, Medina, and Jerusalem.
+Muslims share some beliefs with Judaism and Christianity. They believe in
+angels and hell. Some of the people considered prophets in Islam are Adam,
+Noah, Abraham, Moses, and Jesus. Mohammed is considered the last and
+greatest prophet of Islam.  
+
+Muslims believe Jesus (Isa) was a prophet and believe he was born of
+a virgin and performed miracles something they say not even Mohammed did
+who is considered the greatest prophet. Muslims believe Jesus was a
+prophet from birth. Jesus supposedly spoke at birth according to Muslims.
+Muslims do not believe Jesus is the Son of God. Muslims say Allah has no
+Son. Muslims believe Jesus was sinless, but say Mohammed sinned. The Koran
+contradicts itself on the crucifixion of Jesus. Three verses say Jesus
+died, but one says he did not. Muslim scholars claim Jesus did not die,
+but was removed from the cross and Judas died in his place. Muslims
+believe Jesus will return in the end times. The Koran says Jesus was
+created from dust just like Adam. (Sura 3:59 ... He created him from dust.
+...)
+
+Muslims are not allowed to eat pork. Muslims want all nations to live
+under Sharia which means Islamic law. Sharia is in Muslim majority
+nations. Imams are the leaders of Islam who interpret the Koran and the
+Hadith and Muslims worship in mosques. Just as Jews eat kosher meat,
+Muslims are only supposed to eat halal meat which is meat that meets
+certain specifications and is blessed for Allah. Christians should not eat
+halal meat as Islamic terrorist groups receive money by those who certify
+meat as halal and you are supporting terrorist groups. You are also
+supporting meat dedicated to a false god Allah. Adam is considered the
+first Muslim and first prophet of Islam.
+
+The Koran says there are seven heavens when scripture says only three
+heavens. (Sura 41:12) The Koran says the sun orbits the earth when it is
+the other way around. (Sura 21:33) The Koran says the earth is flat. (Sura
+71:19 and others) The Koran says the sun sets in a muddy spring. (Sura
+18:86-90) The Koran says ants can speak languages of man. (Sura 27:18)
+These false scientific facts and many others prove the Koran is not
+inspired from God. Many contradictions are also found in the Koran again
+showing it was not inspired.    
+
+Sura 9:13 says Muslims are to fight and kill anyone who insults Islam
+or Mohammed. All non-Muslims are considered infidels and are to be killed,
+converted or forced to pay a tax. All Muslims who do not go to war will go
+to hell. See how Islam controls its people. True Christianity does not do
+that.  
+
+Islam teaches that hell is a place where a person suffers both
+physically and spiritually. The punishment is in relation to the sins they
+committed. Islamic hell is made up of many levels with each one more
+severe than the previous one. They believe hell is so deep that if you
+dropped a stone in it that it would take 70 years to reach the bottom.
+Islamic hell is referred to as Jahannam. Some Muslims believe that a
+person in hell will eventually be annihilated. God says otherwise that it
+will be everlasting punishment. (Matthew 25:46 And these shall go away
+into everlasting punishment: but the righteous into life eternal.) Some
+Muslim scholars believe hell is a sentient being rather than a place.
+Muslims who seem like real Muslims on the outside, but really are not on
+the inside go to hell. The level of hell is harsher for Jews, then
+Christians, and then Muslims who deserve hell have the easiest level. A
+Muslim can go to hell for improperly performing a ritual washing, cruelty
+to animals, careless words, arrogance and stubbornness and other reasons
+that the blood of Jesus can wash away.
+
+Islam teaches that there are seven heavens. Jannah is the highest
+heaven or paradise in Islam. Men who go to heaven are said to get 72
+perpetual virgins. It does not say what women get. Some Muslim scholars
+teach that in heaven a Muslim gets whatever they want. Muslims believe in
+a day of judgment when all the dead will be brought back to life to face
+judgment and if the good deeds outweigh the bad deeds then the Muslim goes
+to heaven and others to hell. The Koran teaches that heaven is a beautiful
+garden. A Muslim does not know where they will go until they reach the day
+of judgment. Even Mohammed said he did not know where he would end up and
+he is considered the restorer of Islam and greatest Muslim.
+
+Islam teaches that Allah created the universe. Some places he did it
+in six days and in other places it was much longer with each day lasting
+50,000 years. This supports the false old earth belief.  
+
+I previously mentioned how Islam wants to make the whole world
+Muslims and have a world Islamic caliphate. This is happening in Europe
+with not only many Muslims moving in, but also by having many children.
+Places in France and Germany have been completely taken over by Muslims
+and they refuse to let no-Muslims in their area even the police. This has
+happened in smaller scale in Michigan in places like Dearborn. Muslim
+terrorist groups have gained great grounds in recent years and have an
+ultimate goal of destroying Israel. Many all over the world are suffering
+at the hands of Muslims. Some theologians believe the antichrist will be a
+Muslim rather than come from Europe since they are quickly taking over the
+world. Many Muslims have gotten saved due to seeing the rise of Islamic
+terror and preferring the peace of Jesus Christ. Many Muslims have seen
+visions of Jesus and have gotten saved as well especially in Iran. I
+believe many Muslims will get saved during the great tribulation. Islamic
+nations along with Russia which has a large Muslim population will be the
+nations as mentioned in Ezekiel 38-39 that will come against Israel in the
+future in what is referred to as the battle of Gog and Magog. God will
+supernaturally intervene to save Israel and will destroy most of the
+attackers. I believe this will spell the end of Islam as a major
+religion.    
+
+Many non-Muslims including professing Christians say that the God of
+the Bible is the same as Allah. No Muslim would ever say that. How sad
+that professing Christians believe that. Some bible translators have even
+used the name Allah in place of God. It is sad that a Muslim is wiser than
+a professing Christian. The pope and the Roman Catholic Church say the god
+of Islam is the same as the Christian God and that Muslims are saved
+because they worship the same god. (See Catechism of the Catholic Church
+841, page 223) They do not. Allah who is the god of Islam is not like
+Jehovah God of the scriptures. God never changes yet Allah does. (Malachi
+3:6 For I am the LORD, I change not; therefore ye sons of Jacob are not
+consumed.) (Sura 2:106 Whatever verse we abrogate ... we bring a better
+verse ...) God got scripture right the first time and does not need to
+change it. Allah has no son, but God has his Son Jesus. (Sura 2:116) God's
+love to us is unconditional whereas Allah's love is conditional to what
+the Muslim does. (Romans 5:8 But God commendeth his love toward us, in
+that, while we were yet sinners, Christ died for us.) (Sura 2:190 ... Allah
+does not love the transgressors.) God cannot lie yet Allah deceives
+Muslims. (Titus 1:2 In hope of eternal life, which God, that cannot lie,
+promised before the world began;) (Sura 3:54 ... Allah is the best
+deceiver.) God became flesh in Jesus, but Allah never did. (John 1:14 And
+the Word was made flesh, and dwelt among us, (and we beheld his glory, the
+glory as of the only begotten of the Father,) full of grace and truth.)
+(Sura 5:72) Islam denies the Godhead. (Sura 5:73) Muslims believe
+Christians worship three Gods and say Allah is one god. Muslims do not
+understand that God is one God in three persons. (I John 5:7 For there are
+three that bear record in heaven, the Father, the Word, and the Holy
+Ghost: and these three are one.) Allah is very removed and distant from
+people whereas God very much cares and interacts with his creation,
+especially man.
+
+Islam does not believe in man being born with a sin nature passed on
+from Adam. Salvation is simply based on one's works weighed out. The Bible
+is believed by Muslims to have been a revelation from God, but that it has
+been corrupted and superseded by the Koran.  
+
+To any precious Muslim soul that may be listening to this sermon, I
+plead to you that you realize that Allah is a false god, Satan himself,
+and that you will turn to the Jesus of the Holy Bible who is more than
+just a prophet, but is God himself. You can be guaranteed to go to heaven
+without doing any works. All you need to do is to realize that you are a
+sinner and call upon Jesus today and ask him to save you. If you did this
+with sincerity in your heart then Jesus will save you and guarantees that
+you will never lose your salvation and you will spend eternity with him.
+Please get out of Islam which is nothing more than a terrorist religion
+and call upon Jesus today. For those who are saved, please tell other
+Muslims about Jesus so that they may be saved as well.  
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +599,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,431 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the feast of trumpets
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+The feast of trumpets is the first of the three fall feasts and the
+first Jewish feast since the feast of Pentecost, the last of the four
+spring feasts. The feast of trumpets is known today in Israel as Rosh
+Hashanah or the Jewish New Year. The feast of trumpets is the first day of
+the Jewish civil year, but the first day of the seventh month of the
+religious calendar. It is on 1 Tishri, the seventh month in the Jewish
+calendar and normally in September of our calendar, but sometimes in
+October. (Leviticus 23:24-25 Speak unto the children of Israel, saying, In
+the seventh month, in the first day of the month, shall ye have a sabbath,
+a memorial of blowing of trumpets, an holy convocation.
+25 Ye shall do no servile work therein: but ye shall offer an offering
+made by fire unto the LORD.) (Numbers 29:1 And in the seventh month, on
+the first day of the month, ye shall have an holy convocation; ye shall do
+no servile work: it is a day of blowing the trumpets unto you.) The feast
+of trumpets as all of the Jewish feasts points to Jesus.
 
-Username or email _____________________
+Prior to the feast of trumpets the ram's horn or shofar is blown to
+call people to repentance and remind them the holy days are about to
+start. The feast of trumpets is the first of ten days of repentance
+celebrated by Jews and ends on the day of atonement or Yom Kippur. These
+ten days are known as high holy days. Jews will often spend the 30 days of
+the previous month Elul preparing in repentance for these ten holy days.
+The trumpet or shofar is blown 100 times during the synagogue service on
+the day of the feast of trumpets. Most Jews who never even go to the
+synagogue throughout the year will go on the feast of trumpets and the day
+of atonement. Jewish tradition says God writes the words, deeds, and
+thoughts of every person in the book of life which God opens on the feast
+of trumpets. Jews believe that if their good deeds are more than their bad
+deeds then their name will be kept in the book of life for one more year.
+Jews believe they can do works of repentance during this ten day period to
+get more good deeds. This is completely unscriptural and shows how Jews
+try to work their way to heaven just like every other false religion. This
+may be why Jews today also refer to this feast as Yom Hadin or the day of
+judgment. Jesus is the Judge of judges and will judge one day. (II Timothy
+4:1 I charge thee therefore before God, and the Lord Jesus Christ, who
+shall judge the quick and the dead at his appearing and his kingdom;)
+(Acts 10:42 And he commanded us to preach unto the people, and to testify
+that it is he which was ordained of God to be the Judge of quick and
+dead.) God does have a book of life in which every person who has or will
+ever be born has their name written in it. God also has the Lamb's book of
+life that once your name is in it, it cannot be removed. Jews and all
+people can have their name written in the Lamb's book of life by admitting
+they are a sinner and asking Jesus to save them. Jews need to call upon
+their Messiah Jesus to have their name in the Lamb's book of life. This is
+the only book that matters. Only saved people are in the Lamb's book of
+life. A person can call upon Jesus on any day of the year, not just the
+feast of trumpets to have their name added to the Lamb's book of life. As
+an unsaved person dies, his name is blotted out of the book of life and
+was never written in the Lamb's book of life. Eventually both books will
+match their names as the last unsaved person is removed by God from the
+book of life. These are the books that God will check to see if a person's
+name is written in them on the day of the Great White Throne judgment. No
+unsaved person's name will be found in either book. (Revelation 20:15 And
+whosoever was not found written in the book of life was cast into the lake
+of fire.)
 
-Reset password
+In Biblical days the Jews were to make a burnt offering, a meat
+offering, and a sin offering to God on this feast and it was to be a day
+of rest. Like all of the Jewish feasts, it was a holy day since it
+represented Jesus. These offerings might represent us casting our sins on
+Jesus and his redemption for us. (Numbers 29:1-6 And in the seventh month,
+on the first day of the month, ye shall have an holy convocation; ye shall
+do no servile work: it is a day of blowing the trumpets unto you.
+2 And ye shall offer a burnt offering for a sweet savour unto the LORD;
+one young bullock, one ram, and seven lambs of the first year without
+blemish:
+3 And their meat offering shall be of flour mingled with oil, three tenth
+deals for a bullock, and two tenth deals for a ram,
+4 And one tenth deal for one lamb, throughout the seven lambs:
+5 And one kid of the goats for a sin offering, to make an atonement for
+you:
+6 Beside the burnt offering of the month, and his meat offering, and the
+daily burnt offering, and his meat offering, and their drink offerings,
+according unto their manner, for a sweet savour, a sacrifice made by fire
+unto the LORD.) These were to be a sweet savour to God. Today Jews eat
+food with the feast including apple slices dipped in honey. The apples
+represent provision and the honey represents sweetness for the coming
+year. Is the honey unknowingly to the Jews a representative of the sweet
+savour of the Biblical sacrifices?
+
+The feast of trumpets in scripture points to the gathering of the
+Jews to the Promised land and ultimately to him. (Isaiah 27:13 And it
+shall come to pass in that day, that the great trumpet shall be blown, and
+they shall come which were ready to perish in the land of Assyria, and the
+outcasts in the land of Egypt, and shall worship the LORD in the holy
+mount at Jerusalem.)
+
+The main meaning of the feast of trumpets was to point Jews to Jesus
+and his coming for his bride the church in the rapture. The rapture is the
+time when Jesus will gather his people in the clouds in the air to meet
+him and he will bring them to heaven. At this time Christians will get
+their glorified bodies. The rapture is for the new testament church only
+with the old testament saints getting resurrected at part two of Jesus'
+second coming. The rapture will occur before the wrath of God comes at the
+time of the great tribulation. God always removes his people before his
+wrath on the unsaved such as removing Noah and his family before the
+Genesis flood and removing Lot and his family before destroying Sodom and
+Gomorrah. Let us look at the rapture in scripture. (I Corinthians 15:51-52
+Behold, I shew you a mystery; We shall not all sleep, but we shall all be
+changed,
+52 In a moment, in the twinkling of an eye, at the last trump: for the
+trumpet shall sound, and the dead shall be raised incorruptible, and we
+shall be changed.) Paul refers to the rapture as the last trump or last
+trumpet. Jesus himself will blow this trumpet. (I Thessalonians 4:13-18
+But I would not have you to be ignorant, brethren, concerning them which
+are asleep, that ye sorrow not, even as others which have no hope.
+14 For if we believe that Jesus died and rose again, even so them also
+which sleep in Jesus will God bring with him.
+15 For this we say unto you by the word of the Lord, that we which are
+alive and remain unto the coming of the Lord shall not prevent them which
+are asleep.
+16 For the Lord himself shall descend from heaven with a shout, with the
+voice of the archangel, and with the trump of God: and the dead in Christ
+shall rise first:
+17 Then we which are alive and remain shall be caught up together with
+them in the clouds, to meet the Lord in the air: and so shall we ever be
+with the Lord.
+18 Wherefore comfort one another with these words.) The trumpet sounded by
+Jesus will even wake up the dead in Christ. That is how powerful the
+trumpet of God is. The Philadelphia church, one of seven churches
+mentioned in Revelation 2-3 represents the true church of believers and
+Jesus said he will take them away from the hour of temptation showing the
+church will not see the wrath of God during the tribulation. (Revelation
+3:10 Because thou hast kept the word of my patience, I also will keep thee
+from the hour of temptation, which shall come upon all the world, to try
+them that dwell upon the earth.) The word rapture is not found in
+scripture, but comes from the Latin word rapio which means caught up as is
+found in the English King James Bible.
+
+Today Israel usually celebrates the feast of trumpets as a two day
+event followed by 7 days of repentance followed by the day of atonement.
+The seven day period might be representative of the 7 year tribulation
+with the rapture at the feast of trumpets and the salvation of Israel at
+the end of the tribulation and then the second coming of Jesus with the
+day of atonement. Most Jews probably are not even aware of what they
+symbolize.
+
+When the Israelites blew trumpets in Biblical days there were many
+reasons for it. Some reasons were a call to war and another one was to
+gather people together for an announcement and another was a warning of a
+coming judgment. There were other reasons. Two types of trumpets were
+used, silver ones and ram's horns. (Numbers 10:2 Make thee two trumpets of
+silver; of a whole piece shalt thou make them: that thou mayest use them
+for the calling of the assembly, and for the journeying of the camps.) The
+people brought silver to the priests as half shekels to represent being
+redeemed by God. Silver represents Jesus Christ's redemption for mankind.
+Redeemed people would listen to the sound of the trumpet when it was
+sounded and they will at the rapture as well. The trumpet will sound just
+before the rapture occurs and we can see some of the meanings of the
+trumpet call from the old testament. When the rapture trumpet blows, God
+will gather Christians to him in heaven, he will be announcing to the Jews
+and the rest of the world that a great judgment in the tribulation is
+coming from him and Jesus will also be declaring war on Satan. The rapture
+is Jesus' declaration of war on Satan and all evil. It is during the
+tribulation when one third of the Jews will finally realize that Jesus is
+their Messiah and will call upon him and be saved. Two thirds of the Jews
+alive at the start of the tribulation will die unsaved, but the remaining
+one third which will be the whole nation will be saved. Prior to this
+happening great judgment will come upon Israel as the whole point of the
+tribulation is to bring the Jews to Jesus. (Zechariah 12:10 And I will
+pour upon the house of David, and upon the inhabitants of Jerusalem, the
+spirit of grace and of supplications: and they shall look upon me whom
+they have pierced, and they shall mourn for him, as one mourneth for his
+only son, and shall be in bitterness for him, as one that is in bitterness
+for his firstborn.)(Zechariah 13:8-9 And it shall come to pass, that in
+all the land, saith the LORD, two parts therein shall be cut off and die;
+but the third shall be left therein.
+9 And I will bring the third part through the fire, and will refine them
+as silver is refined, and will try them as gold is tried: they shall call
+on my name, and I will hear them: I will say, It is my people: and they
+shall say, The LORD is my God.) I mentioned earlier how the feast of
+trumpets represents the Jews gathering back to Israel. This gathering back
+to Israel will finally gather the nation to Jesus just as the church is
+gathered to Jesus at the rapture. The trumpet was also used to call the
+Israelites to worship and after the rapture we will worship Jesus and
+praise him for redeeming us and calling us home.
+
+The feast of trumpets is the first of the three fall feasts and comes
+three months after Pentecost, the last of the four spring feasts.
+Pentecost represents the start of the church and the feast of trumpets
+represents the rapture of the church or the removal of it from earth. The
+three month gap in between the spring and fall feasts represents the
+church age with the time before that being about Israel and after the
+rapture during the tribulation being about Israel again. I believe these
+feasts and what they represent show that the church will not be here for
+the wrath of God during the coming tribulation. Just as the feast of
+trumpets represents the rapture of the church, it also signals the
+beginning of the restoring of Israel as I just mentioned how the whole
+nation will be saved during the tribulation. The rapture can occur at any
+time with no events that need to happen first. Scripture says we do not
+know the day or hour of the rapture when Jesus will return, but most
+likely the rapture will happen on the feast of trumpets at some point in
+the future as all of the main events of Jesus always happened on a Jewish
+feast. We still would not know the year or hour and the day changes each
+year so since we do not know the year, we still do not know the day either
+so this is not predicting the rapture. (Matthew 24:36 ¶ But of that day
+and hour knoweth no man, no, not the angels of heaven, but my Father
+only.) The spring feasts were all fulfilled in his first coming and the
+second coming will see the fulfillment of the fall feasts. Scripture is
+all about Jesus and his chosen people Israel so there is no reason the
+rapture would not be on a Jewish feast and most likely this one as it even
+has trumpet in its name. The rapture even has a trumpet just as the feast
+does. Some people believe the feast of trumpets is the visible part of the
+second coming of Jesus at the end of the tribulation and not the rapture,
+but that will be the day of atonement, not the feast of trumpets.   
+
+It is possible that God has a verse in scripture between the spring
+and fall feasts that shows God's grace during this age of grace that we
+are living in. (Leviticus 23:22 ¶ And when ye reap the harvest of your
+land, thou shalt not make clean riddance of the corners of thy field when
+thou reapest, neither shalt thou gather any gleaning of thy harvest: thou
+shalt leave them unto the poor, and to the stranger: I am the LORD your
+God.) The Israelites were to leave some of the harvest for the poor and
+stranger (Gentiles). This verse is to be taken literally, but it is
+possible that this was a picture of God bringing his grace to the Gentiles
+as well during the church age and then allowing them to be raptured along
+with any saved Jews as represented in the feast of trumpets in the next
+two verses. The verses just before verse 22 deal with the feast of
+Pentecost which was the start of the church.
+
+In conclusion the feast of trumpets represents the calling of the
+church home to heaven at the rapture. To anyone listening whether Jew or
+Gentile, if you are not saved, please call upon Jesus today and ask him to
+save you so that you may have your name written in the Lamb's book of life
+for all eternity without any rituals as in Judaism and only temporary as
+is believed in the book of life and so you will not miss the trumpet sound
+calling you home at the rapture. What a glorious sound that will be. Even
+so come, Lord Jesus.
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

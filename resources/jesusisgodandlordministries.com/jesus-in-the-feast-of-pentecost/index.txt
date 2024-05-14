@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,175 +18,429 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Lost password
+Jesus in the feast of Pentecost
 
-Lost your password? Please enter your username or email address. You will receive a link to create a new password
-via email.
+Pentecost is also known as the feast of weeks or the feast of
+harvest. Though not in scripture, it is also sometimes referred to as the
+feast of latter firstfruits. Jews refer to it as Shavuot which means
+"weeks". Pentecost comes from the Greek word meaning "fiftieth". Pentecost
+was to be observed by the Jews on the fiftieth day following the feast of
+passover. Pentecost is seven weeks plus a day from passover. Seven
+Sabbaths were to be counted. It is known as the feast of weeks since the
+Jews had to count seven weeks to know the date of the feast. (Exodus 34:22
+¶ And thou shalt observe the feast of weeks, of the firstfruits of wheat
+harvest, and the feast of ingathering at the year's end.) Pentecost was
+one of the three mandatory feasts that all Jewish males were to come
+before the LORD with an offering. In latter times this was in Jerusalem in
+the temple. The other required feasts were the feast of unleavened bread
+and the feast of tabernacles. (Deuteronomy 16:16 ¶ Three times in a year
+shall all thy males appear before the LORD thy God in the place which he
+shall choose; in the feast of unleavened bread, and in the feast of weeks,
+and in the feast of tabernacles: and they shall not appear before the LORD
+empty:) Pentecost was celebrated to honour the LORD with the firstfruits
+of the new grain of the summer wheat harvest. This is why sometimes it is
+known as the feast of harvest or the feast of latter firstfruits since the
+feast of firstfruits which is sometimes referred to as the early
+firstfruits was a time when the Jews offered to God the firstfruits of
+their spring barley harvest and now it was the summer harvest of wheat or
+the latter firstfruits. (Deuteronomy 16:10 And thou shalt keep the feast
+of weeks unto the LORD thy God with a tribute of a freewill offering of
+thine hand, which thou shalt give unto the LORD thy God, according as the
+LORD thy God hath blessed thee:) Exodus gives its name of the feast of
+harvest. (Exodus 23:16 And the feast of harvest, the firstfruits of thy
+labours, which thou hast sown in the field: and the feast of ingathering,
+which is in the end of the year, when thou hast gathered in thy labours
+out of the field.) Pentecost does not have an exact Jewish set date, but
+varies since it is based off of 50 days from passover or seven Sundays
+from Easter. It is normally in May or June of our calendar and in the
+month of Sivan in the Jewish calendar. This was done to remind the people
+of passover and their redemption as a people from Egypt and ultimately of
+Jesus as the passover lamb and the redemption of our souls. Pentecost is
+the last of the spring feasts. The book of Ruth is often read by Jews on
+Pentecost. The feast of firstfruits is an offering to God of the
+firstfruits of the barley harvest which was considered the poor man's food
+and the firstfruits offering for Pentecost is from the wheat harvest which
+was considered the rich man's food. Jesus rose from the grave on the feast
+of firstfruits and became the firstfruits of resurrection. (I Corinthians
+15:20 But now is Christ risen from the dead, and become the firstfruits of
+them that slept.). He became a poor man for us to die for our sins so that
+upon his resurrection and our receiving of him as our Saviour, we might
+become spiritually rich and have eternal life with him. This is
+represented by the giving of the Holy Ghost to believers on Pentecost. (II
+Corinthians 8:9 For ye know the grace of our Lord Jesus Christ, that,
+though he was rich, yet for your sakes he became poor, that ye through his
+poverty might be rich.) God will not only give us eternal life, but a
+mansion in heaven with streets of gold.
 
-Username or email _____________________
+Various offerings were to be made on the day of Pentecost: loaves of
+bread, sheep, bulls, and goats. Except for the bullock and rams, these
+were all first year animals just as the grain was the firstfruits of the
+harvest. God always demands your first and best. (Leviticus 23:15-21 15 ¶
+And ye shall count unto you from the morrow after the sabbath, from the
+day that ye brought the sheaf of the wave offering; seven sabbaths shall
+be complete:
+16 Even unto the morrow after the seventh sabbath shall ye number fifty
+days; and ye shall offer a new meat offering unto the LORD.
+17 Ye shall bring out of your habitations two wave loaves of two tenth
+deals: they shall be of fine flour; they shall be baken with
+leaven; they are the firstfruits unto the LORD.
+18 And ye shall offer with the bread seven lambs without blemish of the
+first year, and one young bullock, and two rams: they shall be for a burnt
+offering unto the LORD, with their meat offering, and their drink
+offerings, even an offering made by fire, of sweet savour unto the LORD.
+19 Then ye shall sacrifice one kid of the goats for a sin offering, and
+two lambs of the first year for a sacrifice of peace offerings.
+20 And the priest shall wave them with the bread of the firstfruits for a
+wave offering before the LORD, with the two lambs: they shall be holy to
+the LORD for the priest.
+21 And ye shall proclaim on the selfsame day, that it may be an holy
+convocation unto you: ye shall do no servile work therein: it shall be a
+statute for ever in all your dwellings throughout your generations.) The
+Jews were to offer two loaves of bread with leaven. This may seem odd
+since earlier God had said no grain offering, which wheat is a grain,
+could be made with leaven. (Leviticus 2:11 No meat offering, which ye
+shall bring unto the LORD, shall be made with leaven: for ye shall burn no
+leaven, nor any honey, in any offering of the LORD made by fire.) No
+leaven was allowed in the bread for passover, yet Pentecost requires it.
+Why since leaven in scripture represents sin? The reason leaven had to be
+used in the bread for Pentecost is because Pentecost is the time that God
+reminds us all that we are sinners in need of Jesus as our Saviour. The
+offering given at Pentecost represents the gospel with the bloody
+sacrifice of the animals including lambs along with the leaven bread which
+represents our sins showing how the blood of Jesus who is our passover
+lamb can wash away our sins. (I Corinthians 5:7 Purge out therefore the
+old leaven, that ye may be a new lump, as ye are unleavened. For even
+Christ our passover is sacrificed for us:) The offerings were commanded to
+be together to show that God only accepts sinful man by the blood offering
+of his Son Jesus. Without the blood of Jesus, there is no remission of our
+sins. (Hebrews 9:22 And almost all things are by the law purged with
+blood; and without shedding of blood is no remission.) The two loaves were
+to be made with fine flour which removed all of the chaff and lumps. This
+is what Jesus does to sinners after we are saved and continues to fine
+tune us as we grow in the Lord by reading his word, praying to him, and
+living our lives for him by obeying his commandments. Pentecost reminds us
+that Jesus only saves sinners of which we all are. Only those who repent
+will be saved. As Jesus said, he came to save the lost. Jesus said those
+who are whole have no need of a physician. The Pharisees thought they were
+good enough and not sinners who needed Jesus. Do not be like them. Call
+upon Jesus today to save you if you have not already done so. (Mark 2:17
+When Jesus heard it, he saith unto them, They that are whole have no need
+of the physician, but they that are sick: I came not to call the
+righteous, but sinners to repentance.) (Luke 19:10 For the Son of man is
+come to seek and to save that which was lost.) Why were there two loaves
+of bread? Two witnesses were required by God in scripture. Jesus sent out
+his disciples by two's. (Mark 6:7 ¶ And he called unto him the twelve, and
+began to send them forth by two and two; and gave them power over unclean
+spirits;) Two witnesses are required to accuse a church elder. (I Timothy
+5:19 Against an elder receive not an accusation, but before two or three
+witnesses.) God will have two witnesses during the tribulation to accuse
+the antichrist and his followers and witness for Jesus. These two
+witnesses will most likely be Moses and Elijah. (Revelation 11:3 And I
+will give power unto my two witnesses, and they shall prophesy a thousand
+two hundred and threescore days, clothed in sackcloth.) God has the
+witness of two testaments or covenants (Old and New Testaments) against
+all people, but especially Jews that Jesus is the Messiah and only way for
+eternal life. A sin offering and a peace offering were given by the Jews
+at the feast of Pentecost. These two loaves represent these two offerings.
+Jesus is our peace offering to accept the sin offering. Jesus is the peace
+offering that allowed Gentiles as well as Jews to unite as one body of
+believers in him. The Jews were intended from the beginning to be
+witnesses for the LORD and to tell the world about the coming Messiah
+Jesus. Now by the death, burial, and resurrection of Jesus, Gentiles can
+also be a second witness for Jesus to the world just as scripture requires
+two witnesses. The two loaves were meant to be representive of the Jews
+and Gentiles as one body, but two witnesses for Jesus to the world. Jews
+were and are God's chosen people. As such the feast of firstfruits
+represents them. Pentecost represents the firstfruits all believers in
+Jesus, both Jews and Gentiles as Jesus came to save the world, not just
+Jews.  
 
-Reset password
+According to Jewish tradition, God gave Moses the ten commandments on
+what would become Pentecost. This is why the Jews sometimes call this "The
+Season of the Giving of the Law". God gave the Jews their new covenant
+also on the day of Pentecost when the Holy Ghost was given as the
+Comforter. Some Messianic Jews [saved believers in Jesus] therefore refer
+to Pentecost as "The Season of the Giving of the Spirit" since all
+believers become one family, regardless of nation or tongue. If Jewish
+tradition is true then the difference between the law which shows us we
+are sinners and the giving of the Holy Ghost who lives in believers is
+clearly seen. The Jews after tiring of waiting for Moses to come down from
+Mt. Sinai turned to making an idol in the golden calf. Because of this sin
+about three thousand people died. On the day of Pentecost, three thousand
+were saved. This is the same amount of people, but with different eternal
+destinies showing those who die by the law of works and those who live by
+the blood of Jesus. (Exodus 32:28 And the children of Levi did according
+to the word of Moses: and there fell of the people that day about three
+thousand men.) (Acts 2:41 ¶ Then they that gladly received his word were
+baptized: and the same day there were added unto them about three thousand
+souls.)
+
+There is debate over when the actual day of Pentecost is. Scripture
+says the feast of firstfruits was the day after the sabbath with Pentecost
+being the day following seven sabbaths from then. The debate was it
+counted from passover which was a sabbath or the weekly sabbath which
+would then make Pentecost on a Sunday. It appears that it was meant for
+the feast of firstfruits to be after the weekly sabbath just as it was on
+the Sunday that Jesus rose from the grave as the firstfruits of
+resurrection and with Pentecost being on a Sunday just as it was in Acts
+2.    
+
+Pentecost was given its fulfillment of its real meaning in the new
+testament. Pentecost is considered by Christians the day the church was
+started as three thousand people were saved and the Holy Ghost was given
+to believers. Jesus who rose from the grave was in heaven at this time
+seated at the right hand of God the Father and no longer with his apostles
+and disciples. Jesus ascended to heaven ten days earlier and had told the
+apostles to wait in Jerusalem, for at a time appointed they would receive
+power and the Holy Ghost to be able to go out and witness for him. (Acts
+1:8 But ye shall receive power, after that the Holy Ghost is come upon
+you: and ye shall be witnesses unto me both in Jerusalem, and in all
+Judæa, and in Samaria, and unto the uttermost part of the earth.) (Acts
+2:1-12 1 And when the day of Pentecost was fully come, they were all with
+one accord in one place.
+2 And suddenly there came a sound from heaven as of a rushing mighty wind,
+and it filled all the house where they were sitting.
+3 And there appeared unto them cloven tongues like as of fire, and it sat
+upon each of them.
+4 And they were all filled with the Holy Ghost, and began to speak with
+other tongues, as the Spirit gave them utterance.
+5 And there were dwelling at Jerusalem Jews, devout men, out of every
+nation under heaven.
+6 Now when this was noised abroad, the multitude came together, and were
+confounded, because that every man heard them speak in his own language.
+7 And they were all amazed and marvelled, saying one to another, Behold,
+are not all these which speak Galilæans?
+8 And how hear we every man in our own tongue, wherein we were born?
+9 Parthians, and Medes, and Elamites, and the dwellers in Mesopotamia, and
+in Judæa, and Cappadocia, in Pontus, and Asia,
+10 Phrygia, and Pamphylia, in Egypt, and in the parts of Libya about
+Cyrene, and strangers of Rome, Jews and proselytes,
+11 Cretes and Arabians, we do hear them speak in our tongues the wonderful
+works of God.
+12 And they were all amazed, and were in doubt, saying one to another,
+What meaneth this?) These men full of the Holy Ghost spoke with tongues
+and were baptized with fire by the Holy Ghost. Acts 2:3 says cloven
+tongues like as of fire sat upon each of them. The baptism of fire was
+only on this day. John the Baptist spoke of this day. (Matthew 3:11 I
+indeed baptize you with water unto repentance: but he that cometh after me
+is mightier than I, whose shoes I am not worthy to bear: he shall baptize
+you with the Holy Ghost, and with fire:) Unlike what Pentecostals who get
+their name from Pentecost teach and believe, these tongues were actual
+languages, though not ones spoken by the apostles. They were not gibberish
+as the Pentecostals speak which in reality opens the door to devils. These
+were languages that were spoken by people in the crowd and verses 9-11
+list these languages. What happened on this Pentecost, the first since the
+death and resurrection of Jesus, was never repeated. Unlike what
+Pentecostals teach, a person does not have to speak in tongues to be
+saved. This adds works to salvation and is unscriptural. Since this first
+Pentecost of the church, many souls have been added. Today all people
+receive the Holy Ghost the moment they are saved unlike on that day.
+
+The feast of Pentecost, as all Jewish feasts, points not only Jews,
+but all people to Jesus Christ and their need of him for salvation. Most
+Christians only think of Pentecost as the day seen in Acts 2, but its true
+meaning goes much deeper with Acts 2 just being the fulfillment of the
+feast from the old testament with the giving of the Holy Ghost to all
+believers as the promised Comforter. (John 14:26 But the Comforter, which
+is the Holy Ghost, whom the Father will send in my name, he shall teach
+you all things, and bring all things to your remembrance, whatsoever I
+have said unto you.) May all seek Jesus so they too may receive the Holy
+Ghost as Comforter.  
+
+Search for: _____________________  [ Search ]
+
+Recent Comments
+
+Archives
+
+Categories
+
+• No categories
+
+Meta
+
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 

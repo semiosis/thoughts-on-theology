@@ -1,7 +1,7 @@
 Link: profile
 Link: dns-prefetch
-Link: Jesus is God and Lord Ministries >> Feed (alternate)
-Link: Jesus is God and Lord Ministries >> Comments Feed (alternate)
+Link: Jesus is God and Lord Ministries » Feed (alternate)
+Link: Jesus is God and Lord Ministries » Comments Feed (alternate)
 Link: preconnect
 Link: preconnect
 Link: https://api.w.org/
@@ -18,364 +18,478 @@ Jesus is God and Lord Ministries
 Ye Must Be Born Again
 
 Main Menu
-o HOME
-o STORE
-o ABOUT JESUS IS GOD AND LORD MINISTRIES
-o BELIEFS
-o CONTACT
-o KING JAMES BIBLE TO READ AND LISTEN TO
-o KING JAMES BIBLE WORDS AND PHRASES DEFINED
-o WHY WE MUST BE BORN AGAIN
-o WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO TO HEAVEN?
-o NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
-o PROOF THAT JESUS IS GOD AND LORD
-o SERMONS AND SCRIPTURE LESSONSMenu Toggle
-o 3:16 Verses
-o Abraham the obedient father and type of God the Father
-o According to the word of the LORD
-o Alleged Contradictions in Scripture
-o Angels and spiritual beings
-o Animals Teaching Man  
-o Be like Jesus
-o Be Thankful
-o Bread in Scripture
-o Christian Martyrs for Jesus
-o Colors in Scripture
-o Curse Israel and you will be cursed
-o Dangers of Calvinism
-o Deadliest battles in scripture
-o Deserts in scripture and in our lives
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Mormonism
-o False Doctrines of Seventh-day Adventism
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freedom and Liberty come from God
-o Freemasonry is Satanism in Disguise
-o From the resurrection to the ascension
-o Genealogies of Jesus
-o Gifts of the Holy Ghost
-o God is Light
-o God is Love
-o God the Holy Ghost
-o Halloween and the connection to Satan
-o Honour Thy Mother
-o Isaiah 53
-o Jesus in the feast of Purim
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus is the door that all must enter for everlasting life
-o Jesus is the Light of the World and Christians Should Reflect that Light
-o Jesus in the Lord's supper or communion
-o Jesus represented in the sabbath
-o Jesus versus Mohammad
-o Jewish tragedies on the 9th of Av
-o Jonah
-o Joseph as a type of Jesus
-o Jude
-o Malachi   
-o Martyrs in the Lord's Army
-o Moses as a type of Jesus
-o Nahum
-o Nehemiah 3 and the ten gates of the Jerusalem wall
-o Obadiah
-o Our Nation Was Founded Upon God
-o Philemon
-o Prayer
-o Pre-incarnate Appearances of Jesus (Theophanies)
-o Proof that God exists in two words: the Jews
-o Proof that Jesus is God
-o Prophecies Fulfilled by Jesus at his First Coming
-o Prophecies of the Second Coming of Jesus
-o Psalm 23
-o Roman Catholicism and her False Doctrines
-o Santa is Satan and his little elves are devils
-o Serve in the Lord's Army
-o Seven Vial Judgments of Revelation
-o Significant events that happened on 17 Nisan  
-o Star of Bethlehem
-o Thankful people in scripture  
-o The Battle of Gog and Magog
-o The Books of God
-o The Crucifixion of Jesus
-o The Egyptian gods and goddesses of the ten plagues and their judgment and defeat by the God of gods
-o The Exodus   
-o The Good Samaritan
-o The Gospel in Stone
-o The Gospel in the Stars
-o The Greatest Father Anyone Can Have And Everyone Needs
-o The Handwriting of God
-o The Illegal Trial of Jesus
-o The King James Bible Built-in Dictionary
-o The Miracles at the Crucifixion of Jesus
-o The New Year's resolutions that need to be kept
-o The Number Seven in Scripture
-o The Number Three in Scripture  
-o The Riotous Son
-o The True Creationism of the Scriptures versus False Theories
-o The Unscriptural Flat Earth Theory
-o The Unscriptural Lucifer Flood  
-o The Widow Woman and the Oil  
-o The Word Became Flesh
-o Types of the Holy Ghost in scripture
-o Was Jesus born on Christmas?
-o Was Jesus Crucified on Friday?
-o Water in Scripture
-o Weather in scripture
-o Who are the sons of God of Genesis 6?
-o Work is from God
-o Worshipping God in psalms, hymns, and spiritual songs
-o Zephaniah
-o VIDEOS
-o HYMNS
-o FOR PRECIOUS JEWISH SOULSMenu Toggle
-o Meet the Jewish Messiah
-o False Religion of Judaism
-o Isaiah 53
-o Jesus in the feasts of Passover and Unleavened Bread
-o Jesus in the feast of firstfruits
-o Jesus in the feast of Pentecost
-o Jesus in the feast of trumpets
-o Jesus in the day of atonement
-o Jesus in the Feast of Tabernacles
-o Jesus in Hanukkah
-o Jesus in the feast of Purim
-o Jesus in the Lord's supper or communion
-o Jesus in the Tabernacle
-o Jesus as the Temple
-o Jesus represented in the sabbath
-o Jewish tragedies on the 9th of Av
-o Joseph as a type of Jesus
-o Moses as a type of Jesus
-o Proof that God exists in two words: the Jews
-o Significant events that happened on 17 Nisan  
-o FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
-o False Doctrines of Roman Catholicism
-o Roman Catholicism and her False Doctrines
-o CULTSMenu Toggle
-o Roman CatholicismMenu Toggle
-o Roman Catholicism and her False Doctrines
-o False Doctrines of Mormonism
-o False Doctrines of Jehovah's Witnesses
-o False Doctrines of Seventh-day Adventism
-o FALSE RELIGIONSMenu Toggle
-o False Religion of Buddhism
-o False Religion of Hinduism
-o False Religion of Islam
-o False Religion of Judaism
-o Freemasonry is Satanism in Disguise
-o RECOMMENDED BOOKS FOR READING
-o LINKS
-o CHECKOUT
-o New items are available in the store for purchase.
+
+• HOME
+• STORE
+• ABOUT JESUS IS GOD AND LORD MINISTRIES
+• BELIEFS
+• CONTACT
+• KING JAMES BIBLE TO READ AND LISTEN TO
+• KING JAMES BIBLE WORDS AND PHRASES DEFINED
+• WHY WE MUST BE BORN AGAIN
+• WHAT MUST I DO TO BE SAVED (BE BORN AGAIN), HAVE ETERNAL LIFE AND GO
+TO HEAVEN?
+• NOW THAT I AM A BORN AGAIN CHRISTIAN, HOW DO I GROW (MATURE)?
+• PROOF THAT JESUS IS GOD AND LORD
+• SERMONS AND SCRIPTURE LESSONSMenu Toggle
+
+• 3:16 Verses
+• Abraham the obedient father and type of God the Father
+• According to the word of the LORD
+• Alleged Contradictions in Scripture
+• Angels and spiritual beings
+• Animals Teaching Man  
+• Be like Jesus
+• Be Thankful
+• Bread in Scripture
+• Christian Martyrs for Jesus
+• Colors in Scripture
+• Curse Israel and you will be cursed
+• Dangers of Calvinism
+• Deadliest battles in scripture
+• Deserts in scripture and in our lives
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Mormonism
+• False Doctrines of Seventh-day Adventism
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freedom and Liberty come from God
+• Freemasonry is Satanism in Disguise
+• From the resurrection to the ascension
+• Genealogies of Jesus
+• Gifts of the Holy Ghost
+• God is Light
+• God is Love
+• God the Holy Ghost
+• Halloween and the connection to Satan
+• Honour Thy Mother
+• Isaiah 53
+• Jesus in the feast of Purim
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus is the door that all must enter for everlasting life
+• Jesus is the Light of the World and Christians Should Reflect
+that Light
+• Jesus in the Lord's supper or communion
+• Jesus represented in the sabbath
+• Jesus versus Mohammad
+• Jewish tragedies on the 9th of Av
+• Jonah
+• Joseph as a type of Jesus
+• Jude
+• Malachi   
+• Martyrs in the Lord's Army
+• Moses as a type of Jesus
+• Nahum
+• Nehemiah 3 and the ten gates of the Jerusalem wall
+• Obadiah
+• Our Nation Was Founded Upon God
+• Philemon
+• Prayer
+• Pre-incarnate Appearances of Jesus (Theophanies)
+• Proof that God exists in two words: the Jews
+• Proof that Jesus is God
+• Prophecies Fulfilled by Jesus at his First Coming
+• Prophecies of the Second Coming of Jesus
+• Psalm 23
+• Roman Catholicism and her False Doctrines
+• Santa is Satan and his little elves are devils
+• Serve in the Lord's Army
+• Seven Vial Judgments of Revelation
+• Significant events that happened on 17 Nisan  
+• Star of Bethlehem
+• Thankful people in scripture  
+• The Battle of Gog and Magog
+• The Books of God
+• The Crucifixion of Jesus
+• The Egyptian gods and goddesses of the ten plagues and their
+judgment and defeat by the God of gods
+• The Exodus   
+• The Good Samaritan
+• The Gospel in Stone
+• The Gospel in the Stars
+• The Greatest Father Anyone Can Have And Everyone Needs
+• The Handwriting of God
+• The Illegal Trial of Jesus
+• The King James Bible Built-in Dictionary
+• The Miracles at the Crucifixion of Jesus
+• The New Year's resolutions that need to be kept
+• The Number Seven in Scripture
+• The Number Three in Scripture  
+• The Riotous Son
+• The True Creationism of the Scriptures versus False Theories
+• The Unscriptural Flat Earth Theory
+• The Unscriptural Lucifer Flood  
+• The Widow Woman and the Oil  
+• The Word Became Flesh
+• Types of the Holy Ghost in scripture
+• Was Jesus born on Christmas?
+• Was Jesus Crucified on Friday?
+• Water in Scripture
+• Weather in scripture
+• Who are the sons of God of Genesis 6?
+• Work is from God
+• Worshipping God in psalms, hymns, and spiritual songs
+• Zephaniah
+
+• VIDEOS
+• HYMNS
+• FOR PRECIOUS JEWISH SOULSMenu Toggle
+
+• Meet the Jewish Messiah
+• False Religion of Judaism
+• Isaiah 53
+• Jesus in the feasts of Passover and Unleavened Bread
+• Jesus in the feast of firstfruits
+• Jesus in the feast of Pentecost
+• Jesus in the feast of trumpets
+• Jesus in the day of atonement
+• Jesus in the Feast of Tabernacles
+• Jesus in Hanukkah
+• Jesus in the feast of Purim
+• Jesus in the Lord's supper or communion
+• Jesus in the Tabernacle
+• Jesus as the Temple
+• Jesus represented in the sabbath
+• Jewish tragedies on the 9th of Av
+• Joseph as a type of Jesus
+• Moses as a type of Jesus
+• Proof that God exists in two words: the Jews
+• Significant events that happened on 17 Nisan  
+
+• FOR PRECIOUS ROMAN CATHOLIC SOULSMenu Toggle
+
+• False Doctrines of Roman Catholicism
+• Roman Catholicism and her False Doctrines
+
+• CULTSMenu Toggle
+
+• Roman CatholicismMenu Toggle
+
+• Roman Catholicism and her False Doctrines
+
+• False Doctrines of Mormonism
+• False Doctrines of Jehovah's Witnesses
+• False Doctrines of Seventh-day Adventism
+
+• FALSE RELIGIONSMenu Toggle
+
+• False Religion of Buddhism
+• False Religion of Hinduism
+• False Religion of Islam
+• False Religion of Judaism
+• Freemasonry is Satanism in Disguise
+
+• RECOMMENDED BOOKS FOR READING
+• LINKS
+• CHECKOUT
+• New items are available in the store for purchase.
+
 0
 
-Serve in the Lord's Army
+Animals Teaching Man  
 
-     As we prepare to celebrate Veterans Day on November 11 and all of those Americans who have served in the
-United States military to defend our great nation, we also want to remember all of those who have served in the
-Lord's army. I proudly served in the United States Marines and am now serving in the Lord's army and I salute all
-of those veterans of our military as well as those who are or have served in the Lord's army, especially the
-warriors and fighters for the Lord. Veterans Day was originally called Armistice Day and was founded in 1919 to
-remember the end of World War I which ended on November 11, 1918 at 11 am with the signing of the armistice with
-Germany. It was renamed Veterans Day in 1954 to no longer remember the end of World War 1, but rather all veterans
-who had served in the U.S. military and were discharged with conditions other than dishonourable. Just as every
-American has not served and fought in the military, neither has every Christian served and fought in the Lord's
-army. Most Christians just sit back and never serve the Lord, let alone fight. A Christian soldier should never
-become a veteran unlike in the military, but should remain an active fighter until they are called home by God.
+Man originally walked with God in Adam and Eve and God taught them
+everything they needed to know as he walked with them. Following Adam's
+sin then man turned from God and eventually turned to idols made by their
+hands. Many of these idols (actually devils) were made in the image of
+birds, fourfooted beasts and creeping creatures. (Romans 1:21-23 21
+Because that, when they knew God, they glorified him not as God, neither
+were thankful; but became vain in their imaginations, and their foolish
+heart was darkened.
+22 Professing themselves to be wise, they became fools,
+23 And changed the glory of the uncorruptible God into an image made like
+to corruptible man, and to birds, and fourfooted beasts, and creeping
+things.) Today many people place the creature above the Creator as they
+worship them. (Romans 1:25 Who changed the truth of God into a lie, and
+worshipped and served the creature more than the Creator, who is blessed
+for ever. Amen.) People will protect a mouse at the expense of man's
+growth. Due to sin man now had lost wisdom from God and sought false
+wisdom from Satan and their idols of animals. God now tells foolish man to
+learn from these very creatures that they worship since they have rejected
+his wisdom. These animals are wiser than people as we will see and God
+says to learn from them.
 
-     Before a Christian can properly serve the Lord and fight for the Lord, he needs to be properly equipped for
-the fight just like the soldiers and Marines in our military. Just as soldiers and Marines put on flak jackets,
-helmets, and other protection and carry the necessary weapons for the fight so must a Christian soldier. Before
-entering the fight as a soldier for the Lord, the Christian must put on the whole armour of God. (Ephesians
-6:10-18 Finally, my brethren, be strong in the Lord, and in the power of his might.
-11 Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
-12 For we wrestle not against flesh and blood, but against principalities, against powers, against the rulers of
-the darkness of this world, against spiritual wickedness in high places.
-13 Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, and having
-done all, to stand.
-14 Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
-15 And your feet shod with the preparation of the gospel of peace;
-16 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
-17 And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
-18 Praying always with all prayer and supplication in the Spirit, and watching thereunto with all perseverance and
-supplication for all saints;)  
+God says to go to the ant and consider her ways and be wise and do
+not be a sluggard. (Proverbs 6:6-11 6 ¶ Go to the ant, thou sluggard;
+consider her ways, and be wise:
+7 Which having no guide, overseer, or ruler,
+8 Provideth her meat in the summer, and gathereth her food in the harvest.
+9 How long wilt thou sleep, O sluggard? when wilt thou arise out of thy
+sleep?
+10 Yet a little sleep, a little slumber, a little folding of the hands to
+sleep:
+11 So shall thy poverty come as one that travelleth, and thy want as an
+armed man.) Throughout history many people have been lazy (sluggard) and
+fail to work for their food and to take care of themselves and their
+family. They fail to plant crops at the right time so when harvest comes
+they have nothing to harvest and therefore no food and so they expect the
+government or other people to bail them out. This sluggardness or laziness
+is especially prevalent in today's society as everyone wants a free
+handout without doing any work for it. This even includes many professing
+Christians and then they say we are uncaring if we do not help them. God
+said that if you do not work then you do not eat. (II Thessalonians 3:10
+For even when we were with you, this we commanded you, that if any would
+not work, neither should he eat.) God said that those who do not provide
+for their own are worse than an infidel. This is how serious that God
+expects people not to be lazy. (I Timothy 5:8 But if any provide not for
+his own, and specially for those of his own house, he hath denied the
+faith, and is worse than an infidel.)
 
-     Before a Christian decides to become a soldier in the Lord's army they need to be right with our Commander in
-Chief, the Lord Jesus Christ. Jesus is General of the Armies and a Christian soldier just like in any army starts
-out as a private. As we grow and mature as Christians and teach and lead others we can move up in rank from
-private and this should be the goal of every Christian soldier. We need to be good privates and serve and obey our
-Master and Commander in Chief Jesus Christ. Before we enter the fight we need to make sure we have all of our
-equipment. A good soldier or Marine will always be prepared and make sure they are fully equipped and so should
-the Christian soldier. God said in verses 11 and 13 to make sure that we put on the whole armour of God so that we
-can withstand the enemy and to be able to stand. A soldier never wants to have to fight the enemy on the ground,
-but to be able to stand. God said in order to stand we must have the whole armour of God and not just part of it.
-As a Christian soldier we must stand and never give any ground to Satan, not even a micrometer. It is especially
-important for the Christian soldier to be fully armoured as Christian soldiers are in a spiritual warfare. Our
-enemy is mostly invisible. Our armour must be whole. If it is incomplete and we neglect to put on some of the
-armour we will be open to attack from Satan. This armour must be put on every day without exception regardless of
-how we may feel even if we do not feel like being in war that day. Satan is always at war with us whether we want
-to fight or not. God tells us in verses 11-12 that our enemy is none other than Satan and his angels and devils
-and that it is a spiritual fight. We are fighting the spiritual realm which is invisible and is not made of flesh
-and blood, but against principalities, powers, rulers of the darkness of this world and against spiritual
-wickedness. Our fight is not against earthly evil people even though they may be controlled by Satan. God will
-take care of them. We fight against something much more wicked. The principalities and powers are rankings of
-spiritual beings or angels in Satan's army. The principalities are most likely the ones assigned by Satan to a
-nation such as when Daniel spoke of the prince of Persia and Greece. They are probably the highest ranking of
-Satan's angels. (Daniel 10:20 Then said he, Knowest thou wherefore I come unto thee? and now will I return to
-fight with the prince of Persia: and when I am gone forth, lo, the prince of Grecia shall come.) These are
-powerful beings as the angel Gabriel needed the assistance of the archangel Michael who is the prince of Israel to
-fight them. The spiritual wickedness in high places most likely refers to the devils assigned to the government
-leaders who are aligned with Satan. They are the ones who are really running the governments and the show and the
-earthly rulers are just their puppets whom they control. That is why we cannot fight against them in the
-conventional way. Christian soldiers are fighting much more than an earthly battle against wicked people, we are
-fighting against the devils behind them. For this we need God's help. The rulers of the darkness of this world are
-those who actually rule the world with Satan at the head. They most likely do the dirty deeds from the orders
-given to them from those ranking above them. Jesus said Satan was the prince of this world. Satan gained control
-of the world after the sin of Adam. (John 14:30 Hereafter I will not talk much with you: for the prince of this
-world cometh, and hath nothing in me.) The Christian soldier must be vigilant and always ready to fight as Satan
-looks to devour the soldier. (I Peter 5:8 Be sober, be vigilant; because your adversary the devil, as a roaring
-lion, walketh about, seeking whom he may devour:) The devil has a much harder job when fighting against a
-Christian soldier than a Christian who is not in the fight. All of the armour worn by a Christian soldier is given
-to them by God and is used for defensive purposes except one. As verse 10 says we are to be strong in the Lord and
-in the power of his might. We cannot fight Satan without the power of Jesus. He is the one who makes us strong. It
-is none of our own doing. To be strong in the Lord we must confess our sins as we commit them, work on committing
-less sins each day, read the word of God every day, and pray every day to God in the name of Jesus. Paul mentions
-some of this armour again in II Corinthians 6:7. (II Corinthians 6:7 By the word of truth, by the power of God, by
-the armour of righteousness on the right hand and on the left,)
+God says to consider her ways when speaking of the ant. All ants that
+we see and that are doing the work of gathering food are female ants so we
+see the accuracy of the King James Bible whereas other bibles say its
+ways. God said those who follow the ways of the ant are wise. Think about
+this that a little tiny ant that is much smaller than man is wiser than
+most people. Even God's small parts of creation can teach man. These
+verses continue to show how the ant will mobilize to gather food during
+harvest in order to have food for the summer. These ants do all of this
+without having a ruler tell them what to do. Ants do not need to be told
+to work they just do it as they know what needs to be done and they know
+if they do not do it then they will not survive. Too many people today
+have no initiative to do anything unless they are told to do it. Ants can
+carry up to twenty times their weight. God created them this way, but this
+also shows how ants will more than literally carry their own weight rather
+than relying on another source to do the work for them as people often do.
+Today people even if they do work will do the bare minimum necessary to
+keep their job and no more. Many do not "carry their own weight" and do
+their share of work, but rather expect their coworkers to do all of the
+work while they sit back and rest. The ant is smart enough and wise enough
+to store food away so that when they cannot gather food then they can eat
+of the reserves that have been saved away. This is what Joseph was
+teaching the Egyptians to save food during the seven plenteous years so
+that they would have food during the seven years of famine. Ants will work
+together in order to carry larger food sources than they could carry alone
+and they will spread out to search for food. Christians can learn to work
+together rather than against one another. Ants are always on the move and
+they move fast, not slowly (sluggish) like most people. They have a job
+that needs to get done and they do it. Some are worker ants and others are
+soldier ants. Some will provide protection to the ant hill from predators
+whereas many people just sit back and never guard their homes or their
+eternal souls for that matter. God says that those who want to sleep away
+their days and be a sluggard then this will lead to poverty. We see this
+today yet these people are still not wise enough to go and get a job in
+order to survive. These people just sit back waiting for someone to feel
+sorry for them and hoping for a free hand out. The ant can teach man that
+hard work will reap rewards.
 
-     God says in verse 14 to stand with our loins girded about with the truth. This is a belt of truth placed
-around our waist that is wide enough to also cover the private area. This is similar to the belt worn by a Roman
-soldier. This is the first piece of armour we are to put on. The order shown in these next few verses is the same
-order that a Roman soldier would have put on his armour. We must have the truth of Jesus Christ before we can
-defend ourselves against Satan and the spiritual realm. The truth is that without Jesus as ones Saviour they will
-spend eternity in the lake of fire with Satan, the enemy. Without the truth, we have nothing to stand on and this
-is why this is the first piece of armour we must put on. (John 14:6 Jesus saith unto him, I am the way, the truth,
-and the life: no man cometh unto the Father, but by me.) Just as the Roman soldier's belt held his sword and other
-weapons, the belt of truth holds the Christian soldiers sword. Every Christian soldier should always carry a Holy
-Bible or at least know it. The truth spoken of here is the truth of the cross that Jesus as the God-man died for
-our sins on that old rugged cross in order that we might be saved and then rose again. We as Christian soldiers
-also need to be honest and full of the truth. Verse 14 also says to put on the breastplate of righteousness. The
-breastplate of righteousness is the righteousness of Jesus Christ that we receive when we are washed in his blood.
-(I John 2:29 If ye know that he is righteous, ye know that every one that doeth righteousness is born of him.)
-(Revelation 19:8 And to her was granted that she should be arrayed in fine linen, clean and white: for the fine
-linen is the righteousness of saints.) We are to strive to be like Jesus every day so that this righteousness may
-shine forth. The breastplate protected a Roman soldier from spears and arrows. It will also protect the Christian
-soldier from the fiery darts from Satan. Isaiah describes Jesus dressed similar to what is here in Ephesians.
-Isaiah describes Jesus as he comes back to fight for Israel and his people. He will be victorious. Notice Jesus
-also only has one offensive weapon. (Isaiah 59:17 For he put on righteousness as a breastplate, and an helmet of
-salvation upon his head; and he put on the garments of vengeance for clothing, and was clad with zeal as a cloke.)
+God again says the ant is wise along with three other animals.
+(Proverbs 30:24-28 24 There be four things which are little upon the
+earth, but they are exceeding wise:
+25 The ants are a people not strong, yet they prepare their meat in the
+summer;
+26 The conies are but a feeble folk, yet make they their houses in the
+rocks;
+27 The locusts have no king, yet go they forth all of them by bands;
+28 The spider taketh hold with her hands, and is in kings' palaces.) God
+gives four small animals that we can once again learn from. One thing we
+can learn is that people do not have to be big people in order to
+accomplish God's work. God can even use small things to accomplish his
+goals and purposes and this includes people if they will let him. When a
+small Christian feels too small to do God's work that he has called them
+to do then they need to remember these four small animals of God's. The
+first of the four animals that are little upon the earth is the ant. God
+once again in verse 25 says that the ants are not a strong people yet they
+are wise enough to prepare their food in the summer so that when it gets
+cold and it is harder to gather food then they will have food to survive.
+Many animals never store food, but ants are wise enough to do so. God next
+lists the conies which he says are feeble (weak) yet they are wise enough
+to make their houses in rocks. The coney is a rabbit. Jesus spoke of the
+same principle in his sermon on the mount when he said we needed to build
+our houses upon rock which will last when the storm hits whereas those who
+build upon sand will have their house destroyed when the storm comes.
+(Matthew 7:24-27 24 ¶ Therefore whosoever heareth these sayings of mine,
+and doeth them, I will liken him unto a wise man, which built his house
+upon a rock:
+25 And the rain descended, and the floods came, and the winds blew, and
+beat upon that house; and it fell not: for it was founded upon a rock.
 
-     Verse 15 says we are to be shod with the gospel of peace. The true gospel of Jesus is peace, unlike the false
-gospels of Satan that bring death and destruction. Only Jesus can bring true peace and a person can only have true
-peace if they are saved. Satan only brings warfare. Paul describes how beautiful the feet are of those who preach
-the gospel of peace. All Christians but especially Christian soldiers, and not just preachers should be preaching
-the gospel of peace. (Romans 10:15 And how shall they preach, except they be sent? as it is written, How beautiful
-are the feet of them that preach the gospel of peace, and bring glad tidings of good things!) Isaiah also spoke of
-these same beautiful feet of those who preach Jesus. (Isaiah 52:7 ? How beautiful upon the mountains are the feet
-of him that bringeth good tidings, that publisheth peace; that bringeth good tidings of good, that publisheth
-salvation; that saith unto Zion, Thy God reigneth!) The more we preach the gospel of peace, the more souls we can
-win for Jesus and weaken Satan's kingdom. Notice Ephesians 6:15 says we must be prepared. A Christian soldier
-needs to not only know the gospel, but be prepared by reading scripture and praying that God will make him bold to
-preach. We also must keep our feet and health in shape so that we can walk.
+26 And every one that heareth these sayings of mine, and doeth them not,
+shall be likened unto a foolish man, which built his house upon the sand:
+27 And the rain descended, and the floods came, and the winds blew, and
+beat upon that house; and it fell: and great was the fall of it.) Many
+people today have not learned this as they build houses on the beach. I
+remember a person who built his house on stilts in the ocean in South or
+North Carolina and it was destroyed when a hurricane came through. This
+was an unwise individual who did not learn from the coney. The Rock that
+all people need to build upon is Jesus who is the only one who can provide
+a solid foundation. If you are not saved and are building upon any other
+foundation such as a false god then you will be destroyed and spend
+eternity in hell and the lake of fire.
 
-     Verse 16 gives the next piece of armour of God. The Christian soldier now must take the shield of faith. This
-is put on before the helmet. The Roman soldier also put on the shield first as the strap would not fit over the
-helmet. The shield of faith will quench or extinguish the fiery darts hurled by Satan at the Christian soldier.
-The Christian soldier must have a strong faith that Jesus will do as he says he will do. This allows him to trust
-Jesus even when he cannot see the end of the battle, but he can know that Jesus is righteous and will triumph.
-Jesus will also triumph in the Christian soldier's life as well as he will keep them strong for the fight against
-Satan. The fiery darts are the temptations that Satan hurls at the Christian soldier. The Christian soldier who is
-strong in the word of God and obedient to Jesus and who prays to ask Jesus for help will be strong enough to avoid
-the temptation. God said he would never allow us to be tempted by Satan with more than we can bear and would
-always allow a means of escape. God will never leave his soldiers cornered. As a Christian soldier grows in their
-faith they will be tempted with greater things as they will be able to withstand more with the help of God. (I
-Corinthians 10:13 There hath no temptation taken you but such as is common to man: but God is faithful, who will
-not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that
-ye may be able to bear it.)
+God next speaks of the locust who has no king just like the ant. The
+locusts which are swarming grasshoppers normally are solitary and will do
+their business without a king, but at times they form large swarms that
+can be up to 200 million per square mile. These swarms form on their own
+without a king putting them together. The swarms are formed for their
+survival and they form bands or groups. They do not need a king to get
+them organized and form these bands; they just know what needs to be done
+for survival. These locust swarms will work together to destroy large
+areas of farmland very quickly and God even used them as one of the ten
+plagues against Egypt. (Exodus 10) God is showing man what they can do if
+they work together yet man is always fighting against one another. This
+same principle applies to the church. If all who profess to be Christians
+would truly work together for the survival of the church then they could
+win many souls for the Lord by going out in swarms to spread the word of
+God.
 
-     Verse 17 gives us the final defensive peace of the armour of God. This is the helmet of salvation which
-assures us of our salvation. The helmet of salvation reminds us that we can never lose our salvation if we are
-truly saved. Once saved, always saved. The helmet of salvation also reminds the Christian soldier that because of
-the power of the cross and what Jesus did at Calvary for us, our enemies no longer have control over us as we have
-the full power of God at our hands. Most Christians do not realize this or they never take advantage of it. (I
-Corinthians 1:18 For the preaching of the cross is to them that perish foolishness; but unto us which are saved it
-is the power of God.) This verse says we "are saved" unlike the modern bibles that say we "are being saved". Jesus
-completed the work for us on the cross. Our salvation guarantees that we will always be protected. Satan may be
-able to take our physical body, but he can never take our soul. By the power of God we can help keep evil thoughts
-out of our minds and fight back at Satan when we do have them. (II Corinthians 10:5 Casting down imaginations, and
-every high thing that exalteth itself against the knowledge of God, and bringing into captivity every thought to
-the obedience of Christ;) The helmet of salvation should be a reminder that we are dead to our sins. As we grow as
-Christians sin should have less appeal to us, especially if we remember our salvation and the cost of it by Jesus
-for us to have it. (Romans 6:11 Likewise reckon ye also yourselves to be dead indeed unto sin, but alive unto God
-through Jesus Christ our Lord.) For Christians our vision should be on heaven and the things that will last for
-eternity and not the things of this world that will burn up. Our heart must be focused on Jesus at all times.
-(Philippians 3:20 For our conversation is in heaven; from whence also we look for the Saviour, the Lord Jesus
-Christ:) I Thessalonians 5:8 tells us to take on the helmet of salvation along with the breastplate of faith and
-love. (I Thessalonians 5:8 But let us, who are of the day, be sober, putting on the breastplate of faith and love;
-and for an helmet, the hope of salvation.) As we grow as Christians our love for Jesus and for other Christians as
-well as for the lost should grow as well. Our faith must also grow. It grows by hearing the word of God. (Romans
-10:17 So then faith cometh by hearing, and hearing by the word of God.) God said without faith it is impossible to
-please him. (Hebrews 11:6 But without faith it is impossible to please him: for he that cometh to God must believe
-that he is, and that he is a rewarder of them that diligently seek him.) Too many Christians faith is far too
-weak. As a good Christian soldier we should strive to have a strong faith that one day we may be in God's Faith
-Hall of Fame like those in Hebrews chapter 11. The Christian soldier must remain sober and always ready to defend
-against the next attack from Satan and his soldiers.
+God speaks of the spider that as little as she is lives in king's
+palaces. We see how God is accurate here again by saying her hands as all
+spiders seen are females and spiders do not have eight legs as is taught
+by man, but has hands as well. The spider will use these hands to make
+silk in a king's palace. Modern bibles remove the wise spider and change
+it to lizard so that people lose the teaching of the spider. The spider
+will go wherever it is necessary for her to survive and Christians should
+be doing the same by going wherever God sends them so that many souls
+might be won for the Lord. God says all four of these animals are wise in
+their ways. If only man was.
 
-     The final piece of the whole armour of God is the sword of the Spirit which is the word of God. The sword of
-the Spirit is the only offensive piece of the armour of God and completes the Christian soldier with the whole
-armour of God. All pieces are necessary to defend against Satan. If you forget even one piece you make yourself
-vulnerable to attack. The sword of the Spirit is the word of God. This is why it is important for the Christian
-soldier to know the word of God so that he can use it as an offensive weapon against Satan just as Jesus did. When
-Jesus was tempted by Satan in the wilderness with the lust of the flesh, lust of the eyes, and the pride of life,
-he quoted scripture at Satan and finally Satan could not take it anymore and left. In order for a Christian
-soldier to quote scripture to ward off attacks from Satan, they must first know scripture and then memorize it.
-The more they know the stronger soldier they will become. The sword of the Spirit is so powerful that it can even
-divide the soul and spirit. (Hebrews 4:12 For the word of God is quick, and powerful, and sharper than any
-twoedged sword, piercing even to the dividing asunder of soul and spirit, and of the joints and marrow, and is a
-discerner of the thoughts and intents of the heart.) The sword of the Spirit is quick and twoedged meaning it will
-cut on both sides just like the word of God. The enemy does not like to hear scripture quoted at them. See how
-fast they run. The Christian soldier must have the real sword of the Spirit and not one of Satan's counterfeit or
-corrupt ones. Satan has worked hard to put out many false swords for the unsuspecting Christian soldier and
-weakened many of them leaving them without an offensive weapon. The Christian soldier must use a King James Bible
-and none of the false corrupt counterfeit modern bibles from Satan. The King James Bible is the only true sword of
-the Spirit and the only true word of God. The Christian soldier must learn to live by this word of God in their
-lives. The Christian soldier is only given one weapon and the rest as defensive armour because he must learn to
-trust in Jesus for his protection and not in himself. The word of God is a shield against Satan. (Proverbs 30:5
-Every word of God is pure: he is a shield unto them that put their trust in him.) Do not think you are so great a
-Christian soldier that you no longer need Jesus to help you. Even the archangel Michael as powerful as he is did
-not rebuke him, but let God rebuke him. (Jude 9 Yet Michael the archangel, when contending with the devil he
-disputed about the body of Moses, durst not bring against him a railing accusation, but said, The Lord rebuke
-thee.) Satan is a powerful being, but he can be defeated if the Christian soldier puts his faith and trust in
-Jesus.
+God told Israel to learn from the ox and ass. (Isaiah 1:3 The ox
+knoweth his owner, and the ass his master's crib: but Israel doth not
+know, my people doth not consider.) God told Israel that the ox knew its
+owner and the ass where his master lives. The ass understands he has a
+master yet Israel did not and people today do not realize that we all have
+a Master as well in Jesus. (Matthew 23:10 Neither be ye called masters:
+for one is your Master, even Christ.) Jesus is still Master whether a
+person is saved or not; he is just not treated as Master by the unsaved,
+but many professing Christians do not give him his due as Master either.
+Israel and many Christians have forgotten who their owner and Master is.
+If a person is a Christian then their body is the temple of the Holy Ghost
+and does not belong to them. (I Corinthians 6:19 What? know ye not that
+your body is the temple of the Holy Ghost which is in you, which ye have
+of God, and ye are not your own?)
 
-     As a Christian soldier we look forward to the day when the fight is over and we no longer need our armour.
-Jesus himself will destroy Satan with the twoedged sword in his mouth. Jesus will speak the word and he will be
-destroyed. All Christians will be a part of the final army of God and will return with Jesus. (Revelation 19:14
-And the armies which were in heaven followed him upon white horses, clothed in fine linen, white and clean.)
-(Revelation 19:21 And the remnant were slain with the sword of him that sat upon the horse, which sword proceeded
-out of his mouth: and all the fowls were filled with their flesh.) As a Christian soldier we must pray every day
-as verse 18 says, not only for ourselves, but for other Christians (saints) as well. As Paul said in verse 19, I
-pray that you all will pray for me to stay strong in the spiritual warfare we are in and to never give up the
-fight. I pray the same for all of you as well. The stronger soldier we become the more spiritual warfare we will
-see.
+(Proverbs 6:4-5 4 Give not sleep to thine eyes, nor slumber to thine
+eyelids.
+5 Deliver thyself as a roe from the hand of the hunter, and as a bird from
+the hand of the fowler.) We see in Proverbs again how God says not to be
+lazy and full of sleep. God says for us to be awake so that we can be
+aware of our surroundings just like the roe (female red deer) who escapes
+from the hand of the hunter who is trying to kill her. Often times deer
+seem to know when hunting season is and they move around much more in
+order to escape becoming a dead deer yet man never seems to learn from
+animals and when God gives them insight in order to avoid danger they
+ignore it. Man will almost always continue towards that danger. This is
+why many people today are on a path to hell as they ignore the danger that
+their spiritual house is on fire and yet they refuse to leave. These
+people want to continue in their sins and avoid God in their lives. God
+also mentions the bird that escapes from the hand of the fowler. These
+animals escape death because they remain vigilant rather than sleep their
+lives away as sluggards. 
 
-     Every Christian needs to get in the fight and become a soldier of God in the Lord's army. Do not sit back and
-watch as others fight. This is a fight for every Christian. Start by doing something to serve Jesus and win souls
-for Jesus. Become a soldier for God today. For the unsaved, know that the battle is already lost for you. Jesus
-said to fear not those who kill the body (man), but rather your soul. (Satan). Never fear dying for God. (Matthew
-10:28 And fear not them which kill the body, but are not able to kill the soul: but rather fear him which is able
-to destroy both soul and body in hell.) Get saved now so that you may too become a Christian soldier and rejoin
-the battle for God and be on the winning side and serve in the Lord's army.
+God says to ask the beasts, the fowls of the air, and the fishes of
+the sea and they will teach us since we do not want to learn from God.
+(Job 12:7-8 7 But ask now the beasts, and they shall teach thee; and the
+fowls of the air, and they shall tell thee:
+8 Or speak to the earth, and it shall teach thee: and the fishes of the
+sea shall declare unto thee.) God says all of the animals can teach man if
+we ask them to just like God will teach us if we ask him to teach us. We
+then need to listen when we are taught. Notice verse 8 has fishes which
+shows the accuracy of the King James Bible as fishes means different kinds
+of fish showing that they all can teach us if we are willing to learn from
+them. (Proverbs 30:19 The way of an eagle in the air; the way of a serpent
+upon a rock; the way of a ship in the midst of the sea; and the way of a
+man with a maid.) God says to see the way of the eagle in the air. The
+eagle will fly around to search below for prey. It does not just sit back
+hoping something will come to it. The eagle places its nest high in trees
+so that it can see far away in the search for food. By being high in the
+sky the eagle is also well protected from predators. (Job 39:27-29 27 Doth
+the eagle mount up at thy command, and make her nest on high?
+28 She dwelleth and abideth on the rock, upon the crag of the rock, and
+the strong place.
+29 From thence she seeketh the prey, and her eyes behold afar off.) Notice
+how an eagle will often times make its nest in the crag (crevice) of a
+rock just like Jesus said to build upon rock. This will make a strong nest
+that will survive the storms of life. This should be a lesson for
+Christians who should be like the eagle that nests high for visual
+discernment and safety as Christians should also always be on the lookout
+for danger from Satan as well as be on the high ground by being right with
+God so they have spiritual discernment to see the danger coming and have
+safety in the nest of Jesus. These lessons can help keep a Christian safe
+and on the right path with God. The serpent gets upon rocks to stay warm
+in the sun. God says we are to be wise like the serpent yet as harmless as
+the dove. (Matthew 10:16 ¶ Behold, I send you forth as sheep in the midst
+of wolves: be ye therefore wise as serpents, and harmless as doves.) Lions
+are strong animals that fear nothing and we as Christians who are walking
+with God have no need to fear either. (Proverbs 30:30 A lion which is
+strongest among beasts, and turneth not away for any;) Just as the hart
+(male red deer) pants after water when it is thirsty, we as Christians
+should pant after God. For those who are not saved they need to have their
+souls convicted so that they might pant after the living water of Jesus so
+that they too might be saved. (Psalm 42:1 As the hart panteth after the
+water brooks, so panteth my soul after thee, O God.) Sheep are dumb
+animals yet they follow the voice of the shepherd. They will easily go
+astray so the shepherd must always keep an eye on them. Jesus compares us
+to sheep who need Jesus as our Shepherd. We like sheep will quickly wander
+towards sin and this is why we need to hear the voice of Jesus the
+Shepherd so that those who are not saved will get saved and for those who
+are saved we need to hear his voice so that we will stay on the path of
+righteousness. (Isaiah 53:6 All we like sheep have gone astray; we have
+turned every one to his own way; and the LORD hath laid on him the
+iniquity of us all.) (John 10:27 My sheep hear my voice, and I know them,
+and they follow me:)
+
+Besides what is found in scripture, nature itself teaches us. Sharks
+are able to sense when a hurricane is coming and they will swim out to
+deeper water to protect themselves yet man will try to go surfing during a
+hurricane in order to catch the big wave. Animals in the forest will run
+away from a forest fire yet man will stay and try to protect private
+property that will one day perish anyway and many lose their lives.
+Animals can sense when a volcano is about to erupt. Prior to Mt. St.
+Helens erupting in 1980 the deer and other wildlife began to leave as they
+could sense the danger. They left to protect their lives yet one man Harry
+Truman (not the president) was not even as wise as these animals and he
+refused to evacuate his home and he perished when the volcano erupted.
+
+Scripture also uses some animals to show us how not to be. The fox is
+a clever, but deceitful animal and this should be a lesson for Christians
+not to try and trick people especially their fellow believers. Too many
+professing Christians are deceitful like the fox. Jesus called Herod a
+fox. (Luke 13:31-32) False prophets as well as those who try to destroy
+the church are compared to wolves. (Acts 20:29 For I know this, that after
+my departing shall grievous wolves enter in among you, not sparing the
+flock.) Just as swine (pigs) enjoy wallowing in the mud, people enjoy
+wallowing in sin. Just like the swine who is cleaned up will return to the
+mud so will the sinner unless they are washed in the blood of Jesus and
+given proper teaching by God. Just as the swine will return to mud so does
+the dog to its vomit, again representing the unrepentant unsaved sinner as
+well as backslidden Christians. Dogs in scripture are always negative and
+represent unholy sinners. We do not want to be like dogs or swine. (II
+Peter 2:22 But it is happened unto them according to the true proverb, The
+dog is turned to his own vomit again; and the sow that was washed to her
+wallowing in the mire.) Fowls in scripture represent devils that snatch
+away the word of God when it is planted by a Christian. (Matthew 13:4, et
+cetera) We need to be aware of such birds who will do this. Many are
+professing Christians in the church who do not want to see people saved.
+Goats in scripture often represent the unsaved such as the unsaved nations
+in the sheep and goat judgment that Jesus will divide the nations into
+after the end of the great tribulation.
+
+We see how God uses animals to teach man as they have rejected the
+teachings of God. God tries to show how foolish man is in that animals are
+wiser than people. God is not condoning worshipping animals. It is just
+the opposite in that God wants man to see how he needs to learn from the
+animals and listen to God instead of themselves. These animals all have
+the wisdom that they have because God created them with it. God also gave
+man wisdom, but he rejected it. God wants all people to turn to his Son
+Jesus and be saved and once again receive the wisdom that was intended by
+God. Animals listen to God and now man needs to. Even the lowest of God's
+creation are wiser than most men. It is complete foolishness to reject the
+wisdom of God. For those who lack wisdom ask God for it and he will give
+it to you willingly and liberally in abundance. He will not hold back.
+(James 1:5 If any of you lack wisdom, let him ask of God, that giveth to
+all men liberally, and upbraideth not; and it shall be given him.) Call
+upon Jesus today if you have learned from the animals and what scripture
+has to say.
 
 Search for: _____________________  [ Search ]
 
@@ -385,14 +499,14 @@ Archives
 
 Categories
 
-o No categories
+• No categories
 
 Meta
 
-o Log in
-o Entries feed
-o Comments feed
-o WordPress.org
+• Log in
+• Entries feed
+• Comments feed
+• WordPress.org
 
 Created my free logo at LogoMakr.com
 
