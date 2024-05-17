@@ -5532,6 +5532,13 @@ It's the same gospel. We must follow the light: Jesus:
   Mark 8:35 - For whoever would save his life will lose it, but whoever loses his life for my sake and the
   gospel's will save it. (ESV)
 
+  John 3:14-16 - And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up,
+  that whoever believes in him may have eternal life. For God so loved the world, that he gave his only Son,
+  that whoever believes in him should not perish but have eternal life. (ESV)
+
+  John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him should
+  have eternal life, and I will raise him up on the last day. (ESV)
+
   Mark 10:19-30 - You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear
   false witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have
   kept from my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all
@@ -9051,6 +9058,17 @@ and walking according to Jesus' commandments go hand in hand:
 
 15.1. You can't work for justification. We must have faith on God justifying us even though we are ungodly
 
+Firstly, God owns everything. Whatever we give God, he already owned. Neither do we give God wages as if we were
+the previous owner of our gift. And we don't give God advice:
+
+  Romans 11:34-36 - For who has known the mind of the Lord, or who has been his counselor? Or who has given a gift
+  to him that he might be repaid? For from him and through him and to him are all things. To him be glory forever.
+  Amen. (ESV)
+
+We just depend on and trust and hope on God to justify us, to commend us, to give us mercy:
+
+  Romans 9:16 - So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
+
 My best understanding of Romans 4:4 is: "The person who works receives wages, but the wages are not a gift, but
 the person does receive reward which is due for his work." - But that's not good enough. We need to accept the
 gift of salvation from God. So working is not good enough, we must submit to the righteousness of God and accept
@@ -11177,6 +11195,13 @@ pisteuo = to have faith upon
 
   John 3:36 - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall
   not see life, but the wrath of God remains on him. (ESV)
+
+  John 3:14-16 - And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, that
+  whoever believes in him may have eternal life. For God so loved the world, that he gave his only Son, that
+  whoever believes in him should not perish but have eternal life. (ESV)
+
+  John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him should
+  have eternal life, and I will raise him up on the last day. (ESV)
 
   John 3:16 - "For God so loved (G25 agapao) the world (G2889 kosmos), that He gave His only (G3439 monogenes)
   begotten (G3439 monogenes) Son (G5207 huios), that whoever believes (G4100 pisteuo) in Him shall not perish, but
@@ -24022,6 +24047,14 @@ salvation from Jesus:
   Deuteronomy 7:9 - Know therefore that the LORD your God is God, the faithful God who keeps covenant and
   steadfast love with those who love him and keep his commandments, to a thousand generations, (ESV)
 
+Sermon
+John Piper - To Him Be Glory Forever - YouTube
+
+  Romans 11:33-36 - Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his
+  judgments and how inscrutable his ways! For who has known the mind of the Lord, or who has been his counselor?
+  Or who has given a gift to him that he might be repaid? For from him and through him and to him are all things.
+  To him be glory forever. Amen. (ESV)
+
 64.1. Jesus is the Only Way to Father God
 
   John 14:1-6 - Let not your hearts be troubled. Believe in God; believe also in me. In my Father's house are many
@@ -25653,7 +25686,7 @@ Date: 2024-05-18 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-18 Sat 09:23
+Created: 2024-05-18 Sat 10:04
 
 Validate
 

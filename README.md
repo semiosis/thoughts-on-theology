@@ -228,7 +228,7 @@ Those who trust Jesus and believe Jesus is the Son of God, now being far more ob
 
 > **I John 5:1-3** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
-We don't justify ourselves. The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking car of them with mercy:
+We don't justify ourselves. The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking care of them with mercy:
 
 > **Luke 10:25-37** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
@@ -724,7 +724,8 @@ We put our hope on Him to be our High Priest and Advocate, we obey Him as He sav
 These should really go hand in hand:
 
 -   Believing in Jesus Christ for His finished work to receive justification and eternal life and remain in relationship with Father God and with Jesus
--   Obeying Jesus Christ to be saved from the wrath of God should really go hand-in-hand.
+-   Obeying Jesus Christ (repenting from sin, loving God and your neighbour) to be saved from the wrath of God should really go hand-in-hand.
+    -   [Toss Me in the Water - YouTube @time: 3 min 37 sec](https://youtube.com/watch?v=h_HbG0zROW8&t=217)
 
 > **John 17:3** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
 
@@ -733,8 +734,8 @@ Being justified by Jesus' blood, we are saved by Him from the wrath of God:
 > **Romans 5:9** - Since, therefore, we have now been justified by his blood, much more shall we be <ins>saved by him from the wrath of God.</ins> (ESV)
 
 -   Immediately we are reconciled to God by the death of His Son,
--   and then we are saved from the wrath of God by His life.
--   Also, we meanwhile rejoice in God through our Lord Jesus Christ
+-   and then we are saved from the wrath of God by His life, repenting from sin and keeping His commandments,
+-   also, we meanwhile rejoice in God through our Lord Jesus Christ
 
 > **Romans 5:8-11** - but God shows his love for us in that while we were still sinners, Christ died for us. Since, therefore, we have now been justified by his blood, much more shall we be saved by him from the wrath of God. For if while we were enemies we were reconciled to God by the death of his Son, much more, now that we are reconciled, shall we be saved by his life. More than that, we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation. (ESV)
 
@@ -2790,6 +2791,8 @@ The grace given to Paul allowed him to turn from his evil ways and pursue Jesus,
 
 > **Acts 2:47** - Praising God, and having favour with all the people. And the Lord added to the church daily such as should be saved. (ESV)
 
+[John Piper's Sermon with Scripture only - YouTube](https://www.youtube.com/watch?v=ldag_fIFnqg)
+
 
 ### Living a godly life in Christ Jesus is part of the gospel
 
@@ -3878,6 +3881,10 @@ We must obey! This obedience is being led by the Spirit.
     It's the same gospel. We must follow the light: Jesus:
     
     > **Mark 8:35** - For whoever would save his life will lose it, but whoever loses his life for my sake and the gospel's will save it. (ESV)
+    
+    > **John 3:14-16** - And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, that whoever believes in him may have eternal life. For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. (ESV)
+    
+    > **John 6:40** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. (ESV)
     
     > **Mark 10:19-30** - You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear false witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have kept from my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the saying, he went away sorrowful, for he had great possessions. And Jesus looked around and said to his disciples, How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! It is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. And they were exceedingly astonished, and said to him, Then who can be saved? Jesus looked at them and said, With man it is impossible, but not with God. For all things are possible with God. Peter began to say to him, See, we have left everything and followed you. Jesus said, Truly, I say to you, there is no one who has left house or brothers or sisters or mother or father or children or lands, for my sake and for the gospel, who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with persecutions, and in the age to come eternal life. (ESV)
     
@@ -6186,7 +6193,7 @@ And I do not believe the following verse necessarily is talking about justificat
 
 -   **sesōsmenoi (saved):** <https://biblehub.com/greek/seso_smenoi_4982.htm>
 
-We don't justify ourselves. The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking car of them with mercy:
+We don't justify ourselves. The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking care of them with mercy:
 
 > **Luke 10:25-37** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
@@ -6274,6 +6281,14 @@ Jesus' commandments are all about selfless love. We must abide in Jesus' teachin
 
 
 ## You can't work for justification. We must have faith on God justifying us even though we are ungodly
+
+Firstly, God owns everything. Whatever we give God, he already owned. Neither do we give God wages as if we were the previous owner of our gift. And we don't give God advice:
+
+> **Romans 11:34-36** - For who has known the mind of the Lord, or who has been his counselor? Or who has given a gift to him that he might be repaid? For from him and through him and to him are all things. To him be glory forever. Amen. (ESV)
+
+We just depend on and trust and hope on God to justify us, to commend us, to give us mercy:
+
+> **Romans 9:16** - So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
 
 My best understanding of **Romans 4:4** is: "The person who works receives wages, but **the wages are not a gift**, but the person does receive reward which is due for his work." - But that's not good enough. We need to accept the gift of salvation from God. So working is not good enough, we must submit to the righteousness of God and accept the gift for forgiveness because we don't deserve the gift of Salvation what God has given us as a gift, by the shedding of Jesus Christ's blood.
 
@@ -7196,7 +7211,7 @@ Actually, our faith and hope and heart's desire and our walking in faith should 
     23  Faith-in-God must submit to the Righteousness of God through faith in Jesus Christ,
     24  Jesus Christ having paid the price of sin, enabling a relationship with God.
 
-Something like this:
+> **I Corinthians 13:1-8** - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and <ins>if I have all **faith**, so as to remove mountains, but have not **love**, I am nothing</ins>. <ins>If I give away all I have, and if I deliver up my body to be burned, but have not **love**, I gain nothing.</ins> Love is patient and kind; love does not envy or boast; it is not arrogant or rude. **It does not insist on its own way**; it is not irritable or resentful; it <ins>does not rejoice at wrongdoing</ins>, but **rejoices with the truth**. Love <ins>bears all things, believes all things, hopes all things, endures all things. Love never ends</ins>. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
 
 > **I Thessalonians 1:3** - remembering before our God and Father your work of faith and labor of love and steadfastness of hope in our Lord Jesus Christ. (ESV)
 
@@ -7773,6 +7788,10 @@ And <ins>willing</ins> to do the will of God must become <ins>'doing'</ins>.
 `pisteuo = to have faith upon`
 
 > **John 3:36** - Whoever believes (G4100 **pisteuo**) in the Son has eternal life; whoever does not **obey** the Son shall not see life, but the wrath of God remains on him. (ESV)
+
+> **John 3:14-16** - And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, that whoever believes in him may have eternal life. For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. (ESV)
+
+> **John 6:40** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. (ESV)
 
 > **John 3:16** - "For God so loved (G25 agapao) the world (G2889 kosmos), that He gave His only (G3439 monogenes) begotten (G3439 monogenes) Son (G5207 huios), that whoever believes (G4100 pisteuo) in Him shall not perish, but have eternal (G166 aionios) life (G2222 zoe).
 
@@ -8913,6 +8932,11 @@ An obedient heart is required for it to not be 'dead faith'.
 
 
 ## Saving faith
+
+We were saved in this hope, but we still continue to hope:
+s
+
+> **Romans 8:23-25** - And not only the creation, but **we ourselves, who have the firstfruits of the Spirit**, groan inwardly as we **wait eagerly for adoption as sons, the redemption of our bodies**. For **in this hope we were saved**. Now hope that is seen is not hope. For who hopes for what he sees? But if we hope for what we do not see, we wait for it with patience. (ESV)
 
 
 ### believing on Jesus
@@ -17533,6 +17557,10 @@ There are other instances of this - it's faith in Jesus which makes a person wel
 > **Romans 1:18-25** - For the wrath of God is revealed from heaven against all ungodliness and unrighteousness of men, who by their unrighteousness suppress the truth. For what can be known about God is plain to them, because God has shown it to them. For his invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made. So they are without excuse. For although they knew God, they did not honor him as God or give thanks to him, but they became futile in their thinking, and their foolish hearts were darkened. Claiming to be wise, they became fools, and exchanged the glory of the immortal God for images resembling mortal man and birds and animals and reptiles. Therefore God gave them up in the lusts of their hearts to impurity, to the dishonoring of their bodies among themselves, because they exchanged the truth about God for a lie and worshiped and served the creature rather than the Creator, who is blessed forever! Amen.
 
 > **Deuteronomy 7:9** - Know therefore that the LORD your God is God, the faithful God who keeps covenant and steadfast love with those who love him and keep his commandments, to a thousand generations, (ESV)
+
+-   **Sermon:** [John Piper - To Him Be Glory Forever - YouTube](https://www.youtube.com/watch?v=LJ8dLCgAkZ4)
+
+> **Romans 11:33-36** - Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his judgments and how inscrutable his ways! For who has known the mind of the Lord, or who has been his counselor? Or who has given a gift to him that he might be repaid? For from him and through him and to him are all things. To him be glory forever. Amen. (ESV)
 
 
 ## Jesus is the Only Way to Father God
