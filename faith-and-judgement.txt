@@ -2253,6 +2253,14 @@ So we want to have a response of love for Jesus:
   Everyone to whom much was given, of him much will be required, and from him to whom they entrusted much, they
   will demand the more. (ESV)
 
+As a husband loves his wife, so Jesus loves us. As a wife respects her husband, so must the members of Christ's
+body respect Christ:
+
+  Ephesians 5:30-33 - because we are members of his body. Therefore a man shall leave his father and mother and
+  hold fast to his wife, and the two shall become one flesh. This mystery is profound, and I am saying that it
+  refers to Christ and the church. However, let each one of you love his wife as himself, and let the wife see
+  that she respects her husband. (ESV)
+
 Jesus is so generous that He saves people who turn out to be unthankful, but we should definitely love Jesus as a
 response. This story should be taken not only to see how Good God is, but also taken as a warning against
 unthankfulness:
@@ -25197,7 +25205,7 @@ Jesus and trusting in the Truth, and obeying, we are cleaned, transformed and ma
   II Thessalonians 1:10 - when he comes on that day to be glorified in his saints, and to be marveled at among all
   who have believed, because our testimony to you was believed.
 
-70.0.1. Glorification is Christ-likeness
+70.1. Glorification is Christ-likeness
 
 We are trying to shine the Truth of Jesus Christ and Jesus' gospel.
 
@@ -25241,7 +25249,7 @@ Abram did this too. It's a necessary act of faith.
   Genesis 15:1 - After these things the word of the Lord came to Abram in a vision: Fear not, Abram, I am your
   shield; your reward shall be very great.
 
-70.0.2. True obedience leads to glory/holiness/Christ-likeness
+70.2. True obedience leads to glory/holiness/Christ-likeness
 
 For example, to truly obey God and love / do no harm to one's neighbour involves relieving other's burdens as they
 ask more from you.
@@ -25265,7 +25273,7 @@ choose to forgive others and lighten their burdens - grace propagates.
   Hebrews 12:10 - For they disciplined us for a short time as it seemed best to them, but he disciplines us for
   our good, that we may share his holiness.
 
-70.0.3. Forgive others' offenses towards you is glory
+70.3. Forgive others' offenses towards you is glory
 
   Proverbs 19:11 - Good sense makes one slow to anger, and it is his glory to overlook an offense. (ESV)
 
@@ -25327,7 +25335,7 @@ We are instructed to forward grace to others:
   Matthew 10:8 - Heal the sick, raise the dead, cleanse lepers, cast out demons. You received without paying; give
   without pay. (ESV)
 
-70.0.4. Be extremely generous - give without limits to relieve the burdens of others
+70.4. Be extremely generous - give without limits to relieve the burdens of others
 
   Matthew 10:8 - Heal the sick, raise the dead, cleanse lepers, cast out demons. You received without paying; give
   without pay. (ESV)
@@ -25358,7 +25366,7 @@ Paul commends giving even beyond their means. This is in accordance with the wid
   their own free will, begging us earnestly for the favor of taking part in the relief of the saints- and this,
   not as we expected, but they gave themselves first to the Lord and then by the will of God to us. (ESV)
 
-70.0.5. Do the good works which have been gifted to you
+70.5. Do the good works which have been gifted to you
 
 Our works have been gifted to us by God's grace - works of deed and word:
 
@@ -25373,12 +25381,12 @@ God chose us and called us out of darkness into His marvelous light to proclaim 
   Matthew 5:16 - In the same way, let your light shine before others, so that they may see your good works and
   give glory to your Father who is in heaven. (ESV)
 
-70.0.6. Walk in righteousness
+70.6. Walk in righteousness
 
   Daniel 12:3 - And those who are wise shall shine like the brightness of the sky above; and those who turn many
   to righteousness, like the stars forever and ever. (ESV)
 
-70.0.7. The deeds of glory - Christlikeness
+70.7. The deeds of glory - Christlikeness
 
   Hebrews 3:14 - For we share in Christ, if indeed we hold our original confidence firm to the end. (ESV)
 
@@ -25487,7 +25495,7 @@ And in Jesus Christ there is no sin:
   I John 3:5-6 - You know that he appeared to take away sins, and in him there is no sin. No one who abides in him
   keeps on sinning; no one who keeps on sinning has either seen him or known him.
 
-70.0.8. Seeing Jesus, appearing in glory
+70.8. Seeing Jesus, appearing in glory
 
   1 John 3:2 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that when
   he appears we shall be like him, because we shall see him as he is. (ESV)
@@ -25512,7 +25520,7 @@ And in Jesus Christ there is no sin:
   John 6:39 - And this is the will of him who sent me, that I should lose nothing of all that he has given me, but
   raise it up on the last day. (ESV)
 
-70.0.9. The putting off of the body
+70.9. The putting off of the body
 
   II Peter 1:13-21 - I think it right, as long as I am in this body, to stir you up by way of reminder, since I
   know that the putting off of my body will be soon, as our Lord Jesus Christ made clear to me. And I will make
@@ -25526,7 +25534,7 @@ And in Jesus Christ there is no sin:
   from someone's own interpretation. For no prophecy was ever produced by the will of man, but men spoke from God
   as they were carried along by the Holy Spirit.
 
-70.0.10. I think to relax commandments is throw away glorification
+70.10. I think to relax commandments is throw away glorification
 
   Matthew 5:19 - Therefore whoever relaxes one of the least of these commandments and teaches others to do the
   same will be called least in the kingdom of heaven, but whoever does them and teaches them will be called great
@@ -25837,7 +25845,7 @@ Date: 2024-05-18 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-18 Sat 20:15
+Created: 2024-05-18 Sat 20:25
 
 Validate
 
