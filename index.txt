@@ -5073,6 +5073,9 @@ Jesus was with Father God in the beginning:
 
 AMEN!!
 
+Song
+He is Jehovah | by Betty Jean Robinson - YouTube
+
 Jehovah is God Almighty:
 
   Exodus 6:3 - I appeared to Abraham, to Isaac, and to Jacob, as God Almighty, but by my name the LORD I did not
@@ -25834,7 +25837,7 @@ Date: 2024-05-18 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-18 Sat 18:26
+Created: 2024-05-18 Sat 20:15
 
 Validate
 
