@@ -1121,11 +1121,31 @@ I just want to be clear that good works we do in obedience to Jesus are still co
     3   from a primary (but obsolete) ergo (to work); toil (as an effort or
     4   occupation); by implication, an act:--deed, doing, labour, work.
 
-Work being done by God in us to sanctify us and bring us everlasting life **is** work done in faith.
+Work being done by God in us to sanctify us and bring us fruit for everlasting life **is** work done in faith:
+
+> **Romans 6:22** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. (ESV)
+
+> **Matthew 3:8** - Bear fruit in keeping with repentance. (ESV)
+
+We must be abiding in Jesus to produce fruit, and that means we must have faith in Jesus:
+
+> **John 15:4** - Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. (ESV)
+
+OK, so we should confess that Jesus is the Son of God and continue obeying Him in faith:
+
+> **I John 4:15** - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
 So the problem isn't work (even work relating to salvation) but the problem is work that is not done in faith (i.e. dead work).
 
+> **Hebrews 6:1** - Therefore let us leave the elementary doctrine of Christ and go on to maturity, not laying again a foundation of repentance from dead works and of faith toward God, (ESV)
+
+The faith Paul talks about is faith towards God. The faith towards God believes God and believes Jesus:
+
+> **Romans 14:23** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
 > I believe that anyone who trusts (is trusting) in the Lord Jesus Christ for their salvation, even they have no works, but only a trusting heart, believing what Jesus said, and putting their hope in Jesus for their salvation, <ins>repentant and willing to obey (obedient),</ins> theoretically are to be in Christ if God does it. I consider that obedience to Jesus and turning away from sin is essential to be found in Him. If someone dies while trusting in Him they will live. If someone trusts in Him while they live they will never die.
+
+-   **Song:** [Hillsong+Delirious? - History Maker - YouTube](https://www.youtube.com/watch?v=jM8M_xgKbrc)
 
 
 ## Eternal security for those who follow Jesus
