@@ -17,6 +17,13 @@ I agree whole heartedly with John Piper here:
 -   [The Blazing Center by John Piper - YouTube](https://www.youtube.com/watch?v=4ltvYtwMef4)
 -   [John Piper - God's Delight in Obedience - YouTube](https://www.youtube.com/watch?v=tqtl-sXeTmA)
 -   [His Voice in Yours: How Christ Wins the World - YouTube](https://www.youtube.com/watch?v=fYJ1oFqSgv4)
+-   [God is the Gospel - YouTube](https://www.youtube.com/watch?v=duJhsyAjhNg)
+
+To be able to have affection for God and treasure God, and have a desire for God is such a gift&#x2026;. Thank you John Piper for helping me to see that, and lead me into that truth&#x2026; It makes so much sense in hindsight. Nothing in this world could replace the gift of being able to know God Himself and have an affectionate, treasuring, obedient, believing, desiring love for God.
+
+> **Romans 6:23** - For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
+> **John 17:3** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
 
 
 # Heidelberg Catechism
@@ -8030,6 +8037,16 @@ Therefore, the way of truth involves following Jesus and putting a stop to sin.
 The guy was still coveting his possessions. To find life, one needs to let go of covetousness:
 
 > **Luke 12:15** - And he said to them, Take care, and be on your guard against all covetousness, for one's life does not consist in the abundance of his possessions. (ESV)
+
+[God is the Gospel - YouTube @time: 45 min 31 sec](https://youtube.com/watch?v=duJhsyAjhNg&t=2731)
+
+-   **Quote from John Piper:** The prosperity gospel is no gospel because what it does is offer to people what they want as natural people.
+
+Amen to that.
+
+The reason we want to be righteous is so we get God.
+
+[God is the Gospel - YouTube @time: 40 min 42 sec](https://youtube.com/watch?v=duJhsyAjhNg&t=2442)
 
 
 ## Justifying faith should result in going from disobedient to obedient
