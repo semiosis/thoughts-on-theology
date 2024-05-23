@@ -472,7 +472,7 @@ The Apostle John also commands us to:
 
 Whoever keeps His **commandments** (plural) abides in Jesus, and Jesus in them. Yes, so I think we must believe Jesus and obey Him:
 
-> **I John 3:24** - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+> **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
 
 > **John 14:10-15** - Do you not believe that I am in the Father and the Father is in me? The words that I say to you I do not speak on my own authority, but <ins>the Father who dwells in me does his works.</ins> Believe me that I am in the Father and the Father is in me, or else believe on account of the works themselves. Truly, truly, I say to you, **whoever believes in me will also do the works that I do;** and greater works than these will he do, because I am going to the Father. Whatever you ask in my name, this I will do, that the Father may be glorified in the Son. If you ask me anything in my name, I will do it. <ins>If you love me, you will keep my commandments.</ins> (ESV)
 
@@ -2254,6 +2254,11 @@ We must come to Jesus for eternal life:
 > **John 5:39-40** - You search the Scriptures because you think that in them you have eternal life; and it is they that bear witness about me, yet you refuse to come to me that you may have life. (ESV)
 
 
+### As we come to Jesus, we are conformed to His image
+
+> **Romans 8:29** - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. (ESV)
+
+
 ### Peter was quick to belief, and his belief led to obedience
 
 > **Matthew 16:15-18** - He said to them, But who do you say that I am? Simon Peter replied, You are the Christ, the Son of the living God. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For flesh and blood has not revealed this to you, but my Father who is in heaven. And I tell you, you are Peter, and on this rock I will build my church, and the gates of hell shall not prevail against it. (ESV)
@@ -2303,6 +2308,10 @@ Therefore, I believe that believing Jesus is the Christ (Messiah), the Son of Go
 Obedience should grow. A change should have taken place in the person's life:
 
 > **John 14:12** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+The Holy Spirit leads us:
+
+> **Romans 8:14-17** - For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of slavery to fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that we are children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
 
 We must have believing, obedient faith in God regarding Jesus Christ His Son as Abraham had faith in God:
 
@@ -6757,6 +6766,8 @@ The Holy Spirit still goes to those who obey Jesus:
 
 > **Acts 5:32** - And we are witnesses to these things, and so is **the Holy Spirit**, whom <ins>God has given to those who obey him.</ins> (ESV)
 
+> **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And <ins>by this we know that he abides in us, by the Spirit whom he has given us.</ins> (ESV)
+
 It's extremely important to have a response of love for Jesus, and to do the good works which we have been created in Christ Jesus to do, but Jesus also saves people who turn out to be unthankful:
 
 > **Luke 17:11-19** - On the way to Jerusalem he was passing along between Samaria and Galilee. And as he entered a village, he was met by ten lepers, who stood at a distance and lifted up their voices, saying, Jesus, Master, have mercy on us. When he saw them he said to them, Go and show yourselves to the priests. And as they went they were cleansed. Then one of them, when he saw that he was healed, turned back, praising God with a loud voice; and he fell on his face at Jesus' feet, giving him thanks. Now he was a Samaritan. Then Jesus answered, Were not ten cleansed? Where are the nine? Was no one found to return and give praise to God except this foreigner? And he said to him, Rise and go your way; your faith has made you well. (ESV)
@@ -9059,6 +9070,8 @@ If we teach others to annul even the least of the commandments and annul them ou
 
 > **Acts 5:32** - And we are witnesses to these things, and so is **the Holy Spirit**, whom God has given <ins>to those who obey him</ins>. (ESV)
 
+> **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And <ins>by this we know that he abides in us, by the Spirit whom he has given us.</ins> (ESV)
+
 > **Galatians 3:14** - so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith.
 
 
@@ -9079,6 +9092,8 @@ Otherwise why would God make a distinction in Exodus 16 between commandments (mi
 > **Exodus 20:6** - but showing steadfast love to thousands of those who love me and keep my commandments. (ESV)
 
 > **Exodus 34:28** - So he was there with the Lord forty days and forty nights. He neither ate bread nor drank water. And he wrote on the tablets the words of the covenant, the Ten Commandments. (ESV)
+
+> **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And <ins>by this we know that he abides in us, by the Spirit whom he has given us.</ins> (ESV)
 
 1.  The Apostles also placed requirements on the Gentiles similar to the 10 commandments
 
@@ -11637,7 +11652,7 @@ We've got to believe Jesus:
 
 Living as Jesus instructed us to live. Living as Jesus also lived.
 
-> **I John 3:24** - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+> **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
 
 > **John 15:13** - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
 
@@ -18339,6 +18354,16 @@ Receiving is a mixture of believing, obeying, trusting, believing to receive - a
 
 > **Galatians 3:3-6** - Are you so foolish? Having begun by the Spirit, are you now being perfected by the flesh? <ins>Did you suffer so many things</ins> in vain—if indeed it was in vain? Does he who supplies the Spirit to you and works miracles among you do so by works of the law, or by <ins>hearing with faith—</ins> just as Abraham believed God, and it was counted to him as righteousness?
 
+We are to be conformed into Christ's image:
+
+> **Romans 8:29** - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. (ESV)
+
+It makes sense to me that being conformed into Christ's image and knowing Father God and Jesus Christ who God has sent would be contemporaneous:
+
+> **John 17:3** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
+
+> **Jude 1:25** - to the only God, our Savior, through Jesus Christ our Lord, be glory, majesty, dominion, and authority, before all time and now and forever. Amen. (ESV)
+
 
 ## Inheriting the promises made to Abraham and to Christ
 
@@ -18664,6 +18689,10 @@ Likewise, we must obey God, and obey God by obeying Jesus, and being sanctified 
 > **John 17:8-26** - For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me.  I am praying for them. I am not praying for the world but for those whom you have given me, for they are yours.  All mine are yours, and yours are mine, and <ins>I am glorified in them</ins>.  And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have given me, that they may be one, even as we are one.  While I was with them, I kept them in your name, which you have given me. I have guarded them, and not one of them has been lost except the son of destruction, that the Scripture might be fulfilled.  But now I am coming to you, and these things I speak in the world, that they may have my joy fulfilled in themselves.  I have given them your word, and the world has hated them because they are not of the world, just as I am not of the world.  I do not ask that you take them out of the world, but that you keep them from the evil one.  They are not of the world, just as I am not of the world.  Sanctify them in the truth; your word is truth.  As you sent me into the world, so I have sent them into the world.  And for their sake I consecrate myself, that they also may be sanctified in truth.  I do not ask for these only, but also for those who will believe in me through their word, that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me.  The glory that you have given me I have given to them, that they may be one even as we are one, I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me.  Father, I desire that they also, whom you have given me, may be with me where I am, to see my glory that you have given me because you loved me before the foundation of the world.  O righteous Father, even though the world does not know you, I know you, and these know that you have sent me.  I made known to them your name, and I will continue to make it known, that the love with which you have loved me may be in them, and I in them.
 
 > **II Thessalonians 1:10** - when he comes on that day to be glorified in his saints, and to be marveled at among all who have believed, because our testimony to you was believed.
+
+We are to be conformed into Christ's image:
+
+> **Romans 8:29** - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. (ESV)
 
 
 ## Glorification is Christ-likeness
@@ -19037,6 +19066,10 @@ I have the Spirit of God in me:
 
 > **Romans 8:9** - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
+We are to be conformed into Christ's image:
+
+> **Romans 8:29** - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order that he might be the firstborn among many brothers. (ESV)
+
 
 # Praising and thanking God in Heaven:
 
@@ -19121,6 +19154,8 @@ Believing Father God Jehovah, loving Him, obeying His commandments, loving and o
 > **I John 5:1-3** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when **we love God and obey his commandments**. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
 > **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me.
+
+> **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And <ins>by this we know that he abides in us, by the Spirit whom he has given us.</ins> (ESV)
 
 
 ## For one's work to stand the test of fire
