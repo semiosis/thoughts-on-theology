@@ -3170,6 +3170,14 @@ Obedience should grow. A change should have taken place in the person's life:
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
 
+The Holy Spirit leads us:
+
+  Romans 8:14-17 - For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of
+  slavery to fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba!
+  Father! The Spirit himself bears witness with our spirit that we are children of God, and if children, then
+  heirs-heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be
+  glorified with him. (ESV)
+
 We must have believing, obedient faith in God regarding Jesus Christ His Son as Abraham had faith in God:
 
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
@@ -9741,6 +9749,9 @@ The Holy Spirit still goes to those who obey Jesus:
   Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
   obey him. (ESV)
 
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
 It's extremely important to have a response of love for Jesus, and to do the good works which we have been created
 in Christ Jesus to do, but Jesus also saves people who turn out to be unthankful:
 
@@ -13101,6 +13112,9 @@ condemn us but is prideful and result in being called the least in the Kingdom.
   Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
   obey him. (ESV)
 
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
   Galatians 3:14 - so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might
   receive the promised Spirit through faith.
 
@@ -13129,6 +13143,9 @@ Otherwise why would God make a distinction in Exodus 16 between commandments (mi
 
   Exodus 34:28 - So he was there with the Lord forty days and forty nights. He neither ate bread nor drank water.
   And he wrote on the tablets the words of the covenant, the Ten Commandments. (ESV)
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
 
  1. The Apostles also placed requirements on the Gentiles similar to the 10 commandments
 
@@ -26218,6 +26235,9 @@ must be true together, even to have a sound definition of what love is:
   John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
   came not of my own accord, but he sent me.
 
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
 78.2. For one's work to stand the test of fire
 
 It should be:
@@ -26286,7 +26306,7 @@ Date: 2024-05-23 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-23 Thu 20:59
+Created: 2024-05-23 Thu 21:19
 
 Validate
 
