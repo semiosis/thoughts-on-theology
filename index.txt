@@ -5343,110 +5343,108 @@ God the Father and God the Son are one.
 
 Yeshua, Jesus                                           Yahweh, Jehovah
 
-Isaiah 40:3 - A voice cries: In the
-Mark 1:3 - the voice of one crying in the wilderness: Prepare the  wilderness prepare the way of the LORD; make
-way of the Lord, make his paths straight, (ESV)                    straight in the desert a highway for our God.
-(ESV)
-Mark 2:7 - Why does this man speak like that? He is blaspheming!   Isaiah 43:25 - I, I am he who blots out your
-Who can forgive sins but God alone? (ESV)                          transgressions for my own sake, and I will
-not remember your sins. (ESV)
-Mark 3:27 - But no one can enter a strong man's house and plunder
-his goods, unless he first binds the strong man. Then indeed he    He has authority to do this.
-may plunder his house. (ESV)
-Psalms 107:28-29 - Then they cried to the
-Mark 4:38 - But he was in the stern, asleep on the cushion. And    LORD in their trouble, and he delivered them
-they woke him and said to him, Teacher, do you not care that we    from their distress. He made the storm be
-are perishing? (ESV)                                               still, and the waves of the sea were hushed.
-(ESV)
-Mark 5:35-43 - While he was still speaking, there came from the    I Kings 17:21-22 - Then he stretched himself
-ruler's house some who said, Your daughter is dead. Why trouble    upon the child three times and cried to the
-the Teacher any further? But overhearing what they said, Jesus     Lord, O Lord my God, let this child's life
-said to the ruler of the synagogue, Do not fear, only believe.     come into him again. And the Lord listened to
-And he allowed no one to follow him except Peter and James and     the voice of Elijah. And the life of the
-John the brother of James. They came to the house of the ruler of  child came into him again, and he revived. 2
-the synagogue, and Jesus saw a commotion, people weeping and       Kings 4:32-35 - When Elisha came into the
-wailing loudly. And when he had entered, he said to them, Why are  house, he saw the child lying dead on his
-you making a commotion and weeping? The child is not dead but      bed. So he went in and shut the door behind
-sleeping. And they laughed at him. But he put them all outside     the two of them and prayed to the LORD. Then
-and took the child's father and mother and those who were with     he went up and lay on the child, putting his
-him and went in where the child was. Taking her by the hand he     mouth on his mouth, his eyes on his eyes, and
-said to her, Talitha cumi, which means, Little girl, I say to      his hands on his hands. And as he stretched
-you, arise. And immediately the girl got up and began walking      himself upon him, the flesh of the child
-(for she was twelve years of age), and they were immediately       became warm. Then he got up again and walked
-overcome with amazement. And he strictly charged them that no one  once back and forth in the house, and went up
-should know this, and told them to give her something to eat.      and stretched himself upon him. The child
-(ESV)                                                              sneezed seven times, and the child opened his
-eyes. (ESV)
-Mark 6:48 - And he saw that they were making headway painfully,
-for the wind was against them. And about the fourth watch of the   Job 9:8 - who alone stretched out the heavens
-night he came to them, walking on the sea. He meant to pass by     and trampled the waves of the sea; (ESV)
-them, (ESV)
-Mark 7:31-47 - Then he returned from the region of Tyre and went
-through Sidon to the Sea of Galilee, in the region of the
-Decapolis. And they brought to him a man who was deaf and had a
-speech impediment, and they begged him to lay his hand on him.
-And taking him aside from the crowd privately, he put his fingers
-into his ears, and after spitting touched his tongue. And looking
-up to heaven, he sighed and said to him, Ephphatha, that is, Be
-opened. And his ears were opened, his tongue was released, and he
-spoke plainly. And Jesus charged them to tell no one. But the
-more he charged them, the more zealously they proclaimed it. And
-they were astonished beyond measure, saying, He has done all
-things well. He even makes the deaf hear and the mute speak. In
-those days, when again a great crowd had gathered, and they had
-nothing to eat, he called his disciples to him and said to them,   Exodus 4:11 - Then the LORD said to him, Who
-I have compassion on the crowd, because they have been with me     has made man's mouth? Who makes him mute, or
-now three days and have nothing to eat. And if I send them away    deaf, or seeing, or blind? Is it not I, the
-hungry to their homes, they will faint on the way. And some of     LORD? (ESV)
-them have come from far away. And his disciples answered him, How
-can one feed these people with bread here in this desolate place?
-And he asked them, How many loaves do you have? They said, Seven.
-And he directed the crowd to sit down on the ground. And he took
-the seven loaves, and having given thanks, he broke them and gave
-them to his disciples to set before the people; and they set them
-before the crowd. And they had a few small fish. And having
-blessed them, he said that these also should be set before them.
-And they ate and were satisfied. And they took up the broken
-pieces left over, seven baskets full. And there were about four
-thousand people. And he sent them away. And immediately he got
-into the boat with his disciples and went to the district of
+Mark 1:3 - the voice of one crying in the wilderness:        Isaiah 40:3 - A voice cries: In the wilderness
+Prepare the way of the Lord, make his paths straight, (ESV)  prepare the way of the LORD; make straight in the
+desert a highway for our God. (ESV)
+Mark 2:7 - Why does this man speak like that? He is          Isaiah 43:25 - I, I am he who blots out your
+blaspheming! Who can forgive sins but God alone? (ESV)       transgressions for my own sake, and I will not
+remember your sins. (ESV)
+Mark 4:38 - But he was in the stern, asleep on the cushion.  Psalms 107:28-29 - Then they cried to the LORD in
+And they woke him and said to him, Teacher, do you not care  their trouble, and he delivered them from their
+that we are perishing? (ESV)                                 distress. He made the storm be still, and the waves
+of the sea were hushed. (ESV)
+Mark 5:35-43 - While he was still speaking, there came from
+the ruler's house some who said, Your daughter is dead. Why  I Kings 17:21-22 - Then he stretched himself upon
+trouble the Teacher any further? But overhearing what they   the child three times and cried to the Lord, O Lord
+said, Jesus said to the ruler of the synagogue, Do not       my God, let this child's life come into him again.
+fear, only believe. And he allowed no one to follow him      And the Lord listened to the voice of Elijah. And
+except Peter and James and John the brother of James. They   the life of the child came into him again, and he
+came to the house of the ruler of the synagogue, and Jesus   revived. 2 Kings 4:32-35 - When Elisha came into
+saw a commotion, people weeping and wailing loudly. And      the house, he saw the child lying dead on his bed.
+when he had entered, he said to them, Why are you making a   So he went in and shut the door behind the two of
+commotion and weeping? The child is not dead but sleeping.   them and prayed to the LORD. Then he went up and
+And they laughed at him. But he put them all outside and     lay on the child, putting his mouth on his mouth,
+took the child's father and mother and those who were with   his eyes on his eyes, and his hands on his hands.
+him and went in where the child was. Taking her by the hand  And as he stretched himself upon him, the flesh of
+he said to her, Talitha cumi, which means, Little girl, I    the child became warm. Then he got up again and
+say to you, arise. And immediately the girl got up and       walked once back and forth in the house, and went
+began walking (for she was twelve years of age), and they    up and stretched himself upon him. The child
+were immediately overcome with amazement. And he strictly    sneezed seven times, and the child opened his eyes.
+charged them that no one should know this, and told them to  (ESV)
+give her something to eat. (ESV)
+
+
+
+Yeshua, Jesus                                           Yahweh, Jehovah
+
+Mark 6:48 - And he saw that they were making headway painfully, for the wind     Job 9:8 - who alone stretched
+was against them. And about the fourth watch of the night he came to them,       out the heavens and trampled
+walking on the sea. He meant to pass by them, (ESV)                              the waves of the sea; (ESV)
+Mark 7:31-47 - Then he returned from the region of Tyre and went through Sidon
+to the Sea of Galilee, in the region of the Decapolis. And they brought to him
+a man who was deaf and had a speech impediment, and they begged him to lay his
+hand on him. And taking him aside from the crowd privately, he put his fingers
+into his ears, and after spitting touched his tongue. And looking up to heaven,
+he sighed and said to him, Ephphatha, that is, Be opened. And his ears were
+opened, his tongue was released, and he spoke plainly. And Jesus charged them
+to tell no one. But the more he charged them, the more zealously they
+proclaimed it. And they were astonished beyond measure, saying, He has done all
+things well. He even makes the deaf hear and the mute speak. In those days,
+when again a great crowd had gathered, and they had nothing to eat, he called    Exodus 4:11 - Then the LORD
+his disciples to him and said to them, I have compassion on the crowd, because   said to him, Who has made man's
+they have been with me now three days and have nothing to eat. And if I send     mouth? Who makes him mute, or
+them away hungry to their homes, they will faint on the way. And some of them    deaf, or seeing, or blind? Is
+have come from far away. And his disciples answered him, How can one feed these  it not I, the LORD? (ESV)
+people with bread here in this desolate place? And he asked them, How many
+loaves do you have? They said, Seven. And he directed the crowd to sit down on
+the ground. And he took the seven loaves, and having given thanks, he broke
+them and gave them to his disciples to set before the people; and they set them
+before the crowd. And they had a few small fish. And having blessed them, he
+said that these also should be set before them. And they ate and were
+satisfied. And they took up the broken pieces left over, seven baskets full.
+And there were about four thousand people. And he sent them away. And
+immediately he got into the boat with his disciples and went to the district of
 Dalmanutha. (ESV)
-Mark 8:1-10 - In those days, when again a great crowd had
-gathered, and they had nothing to eat, he called his disciples to
-him and said to them, I have compassion on the crowd, because
-they have been with me now three days and have nothing to eat.
-And if I send them away hungry to their homes, they will faint on
-the way. And some of them have come from far away. And his
-disciples answered him, How can one feed these people with bread   Exodus 16:4 - Then the LORD said to Moses,
-here in this desolate place? And he asked them, How many loaves    Behold, I am about to rain bread from heaven
-do you have? They said, Seven. And he directed the crowd to sit    for you, and the people shall go out and
-down on the ground. And he took the seven loaves, and having       gather a day's portion every day, that I may
-given thanks, he broke them and gave them to his disciples to set  test them, whether they will walk in my law
-before the people; and they set them before the crowd. And they    or not. (ESV)
-had a few small fish. And having blessed them, he said that these
-also should be set before them. And they ate and were satisfied.
-And they took up the broken pieces left over, seven baskets full.
-And there were about four thousand people. And he sent them away.
-And immediately he got into the boat with his disciples and went
-to the district of Dalmanutha. (ESV)
-Mark 9:2-5 - And after six days Jesus took with him Peter and
-James and John, and led them up a high mountain by themselves.
-And he was transfigured before them, and his clothes became        Only 2 people to climb a mountain to commune
-radiant, intensely white, as no one on earth could bleach them.    with God. Moses in Exodus 24, and Elijah in I
-And there appeared to them Elijah with Moses, and they were        Kings 19
-talking with Jesus. And Peter said to Jesus, Rabbi, it is good
-that we are here. Let us make three tents, one for you and one
-for Moses and one for Elijah. (ESV)
-Daniel 7:13-14 - I saw in the night visions,
-and behold, with the clouds of heaven there
-Mark 14:61-62 - But he remained silent and made no answer. Again   came one like a son of man, and he came to
-the high priest asked him, Are you the Christ, the Son of the      the Ancient of Days and was presented before
-Blessed? And Jesus said, I am, and you will see the Son of Man     him. And to him was given dominion and glory
-seated at the right hand of Power, and coming with the clouds of   and a kingdom, that all peoples, nations, and
-heaven. (ESV)                                                      languages should serve him; his dominion is
-an everlasting dominion, which shall not pass
-away, and his kingdom one that shall not be
-destroyed. (ESV)
+
+
+
+Yeshua, Jesus                                           Yahweh, Jehovah
+
+Mark 8:1-10 - In those days, when again a great crowd had gathered,
+and they had nothing to eat, he called his disciples to him and said
+to them, I have compassion on the crowd, because they have been with
+me now three days and have nothing to eat. And if I send them away
+hungry to their homes, they will faint on the way. And some of them
+have come from far away. And his disciples answered him, How can one   Exodus 16:4 - Then the LORD said to
+feed these people with bread here in this desolate place? And he       Moses, Behold, I am about to rain bread
+asked them, How many loaves do you have? They said, Seven. And he      from heaven for you, and the people shall
+directed the crowd to sit down on the ground. And he took the seven    go out and gather a day's portion every
+loaves, and having given thanks, he broke them and gave them to his    day, that I may test them, whether they
+disciples to set before the people; and they set them before the       will walk in my law or not. (ESV)
+crowd. And they had a few small fish. And having blessed them, he
+said that these also should be set before them. And they ate and were
+satisfied. And they took up the broken pieces left over, seven
+baskets full. And there were about four thousand people. And he sent
+them away. And immediately he got into the boat with his disciples
+and went to the district of Dalmanutha. (ESV)
+Mark 9:2-5 - And after six days Jesus took with him Peter and James
+and John, and led them up a high mountain by themselves. And he was
+transfigured before them, and his clothes became radiant, intensely    Only 2 people to climb a mountain to
+white, as no one on earth could bleach them. And there appeared to     commune with God. Moses in Exodus 24, and
+them Elijah with Moses, and they were talking with Jesus. And Peter    Elijah in I Kings 19
+said to Jesus, Rabbi, it is good that we are here. Let us make three
+tents, one for you and one for Moses and one for Elijah. (ESV)
+Daniel 7:13-14 - I saw in the night
+visions, and behold, with the clouds of
+heaven there came one like a son of man,
+Mark 14:61-62 - But he remained silent and made no answer. Again the   and he came to the Ancient of Days and
+high priest asked him, Are you the Christ, the Son of the Blessed?     was presented before him. And to him was
+And Jesus said, I am, and you will see the Son of Man seated at the    given dominion and glory and a kingdom,
+right hand of Power, and coming with the clouds of heaven. (ESV)       that all peoples, nations, and languages
+should serve him; his dominion is an
+everlasting dominion, which shall not
+pass away, and his kingdom one that shall
+not be destroyed. (ESV)
 
 
   John 8:18-19 - I am the one who bears witness about myself, and the Father who sent me bears witness about me.
@@ -26556,7 +26554,7 @@ Date: 2024-05-26 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-26 Sun 18:55
+Created: 2024-05-26 Sun 19:09
 
 Validate
 
