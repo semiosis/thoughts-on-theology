@@ -10254,9 +10254,9 @@ And build each other up to help each other attain unity of faith and knowledge o
 
 One must have faith to receive the gift of salvation.
 
-> **Mark 11:22** - And Jesus answered them, Have faith in God.
+> **Mark 11:22** - And Jesus answered them, **Have faith in God.**
 
-The basic Faith equation is `Believing-God * Obedience/Action/Work/Love/PatientEndurance`.
+The basic Faith-in-God equation is `Believing-God * Obedience/Action/Work/Love/PatientEndurance`.
 
 > **Mark 11:23** - Truly, I say to you, whoever **says to this mountain, Be taken up and thrown into the sea**, and **does not doubt in his heart**, but believes that what he says **will come to pass**, it will be done for him.
 
@@ -11097,7 +11097,14 @@ A person with true faith in God walks into the truth because true faith has eyes
 
 > **Hebrews 11:1** - Now faith is the substance of things hoped for, the evidence of things not seen. (KJV)
 
+Now while we may have faith, hoping, even having a conviction for something which God may not have directly told us about (such as a marriage),
+ultimately God may approve or deny it:
+
 > **Hebrews 11:1** - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
+
+We should put our faith in God, and in God's promises:
+
+> **Mark 11:22** - And Jesus answered them, **Have faith in God.**
 
 > **Matthew 17:20** - He said to them, Because of your little faith. For truly, I say to you, **if you have faith** like a grain of mustard seed, you will say to this mountain, Move from here to there, and it will move, and **nothing will be impossible for you.** (ESV)
 
@@ -11548,6 +11555,8 @@ We must obey Jesus:
 
 ### The law is good, if used properly - and its usage is part of the gospel
 
+The law certainly still exists:
+
 > **1 Timothy 1:8-11** - Now we know that the law is good, if one uses it lawfully, understanding this, that the law is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
 But Christians are not <ins>under</ins> the law while we are led by the Spirit:
@@ -11556,11 +11565,6 @@ But Christians are not <ins>under</ins> the law while we are led by the Spirit:
 ## [The Epistle of Ignatius to the Magnesians](http://persweb.wabash.edu/facstaff/royaltyr/AncientCities/web/bradleyj/Project%201/The%20Epistle%20of%20Ignatius%20to%20the%20Magnesians.htm)
 
 > **Ignatius to the Magnesians 8** - Be not deceived with strange doctrines, nor with old fables, which are unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace. For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being inspired by His grace to fully convince the unbelieving that there is **one God, who has manifested Himself by Jesus Christ His Son, who is His eternal Word**, not proceeding forth from silence, and who in all things pleased Him that sent Him.
-
-
-## This makes sense - the law certainly still exists
-
-> **1 Timothy 1:8-11** -  Now we know that the law is good, if one uses it lawfully, understanding this, that the law is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the blessed God with which I have been entrusted.  (ESV)
 
 
 # The LORD our God and my Lord Jesus Christ
@@ -12395,6 +12399,15 @@ Being <ins>led by the spirit involves following Christ's law.</ins> To be marrie
 **If** we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ) then we are not under the Mosaic law.:
 
 > **Galatians 5:18** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God.
+
+Now while we may have faith, hoping, even having a conviction for something which God may not have directly told us about (such as a marriage),
+ultimately God may approve or deny it:
+
+> **Hebrews 11:1** - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
+
+We should put our faith in God, and in God's promises:
+
+> **Mark 11:22** - And Jesus answered them, **Have faith in God.**
 
 The asceticism [of denying marriage] has no value in stopping the indulgence of the flesh:
 
@@ -14988,6 +15001,10 @@ The rhema word of God:
 
 > **Hebrews 11:1-3** - Now **faith is the assurance of things hoped for**, the **conviction of things not seen**. For by it the people of old received their commendation. **By faith we understand that the universe was created by the word of God**, so that what is seen was not made out of things that are visible. (ESV)
 
+We should put our faith in God:
+
+> **Mark 11:22** - And Jesus answered them, **Have faith in God.**
+
 I put a bunch of concepts together to describe faith:
 
      1  Faith-in-God = Hope-from/in-God * Work/Love/Walking-By-Faith
@@ -16798,7 +16815,7 @@ Repentance in the heart:
 
 ### 
 
-> **Mark 11:22** - And Jesus answered them, Have faith in God. (ESV)
+> **Mark 11:22** - And Jesus answered them, **Have faith in God.** (ESV)
 
 
 ### 
@@ -19105,14 +19122,14 @@ Also, that means deepening my relationship with Jesus.
 > **I Corinthians 2:14** - The natural person does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned. (ESV)
 
 
+### I was spiritually blind
+
+> **II Corinthians 4:4** - In their case the god of this world has blinded the minds of the unbelievers, to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. (ESV)
+
+
 ## I was quite unable to go against the trajectory of the world
 
 > **Romans 8:7** - For the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. (ESV)
-
-
-## I was spiritually blind
-
-> **II Corinthians 4:4** - In their case the god of this world has blinded the minds of the unbelievers, to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. (ESV)
 
 
 ## In a very real sense I was helpless
