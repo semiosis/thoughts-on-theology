@@ -355,6 +355,20 @@ it's also scriptural.
   another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it
   neither sees him nor knows him. You know him, for he dwells with you and will be in you. (ESV)
 
+The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
+
+|  ?????
+|  savior, deliverer, helper, saviour
+
+But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant!:
+
+|  ????
+|  assistant, aide, helper, second
+
+  Genesis 2:18 - Then the Lord (H3068 Yhovah) God (H430 'elohiym) said (H559 'amar), "It is not good (H2896 towb)
+  for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 `asah) him a helper (H5828 `ezer) suitable
+  (H5048 neged) for him."
+
 3.0.2. The importance of loving one another
 
 Believing Jesus, having the love of God within us, loving Father God, and loving one another who are children of
@@ -17384,6 +17398,20 @@ held up as an idol before or alongside Father God, or before or alongside our Sa
   Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
 
+The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
+
+|  ?????
+|  savior, deliverer, helper, saviour
+
+But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant!:
+
+|  ????
+|  assistant, aide, helper, second
+
+  Genesis 2:18 - Then the Lord (H3068 Yhovah) God (H430 'elohiym) said (H559 'amar), "It is not good (H2896 towb)
+  for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 `asah) him a helper (H5828 `ezer) suitable
+  (H5048 neged) for him."
+
 Jesus saved me from a bad situation and I just want those who come to read this or hear my testimony to come to
 know the Lord Jesus for themself.
 
@@ -26915,7 +26943,7 @@ Date: 2024-05-29 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-05-29 Wed 22:46
+Created: 2024-05-29 Wed 23:13
 
 Validate
 
