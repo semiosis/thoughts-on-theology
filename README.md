@@ -3926,9 +3926,16 @@ I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknow
 
 > **I John 4:1-3** - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. (ESV)
 
-As of now (28 April '24), though, I have not actually heard that confession through the Spirit (as I expect to hear it) that Jesus Christ has come in the flesh - just being honest,
+As of now (28 April '24), though, I have not actually heard that confession through the Spirit (as I expect to hear it) that Jesus Christ has come in the flesh - just being honest.
 
 I still profess that Jesus Christ is the Only-Begotten Son of God who has proceeded from Father God, come from heaven to earth in the flesh, born of the virgin Mary, was crucified and died for the sins of mankind and raised from the dead on the third day and has ascended to the Father and sits at His right hand, and I pray daily to Father God.
+
+Also, I have had as of 28 May '24 in my dreams:
+
+-   A picture of "Jehovah 🌹" - Jehovah's name with a rose by it, and
+-   A voice which said, "Jesus is God"
+
+Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God. I will be still waiting for the Biblical acknowledgement.
 
 But I am still seeking hearing that acknowledgement by continuing in Jesus' word, endeavoring to keep Jesus' commandments. I certainly have heard many false and deceptive voices, even blasphemy.
 So I mean, if the devil or evil spirits can speak lies to me then I just have total confidence that at the right time I'll hear from God.
@@ -19348,7 +19355,17 @@ Immediately before I had that out-of-body meeting with the Holy Spirit, I had co
 
 Because I was trying to be obedient to God after being born-again, and I then had a prayer request after I considered I had become burnt out from going "all out for God", having given God my first fruits of being born-again for a full month.
 
-I was in tears feeling as though I had poured out my heart in obedience to Jesus, and asked Him for one thing in prayer and it was me crying to God saying I have given Him everything but I don't have any love in my life and it was taken from me, then in my heart I accepted that I would see her again - you could call it faith, or deluding myself on purpose in order that I would be able to sleep, and I felt immediately better afterwards. That's how it happened for the record.
+I was in tears feeling as though I had poured out my heart in obedience to Jesus, and asked Him for one thing in prayer and it was me crying to God saying I have given Him everything but I don't have any love in my life and it was taken from me, then in my heart I accepted that I would see her again - you could call it faith, or deluding myself on purpose in order that I would be able to sleep, and I felt immediately better afterwards.
+
+I actually don't think it was a delusion though. I actually think it's the truth.
+
+> **I Corinthians 13:4-8** - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
+
+We are commanded to love our wives the way Jesus did.
+
+> **Ephesians 5:25-27** - Husbands, love your wives, as Christ loved the church and gave himself up for her, that he might sanctify her, having cleansed her by the washing of water with the word, so that he might present the church to himself in splendor, without spot or wrinkle or any such thing, that she might be holy and without blemish.
+
+That's how it happened for the record.
 
 I felt as though I was carving out a piece of my heart because it felt as if I had said to God in my heart that I could only be happy while I held faith that I'd see her again.
 
@@ -19396,6 +19413,7 @@ Required to satisfy the "Christ's love" criteria I believe are:
 -   We love because God loved us first. We ought to love others because we have been loved by God
 -   We forgive out of a loving response to God and to others, knowing we have already been forgiven of our debt
 -   It must satisfy Christ's law
+-   Acceptance comes at the beginning
 
 Our first agape love has to be Jesus:
 
