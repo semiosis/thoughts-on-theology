@@ -395,7 +395,13 @@ the heart, not merely the head. There's a confession, an admittance, and a belie
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
 
-3.0.1. We overcome the world with a new spirit God has given us to wait and trust on Him and obey Him
+3.1. The initial deal of the Holy Spirit comes with hearing the gospel and believing in Jesus
+
+  Ephesians 1:13-14 - In him you also, when you heard the word of truth, the gospel of your salvation, and
+  believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
+  acquire possession of it, to the praise of his glory. (ESV)
+
+3.2. We overcome the world with a new spirit God has given us to wait and trust on Him and obey Him
 
   Ezekiel 11:19-20 - And I will give them one heart, and a new spirit I will put within them. I will remove the
   heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my
@@ -453,7 +459,7 @@ But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant
   for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 `asah) him a helper (H5828 `ezer) suitable
   (H5048 neged) for him."
 
-3.0.2. The importance of loving one another
+3.3. The importance of loving one another
 
 Believing Jesus, having the love of God within us, loving Father God, and loving one another who are children of
 God, all should be true together:
@@ -529,7 +535,7 @@ In order to know God we must love one another in the way that God has loved us:
   Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one
   another, God abides in us and his love is perfected in us. (ESV)
 
-3.1. Receiving the Holy Spirit
+3.4. Receiving the Holy Spirit
 
 So we must receive the Holy Spirit.
 
@@ -557,7 +563,7 @@ as through the hands of the Apostles:
 For me it was years after being baptised in water that I was born-again of the Spirit, and being born-again of the
 Spirit happened shortly after I had begun seeking God in truth, and repenting from sin.
 
-3.1.1. Water baptism as an appeal to God
+3.4.1. Water baptism as an appeal to God
 
 Water baptism is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
@@ -567,7 +573,7 @@ sacrament maybe is not strictly required to be saved (as far as I understand).
   I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
   an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
-3.1.2. What is more important, probably, is to be born-again and baptised by the Holy Spirit
+3.4.2. What is more important, probably, is to be born-again and baptised by the Holy Spirit
 
   John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. (ESV)
@@ -589,7 +595,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
   Spirit, he cannot enter the kingdom of God. (ESV)
 
-3.1.3. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
+3.4.3. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
 
   John 14:16-21 - And I will ask the Father, and he will give you another Helper, to be with you forever, even the
   Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he
@@ -599,7 +605,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
   (ESV)
 
-3.2. Our will should be for God's will to be done, and to will to do God's will
+3.5. Our will should be for God's will to be done, and to will to do God's will
 
   Psalms 51:10-12 - Create in me a clean heart, O God, and renew a right spirit within me. Cast me not away from
   your presence, and take not your Holy Spirit from me. Restore to me the joy of your salvation, and uphold me
@@ -826,7 +832,7 @@ and obey Him:
   speak of anything except what Christ has accomplished through me to bring the Gentiles to obedience-by word and
   deed,
 
-3.2.1. Being filled with the Holy Spirit
+3.5.1. Being filled with the Holy Spirit
 
 - Being a servant of God is a likely precursor to being filled with the Holy Spirit
 - Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those
@@ -858,7 +864,7 @@ the LORD has taken away; blessed be the name of the LORD. (ESV)
   not a needy person among them, for as many as were owners of lands or houses sold them and brought the proceeds
   of what was sold and laid it at the apostles' feet, and it was distributed to each as any had need. (ESV)
 
-3.3. In God's mercy, we come to obedient faith and come into Christ Jesus
+3.6. In God's mercy, we come to obedient faith and come into Christ Jesus
 
 "At one time disobedient..." means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
@@ -874,7 +880,7 @@ Mercy is so that we can be forgiven and change our ways:
 Song
 King of Kings {Lyric Video} - Hillsong Worship - YouTube
 
-3.3.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
+3.6.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
 
 We trust that our sin is covered by Jesus Christ's blood, as we abide in Him through belief and obedience:
 
@@ -940,7 +946,7 @@ The eternal redemption is in Christ Jesus:
   Hebrews 5:9-10 - And being made perfect, he became the source of eternal salvation to all who obey him, being
   designated by God a high priest after the order of Melchizedek. (ESV)
 
-3.4. Obedience is absolutely within our ability
+3.7. Obedience is absolutely within our ability
 
 God's commandments are not too difficult to follow.
 
@@ -1038,7 +1044,7 @@ salvation to all those who obey Him:
   John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
   sin of the world! (ESV)
 
-3.4.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
+3.7.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
 forever
 
 We should be led into the knowledge of the Truth:
@@ -1138,7 +1144,7 @@ heart:
   John 7:38 - Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of living
   water. (ESV)
 
-3.4.2. We are saved by grace through faith in Jesus Christ
+3.7.2. We are saved by grace through faith in Jesus Christ
 
   Ephesians 2:8 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, (ESV)
@@ -1231,7 +1237,7 @@ We must continue in our faith. We must continue to believe Jesus and trust in Je
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
   disciples, and you will know the truth, and the truth will set you free. (ESV)
 
-3.4.3. We become obedient to Jesus
+3.7.3. We become obedient to Jesus
 
   John Piper - "Mercy means that our obedience doesn't have to be perfect, it has to be penitent."
 
@@ -1268,7 +1274,7 @@ Jesus loved us selflessly. We should love one another selflessly:
 
   John 15:13 - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
 
-3.4.4. There's some bonuses to suffering for Christ's sake and for endurance
+3.7.4. There's some bonuses to suffering for Christ's sake and for endurance
 
   II Timothy 2:12-13 - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are
   faithless, he remains faithful- for he cannot deny himself. (ESV)
@@ -1278,7 +1284,7 @@ Jesus loved us selflessly. We should love one another selflessly:
 
 But suffering for Christ's sake should be for giving glory to Jesus:
 
-3.4.5. Eternal life and salvation is a gift received through faith
+3.7.5. Eternal life and salvation is a gift received through faith
 
 We put our hope on Him to be our High Priest and Advocate, we obey Him as He saves us.
 
@@ -1383,7 +1389,7 @@ If you hear Jesus' words which came from God and trust God then you have eternal
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-3.5. Disobedience is sin
+3.8. Disobedience is sin
 
 Sermon
 God is very happy about obedience, and listening to His word. Disobedience is sin, and disobedience is rejecting
@@ -1415,7 +1421,7 @@ God's commandments through Jesus is within the Law of God:
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law. (ESV)
 
-3.6. God makes us born-again, so we can love Him, obediently
+3.9. God makes us born-again, so we can love Him, obediently
 
   John 3:7 - Do not marvel that I said to you, You must be born again. (ESV)
 
@@ -1701,7 +1707,7 @@ simultaneously, because people misconstrue Jesus' words to their own destruction
   find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves.
   You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles?
 
-3.6.1. God working in us
+3.9.1. God working in us
 
 God loved us first. We must accept that:
 
@@ -1790,7 +1796,7 @@ without partiality.
 
 Also I conclude that obeying Jesus Christ is having faith in Him.
 
-3.6.2. God acts for those who wait for Him
+3.9.2. God acts for those who wait for Him
 
 God acts for those who wait for Him:
 
@@ -1801,7 +1807,7 @@ If God is for us, who can be against us?
 
   Romans 8:31 - What then shall we say to these things? If God is for us, who can be against us? (ESV)
 
-3.6.3. The free gift is God - God is the Gospel
+3.9.3. The free gift is God - God is the Gospel
 
 We get out of the way everything that is an obstacle to enjoying God when we are forgiven. AMEN:
 
@@ -1810,7 +1816,7 @@ We get out of the way everything that is an obstacle to enjoying God when we are
 
   Colossians 1:14 - in whom we have redemption, the forgiveness of sins. (ESV)
 
-3.6.4. The point of justification - we rejoice in the hope of the glory of God
+3.9.4. The point of justification - we rejoice in the hope of the glory of God
 
 Sermon
 John Piper: God is the Gospel - YouTube @time: 40 min 42 sec
@@ -1827,7 +1833,7 @@ The reason we want to be righteous is so we get God. We don't get put in hell.
   John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
   (ESV)
 
-3.6.5. Why do we want to live righteously? To honour Christ
+3.9.5. Why do we want to live righteously? To honour Christ
 
 We want to honour/exalt/magnify Christ in our lives, to trust Him, honour Him, believe His promises, and even
 faithfully wait/hold to those promises, and even want others to see the light of the gospel of the glory of Christ
@@ -1840,7 +1846,7 @@ who is the image of God:
   II Corinthians 4:4 - In their case the god of this world has blinded the minds of the unbelievers, to keep them
   from seeing the light of the gospel of the glory of Christ, who is the image of God. (ESV)
 
-3.6.6. Under the right conditions, I don't see a problem with 'working' for God
+3.9.6. Under the right conditions, I don't see a problem with 'working' for God
 
 The motivation has to be right. We do work for God to honour God, and as a response to Him loving us first, and as
 a response of love for Him forgiving us first, and giving us the gift of eternal life.
@@ -1968,7 +1974,7 @@ The faith Paul talks about is faith towards God. The faith towards God believes 
 Song
 Hillsong+Delirious? - History Maker - YouTube
 
-3.7. Eternal security for those who follow Jesus
+3.10. Eternal security for those who follow Jesus
 
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube @time: 25 min 13 sec
@@ -2023,7 +2029,7 @@ And following Jesus' commandments we will love one another:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.8. Some indicators to know for SURE you are saved
+3.11. Some indicators to know for SURE you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube @time: 12
@@ -9034,7 +9040,7 @@ offer worldly wisdom in an attempt to deter me from following Jesus, and as I ob
 Spirit, and taught by the Holy Spirit. And this is an ongoing process. I say this for others' sake to explain
 how I have come to know how faith in Jesus, following Jesus, works practically, that it is more than mere
 intellectual belief to be led by the Spirit, but it is also obedience, and a process of sanctification, and
-walking in the light.
+walking in the light which involves walking in love characteristic of Christ's love.
 
 II John 1:1-11 highlights:
 
@@ -9301,7 +9307,28 @@ Faith in the truth - strong faith word! Belief and ongoing faithfulness, trust, 
 |   itself:--assurance, belief, believe, faith, fidelity.
 |   see GREEK for 3982
 
-16.9.1. Bad desire - leads to death. We do not want to be enslaved to corruption
+16.9.1. Corruption remains a problem even for the regenerated
+
+The 1689 Baptist confession affirms that the problem of corruption remains after regeneration:
+
+|  Paragraph 5
+| 
+|  The corruption of nature, during this life,
+|  does remain in those that are regenerated;13
+|  and although it be through Christ pardoned and
+|  mortified, yet both itself, and the first
+|  motions thereof, are truly and properly sin.14
+| 
+|  13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
+|   14 Rom. 7:23-25; Gal. 5:17
+
+I affirm that even after regeneration and being healed, corruption has remained a problem for me mainly because of
+the world I live in:
+
+- the influences of worldly people, and
+- the influences of demons.
+
+16.9.2. Bad desire - leads to death. We do not want to be enslaved to corruption
 
 - Lust is super bad, even after born-again.
 
@@ -9316,7 +9343,7 @@ Faith in the truth - strong faith word! Belief and ongoing faithfulness, trust, 
   has become worse for them than the first. For it would have been better for them never to have known the way of
   righteousness than after knowing it to turn back from the holy commandment delivered to them.
 
-16.9.2. Good desire - Love God and one's neighbour
+16.9.3. Good desire - Love God and one's neighbour
 
   Deuteronomy 11:13 - And if you will indeed obey my commandments that I command you today, to love the Lord your
   God, and to serve him with all your heart and with all your soul,
@@ -25038,13 +25065,33 @@ To be sanctified by faith in Jesus is an applied process, I think:
   Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
   God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
 
+Obeying Jesus Christ, and having love perfected in us is the most important part of sanctification, I think:
+
+  I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
+  as he is so also are we in this world. (ESV)
+
 In similar fashion to Jesus continually obeying Father God as he endured suffering, I think we should learn to
-submit and follow Jesus' commandments
+submit and follow Jesus' commandments:
 
   Hebrews 5:7-10 - In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and
   tears, to him who was able to save him from death, and he was heard because of his reverence. Although he was a
   son, he learned obedience through what he suffered. And being made perfect, he became the source of eternal
   salvation to all who obey him, being designated by God a high priest after the order of Melchizedek.
+
+The 1689 Baptist confession affirms that the problem of corruption remains after regeneration:
+
+|  Paragraph 5
+| 
+|  The corruption of nature, during this life,
+|  does remain in those that are regenerated;13
+|  and although it be through Christ pardoned and
+|  mortified, yet both itself, and the first
+|  motions thereof, are truly and properly sin.14
+| 
+|  13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
+|   14 Rom. 7:23-25; Gal. 5:17
+
+64.1. My experience in turning to love Jesus and obey Jesus
 
 I believe that after being born-again of the spirit, I had (with very little knowledge of Jesus' commandments) had
 to learn Jesus' commandments and apply them, and I believe the Holy Spirit taught me to obey Jesus as I read
@@ -25054,7 +25101,8 @@ means resisting those who try to deter me from obeying Jesus. Upon being tested,
 wisdom in an attempt to deter me from following Jesus, and as I obey God I am led by the Holy Spirit, and taught
 by the Holy Spirit. And this is an ongoing process. I say this for others' sake to explain how I have come to know
 how faith in Jesus, following Jesus, works practically, that it is more than mere intellectual belief to be led by
-the Spirit, but it is also obedience, and a process of sanctification, and walking in the light.
+the Spirit, but it is also obedience, and a process of sanctification, and walking in the light which involves
+walking in love characteristic of Christ's love.
 
 So I was born-again of the Spirit and when that happened I was given some very strong faith/knowledge that God
 exists, but I still had to seek Jesus because the Bible says that anyone who claims to know Jesus but doesn't walk
@@ -25062,6 +25110,8 @@ in His commandments is not telling the truth, and I want to come to know Jesus.
 
   I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+64.2. Repentance includes bearing fruit and being raised up as a child for Abraham
 
 John the Baptist taught repentance and love for one's neighbour before receiving the baptisim of the Holy Spirit:
 
@@ -25075,7 +25125,7 @@ John the Baptist taught repentance and love for one's neighbour before receiving
   from these stones to raise up children for Abraham.
 
 Regeneration is the sovereign work of the Holy Spirit, though. AMEN!! Nevertheless, I believe in allowing Jesus
-Christ to be my Lord.
+Christ to be my Lord and being sanctified through obedience to Jesus:
 
   John 3:5-8 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is
@@ -25136,7 +25186,7 @@ And Jesus instructs us to have an obedient heart if we want to know that Jesus' 
   John 7:17 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am
   speaking on my own authority. (ESV)
 
-64.1. God loved us first
+64.3. God loved us first
 
   I John 4:8-11 - Anyone who does not love does not know God, because God is love. In this the love of God was
   made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is
@@ -25146,7 +25196,7 @@ And Jesus instructs us to have an obedient heart if we want to know that Jesus' 
   Isaiah 64:8 - But now, O LORD, you are our Father; we are the clay, and you are our potter; we are all the work
   of your hand. (ESV)
 
-64.1.1. God's love is greater
+64.3.1. God's love is greater
 
   Romans 8:35 - Who shall separate us from the love of Christ? Shall tribulation, or distress, or persecution, or
   famine, or nakedness, or danger, or sword?
@@ -25154,9 +25204,9 @@ And Jesus instructs us to have an obedient heart if we want to know that Jesus' 
   Romans 8:39 - nor height nor depth, nor anything else in all creation, will be able to separate us from the love
   of God in Christ Jesus our Lord.
 
-64.2. God was faithful to us first
+64.4. God was faithful to us first
 
-64.2.1. God's faithfulness is greater
+64.4.1. God's faithfulness is greater
 
   Romans 3:3-4 - What if some were unfaithful? Does their faithlessness nullify the faithfulness of God? By no
   means! Let God be true though every one were a liar, as it is written, That you may be justified in your words,
@@ -25173,7 +25223,7 @@ I still get encouragements such as this from God.
 
 I also got a bunch of pictures of my family.
 
-64.3. The Way is available for everyone, but not everyone ends up walking it
+64.5. The Way is available for everyone, but not everyone ends up walking it
 
 Jesus made the Way - He is the Way:
 
@@ -25184,7 +25234,7 @@ Jesus made the Way - He is the Way:
 - for all men
 - the many
 
-64.4. We have free will, but the Holy Spirit helps us and dwells with us and comes to be in us
+64.6. We have free will, but the Holy Spirit helps us and dwells with us and comes to be in us
 
 We can't come to Jesus unless Father God draws us to Jesus. While it is true that we need God to draw us, I
 believe we should still choose Jesus, and follow Jesus as Jesus' sheep:
@@ -25256,7 +25306,7 @@ Walking by Jesus' words and commandments is walking by the Spirit:
 This definitely indicates that we should try to keep Jesus Christ's commandments even before receiving the Holy
 Spirit inside of us.
 
-64.5. We have free will. We must believe God
+64.7. We have free will. We must believe God
 
 There is intellectual belief and there is experiential belief, and we could have both, by having both belief and
 obedience to Jesus. To believe, we must be seeking God, not glory from one another:
@@ -25301,7 +25351,7 @@ Rewards are for people who choose to do the right thing.
 
 It doesn't say, God rewarded God. God said that Abraham's reward shall be very great. God rewarded Abraham.
 
-64.6. Seeking God
+64.8. Seeking God
 
 Blessed are those who like being around Jesus and trust Him:
 
@@ -25317,7 +25367,7 @@ Blessed are those who ask and seek for a blessing:
   Matthew 7:7-8 - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you.
   For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened.
 
-64.7. Run the race
+64.9. Run the race
 
   Hebrews 12:1 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every
   weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
@@ -25339,9 +25389,9 @@ Blessed are those who ask and seek for a blessing:
   me the crown of righteousness, which the Lord, the righteous judge, will award to me on that Day, and not only
   to me but also to all who have loved his appearing. Do your best to come to me soon.
 
-64.8. God has planned in advance our salvation
+64.10. God has planned in advance our salvation
 
-64.8.1. Grace alone - sola gratia (by grace alone) AMEN!!
+64.10.1. Grace alone - sola gratia (by grace alone) AMEN!!
 
   I Corinthians 1:30 - But by His doing you are in Christ Jesus, who became to us wisdom from God, and
   righteousness and sanctification, and redemption, (NASB)
@@ -25386,12 +25436,12 @@ The inheritance is salvation:
   Hebrews 1:14 - Are they not all ministering spirits sent out to serve for the sake of those who are to inherit
   salvation? (ESV)
 
-64.9. We are fellow workers with God. It's by God's power that our work flourishes
+64.11. We are fellow workers with God. It's by God's power that our work flourishes
 
   Ephesians 3:16 - that according to the riches of his glory he may grant you to be strengthened with power
   through his Spirit in your inner being,
 
-64.9.1. Without God we can do nothing
+64.11.1. Without God we can do nothing
 
   I Corinthians 3:6-9 - I planted, Apollos watered, but God gave the growth. So neither he who plants nor he who
   waters is anything, but only God who gives the growth. He who plants and he who waters are one, and each will
@@ -25408,7 +25458,7 @@ We work in God's field:
   another reaps. I sent you to reap that for which you did not labor. Others have labored, and you have entered
   into their labor.
 
-64.9.2. God's power through Jesus, through the man's faith in Jesus' name made the man walk
+64.11.2. God's power through Jesus, through the man's faith in Jesus' name made the man walk
 
   Acts 3:12 - And when Peter saw it, he answered unto the people, Ye men of Israel, why marvel ye at this? or why
   look ye so earnestly on us, as though by our own power or holiness we had made this man to walk? (KJV)
@@ -27086,6 +27136,9 @@ Because I was trying to be obedient to God after being born-again, and I then ha
 considered I had become burnt out from going "all out for God", having given God my first fruits of being
 born-again for a full month.
 
+  Genesis 4:4 - and Abel also brought of the firstborn of his flock and of their fat portions. And the LORD had
+  regard for Abel and his offering, (ESV)
+
 I was in tears feeling as though I had poured out my heart in obedience to Jesus, and asked Him for one thing in
 prayer and it was me crying to God saying I have given Him everything but I don't have any love in my life and it
 was taken from me, then in my heart I accepted that I would see her again - you could call it faith, or deluding
@@ -27221,7 +27274,10 @@ Forgiveness is very important:
   Matthew 6:14 - For if you forgive others their trespasses, your heavenly Father will also forgive you, (ESV)
 
 Obedient faith looks like remaining faithful to Jesus Christ to one's best ability as an appropriate response of
-love for grace and justification already given.
+love for grace and justification already given. We have faith that we are justified in advance of receiving the
+personal commendation from Jesus, but that doesn't mean we don't need to obey. We still seek personal commendation
+from the Lord Jesus as we do not justify ourselves. So we should still live in faithful obedience to Jesus,
+following Him for the rest of our lives - just like Abraham's faith.
 
 The saving grace we receive is primarily for the salvation of our souls, not in order to enjoy this life.
 
@@ -27691,7 +27747,7 @@ Date: 2024-06-07 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-07 Fri 13:24
+Created: 2024-06-07 Fri 14:15
 
 Validate
 
