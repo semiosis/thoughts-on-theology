@@ -389,19 +389,78 @@ Belief (in the heart) that Jesus is the Son of God leads to:
   the world-our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of
   God? (ESV)
 
+3.1. Experiential heart belief through obedience
+
 If you want to really get to know someone then you would learn to walk in their footsteps. Belief must arrive in
 the heart, not merely the head. There's a confession, an admittance, and a belief in the heart:
 
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
 
-3.1. The initial deal of the Holy Spirit comes with hearing the gospel and believing in Jesus
+3.2. Repentance from sin may come before believing in Jesus
+
+  Acts 19:4 - And Paul said, John baptized with the baptism of repentance, telling the people to believe in the
+  one who was to come after him, that is, Jesus. (ESV)
+
+3.3. A person who is really believing in Jesus will do the works of Jesus - they'll produce good works
+
+This doesn't necessarily mean that obedience is nonexistent before good works, as believing in Jesus is obedience,
+and repentance is obedience and these things are not good works but belief and obedience are better described as
+simply ending the bad works:
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+But repentance and belief should result in good works (serving the living God):
+
+  Hebrews 9:14 - how much more will the blood of Christ, who through the eternal Spirit offered himself without
+  blemish to God, purify our conscience from dead works to serve the living God. (ESV)
+
+3.4. Everyone who is actively and actually believing that Jesus is the Christ has been born of God
+
+But we must turn to obedience to Jesus and loving with Christ's love to come to know Him:
+
+  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. (ESV)
+
+3.4.1. Receiving the inheritance naturally comes after hearing the word of truth and believing in Jesus
+
+The initial seal of the Holy Spirit comes with hearing the gospel and believing in Jesus.
 
   Ephesians 1:13-14 - In him you also, when you heard the word of truth, the gospel of your salvation, and
   believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
   acquire possession of it, to the praise of his glory. (ESV)
 
-3.2. We overcome the world with a new spirit God has given us to wait and trust on Him and obey Him
+3.5. Further repentance from sin and to come to love in the way that Jesus did is an inevitable consequence of being
+born of God i.e. truly believing in Jesus
+
+People are able to repent from sin before coming to believe in Jesus but it's much easier and inevitable after
+coming to believe in Jesus.
+
+God's spirit really helps us to stop sinning. Actively believing in Jesus should produce the fruit of putting a
+stop to sin:
+
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
+
+  I John 5:18 - We know that everyone who has been born of God does not keep on sinning, but he who was born of
+  God protects him, and the evil one does not touch him. (ESV)
+
+3.6. Knowing God by obeying Jesus and loving with Christ's love implies you have at some stage been born of God
+
+  I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
+  knows God. (ESV)
+
+  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. (ESV)
+
+3.7. Obedience lead to belief which leads to obedience (loving with Christ's love with the help of God's spirit) which
+leads to overcoming the world
+
+  I John 5:4 - For everyone who has been born of God overcomes the world. And this is the victory that has
+  overcome the world-our faith. (ESV)
+
+3.8. We overcome the world with a new spirit God has given us to wait and trust on Him and obey Him
 
   Ezekiel 11:19-20 - And I will give them one heart, and a new spirit I will put within them. I will remove the
   heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my
@@ -459,7 +518,7 @@ But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant
   for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 `asah) him a helper (H5828 `ezer) suitable
   (H5048 neged) for him."
 
-3.3. The importance of loving one another
+3.9. The importance of loving one another
 
 Believing Jesus, having the love of God within us, loving Father God, and loving one another who are children of
 God, all should be true together:
@@ -535,7 +594,7 @@ In order to know God we must love one another in the way that God has loved us:
   Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one
   another, God abides in us and his love is perfected in us. (ESV)
 
-3.4. Receiving the Holy Spirit
+3.10. Receiving the Holy Spirit
 
 So we must receive the Holy Spirit.
 
@@ -563,7 +622,7 @@ as through the hands of the Apostles:
 For me it was years after being baptised in water that I was born-again of the Spirit, and being born-again of the
 Spirit happened shortly after I had begun seeking God in truth, and repenting from sin.
 
-3.4.1. Water baptism as an appeal to God
+3.10.1. Water baptism as an appeal to God
 
 Water baptism is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
@@ -573,7 +632,7 @@ sacrament maybe is not strictly required to be saved (as far as I understand).
   I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
   an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
-3.4.2. What is more important, probably, is to be born-again and baptised by the Holy Spirit
+3.10.2. What is more important, probably, is to be born-again and baptised by the Holy Spirit
 
   John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. (ESV)
@@ -595,7 +654,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
   Spirit, he cannot enter the kingdom of God. (ESV)
 
-3.4.3. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
+3.10.3. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
 
   John 14:16-21 - And I will ask the Father, and he will give you another Helper, to be with you forever, even the
   Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he
@@ -605,7 +664,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
   (ESV)
 
-3.5. Our will should be for God's will to be done, and to will to do God's will
+3.11. Our will should be for God's will to be done, and to will to do God's will
 
   Psalms 51:10-12 - Create in me a clean heart, O God, and renew a right spirit within me. Cast me not away from
   your presence, and take not your Holy Spirit from me. Restore to me the joy of your salvation, and uphold me
@@ -832,7 +891,7 @@ and obey Him:
   speak of anything except what Christ has accomplished through me to bring the Gentiles to obedience-by word and
   deed,
 
-3.5.1. Being filled with the Holy Spirit
+3.11.1. Being filled with the Holy Spirit
 
 - Being a servant of God is a likely precursor to being filled with the Holy Spirit
 - Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those
@@ -864,7 +923,7 @@ the LORD has taken away; blessed be the name of the LORD. (ESV)
   not a needy person among them, for as many as were owners of lands or houses sold them and brought the proceeds
   of what was sold and laid it at the apostles' feet, and it was distributed to each as any had need. (ESV)
 
-3.6. In God's mercy, we come to obedient faith and come into Christ Jesus
+3.12. In God's mercy, we come to obedient faith and come into Christ Jesus
 
 "At one time disobedient..." means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
@@ -880,7 +939,7 @@ Mercy is so that we can be forgiven and change our ways:
 Song
 King of Kings {Lyric Video} - Hillsong Worship - YouTube
 
-3.6.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
+3.12.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
 
 We trust that our sin is covered by Jesus Christ's blood, as we abide in Him through belief and obedience:
 
@@ -946,7 +1005,7 @@ The eternal redemption is in Christ Jesus:
   Hebrews 5:9-10 - And being made perfect, he became the source of eternal salvation to all who obey him, being
   designated by God a high priest after the order of Melchizedek. (ESV)
 
-3.7. Obedience is absolutely within our ability
+3.13. Obedience is absolutely within our ability
 
 God's commandments are not too difficult to follow.
 
@@ -1044,7 +1103,7 @@ salvation to all those who obey Him:
   John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
   sin of the world! (ESV)
 
-3.7.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
+3.13.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
 forever
 
 We should be led into the knowledge of the Truth:
@@ -1144,7 +1203,7 @@ heart:
   John 7:38 - Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of living
   water. (ESV)
 
-3.7.2. We are saved by grace through faith in Jesus Christ
+3.13.2. We are saved by grace through faith in Jesus Christ
 
   Ephesians 2:8 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, (ESV)
@@ -1237,7 +1296,7 @@ We must continue in our faith. We must continue to believe Jesus and trust in Je
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
   disciples, and you will know the truth, and the truth will set you free. (ESV)
 
-3.7.3. We become obedient to Jesus
+3.13.3. We become obedient to Jesus
 
   John Piper - "Mercy means that our obedience doesn't have to be perfect, it has to be penitent."
 
@@ -1274,7 +1333,7 @@ Jesus loved us selflessly. We should love one another selflessly:
 
   John 15:13 - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
 
-3.7.4. There's some bonuses to suffering for Christ's sake and for endurance
+3.13.4. There's some bonuses to suffering for Christ's sake and for endurance
 
   II Timothy 2:12-13 - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are
   faithless, he remains faithful- for he cannot deny himself. (ESV)
@@ -1284,7 +1343,7 @@ Jesus loved us selflessly. We should love one another selflessly:
 
 But suffering for Christ's sake should be for giving glory to Jesus:
 
-3.7.5. Eternal life and salvation is a gift received through faith
+3.13.5. Eternal life and salvation is a gift received through faith
 
 We put our hope on Him to be our High Priest and Advocate, we obey Him as He saves us.
 
@@ -1389,7 +1448,7 @@ If you hear Jesus' words which came from God and trust God then you have eternal
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-3.8. Disobedience is sin
+3.14. Disobedience is sin
 
 Sermon
 God is very happy about obedience, and listening to His word. Disobedience is sin, and disobedience is rejecting
@@ -1421,7 +1480,7 @@ God's commandments through Jesus is within the Law of God:
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law. (ESV)
 
-3.9. God makes us born-again, so we can love Him, obediently
+3.15. God makes us born-again, so we can love Him, obediently
 
   John 3:7 - Do not marvel that I said to you, You must be born again. (ESV)
 
@@ -1707,7 +1766,7 @@ simultaneously, because people misconstrue Jesus' words to their own destruction
   find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves.
   You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles?
 
-3.9.1. God working in us
+3.15.1. God working in us
 
 God loved us first. We must accept that:
 
@@ -1796,7 +1855,7 @@ without partiality.
 
 Also I conclude that obeying Jesus Christ is having faith in Him.
 
-3.9.2. God acts for those who wait for Him
+3.15.2. God acts for those who wait for Him
 
 God acts for those who wait for Him:
 
@@ -1807,7 +1866,7 @@ If God is for us, who can be against us?
 
   Romans 8:31 - What then shall we say to these things? If God is for us, who can be against us? (ESV)
 
-3.9.3. The free gift is God - God is the Gospel
+3.15.3. The free gift is God - God is the Gospel
 
 We get out of the way everything that is an obstacle to enjoying God when we are forgiven. AMEN:
 
@@ -1816,7 +1875,7 @@ We get out of the way everything that is an obstacle to enjoying God when we are
 
   Colossians 1:14 - in whom we have redemption, the forgiveness of sins. (ESV)
 
-3.9.4. The point of justification - we rejoice in the hope of the glory of God
+3.15.4. The point of justification - we rejoice in the hope of the glory of God
 
 Sermon
 John Piper: God is the Gospel - YouTube @time: 40 min 42 sec
@@ -1833,7 +1892,7 @@ The reason we want to be righteous is so we get God. We don't get put in hell.
   John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
   (ESV)
 
-3.9.5. Why do we want to live righteously? To honour Christ
+3.15.5. Why do we want to live righteously? To honour Christ
 
 We want to honour/exalt/magnify Christ in our lives, to trust Him, honour Him, believe His promises, and even
 faithfully wait/hold to those promises, and even want others to see the light of the gospel of the glory of Christ
@@ -1846,7 +1905,7 @@ who is the image of God:
   II Corinthians 4:4 - In their case the god of this world has blinded the minds of the unbelievers, to keep them
   from seeing the light of the gospel of the glory of Christ, who is the image of God. (ESV)
 
-3.9.6. Under the right conditions, I don't see a problem with 'working' for God
+3.15.6. Under the right conditions, I don't see a problem with 'working' for God
 
 The motivation has to be right. We do work for God to honour God, and as a response to Him loving us first, and as
 a response of love for Him forgiving us first, and giving us the gift of eternal life.
@@ -1974,7 +2033,7 @@ The faith Paul talks about is faith towards God. The faith towards God believes 
 Song
 Hillsong+Delirious? - History Maker - YouTube
 
-3.10. Eternal security for those who follow Jesus
+3.16. Eternal security for those who follow Jesus
 
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube @time: 25 min 13 sec
@@ -2029,7 +2088,7 @@ And following Jesus' commandments we will love one another:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.11. Some indicators to know for SURE you are saved
+3.17. Some indicators to know for SURE you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube @time: 12
@@ -15520,8 +15579,12 @@ Actually complying with the law (not breaking it) is good:
   since then the good news of the kingdom of God is preached, and everyone forces his way into it. But it is
   easier for heaven and earth to pass away than for one dot of the Law to become void.
 
-- John the baptist taught 'turn from sin and believe in the One to come'.
-- Jesus taught to 'come to and believe in Him (Jesus) for forgiveness and stop sinning'.
+- John the baptist taught 'turn from sin and believe in the One to come':
+- Acts 19:4 - And Paul said, John baptized with the baptism of repentance, telling the people to believe in
+the one who was to come after him, that is, Jesus. (ESV)
+- Jesus taught to 'come to and believe in Him (Jesus) for forgiveness and stop sinning':
+- John 8:11 - She said, No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no
+more. (ESV)
 
   Acts 3:25-26 - You are the sons of the prophets and of the covenant that God made with your fathers, saying to
   Abraham, And in your offspring shall all the families of the earth be blessed. God, having raised up his
@@ -27747,7 +27810,7 @@ Date: 2024-06-07 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-07 Fri 14:15
+Created: 2024-06-07 Fri 14:51
 
 Validate
 
