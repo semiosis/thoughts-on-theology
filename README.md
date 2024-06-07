@@ -885,7 +885,7 @@ If we keep Jesus' word (obey Jesus) we will not see death:
 
 > **John 8:47** - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
 
-> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+> **John 8:51** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
 
 To **keep Jesus' word** means to hear them and to obey:
 
@@ -1022,7 +1022,9 @@ We need to obey Jesus to see the life. That obedience isn't "working" but it is 
 
 On the other hand, if we obey Jesus we will never see death:
 
-> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+> **John 8:51** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
+
+> **I John 2:5-6** - but whoever **keeps his word**, in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in him ought to <ins>walk in the same way in which he walked</ins>. (ESV)
 
 Repent, be sanctified, love God and your neighbour, believe and obey Jesus:
 
@@ -2657,7 +2659,7 @@ We need to obey Jesus to see the life. That obedience isn't "working" but it is 
 
 On the other hand, if we obey Jesus we will never see death:
 
-> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+> **John 8:51** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
 
 > **John 17:3** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
 
@@ -3457,7 +3459,7 @@ We need to obey Jesus to see the life. That obedience isn't "working" but it is 
 
 On the other hand, if we obey Jesus we will never see death:
 
-> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+> **John 8:51** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
 
 We receive the spirit by getting Jesus' words into us, believing them and obeying them. Feeding on them, we get Jesus' spirit and life into us:
 
@@ -4350,7 +4352,7 @@ We need to believe Jesus is who He says He is:
 
 We need to keep Jesus' word until we are set free:
 
-> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+> **John 8:51** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
 
 They couldn't accept that they needed to be saved:
 
@@ -7425,7 +7427,9 @@ We go from performing 'dead works' to 'faithful works'.
 > **Matthew 25:21** - His master said to him, Well done, good and faithful servant. You have been faithful over a little; I will set you over much. Enter into the joy of your master.
 
 We stop doing dead works to serve the living God, which I believe is obedience,
-which is really similar to work but it's obeying. Obedience gives glory to God.
+which is really similar to work but it's obeying. Obedience gives glory to God. God saves a person, they're converted, and come into God's Kingdom and the angels rejoice.
+
+> **Luke 15:10** - Just so, I tell you, there is joy before the angels of God over one sinner who repents.
 
 > **John 13:34-35** - A new commandment I give to you, that you love one another: just as I have loved you, you also are to love one another. By this all people will know that you are my disciples, if you have love for one another. (ESV)
 
@@ -8507,6 +8511,10 @@ It's impossible to please God without faith, but with faith all things are possi
 The law doesn't save:
 
 > **Galatians 3:21-24** - Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. (ESV)
+
+The law doesn't save:
+
+> **Hebrews 7:19** - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through which we draw near to God. (ESV)
 
 Paul seems to refer to the Mosaic law as the ministry of death, and Paul refers to the ministry of the Spirit of Christ as giving life:
 
@@ -12345,11 +12353,53 @@ We should be more confident with the light!
 
 > **Hebrews 7:11** - Now if perfection had been attainable through the Levitical priesthood (for under it the people received the law), what further need would there have been for another priest to arise after the order of Melchizedek, rather than one named after the order of Aaron?
 
-> **Hebrews 10:14:** - For by one offering He has perfected (G5048 teleioo) for all (G1336 dienekes) time (G1336 dienekes) those who are sanctified.
+> **Hebrews 2:11-12** -  For he who sanctifies and those who are sanctified all have one origin.  That is why he is not ashamed to call them brothers, saying, I will tell of your name to my brothers; in the midst of the congregation I will sing your praise.  (ESV)
+
+
+### Faith
+
+> **Hebrews 12:2** - looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. (ESV)
+
+> **Romans 12:2** - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+
+### Spirit
 
 > **Hebrews 12:23:** - to the general assembly and church of the firstborn who are enrolled in heaven (G3772 ouranos), and to God (G2316 theos), the Judge of all (G3956 pas), and to the spirits (G4151 pneuma) of the righteous (G1342 dikaios) made (G5048 teleioo) perfect (G5048 teleioo),
 
-> **Hebrews 2:11-12** -  For he who sanctifies and those who are sanctified all have one origin.  That is why he is not ashamed to call them brothers, saying, I will tell of your name to my brothers; in the midst of the congregation I will sing your praise.  (ESV)
+
+### Holiness
+
+> **James 3:2-3** - For we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect man, able also to bridle his whole body. If we put bits into the mouths of horses so that they obey us, we guide their whole bodies as well. (ESV)
+
+> **Hebrews 10:1** - For since the law has but a shadow of the good things to come instead of the true form of these realities, it can never, by the same sacrifices that are continually offered every year, make perfect those who draw near. (ESV)
+
+> **Hebrews 10:14** - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
+
+> **Hebrews 9:9** - (which is symbolic for the present age). According to this arrangement, gifts and sacrifices are offered that cannot perfect the conscience of the worshiper, (ESV)
+
+
+### Love / knowing Jesus / Truth
+
+> **I John 2:5** - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that we are in him: (ESV)
+
+> **Philippians 3:9-14** - and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. Not that I have already obtained this or am already perfect, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, I press on toward the goal for the prize of the upward call of God in Christ Jesus. (ESV)
+
+> **Didache Chapter 6** - See that no one causes you to err from this way of the Teaching, since apart from God it teaches you. For if you are able to bear the entire yoke of the Lord, you will be perfect; but if you are not able to do this, do what you are able.
+
+> **Matthew 5:47-48** - And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect.
+
+> **Matthew 19:21** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+> **I John 4:12** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
+
+> **I John 4:17** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
+
+> **Hebrews 10:14** - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
+
+> **John 17:17** - Sanctify them in the truth; your word is truth. (ESV)
+
+> **John 17:22-23** - The glory that you have given me I have given to them, that they may be one even as we are one, I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me. (ESV)
 
 
 # Eldership
@@ -16228,6 +16278,10 @@ LGBT and transvestism are sinful.
 The law doesn't save:
 
 > **Galatians 3:21-24** - Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. (ESV)
+
+The law doesn't save:
+
+> **Hebrews 7:19** - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through which we draw near to God. (ESV)
 
 
 ## Submitting to God is submitting to Christ
