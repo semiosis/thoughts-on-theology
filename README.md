@@ -773,7 +773,7 @@ There is always more chances to believe:
 
 > **Romans 11:23-24** - And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. (ESV)
 
-In believing we have eternal life, but we need to continue in obedience to Jesus Christ:
+In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour:
 
 > **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
 
@@ -2585,9 +2585,25 @@ Where previously I said "I'm going out on a limb when I say that without an obed
 my best interpretation of this now is that, believing in Jesus Christ, a person has obeyed Jesus and has eternal life which is to know Jesus and Father God, but this belief must be true belief, incorporating a sense of 'trust' towards Jesus, the type of trust that elicits obedience.
 We need to obey Jesus in order to have a good life, and without obedience to Jesus the wrath of God remains. I really believe we should both believe and obey Jesus, but I don't want to condemn people when I am not the judge, and nor can I see the person's heart.
 
+We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
+
 > **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
 
+On the other hand, if we obey Jesus we will never see death:
+
+> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
+You cannot know God without practicing righteousness. Through believing the gospel and faith/obedience to Jesus we become obedient to God with the help of the Holy Spirit:
+
+> **I John 4:8** - Anyone who does not love does not know God, because God is love. (ESV)
+
 > **John 17:3** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
+
+> **I John 2:29** - If you know that he is righteous, you may be sure that everyone who practices righteousness has been born of him. (ESV)
+
+You will know them by their fruits:
+
+> **I John 3:7** - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. (ESV)
 
 > **Deuteronomy 10:13** - and to keep the commandments and statutes of the LORD, which I am commanding you today for your good? (ESV)
 
@@ -3378,6 +3394,14 @@ Who receives **the Holy Spirit**? The ones who obey God!
 The Holy Spirit is received through faith:
 
 > **Galatians 3:14** - so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might **receive the promised Spirit through faith**. (ESV)
+
+We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
+
+> **John 3:36** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+
+On the other hand, if we obey Jesus we will never see death:
+
+> **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
 We receive the spirit by getting Jesus' words into us, believing them and obeying them. Feeding on them, we get Jesus' spirit and life into us:
 
