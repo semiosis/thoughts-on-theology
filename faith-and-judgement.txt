@@ -17125,6 +17125,8 @@ This Is The Day {Garratt} - YouTube
 
 45. Christian perfection through suffering with Christ is a thing
 
+- en.wikipedia.org: Christian perfection - Wikipedia
+
 45.1. Living a godly life in Christ Jesus is to be wise for salvation
 
   II Timothy 3:12-15 - Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, while evil
@@ -21429,6 +21431,30 @@ AMEN!!
 
   II Corinthians 11:2 - I feel a divine jealousy for you, for I betrothed you to one husband, to present you
   as a pure virgin to Christ. (ESV)
+
+Some people believe that the baptism by fire is arriving at Christian perfection:
+
+- en.wikipedia.org: Christian perfection - Wikipedia
+
+Even though I felt spiritually restored when I was baptised in the Holy Spirit / baptised by fire, I believe I
+am baptised by fire in order to obey God more fully, and to love God with my whole heart, to love my neighbour
+as myself and to pursue perfection in following Jesus!
+
+  Matthew 5:48 - You therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Matthew 19:21 - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor,
+  and you will have treasure in heaven; and come, follow me. (ESV)
+
+In other words, I received the grace before I had perfect obedience, and I believe I should not exchange this
+grace for anything, but use it to obey Jesus Christ:
+
+  Jude 1:4 - For certain people have crept in unnoticed who long ago were designated for this condemnation,
+  ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus
+  Christ. (ESV)
+
+I believe that after I made testimony of being born-again and baptised by fire, I needed to be
+sanctified/corrected by the Truth, the Word of God, and as a consequence of endeavouring to do so by repenting
+and becoming obedient to Jesus, I was spiritually attacked and deplatformed.
 
 55.3. Later in the year
 
@@ -27855,7 +27881,7 @@ Date: 2024-06-07 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-07 Fri 16:01
+Created: 2024-06-07 Fri 16:23
 
 Validate
 
