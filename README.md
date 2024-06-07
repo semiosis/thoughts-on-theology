@@ -61,7 +61,7 @@ AMEN!!
 
 > **Romans 4:5** - And to the one who does not work but <ins>trusts him who justifies the ungodly</ins>, his faith is counted as righteousness, (ESV)
 
-Walk according to the will of God. Walk the way Jesus Christ calls us to walk. **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
 
 > **Galatians 5:16-18** - But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But **if** you are led by the Spirit, you are not under the law.
 
@@ -1211,7 +1211,7 @@ Let's see what the word **katergazomai** (the word for 'work out') means:
     5   see GREEK for 2596
     6   see GREEK for 2038
 
-Walk according to the will of God. Walk the way Jesus Christ calls us to walk. **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
 
 > **Galatians 5:16-18** - But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But **if** you are led by the Spirit, you are not under the law.
 
@@ -2593,17 +2593,7 @@ On the other hand, if we obey Jesus we will never see death:
 
 > **John 8:51** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
-You cannot know God without practicing righteousness. Through believing the gospel and faith/obedience to Jesus we become obedient to God with the help of the Holy Spirit:
-
-> **I John 4:8** - Anyone who does not love does not know God, because God is love. (ESV)
-
 > **John 17:3** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
-
-> **I John 2:29** - If you know that he is righteous, you may be sure that everyone who practices righteousness has been born of him. (ESV)
-
-You will know them by their fruits:
-
-> **I John 3:7** - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. (ESV)
 
 > **Deuteronomy 10:13** - and to keep the commandments and statutes of the LORD, which I am commanding you today for your good? (ESV)
 
@@ -2746,7 +2736,7 @@ Jesus Christ is the Lord referred to:
 
 > **II Corinthians 3:15-18** - Yes, to this day whenever Moses is read a veil lies over their hearts. But when one turns to the Lord, the veil is removed. Now the Lord *(Κύριος, Kyrios, Lord, Master)* is the Spirit, and where the Spirit of the Lord is, there is freedom. And we all, with unveiled face, beholding the glory of the Lord, are being transformed into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
-Walk according to the will of God. Walk the way Jesus Christ calls us to walk. **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
 
 > **Galatians 5:16-18** - But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But **if** you are led by the Spirit, you are not under the law.
 
