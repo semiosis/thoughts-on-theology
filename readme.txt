@@ -83,7 +83,9 @@ through the Red Sea were being led by the Spirit - they were not working for God
   opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you
   are not under the law.
 
-Jesus' disciples here were being led by Jesus. We're only not guilty if we're following Jesus:
+Jesus' disciples here were being led by Jesus. As I understand it, we're only not guilty if we're trusting Jesus
+who justifies the ungodly. Trusting Him who justifies the ungodly has noticeable fruit of following Him because
+those who trust Him follow Him:
 
   Matthew 12:1-8 - At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry, and
   they began to pluck heads of grain and to eat. But when the Pharisees saw it, they said to him, Look, your
@@ -110,8 +112,8 @@ Jesus' disciples here were being led by Jesus. We're only not guilty if we're fo
 |   5 Eph. 2:1,5
 |   6 Titus 3:3-5; John 6:44
 
-I don't entirely agree with this paragraph. But I do believe that without God's assistance in drawing us to Jesus,
-it is impossible for us to be saved.
+I don't entirely agree with this paragraph saying all ability of will is lost. But I do believe that without God's
+assistance in drawing us to Jesus, it is impossible for us to be saved.
 
 Man's inability to do any spiritual good accompanying salvation is essentially like a broken-down car's inability
 to drive and without God's assistance by empowering us with His Holy Spirit (either inside or around us), though a
@@ -192,7 +194,7 @@ Billy Graham really explains this quite well
 Born Again | Billy Graham Classic - YouTube @time: 10 min 50 sec
 
 I believe we are set free from being condemned by / under the Mosaic Law to become a slave to Christ Jesus under
-grace.
+grace - a slave to righteousness.
 
   Romans 8:1-2 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
   Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
@@ -200,6 +202,13 @@ grace.
   Romans 6:22-23 - But now having been freed from sin and enslaved to God, you derive your benefit, resulting in
   sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is
   eternal life in Christ Jesus our Lord. (NASB)
+
+  Romans 6:18-20 - and, having been set free from sin, have become slaves of righteousness. I am speaking in human
+  terms, because of your natural limitations. For just as you once presented your members as slaves to impurity
+  and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading
+  to sanctification. When you were slaves of sin, you were free in regard to righteousness. (ESV)
+
+We are saved while believing in the name of Jesus of Nazareth, the only Son of God:
 
   John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because
   he has not believed in the name of the only Son of God. (ESV)
@@ -3239,6 +3248,11 @@ Christ, resulting in the will to obey Jesus, and God gives us the spirit to help
   heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my
   rules and obey them. And they shall be my people, and I will be their God. (ESV)
 
+  Romans 6:18-20 - and, having been set free from sin, have become slaves of righteousness. I am speaking in human
+  terms, because of your natural limitations. For just as you once presented your members as slaves to impurity
+  and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading
+  to sanctification. When you were slaves of sin, you were free in regard to righteousness. (ESV)
+
 5.7. I believe that a loving, trusting ( believing and obedient ) heart for Jesus Christ is essential for permanent
 abiding in Him
 
@@ -3322,8 +3336,9 @@ counted as a friend of Jesus, they certainly they must obey Jesus' commandments:
 I think faith in Jesus grows as both of these qualities increase, and leads to actual knowledge of Christ:
 
 - Whoever believes in Jesus Christ, the Only-Begotten Son of God, is not condemned.
-- Otherwise, those who don't believe that fully and do not obey the gospel, I think fall into condemnation.
-- Those who obey in part yet do not believe the gospel, I think fall into condemnation.
+- Otherwise, those who don't believe that fully and do not obey the gospel, I think fall into condemnation or
+tribulation.
+- Those who obey in part yet do not believe the gospel, I think fall into condemnation or tribulation.
 
 Nevertheless, if someone believes on Him they have begun to obey Him, and so I believe they are in the Lord while
 they trust in His name, Jesus Christ (Messiah) the Son of God, to be saved, as the following applies:
@@ -3677,11 +3692,15 @@ by the works of faith and Abraham was given assurance of the blessing:
 
 Where previously I said "I'm going out on a limb when I say that without an obedient heart the so-called belief
 doesn't qualify as belief:", my best interpretation of this now is that, believing in Jesus Christ, a person has
-obeyed Jesus and has eternal life which is to know Jesus and Father God, but this belief must be true belief,
-incorporating a sense of 'trust' towards Jesus, the type of trust that elicits obedience. We need to obey Jesus in
-order to have a good life, and without obedience to Jesus the wrath of God remains. I really believe we should
-both believe and obey Jesus, but I don't want to condemn people when I am not the judge, and nor can I see the
-person's heart.
+obeyed Jesus and has eternal life at that point or in their future, which is to know Jesus and Father God, but
+this belief must be true belief, incorporating a sense of 'trust' towards Jesus, the type of trust that elicits
+obedience in the heart - but also if they don't continue in obedience they may not "see life" and the wrath of God
+may remain on that person - so we must actually repent from sin and seek to know Jesus by following His
+commandments.
+
+We need to obey Jesus in order to have a good life, and without obedience to Jesus the wrath of God remains. I
+really believe we should both believe and obey Jesus, but I don't want to condemn people when I am not the judge,
+and nor can I see the person's heart.
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our
 justification isn't contingent on "working":
@@ -3873,9 +3892,11 @@ following His commandments), we will live forever, in Him.
 
   John 6:37 - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
 
-I believe that anyone who is trusting in Jesus for His finished work is saved. Believing the gospel is obeying the
-gospel. I just think there's more to it in terms of abiding forever. Because we must bear fruit etc. and follow
-His commandments to come to know Him. I don't condemn anyone who is believing on Him for life through His name.
+I believe that anyone who is trusting in Jesus for His finished work is saved. Believing the gospel and trusting
+on Him who raised Jesus for the dead for our justification is obeying the gospel. I just think there's more to
+faith than just belief, to the end of knowing your Saviour (knowing God) / abiding forever. Because we must bear
+fruit etc. and follow His commandments to come to know Him. I don't condemn anyone who is believing on Him for
+life through His name.
 
 Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
 of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
@@ -3901,7 +3922,9 @@ through the Red Sea were being led by the Spirit - they were not working for God
   opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you
   are not under the law.
 
-Jesus' disciples here were being led by Jesus. We're only not guilty if we're following Jesus:
+Jesus' disciples here were being led by Jesus. As I understand it, we're only not guilty if we're trusting Jesus
+who justifies the ungodly. Trusting Him who justifies the ungodly has noticeable fruit of following Him because
+those who trust Him follow Him:
 
   Matthew 12:1-8 - At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry, and
   they began to pluck heads of grain and to eat. But when the Pharisees saw it, they said to him, Look, your
@@ -5359,8 +5382,8 @@ We should be sanctified by the Truth, as we trust in God, trust in Jesus, trust 
   sent me. I made known to them your name, and I will continue to make it known, that the love with which you have
   loved me may be in them, and I in them.
 
-We're not being saved by our works - we've already been redeemed, and we are justified by faith in Jesus, but we
-are also sanctified by faith in Jesus Christ. God is the one who justifies:
+We're not being justified by our works - we've already been redeemed, and we are justified by faith in Jesus, but
+we are also sanctified by faith in Jesus Christ. God is the one who justifies:
 
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
   the Prophets bear witness to it- the righteousness of God through faith in Jesus Christ for all who believe. For
@@ -5379,8 +5402,8 @@ holiness:
   discipline seems painful rather than pleasant, but later it yields the peaceful fruit of righteousness to those
   who have been trained by it. (ESV)
 
-We're not being saved by our works - we've already been redeemed, but we do works out of love for Jesus, and out
-of ongoing faith, ongoing obedience:
+We're not being justified by our works - we've already been redeemed, but we do works out of love for Jesus, and
+out of ongoing faith, ongoing obedience:
 
   Titus 3:8 - The saying is trustworthy, and I want you to insist on these things, so that those who have believed
   in God may be careful to devote themselves to good works. These things are excellent and profitable for people.
@@ -10534,8 +10557,8 @@ We've been created in Christ Jesus for good works:
   Ephesians 2:10 - For we are his workmanship, created in Christ Jesus for good works, which God prepared
   beforehand, that we should walk in them. (ESV)
 
-We're not being saved by our works - we've already been redeemed, but we do works out of love for Jesus, and out
-of ongoing faith, ongoing obedience:
+We're not being justified by our works - we've already been redeemed, but we do works out of love for Jesus, and
+out of ongoing faith, ongoing obedience:
 
   Titus 3:8 - The saying is trustworthy, and I want you to insist on these things, so that those who have believed
   in God may be careful to devote themselves to good works. These things are excellent and profitable for people.
@@ -10947,7 +10970,9 @@ Heresies/delusions:
 - Not trusting Jesus who has done the finished work for their justification
 - Lordship without free grace (working to be forgiven, without belief in the truth)
 - Not willing to accept that Jesus Christ is the propitiation for our sins.
-- Not willing to submit to the righteousness of God.
+- Not willing to submit to the righteousness of God which is once again, to accept the propitiation for our
+sins.
+- We must know that God loved us and sent his Son to be the propitiation for our sins.
 - Trusting on their own works to appease God's wrath.
 - Not believing Jesus has done the finished work for their justification
 
@@ -10959,20 +10984,33 @@ delusion category. It's very serious if they indeed do:
   always to give thanks to God for you, brothers beloved by the Lord, because God chose you as the firstfruits to
   be saved, through sanctification by the Spirit and belief in the truth. (ESV)
 
-Justified i.e. has faith:
+Justified and saved from wrath i.e. has faith:
 
-- Love for Jesus
+- Response of love for Jesus
+- I John 4:10-11 - In this is love, not that we have loved God but that he loved us and sent his Son to be
+the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. (ESV)
+- Ephesians 6:6 - not by the way of eye-service, as people-pleasers, but as servants of Christ, doing the
+will of God from the heart,
 - trusting on the finished work of Jesus and trusting on Jesus Himself who has done the work
 - Obedient to Jesus
 - The finished work of Jesus covers them
 
   I John 4:19 - We love because he first loved us. (ESV)
 
-Probably not justified i.e. without faith:
+Probably not saved from wrath i.e. without faith:
 
-- trusting on the finished work of Jesus while not trusting on Jesus Himself who has done the work
-- Disobedient to Jesus (not Jesus' sheep)
-- The finished work of Jesus probably doesn't help them
+- trusting on the finished work of Jesus while not trusting on Jesus Himself who has done the work?
+- No love for Jesus (not Jesus' sheep)
+- not trying to keep His commandments
+- no response of love for Jesus
+- The finished work of Jesus probably doesn't help them because they don't receive it by uniting the gospel
+with faith
+
+Probably not justified:
+
+- not submitting to the righteousness of God
+- not accepting that they needed forgiveness
+- not accepting that God loved them first by atoning for their sin
 
 Seriously, this verse:
 
@@ -28044,6 +28082,11 @@ and explaining 5D situations requires a little bit more explanation. As Jesus sa
 I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious
 topics as the order of salvation, or salvation by obedience and I want my theology to be 'raw and real'.
 
+I think what this verse says is that putting a stop to sin goes a long way to
+
+  I John 5:18 - We know that everyone who has been born of God does not keep on sinning, but he who was born of
+  God protects him, and the evil one does not touch him. (ESV)
+
 72.9. I'm definitely leaving this stuff in God's court
 
 At the end of the day I am resting on the righteousness that comes through faith in Jesus - Amen to that.
@@ -28412,11 +28455,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-06-08 Sat 00:00
+Date: 2024-06-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-08 Sat 17:28
+Created: 2024-06-09 Sun 10:26
 
 Validate
 
