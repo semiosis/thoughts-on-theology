@@ -867,6 +867,8 @@ And out of the heart should flow rivers of living water. Now that re-emphasises 
 
 ### We are saved by grace through faith in Jesus Christ
 
+It's God's grace that enables us to be saved through faith. While we are saved exercising obedient, trusting, believing faith, Paul says it was actually God's doing:
+
 > **Ephesians 2:8** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, (ESV)
 
 Just because we're gifted repentance to life, that doesn't mean that to go ahead and obediently repent makes the gift of repentance no longer a gift!
@@ -1774,6 +1776,8 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 
 I think believing in the Son is also obedience, but it is an act of obedience which is a gift to us.
 
+It's God's grace that enables us to be saved through faith. While we are saved exercising obedient, trusting, believing faith, Paul says it was actually God's doing:
+
 > **Ephesians 2:8** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, (ESV)
 
 > **John 6:68** - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, (ESV)
@@ -1796,6 +1800,13 @@ The word for 'believe' which is used in the New Testament is the verb for faith 
 > The Greek word *pisteuó* carries connotations of deep trust and
 > confidence. It means to believe, to entrust, to have confidence in
 > something.
+
+I think faith is more like hopeful/trusting belief that results in action (walking by faith).
+
+Examples:
+
+-   sailing across the Atlantic to find America.
+-   obeying Jesus' commandments out of seeking Jesus, or out of belief and love for Jesus, believing that God sees.
 
 
 ## Our obedient faith should be penitent, and should be without partiality. We **aim** for perfection, to be conformed to Christ's image
@@ -14323,6 +14334,8 @@ That's why it's grace.
 Saved by grace through faith.
 
 I think a person needs **some** faith to be saved, and faith works.
+
+It's God's grace that enables us to be saved through faith. While we are saved exercising obedient, trusting, believing faith, Paul says it was actually God's doing:
 
 > **Ephesians 2:8** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, (ESV)
 
