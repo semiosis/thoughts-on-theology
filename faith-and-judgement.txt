@@ -2654,6 +2654,16 @@ The word for 'believe' which is used in the New Testament is the verb for faith 
   The Greek word pisteuo carries connotations of deep trust and confidence. It means to believe, to entrust, to
   have confidence in something.
 
+Have faith in God and have faith in Jesus:
+
+  John 14:1 - "Do not let your heart be troubled; believe (G4100 pisteuo) in God, believe (G4100 pisteuo) also in
+  Me.
+
+Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
+
 I think faith is more like hopeful/trusting belief that results in action (walking by faith).
 
 Examples:
@@ -18577,6 +18587,24 @@ court, I feel like has damaged me spiritually in ways which I have not experienc
 going to God's court because I feel like I have tried my best to remain faithful to God, and now I need full
 deliverance. I pray it does, and for the grace to be sanctified and for ultimate deliverance from those demons.
 
+  Romans 4:7-8 - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the
+  man against whom the Lord will not count his sin. (ESV)
+
+I pray that God will not count sin done in my brokenness.
+
+Trusting Him means having faith in Him, obeying, believing in God and having the fear of God, believing,
+following, yielding to Jesus. Ungodly here means wicked or behaviour not in accordance with the knowledge of God.
+Only God can justify the ungodly, so that's why by following Him, knowing we can be ungodly, we have the hope of
+God justifying us:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
+
+This qualifies:
+
+  Luke 18:13 - But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his
+  breast, saying, God, be merciful to me, a sinner! (ESV)
+
 51.2.2. I was learning Christ before I was born-again
 
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are in
@@ -19822,10 +19850,13 @@ themself that they are saved.
 
 However, if a person trusts him who justifies the ungodly, his faith is counted as righteousness.
 
-Trusting Him means having faith in Him, obeying. Ungodly here means wicked.
+Trusting Him means having faith in Him, obeying, believing in God and having the fear of God, believing,
+following, yielding to Jesus. Ungodly here means wicked or behaviour not in accordance with the knowledge of God.
+Only God can justify the ungodly, so that's why by following Him, knowing we can be ungodly, we have the hope of
+God justifying us:
 
   Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
-  faith is counted as righteousness,
+  faith is counted as righteousness, (ESV)
 
 This qualifies:
 
@@ -22236,7 +22267,43 @@ think.
   Matthew 6:15 - but if you do not forgive others their trespasses, neither will your Father forgive your
   trespasses. (ESV)
 
-55.9.2. Justified by faith alone. But faith is substantiated by works, Jesus' works which is entirely sufficient and
+55.9.2. We have been saved, we are being saved, and we will be saved
+
+- simplybible.com: Saved in Three Tenses
+
+We have been saved (when we believed):
+
+  II Timothy 1:9 - who saved us and called us to a holy calling, not because of our works but because of his own
+  purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
+
+  I Corinthians 6:11 - And such were some of you. But you were washed, you were sanctified, you were justified in
+  the name of the Lord Jesus Christ and by the Spirit of our God. (ESV)
+
+We are being saved:
+
+  I Corinthians 1:18 - For the word of the cross is folly to those who are perishing, but to us who are being
+  saved it is the power of God. (ESV)
+
+  II Corinthians 2:15 - For we are the aroma of Christ to God among those who are being saved and among those who
+  are perishing, (ESV)
+
+  Philippians 2:12-13 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but
+  much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you,
+  both to will and to work for his good pleasure. (ESV)
+
+We shall be saved:
+
+  Romans 5:9-10 - Since, therefore, we have now been justified by his blood, much more shall we be saved by him
+  from the wrath of God. For if while we were enemies we were reconciled to God by the death of his Son, much
+  more, now that we are reconciled, shall we be saved by his life. (ESV)
+
+  Romans 13:11 - Besides this you know the time, that the hour has come for you to wake from sleep. For salvation
+  is nearer to us now than when we first believed. (ESV)
+
+  Ephesians 1:14 - who is the guarantee of our inheritance until we acquire possession of it, to the praise of his
+  glory. (ESV)
+
+55.9.3. Justified by faith alone. But faith is substantiated by works, Jesus' works which is entirely sufficient and
 Jesus working in us even by our obedience
 
   James 2:10 - For whoever keeps the whole law but fails in one point has become accountable for all of it. For he
@@ -22288,13 +22355,13 @@ If a person loves one another, they have been born of God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-How can anyone the having faith in Jesus from His words and teachings? We need to have love for one another to be
-saved as we believe in Jesus to be saved.
+We need to have love for one another to be saved as we believe in Jesus to be saved.
 
 How can a person believe without having a heart that trusts Jesus? How can a person have life without a
 relationship with God?
 
-A relationship involves more than belief.
+A relationship involves more than just 'belief', but I'm quite sure it also means being a conduit of Christ's
+love.
 
   II Timothy 2:19 - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and,
   Let everyone who names the name of the Lord depart from iniquity. (ESV)
@@ -22462,7 +22529,7 @@ Faith is ongoing. Ongoing faith is patience endurance. Jesus says patience endur
   Revelation of John 2:19 - I know your works, your love and faith and service and patient endurance, and that
   your latter works exceed the first.
 
-55.9.3. Paul here mentions trust even for the one who trusts in Him who justifies the ungodly
+55.9.4. Paul here mentions trust even for the one who trusts in Him who justifies the ungodly
 
   Romans 4:2 - For if Abraham was justified by works, he has something to boast about, but not before God.
 
@@ -23754,6 +23821,11 @@ Have faith in God and have faith in Jesus:
 
   John 14:1 - "Do not let your heart be troubled; believe (G4100 pisteuo) in God, believe (G4100 pisteuo) also in
   Me.
+
+Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
 
 Repent, for the kingdom of heaven is near:
 
@@ -28480,7 +28552,7 @@ Date: 2024-06-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-09 Sun 17:23
+Created: 2024-06-09 Sun 17:55
 
 Validate
 
