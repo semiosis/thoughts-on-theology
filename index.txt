@@ -28158,6 +28158,8 @@ The saving grace we receive is primarily for the salvation of our souls, not in 
 What I mean to say is that, I think God is still justified in giving only enough grace to save the person's soul,
 while allowing them to be put to death for a response of obedience to Him.
 
+  Ephesians 4:7 - But grace was given to each one of us according to the measure of Christ's gift. (ESV)
+
 Consider St Polycarp:
 
 - en.wikipedia.org: Polycarp - Wikipedia
@@ -28598,7 +28600,7 @@ Date: 2024-06-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-09 Sun 22:13
+Created: 2024-06-09 Sun 22:16
 
 Validate
 
