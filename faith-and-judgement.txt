@@ -36,6 +36,15 @@ obedient, believing, desiring love for God.
   John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
   (ESV)
 
+Because God loved us first:
+
+- The Apostle Paul endeavours to know Jesus (makes it His own Php 3:12) because Jesus made Paul His own
+- To be found in Jesus is what Paul describes as the righteousness from God that depends on faith
+- We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know God
+loved us and forgive us first
+- We should love because He loved us first
+- We must forgive as we have been forgiven
+
 1. Confessions of faith
 
 I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious
@@ -1485,8 +1494,8 @@ to get to know Jesus and become like Him in His death
 
 Faith presses on to walk the same way Jesus walked - even to spend the rest of the time on earth obedient to Jesus
 to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God,
-stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in his
-sufferings) and His resurrection:
+stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in His
+sufferings, living has He lived) and His resurrection:
 
   Philippians 3:9-12 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith - that I may know him and
@@ -10023,6 +10032,15 @@ We are God's workmanship:
 
 We absolutely must have a response of love for God - we must abide in Christ's love to abide in God.
 
+Because God loved us first:
+
+- The Apostle Paul endeavours to know Jesus (makes it His own Php 3:12) because Jesus made Paul His own
+- To be found in Jesus is what Paul describes as the righteousness from God that depends on faith
+- We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know God
+loved us and forgive us first
+- We should love because He loved us first
+- We must forgive as we have been forgiven
+
 The redemption in Christ Jesus is a gift, and is a substitutionary atonement that is received through faith in
 Jesus.
 
@@ -14793,7 +14811,19 @@ from its place.
   Revelation of John 2:5 - Remember therefore from where you have fallen; repent, and do the works you did at
   first. If not, I will come to you and remove your lampstand from its place, unless you repent.
 
-A response of love for Jesus is justifying work.
+Because God loved us first:
+
+- The Apostle Paul endeavours to know Jesus (makes it His own Php 3:12) because Jesus made Paul His own
+- To be found in Jesus is what Paul describes as the righteousness from God that depends on faith
+- We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know God
+loved us and forgive us first
+- We should love because He loved us first
+- We must forgive as we have been forgiven
+
+If there is such a thing as justifying work then it is better described as obedient faith (Hebrews 11:31, James
+| 25) and obedient faith is "being found in Christ".
+
+Is a response of love for Jesus is justifying 'work'? It would be based on being forgiven first.
 
   Luke 7:47-50 - Therefore I tell you, her sins, which are many, are forgiven-for she loved much. But he who is
   forgiven little, loves little. And he said to her, Your sins are forgiven. Then those who were at table with him
@@ -18252,6 +18282,13 @@ A Psalm of David:
 
   John 8:46-47 - Which one of you convicts me of sin? If I tell the truth, why do you not believe me? Whoever is
   of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
+
+Jesus' friends do what Jesus' commands them. Jesus' friends hear His voice:
+
+  John 3:29 - The one who has the bride is the bridegroom. The friend of the bridegroom, who stands and hears him,
+  rejoices greatly at the bridegroom's voice. Therefore this joy of mine is now complete. (ESV)
+
+  John 15:14 - You are my friends if you do what I command you. (ESV)
 
 51. Marriage
 
@@ -27787,6 +27824,15 @@ Our love is in response to Christ having loved us first:
   Ephesians 4:32 - Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.
   (ESV)
 
+Because God loved us first:
+
+- The Apostle Paul endeavours to know Jesus (makes it His own Php 3:12) because Jesus made Paul His own
+- To be found in Jesus is what Paul describes as the righteousness from God that depends on faith
+- We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know God
+loved us and forgive us first
+- We should love because He loved us first
+- We must forgive as we have been forgiven
+
 72.5.1. Obedience to God and passing forward the love of Christ
 
 It was Father God's will that Jesus went to the cross:
@@ -28552,7 +28598,7 @@ Date: 2024-06-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-09 Sun 17:55
+Created: 2024-06-09 Sun 22:13
 
 Validate
 
