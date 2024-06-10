@@ -6396,7 +6396,15 @@ It's still really important to put a stop to sin! And we must walk according to 
 
 ### Holiness
 
-When we repent from sin we allow Jesus' holiness to shine through us increasingly.
+*Undivided* devotion to Christ:
+
+> **I Corinthians 7:32-35** - I want you to be free from anxieties. The unmarried man is anxious about the things of the Lord, how to please the Lord. But the married man is anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But the married woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay any restraint upon you, but to promote good order and to **secure your undivided devotion to the Lord**. (ESV)
+
+*Sincere* and *pure* devotion to Christ:
+
+> **II Corinthians 11:2-3** - I feel a divine jealousy for you, for I betrothed you to one husband, to present you as a pure virgin to Christ. But I am afraid that as the serpent deceived Eve by his cunning, your thoughts will be led astray from a **sincere and pure devotion to Christ**. (ESV)
+
+When we repent from sin, and serve Jesus with undivided, sincere and pure devotion, we allow Jesus' holiness to shine through us increasingly.
 
 Therefore, it's really not our own holiness or power that is responsible for miracles that happen through us or in cooperation with us, but it is Jesus' power and holiness.
 
@@ -15725,7 +15733,17 @@ We follow them in faith.
 
 1.  Being born-again
 
+    Being born of the Spirit isn't receiving the glory body:
+    
     <https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/>
+    
+    So while I have Jesus' spirit in me, I'm also still in this body of dust:
+    
+    > **I Corinthians 15:42-48** - So is it with the resurrection of the dead. What is sown is perishable; what is raised is imperishable. It is sown in dishonor; it is raised in glory. It is sown in weakness; it is raised in power. It is sown a natural body; it is raised a spiritual body. If there is a natural body, there is also a spiritual body. Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. But it is not the spiritual that is first but the natural, and then the spiritual. The first man was from the earth, a man of dust; the second man is from heaven. As was the man of dust, so also are those who are of the dust, and as is the man of heaven, so also are those who are of heaven.
+    
+    The lowly, natural, corruptible body, which I am still in, will be transformed into an incorruptible body:
+    
+    > **Philippians 3:20-21** - But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. (ESV)
     
     As interesting as what happened to me is, regarding a light body, I believe more important is objectively walking in the light of the truth.
     
@@ -16919,7 +16937,7 @@ Amen! I'm waiting for that day. Also, I believe God can take me up any time if i
 
 We may die a natural death in this life but be raised at the second coming with an incorruptible body.
 
-> **I Corinthians 15:42-48** - So is it with the resurrection of the dead. What is sown is perishable; what is raised is imperishable.  It is sown in dishonor; it is raised in glory. It is sown in weakness; it is raised in power.  It is sown a natural body; it is raised a spiritual body. If there is a natural body, there is also a spiritual body.  Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit.  But it is not the spiritual that is first but the natural, and then the spiritual.  The first man was from the earth, a man of dust; the second man is from heaven.  As was the man of dust, so also are those who are of the dust, and as is the man of heaven, so also are those who are of heaven.
+> **I Corinthians 15:42-48** - So is it with the resurrection of the dead. What is sown is perishable; what is raised is imperishable. It is sown in dishonor; it is raised in glory. It is sown in weakness; it is raised in power. It is sown a natural body; it is raised a spiritual body. If there is a natural body, there is also a spiritual body. Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. But it is not the spiritual that is first but the natural, and then the spiritual. The first man was from the earth, a man of dust; the second man is from heaven. As was the man of dust, so also are those who are of the dust, and as is the man of heaven, so also are those who are of heaven.
 
 Jesus can subject all things to Himself. By that power, Jesus will transform our lowly body to be like His glorious body:
 
@@ -20763,6 +20781,10 @@ By God's grace I've been set free from sin, and brought into a relationship with
 -   **Sermon:** [His Voice in Yours: How Christ Wins the World - YouTube](https://www.youtube.com/watch?v=fYJ1oFqSgv4)
 
 > **Matthew 13:45-52** - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down and sorted the good into containers but threw away the bad. So it will be at the close of the age. <ins>The angels will come out and separate the evil from the righteous and throw them into the fiery furnace.</ins> In that place there will be weeping and gnashing of teeth. Have you understood all these things? They said to him, Yes. And he said to them, Therefore every scribe who has been trained for the kingdom of heaven is like a master of a house, who brings out of his treasure what is new and what is old.
+
+God is not saving Lucifer/Satan/the devil or his demons/devils. They're all going to hell forever. Amen to that:
+
+> **Revelation of John 20:7-10** - And when the thousand years are ended, Satan will be released from his prison and will come out to deceive the nations that are at the four corners of the earth, Gog and Magog, to gather them for battle; their number is like the sand of the sea. And they marched up over the broad plain of the earth and surrounded the camp of the saints and the beloved city, but fire came down from heaven and consumed them, and **the devil who had deceived them was thrown into the lake of fire and sulfur where the beast and the false prophet were, and they will be tormented day and night forever and ever**. (ESV)
 
 > **Revelation 22:12-17, 20-21** - Behold, I am coming soon, bringing my recompense with me, to repay everyone for what he has done. I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may enter the city by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and everyone who loves and practices falsehood. I, Jesus, have sent my angel to testify to you about these things for the churches. I am the root and the descendant of David, the bright morning star. The Spirit and the Bride say, Come. And let the one who hears say, Come. And let the one who is thirsty come; let the one who desires take the water of life without price. He who testifies to these things says, Surely I am coming soon. Amen. Come, Lord Jesus! The grace of the Lord Jesus be with all. Amen. (ESV)
 
