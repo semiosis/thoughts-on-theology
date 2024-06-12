@@ -1421,9 +1421,15 @@ Also I conclude that obeying Jesus Christ is having faith in Him.
 
 ### God acts for those who wait for Him
 
+God wants to be our strength. AMEN!!
+
 God acts for those who wait for Him:
 
 > **Isaiah 64:4** - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, **who acts** <ins>for those who wait for him</ins>. (ESV)
+
+Also, waiting on the LORD our strength is renewed:
+
+> **Isaiah 40:31** - but they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles; they shall run and not be weary; they shall walk and not faint. (ESV)
 
 If God is for us, who can be against us?
 
@@ -3093,9 +3099,17 @@ You **must** believe:
 
 > **Romans 11:20-23** - That is true. <ins>They were broken off because of their unbelief, but you stand fast through faith.</ins> So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he spare you. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again.
 
+God acts for those who wait for Him:
+
+> **Isaiah 64:4** - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, **who acts** <ins>for those who wait for him</ins>. (ESV)
+
 You **must** obey:
 
 > **John 15:1-6** - I am the true vine, and my Father is the vinedresser.  Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit.  Already you are clean because of the word that I have spoken to you.  Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me.  I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. <ins>If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned.</ins>
+
+Also, waiting on the LORD our strength is renewed:
+
+> **Isaiah 40:31** - but they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles; they shall run and not be weary; they shall walk and not faint. (ESV)
 
 We **must** put a stop to sin - it's for our own good:
 
@@ -6958,6 +6972,10 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 
 
 ### Salvation by obedience
+
+In obeying God, God helps us:
+
+> **Joshua 1:9** - Have I not commanded you? Be strong and courageous. Do not be frightened, and do not be dismayed, for the LORD your God is with you wherever you go. (ESV)
 
 I just want to be clear that good works we do in obedience to Jesus are still considered a gift to us:
 
