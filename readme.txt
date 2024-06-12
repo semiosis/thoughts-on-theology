@@ -2466,9 +2466,19 @@ Jesus will be easy.
   John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
   through me.
 
-4.1. Walk by the Spirit = Obey Jesus = Led by the Spirit
+4.1. Being led by the Spirit is not license to sin
 
-It is clear that following Jesus helps us to not sin, which means that the destructiveness of sin for is is still
+  Galatians 5:19-21 - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry,
+  sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies,
+  and things like these. I warn you, as I warned you before, that those who do such things will not inherit the
+  kingdom of God. (ESV)
+
+Repenting from sin, including such things as idolatry, witchcraft, jealousy and sexual immorality is all a part of
+following Jesus and being led by the Spirit.
+
+4.2. Walk by the Spirit = Obey Jesus = Led by the Spirit
+
+It is clear that following Jesus helps us to not sin, which means that the destructiveness of sin for us is still
 a reality if we are not following Jesus. We get on top of it by following Jesus and walking by His Spirit:
 
   Galatians 5:14-16 - For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if
@@ -2498,7 +2508,7 @@ Following Jesus includes your thought life:
   pure, whatever is lovely, whatever is commendable, if there is any excellence, if there is anything worthy of
   praise, think about these things. (ESV)
 
-4.2. Following Jesus is the way of righteousness
+4.3. Following Jesus is the way of righteousness
 
 By faith, we continue to abide in Jesus, believing Him and following Him in obedience. We do not simply commend
 ourselves for one act of belief, and then abandon the way:
@@ -2527,7 +2537,7 @@ Jesus will be justified:
 
 OBEDIENCE!
 
-4.3. Obey the Truth, obey Jesus. Serve one another through love
+4.4. Obey the Truth, obey Jesus. Serve one another through love
 
 Even Paul shows that in obeying Jesus, we walk by the Spirit:
 
@@ -2540,7 +2550,7 @@ Even Paul shows that in obeying Jesus, we walk by the Spirit:
 
 Walking by the Spirit is being led by the Spirit is being obedient to Jesus.
 
-4.3.1. You cannot serve God, and also be yoked to money
+4.4.1. You cannot serve God, and also be yoked to money
 
 Priorities:
 
@@ -2648,7 +2658,7 @@ We have the Word of God. We can also walk in Jesus' commandments. We've got to b
 
 God can speak to us directly without internet, even through His Spirit, even in a dream.
 
-4.3.2. Make friends with charity while money hasn't yet failed
+4.4.2. Make friends with charity while money hasn't yet failed
 
 Money is temporary. While it's in your hands, make friends with it, by giving in charity to those in need.
 
@@ -2668,7 +2678,7 @@ Money will fail - bitcoin will fail, ethereum will fail, and when it fails peopl
   Luke 16:8-9 - And I tell you, make friends for yourselves by means of unrighteous wealth, so that when it fails
   they may receive you into the eternal dwellings. (ESV)
 
-4.3.3. In this world God can see if we are to be trusted with true heavenly wealth by seeing how we used our money
+4.4.3. In this world God can see if we are to be trusted with true heavenly wealth by seeing how we used our money
 
   Luke 16:11-12 - If then you have not been faithful in the unrighteous wealth, who will entrust to you the true
   riches? And if you have not been faithful in that which is another's, who will give you that which is your own?
@@ -2678,7 +2688,7 @@ Money will fail - bitcoin will fail, ethereum will fail, and when it fails peopl
   evils. It is through this craving that some have wandered away from the faith and pierced themselves with many
   pangs. (ESV)
 
-4.3.4. We must actually make following Jesus a reality to take hold of the eternal life to which we are called
+4.4.4. We must actually make following Jesus a reality to take hold of the eternal life to which we are called
 
 We make the confession, but we must then take hold of it.
 
@@ -28753,6 +28763,17 @@ for when that happens by being holy and loving:
   I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
   as he is so also are we in this world. (ESV)
 
+Sigh.... For the record, as of <2024-06-13 Thu>, it still feels as though I'm being hit by witchcraft. The spirit
+spouse stuff has continued. It's only been a problem since the end of 2022, and I think its objective is to make
+me feel disqualified, but I know it's just demons/witchcraft and I'm resisting it to my best ability, including in
+my thoughts. Asides from that, I'll continue endeavouring to abide by Jesus' commandments, and I have a good
+conscience.
+
+  Galatians 5:19-21 - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry,
+  sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies,
+  and things like these. I warn you, as I warned you before, that those who do such things will not inherit the
+  kingdom of God. (ESV)
+
 72.10. In my helpless state I cried out to God for help, and He made me born-again of the spirit
 
 I was spiritually bankrupt and I knew I needed God's help.
@@ -29074,7 +29095,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 11:27
+Created: 2024-06-13 Thu 11:53
 
 Validate
 
