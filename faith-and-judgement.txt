@@ -228,6 +228,9 @@ grace - a slave to righteousness.
   sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is
   eternal life in Christ Jesus our Lord. (NASB)
 
+  Galatians 4:8 - Formerly, when you did not know God, you were enslaved to those that by nature are not gods.
+  (ESV)
+
   Romans 6:18-20 - and, having been set free from sin, have become slaves of righteousness. I am speaking in human
   terms, because of your natural limitations. For just as you once presented your members as slaves to impurity
   and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading
@@ -243,6 +246,15 @@ And brought into doing the will of God:
   Romans 15:17-18 - In Christ Jesus, then, I have reason to be proud of my work for God. For I will not venture to
   speak of anything except what Christ has accomplished through me to bring the Gentiles to obedience-by word and
   deed,
+
+We have confidence when keep His commandments, believing in the name of God's Son Jesus Christ and loving one
+another:
+
+  I John 3:21-24 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
+  we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that
+  we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. Whoever keeps
+  his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he
+  has given us. (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
@@ -2100,13 +2112,16 @@ Also, waiting on the LORD our strength is renewed:
   Isaiah 40:31 - but they who wait for the LORD shall renew their strength; they shall mount up with wings like
   eagles; they shall run and not be weary; they shall walk and not faint. (ESV)
 
-We are ourselves empowered thanks to Jesus' own endurance, and that is unlocked byhaving faith in Jesus:
+We are ourselves empowered thanks to Jesus' own endurance, and that is unlocked by having believing, obedient,
+trusting, following faith in Jesus where we are being led by His Spirit, and are walking by His Spirit:
 
   Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
   every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
   looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
   cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
   sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
+
+  Philippians 4:13 - I can do all things through him who strengthens me. (ESV)
 
 If God is for us, who can be against us?
 
@@ -2450,6 +2465,226 @@ Jesus will be easy.
 
   John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
   through me.
+
+4.1. Walk by the Spirit = Obey Jesus = Led by the Spirit
+
+It is clear that following Jesus helps us to not sin, which means that the destructiveness of sin for is is still
+a reality if we are not following Jesus. We get on top of it by following Jesus and walking by His Spirit:
+
+  Galatians 5:14-16 - For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if
+  you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the
+  Spirit, and you will not gratify the desires of the flesh. (ESV)
+
+I've heard from many deluded Christians in the past who think that as Christians we "do not need to follow
+Christ's law".
+
+Also, I believe that loving your neighbour as yourself does not cancel out the rest of the law of God, but that a
+person must be actually following Christ by obeying Christ's commandments in order to not be "under the law" and
+to be "not guilty".
+
+  Philippians 3:9-10 - and be found in him, not having a righteousness of my own that comes from the law, but that
+  which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
+  the power of his resurrection, and may share his sufferings, becoming like him in his death, (ESV)
+
+In Christ Jesus, as we are abiding in Jesus, getting to know Jesus through obedience to Him, getting to know Him
+in Spirit as we get really intimate with Jesus, walking as He walked, we have the peace of God:
+
+  Philippians 4:7 - And the peace of God, which surpasses all understanding, will guard your hearts and your minds
+  in Christ Jesus. (ESV)
+
+Following Jesus includes your thought life:
+
+  Philippians 4:8 - Finally, brothers, whatever is true, whatever is honorable, whatever is just, whatever is
+  pure, whatever is lovely, whatever is commendable, if there is any excellence, if there is anything worthy of
+  praise, think about these things. (ESV)
+
+4.2. Following Jesus is the way of righteousness
+
+By faith, we continue to abide in Jesus, believing Him and following Him in obedience. We do not simply commend
+ourselves for one act of belief, and then abandon the way:
+
+  Galatians 5:5 - For through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. (ESV)
+
+We have peace with God and are justified by faith when we are following Jesus Christ who is our Lord. Yes, we have
+peace because we are following Jesus::
+
+  Romans 5:1 - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus
+  Christ. (ESV)
+
+"Jesus our Lord" means we are following Jesus. Those who trust in God who raised Jesus from the dead and follow
+Jesus will be justified:
+
+  Romans 4:23-25 - But the words it was counted to him were not written for his sake alone, but for ours also. It
+  will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our
+  trespasses and raised for our justification. (ESV)
+
+  Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
+  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
+  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
+  because it had been well built. But the one who hears and does not do them is like a man who built a house on
+  the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
+  house was great. (ESV)
+
+OBEDIENCE!
+
+4.3. Obey the Truth, obey Jesus. Serve one another through love
+
+Even Paul shows that in obeying Jesus, we walk by the Spirit:
+
+  Galatians 5:13-17 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
+  the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your
+  neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one
+  another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of
+  the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to
+  each other, to keep you from doing the things you want to do. (ESV)
+
+Walking by the Spirit is being led by the Spirit is being obedient to Jesus.
+
+4.3.1. You cannot serve God, and also be yoked to money
+
+Priorities:
+
+- 1. Jesus
+- 2-?. Everything else
+
+  Matthew 6:24 - No one can serve two masters, for either he will hate the one and love the other, or he will be
+  devoted to the one and despise the other. You cannot serve God and money. (ESV)
+
+You cannot make money master over you. We must accept Jesus as Master over us. In order to follow Jesus, sometimes
+You will have to drop money because there are many people you around you who need you to lighten their burdens!
+
+OBEDIENCE!
+
+Sermon
+Seven Reasons We Must Pursue Supreme Satisfaction in God - YouTube
+
+We must get on the path:
+
+  II Corinthians 1:20 - For all the promises of God find their Yes in him. That is why it is through him that we
+  utter our Amen to God for his glory. (ESV)
+
+  Hebrews 5:8-10 - Although he was a son, he learned obedience through what he suffered. And being made perfect,
+  he became the source of eternal salvation to all who obey him, being designated by God a high priest after the
+  order of Melchizedek.
+
+We must be yoked to Jesus Christ alone. How? By following His commandments in reality. If you're not yoked to
+Jesus then you're susceptible to being yoked to anything else.
+
+You cannot serve God and cryptocurrency. With money, and with cryptocurrency, you are making a black and white
+choice between God and money.
+
+  Matthew 8:22 - And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
+
+  Acts 8:18-21 - Now when Simon saw that the Spirit was given through the laying on of the apostles' hands, he
+  offered them money, saying, Give me this power also, so that anyone on whom I lay my hands may receive the Holy
+  Spirit. But Peter said to him, May your silver perish with you, because you thought you could obtain the gift of
+  God with money! You have neither part nor lot in this matter, for your heart is not right before God.
+
+This widow gave in faith, because she believes God will take care of her even if she gives everything (that's the
+mindset of faith):
+
+  Mark 12:41-44 - And he sat down opposite the treasury and watched the people putting money into the offering
+  box. Many rich people put in large sums. And a poor widow came and put in two small copper coins, which make a
+  penny. And he called his disciples to him and said to them, Truly, I say to you, this poor widow has put in more
+  than all those who are contributing to the offering box. For they all contributed out of their abundance, but
+  she out of her poverty has put in everything she had, all she had to live on. (ESV)
+
+Following Jesus doesn't mean not providing for family. In fact, following Jesus does mean providing for family. So
+when you read Jesus' commandments and someone asks you for help, you give them what they need, without stealing
+though. If the money is for taking care of family, we must keep that. But our neighbour who we must love are more
+than just our immediate family. We are commanded by the Apostle Paul to provide for our family:
+
+  I Timothy 5:8 - But if anyone does not provide for his relatives, and especially for members of his household,
+  he has denied the faith and is worse than an unbeliever. (ESV)
+
+Following Jesus comes first, even before following your family. To even love your family best is to put Jesus
+first. It's for their sake too:
+
+  Matthew 10:36-39 - And a person's enemies will be those of his own household. Whoever loves father or mother
+  more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. And
+  whoever does not take his cross and follow me is not worthy of me. Whoever finds his life will lose it, and
+  whoever loses his life for my sake will find it. (ESV)
+
+  Mark 8:34 - And he called to him the crowd with his disciples and said to them, If anyone would come after me,
+  let him deny himself and take up his cross and follow me. (ESV)
+
+It's black and white - we must be yoked to Jesus:
+
+  Mark 10:21 - And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+The thoughts that go through our minds must not be:
+
+- How can I secure my life here on earth with enough crypto to be taken care of so I don't have to worry - that
+type of thinking is emnity against God. That's making money #1 and Jesus after that.
+
+  James 4:4 - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore
+  whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
+
+  John 12:25 - Whoever loves his life loses it, and whoever hates his life in this world will keep it for eternal
+  life. (ESV)
+
+The thoughts that go through our minds must be:
+
+- How can I help other people / where can I sow money to help other people.
+
+  Luke 9:23 - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily
+  and follow me. (ESV)
+
+  Luke 9:59-62 - To another he said, Follow me. But he said, Lord, let me first go and bury my father. And Jesus
+  said to him, Leave the dead to bury their own dead. But as for you, go and proclaim the kingdom of God. Yet
+  another said, I will follow you, Lord, but let me first say farewell to those at my home. Jesus said to him, No
+  one who puts his hand to the plow and looks back is fit for the kingdom of God. (ESV)
+
+  Luke 18:22 - When Jesus heard this, he said to him, One thing you still lack. Sell all that you have and
+  distribute to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+You can't follow Jesus Christ's instructions in faith while asking OpenAI if it's OK. You can not be led by God
+and be led by an AI such as ChatGPT.
+
+  Matthew 8:22 - And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
+
+We have the Word of God. We can also walk in Jesus' commandments. We've got to be yoked to Jesus Christ.
+
+God can speak to us directly without internet, even through His Spirit, even in a dream.
+
+4.3.2. Make friends with charity while money hasn't yet failed
+
+Money is temporary. While it's in your hands, make friends with it, by giving in charity to those in need.
+
+Money will fail - bitcoin will fail, ethereum will fail, and when it fails people will see you as a friend.
+
+  Luke 16:1-8 - He also said to the disciples, There was a rich man who had a manager, and charges were brought to
+  him that this man was wasting his possessions. And he called him and said to him, What is this that I hear about
+  you? Turn in the account of your management, for you can no longer be manager. And the manager said to himself,
+  What shall I do, since my master is taking the management away from me? I am not strong enough to dig, and I am
+  ashamed to beg. I have decided what to do, so that when I am removed from management, people may receive me into
+  their houses. So, summoning his master's debtors one by one, he said to the first, How much do you owe my
+  master? He said, A hundred measures of oil. He said to him, Take your bill, and sit down quickly and write
+  fifty. Then he said to another, And how much do you owe? He said, A hundred measures of wheat. He said to him,
+  Take your bill, and write eighty. The master commended the dishonest manager for his shrewdness. For the sons of
+  this world are more shrewd in dealing with their own generation than the sons of light. (ESV)
+
+  Luke 16:8-9 - And I tell you, make friends for yourselves by means of unrighteous wealth, so that when it fails
+  they may receive you into the eternal dwellings. (ESV)
+
+4.3.3. In this world God can see if we are to be trusted with true heavenly wealth by seeing how we used our money
+
+  Luke 16:11-12 - If then you have not been faithful in the unrighteous wealth, who will entrust to you the true
+  riches? And if you have not been faithful in that which is another's, who will give you that which is your own?
+
+  I Timothy 6:9-10 - But those who desire to be rich fall into temptation, into a snare, into many senseless and
+  harmful desires that plunge people into ruin and destruction. For the love of money is a root of all kinds of
+  evils. It is through this craving that some have wandered away from the faith and pierced themselves with many
+  pangs. (ESV)
+
+4.3.4. We must actually make following Jesus a reality to take hold of the eternal life to which we are called
+
+We make the confession, but we must then take hold of it.
+
+  I Timothy 6:11-12 - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith,
+  love, steadfastness, gentleness. Fight the good fight of the faith. Take hold of the eternal life to which you
+  were called and about which you made the good confession in the presence of many witnesses. (ESV)
 
 5. Great commission
 
@@ -4359,7 +4594,8 @@ Also, waiting on the LORD our strength is renewed:
   Isaiah 40:31 - but they who wait for the LORD shall renew their strength; they shall mount up with wings like
   eagles; they shall run and not be weary; they shall walk and not faint. (ESV)
 
-We are ourselves empowered thanks to Jesus' own endurance, and that is unlocked byhaving faith in Jesus:
+We are ourselves empowered thanks to Jesus' own endurance, and that is unlocked by having believing, obedient,
+trusting, following faith in Jesus where we are being led by His Spirit, and are walking by His Spirit:
 
   Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
   every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
@@ -6189,7 +6425,11 @@ Also, I have had as of 28 May '24 in my dreams:
 star.net.nz: The Word for Today - The right balance - May 28th
 
 Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God. I will be still waiting
-for the Biblical acknowledgement.
+for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God
+in the flesh, the ".
+
+  I Thessalonians 5:20-22 - Do not despise prophecies, but test everything; hold fast what is good. Abstain from
+  every form of evil. (ESV)
 
 But I am still seeking hearing that acknowledgement by continuing in Jesus' word, endeavoring to keep Jesus'
 commandments. I certainly have heard many false and deceptive voices, even blasphemy. So I mean, if the devil or
@@ -14014,6 +14254,9 @@ A person must receive the word:
 Because we keep His commandments, we receive from him whatever we ask. And our heart does not condemn us. And we
 have confidence before God.
 
+  Hebrews 13:18 - Pray for us, for we are sure that we have a clear conscience, desiring to act honorably in all
+  things. (ESV)
+
 By this we know he abides in us:
 
 - He has given us His Spirit.
@@ -20278,175 +20521,7 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
   over the nations, and he will rule them with a rod of iron, as when earthen pots are broken in pieces, even as I
   myself have received authority from my Father. And I will give him the morning star. (ESV)
 
-54.12. Following Jesus
-
-We have peace with God and are justified by faith when we are following Jesus Christ who is our Lord:
-
-  Romans 5:1 - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus
-  Christ. (ESV)
-
-"Jesus our Lord" means we are following Jesus. Those who trust in God who raised Jesus from the dead and follow
-Jesus will be justified:
-
-  Romans 4:23-25 - But the words it was counted to him were not written for his sake alone, but for ours also. It
-  will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our
-  trespasses and raised for our justification. (ESV)
-
-  Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
-  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
-  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
-  because it had been well built. But the one who hears and does not do them is like a man who built a house on
-  the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
-  house was great. (ESV)
-
-OBEDIENCE!
-
-54.12.1. You cannot serve God, and also be yoked to money
-
-Priorities:
-
-- 1. Jesus
-- 2-?. Everything else
-
-  Matthew 6:24 - No one can serve two masters, for either he will hate the one and love the other, or he will be
-  devoted to the one and despise the other. You cannot serve God and money. (ESV)
-
-You cannot follow money. You have to drop money in order to follow Jesus!
-
-OBEDIENCE!
-
-Sermon
-Seven Reasons We Must Pursue Supreme Satisfaction in God - YouTube
-
-We must get on the path:
-
-  II Corinthians 1:20 - For all the promises of God find their Yes in him. That is why it is through him that we
-  utter our Amen to God for his glory. (ESV)
-
-  Hebrews 5:8-10 - Although he was a son, he learned obedience through what he suffered. And being made perfect,
-  he became the source of eternal salvation to all who obey him, being designated by God a high priest after the
-  order of Melchizedek.
-
-We must be yoked to Jesus Christ alone. How? By following His commandments in reality. If you're not yoked to
-Jesus then you're susceptible to being yoked to anything else.
-
-You cannot serve God and cryptocurrency. With money, and with cryptocurrency, you are making a black and white
-choice between God and money.
-
-  Matthew 8:22 - And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
-
-  Acts 8:18-21 - Now when Simon saw that the Spirit was given through the laying on of the apostles' hands, he
-  offered them money, saying, Give me this power also, so that anyone on whom I lay my hands may receive the Holy
-  Spirit. But Peter said to him, May your silver perish with you, because you thought you could obtain the gift of
-  God with money! You have neither part nor lot in this matter, for your heart is not right before God.
-
-This widow gave in faith, because she believes God will take care of her even if she gives everything (that's the
-mindset of faith):
-
-  Mark 12:41-44 - And he sat down opposite the treasury and watched the people putting money into the offering
-  box. Many rich people put in large sums. And a poor widow came and put in two small copper coins, which make a
-  penny. And he called his disciples to him and said to them, Truly, I say to you, this poor widow has put in more
-  than all those who are contributing to the offering box. For they all contributed out of their abundance, but
-  she out of her poverty has put in everything she had, all she had to live on. (ESV)
-
-Following Jesus doesn't mean not providing for family. In fact, following Jesus does mean providing for family. So
-when you read Jesus' commandments and someone asks you for help, you give them what they need, without stealing
-though. If the money is for taking care of family, we must keep that. But our neighbour who we must love are more
-than just our immediate family. We are commanded by the Apostle Paul to provide for our family:
-
-  I Timothy 5:8 - But if anyone does not provide for his relatives, and especially for members of his household,
-  he has denied the faith and is worse than an unbeliever. (ESV)
-
-Following Jesus comes first, even before following your family. To even love your family best is to put Jesus
-first. It's for their sake too:
-
-  Matthew 10:36-39 - And a person's enemies will be those of his own household. Whoever loves father or mother
-  more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. And
-  whoever does not take his cross and follow me is not worthy of me. Whoever finds his life will lose it, and
-  whoever loses his life for my sake will find it. (ESV)
-
-  Mark 8:34 - And he called to him the crowd with his disciples and said to them, If anyone would come after me,
-  let him deny himself and take up his cross and follow me. (ESV)
-
-It's black and white - we must be yoked to Jesus:
-
-  Mark 10:21 - And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
-  have and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
-
-The thoughts that go through our minds must not be:
-
-- How can I secure my life here on earth with enough crypto to be taken care of so I don't have to worry - that
-type of thinking is emnity against God. That's making money #1 and Jesus after that.
-
-  James 4:4 - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore
-  whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
-
-  John 12:25 - Whoever loves his life loses it, and whoever hates his life in this world will keep it for eternal
-  life. (ESV)
-
-The thoughts that go through our minds must be:
-
-- How can I help other people / where can I sow money to help other people.
-
-  Luke 9:23 - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily
-  and follow me. (ESV)
-
-  Luke 9:59-62 - To another he said, Follow me. But he said, Lord, let me first go and bury my father. And Jesus
-  said to him, Leave the dead to bury their own dead. But as for you, go and proclaim the kingdom of God. Yet
-  another said, I will follow you, Lord, but let me first say farewell to those at my home. Jesus said to him, No
-  one who puts his hand to the plow and looks back is fit for the kingdom of God. (ESV)
-
-  Luke 18:22 - When Jesus heard this, he said to him, One thing you still lack. Sell all that you have and
-  distribute to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
-
-You can't follow Jesus Christ's instructions in faith while asking OpenAI if it's OK. You can not be led by God
-and be led by an AI such as ChatGPT.
-
-  Matthew 8:22 - And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
-
-We have the Word of God. We can also walk in Jesus' commandments. We've got to be yoked to Jesus Christ.
-
-God can speak to us directly without internet, even through His Spirit, even in a dream.
-
-54.12.2. Make friends with charity while money hasn't yet failed
-
-Money is temporary. While it's in your hands, make friends with it, by giving in charity to those in need.
-
-Money will fail - bitcoin will fail, ethereum will fail, and when it fails people will see you as a friend.
-
-  Luke 16:1-8 - He also said to the disciples, There was a rich man who had a manager, and charges were brought to
-  him that this man was wasting his possessions. And he called him and said to him, What is this that I hear about
-  you? Turn in the account of your management, for you can no longer be manager. And the manager said to himself,
-  What shall I do, since my master is taking the management away from me? I am not strong enough to dig, and I am
-  ashamed to beg. I have decided what to do, so that when I am removed from management, people may receive me into
-  their houses. So, summoning his master's debtors one by one, he said to the first, How much do you owe my
-  master? He said, A hundred measures of oil. He said to him, Take your bill, and sit down quickly and write
-  fifty. Then he said to another, And how much do you owe? He said, A hundred measures of wheat. He said to him,
-  Take your bill, and write eighty. The master commended the dishonest manager for his shrewdness. For the sons of
-  this world are more shrewd in dealing with their own generation than the sons of light. (ESV)
-
-  Luke 16:8-9 - And I tell you, make friends for yourselves by means of unrighteous wealth, so that when it fails
-  they may receive you into the eternal dwellings. (ESV)
-
-54.12.3. In this world God can see if we are to be trusted with true heavenly wealth by seeing how we used our money
-
-  Luke 16:11-12 - If then you have not been faithful in the unrighteous wealth, who will entrust to you the true
-  riches? And if you have not been faithful in that which is another's, who will give you that which is your own?
-
-  I Timothy 6:9-10 - But those who desire to be rich fall into temptation, into a snare, into many senseless and
-  harmful desires that plunge people into ruin and destruction. For the love of money is a root of all kinds of
-  evils. It is through this craving that some have wandered away from the faith and pierced themselves with many
-  pangs. (ESV)
-
-54.12.4. We must actually make following Jesus a reality to take hold of the eternal life to which we are called
-
-We make the confession, but we must then take hold of it.
-
-  I Timothy 6:11-12 - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith,
-  love, steadfastness, gentleness. Fight the good fight of the faith. Take hold of the eternal life to which you
-  were called and about which you made the good confession in the presence of many witnesses. (ESV)
-
-54.13. Be humble in this world and serve others of humble circumstances while in this world
+54.12. Be humble in this world and serve others of humble circumstances while in this world
 
   James 1:9-11 - But the brother of humble circumstances is to glory in his high position; and the rich man is to
   glory in his humiliation, because like flowering grass he will pass away. For the sun rises with a scorching
@@ -20470,13 +20545,13 @@ We make the confession, but we must then take hold of it.
   you sick or in prison and visit you? And the King will answer them, Truly, I say to you, as you did it to one of
   the least of these my brothers, you did it to me.
 
-54.13.1. Jesus' friends are those who actually do what Jesus says
+54.12.1. Jesus' friends are those who actually do what Jesus says
 
   John 15:14-15 - You are my friends if you do what I command you. No longer do I call you servants, for the
   servant does not know what his master is doing; but I have called you friends, for all that I have heard from my
   Father I have made known to you.
 
-54.14. Entering the kingdom of heaven
+54.13. Entering the kingdom of heaven
 
 It's possible while here on earth:
 
@@ -20508,7 +20583,7 @@ Obey the word:
 Jesus is the cornerstone. We must believe in Christ Jesus and obey His words, and let his words abide in us and
 continue in them.
 
-54.15. Knowing Jesus, knowing God, knowing Jehovah God
+54.14. Knowing Jesus, knowing God, knowing Jehovah God
 
 To know Jesus and Father God, then you must follow His commandments, and they must not be a burden on us, but we
 follow them with the faith of Abraham.
@@ -20608,13 +20683,13 @@ thing:
   being raised from the dead will never die again; death no longer has dominion over him. For the death he died he
   died to sin, once for all, but the life he lives he lives to God. (ESV)
 
-54.15.1. Anyone who doesn't abide will be thrown away like a branch and withers. Eventually they will be into the
+54.14.1. Anyone who doesn't abide will be thrown away like a branch and withers. Eventually they will be into the
 fire (Hell, I assume)
 
   John 15:6 - If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
   gathered, thrown into the fire, and burned.
 
-54.16. His name: Jesus Christ, the Son of God
+54.15. His name: Jesus Christ, the Son of God
 
   Luke 1:31-35 - And behold, you will conceive in your womb and bear a son, and you shall call his name Jesus. He
   will be great and will be called the Son of the Most High. And the Lord God will give to him the throne of his
@@ -20642,7 +20717,7 @@ fire (Hell, I assume)
   them, I kept them in your name, which you have given me. I have guarded them, and not one of them has been lost
   except the son of destruction, that the Scripture might be fulfilled. (ESV)
 
-54.17. Deeply abiding in Jesus, abiding in Jesus Christ's love, and passing-forward Christ's love
+54.16. Deeply abiding in Jesus, abiding in Jesus Christ's love, and passing-forward Christ's love
 
 - Loving Jesus and abiding in His love involves keeping His commandments
 - Love one another as He loved us - the same way, selflessly, forgivingly, mercifully, compassionately
@@ -20655,14 +20730,14 @@ fire (Hell, I assume)
 - Bringing others to Christ
 - Prove to be a disciple of Jesus
 
-54.17.1. Abiding forever vs abiding - there's a difference
+54.16.1. Abiding forever vs abiding - there's a difference
 
   Psalms 125:1 - Those who trust in the Lord are like Mount Zion, which cannot be moved, but abides forever.
 
   I John 2:17 - And the world is passing away along with its desires, but whoever does the will of God abides
   forever.
 
-54.18. The fruit (work) of disciples of Jesus then abides
+54.17. The fruit (work) of disciples of Jesus then abides
 
   John 15:2 - Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit
   he prunes, that it may bear more fruit.
@@ -20675,7 +20750,7 @@ fire (Hell, I assume)
   John 15:16 - You did not choose me, but I chose you and appointed you that you should go and bear fruit and that
   your fruit should abide, so that whatever you ask the Father in my name, he may give it to you.
 
-54.19. Secure rewards and a guarantee of eternal life for Jesus' disciples
+54.18. Secure rewards and a guarantee of eternal life for Jesus' disciples
 
   Matthew 19:29 - And everyone who has left houses or brothers or sisters or father or mother or children or
   lands, for my name's sake, will receive a hundredfold and will inherit eternal life. (ESV)
@@ -20692,7 +20767,7 @@ fire (Hell, I assume)
   break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and
   where thieves do not break in and steal. For where your treasure is, there your heart will be also. (ESV)
 
-54.19.1. Eternal life is receiving an eternal name, I think
+54.18.1. Eternal life is receiving an eternal name, I think
 
   Isaiah 56:5 - I will give in my house and within my walls a monument and a name better than sons and daughters;
   I will give them an everlasting name that shall not be cut off. (ESV)
@@ -20701,7 +20776,7 @@ Receiving an eternal name.
 
 Becoming a part of the Truth. Full union with God.
 
-54.20. The work of God, believing in Jesus
+54.19. The work of God, believing in Jesus
 
   John 6:29-40 - Jesus answered them, This is the work of God, that you believe in him whom he has sent. So they
   said to him, Then what sign do you do, that we may see and believe you? What work do you perform? Our fathers
@@ -20734,13 +20809,13 @@ believing faith, Paul says it was actually God's doing:
   Ephesians 2:8 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, (ESV)
 
-54.21. We in Christ, Christ in us
+54.20. We in Christ, Christ in us
 
 What Does it Mean to be in Christ? - YouTube
 
   I Corinthians 3:23 - and you are Christ's, and Christ is God's. (ESV)
 
-54.21.1. Jesus Christ is in us
+54.20.1. Jesus Christ is in us
 
   Galatians 2:20 - I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And
   the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. (ESV)
@@ -20748,18 +20823,18 @@ What Does it Mean to be in Christ? - YouTube
   Romans 8:10 - But if Christ is in you, although the body is dead because of sin, the Spirit is life because of
   righteousness. (ESV)
 
-54.21.2. We are in Christ
+54.20.2. We are in Christ
 
   Galatians 2:4 - Yet because of false brothers secretly brought in-who slipped in to spy out our freedom that we
   have in Christ Jesus, so that they might bring us into slavery- (ESV)
 
   Romans 8:1 - There is therefore now no condemnation for those who are in Christ Jesus.
 
-54.21.3. Our life is hidden with Christ in God
+54.20.3. Our life is hidden with Christ in God
 
   Colossians 3:3 - For you have died, and your life is hidden with Christ in God. (ESV)
 
-54.22. Only God the Father could graft people in and out of Christ
+54.21. Only God the Father could graft people in and out of Christ
 
 A person would have to reject Jesus to be grafted out, I think. Then again, God might still not do that.
 
@@ -20849,7 +20924,7 @@ Rebellion = disobedience.
   Ephesians 5:6 - Let no one deceive you with empty words, for because of these things the wrath of God comes upon
   the sons of disobedience. (ESV)
 
-54.23. The law of Christ
+54.22. The law of Christ
 
 We are still under a 'law of faith', but we are not under the Mosaic law.
 
@@ -20872,9 +20947,9 @@ But the Mosaic law still exists.
   children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love
   his brother. For this is the message that you have heard from the beginning, that we should love one another.
 
-54.24. Sharing Jesus' holiness / personal righteousness (fruit of righteousness) - coming after faith in Jesus
+54.23. Sharing Jesus' holiness / personal righteousness (fruit of righteousness) - coming after faith in Jesus
 
-54.24.1. Have faith in Jesus; Believe in Him, and be obedient to Him, following His teaching
+54.23.1. Have faith in Jesus; Believe in Him, and be obedient to Him, following His teaching
 
 We are innocent because we are being obedient to Jesus:
 
@@ -20897,7 +20972,7 @@ Following Jesus' example of being obedient:
   to him who was able to save him from death, and he was heard because of his reverence. Although he was a son, he
   learned obedience through what he suffered. (ESV)
 
-54.24.2. The yoke of the Lord Jesus
+54.23.2. The yoke of the Lord Jesus
 
 Firstly, Paul commends going above and even beyond one's means:
 
@@ -20957,7 +21032,7 @@ always gentle and lowly, then Jesus' yoke is easy and burden light:
   Matthew 11:29-30 - Take my yoke upon you, and learn from me, for I am gentle and lowly in heart, and you will
   find rest for your souls. For my yoke is easy, and my burden is light.
 
-54.25. Personal holiness
+54.24. Personal holiness
 
 Everyone who names the name of the Lord must depart from iniquity:
 
@@ -21146,7 +21221,7 @@ I consider practicing homosexuality to be erroneous and sinful, and God's origin
 And no-one should endorse sinful things. Homosexuality is erroneous. If they do, however, endorse it then I think
 that inhibits them from approaching God.
 
-54.26. Belief comes before or at the time of receiving the Holy Spirit (receiving the Holy Spirit comes at the time of
+54.25. Belief comes before or at the time of receiving the Holy Spirit (receiving the Holy Spirit comes at the time of
 or after believing)
 
 I believe that the Holy Spirit goes to those who obey God. I believe belief in Jesus comes first.
@@ -21172,7 +21247,7 @@ I think this is generally the order of things.
 
 The Person and Work of the Holy Spirit | Billy Graham - YouTube
 
-54.27. God is sovereign to reveal Himself, sovereign to save and sovereign to destroy
+54.26. God is sovereign to reveal Himself, sovereign to save and sovereign to destroy
 
   Romans 10:20 - Then Isaiah is so bold as to say, I have been found by those who did not seek me; I have shown
   myself to those who did not ask for me. (ESV)
@@ -21180,7 +21255,7 @@ The Person and Work of the Holy Spirit | Billy Graham - YouTube
   Matthew 10:28 - And do not fear those who kill the body but cannot kill the soul. Rather fear him who can
   destroy both soul and body in hell.
 
-54.28. Just saying a creed doesn't guarantee that a person is saved (I think)
+54.27. Just saying a creed doesn't guarantee that a person is saved (I think)
 
 God chooses who is saved, and how they are saved.
 
@@ -21223,7 +21298,7 @@ God justifies.
   about patient endurance, I will keep you from the hour of trial that is coming on the whole world, to try those
   who dwell on the earth.
 
-54.29. It's the obedient who are justified, not the hearers
+54.28. It's the obedient who are justified, not the hearers
 
 God keeps us from stumbling along the way:
 
@@ -21242,7 +21317,7 @@ Fulfilling the requirement of the law is required of us by God. God judges the s
   hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on
   that day when, according to my gospel, God judges the secrets of men by Christ Jesus.
 
-54.29.1. These people performed dead works, and never obeyed Jesus
+54.28.1. These people performed dead works, and never obeyed Jesus
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
   does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
@@ -21256,23 +21331,23 @@ Fulfilling the requirement of the law is required of us by God. God judges the s
 
 To get to know Jesus, follow His commandments - be obedient to Jesus.
 
-54.30. Outside of the Holy Spirit, noone can say Jesus is Lord
+54.29. Outside of the Holy Spirit, noone can say Jesus is Lord
 
   1 Corinthians 12:3 - Therefore I want you to understand that no one speaking in the Spirit of God ever says
   Jesus is accursed! and no one can say Jesus is Lord except in the Holy Spirit. (ESV)
 
-54.31. Works accompany the true believers
+54.30. Works accompany the true believers
 
   Mark 16:16-17 - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
   And these signs will accompany those who believe: in my name they will cast out demons; they will speak in new
   tongues; (ESV)
 
-54.32. Those that reject the gospel are not the same as those who haven't heard the gospel
+54.31. Those that reject the gospel are not the same as those who haven't heard the gospel
 
   Mark 6:11 - And if any place will not receive you and they will not listen to you, when you leave, shake off the
   dust that is on your feet as a testimony against them.
 
-54.32.1. The following applies to believing Jesus, not to believing that a disciple of Jesus is Jesus
+54.31.1. The following applies to believing Jesus, not to believing that a disciple of Jesus is Jesus
 
   John 8:24 - I told you that you would die in your sins, for unless you believe that I am he you will die in your
   sins. (ESV)
@@ -21292,7 +21367,7 @@ A disciple of Jesus isn't Jesus, but a disciple.
   and another reaps. I sent you to reap that for which you did not labor. Others have labored, and you have
   entered into their labor.
 
-54.32.2. If someone receives the one who Jesus sends, they receive Jesus
+54.31.2. If someone receives the one who Jesus sends, they receive Jesus
 
   John 13:20 - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me
   receives the one who sent me.
@@ -21302,7 +21377,7 @@ A disciple of Jesus isn't Jesus, but a disciple.
   Mark 9:37 - "Whoever receives one child like this in My name receives Me; and whoever receives Me does not
   receive Me, but Him who sent Me."
 
-54.32.3. People always have the choice to believe the gospel
+54.31.3. People always have the choice to believe the gospel
 
   Romans 11:23 - And even they, if they do not continue in their unbelief, will be grafted in, for God has the
   power to graft them in again.
@@ -21315,7 +21390,7 @@ A disciple of Jesus isn't Jesus, but a disciple.
   and with mourning; and rend your hearts and not your garments. Return to the LORD, your God, for he is gracious
   and merciful, slow to anger, and abounding in steadfast love; and he relents over disaster . (ESV)
 
-54.32.4. I lean towards this interpretation
+54.31.4. I lean towards this interpretation
 
 - People who hear the gospel and ultimately reject it / reject Jesus / choose to not put their trust in Jesus
 are condemned.
@@ -21328,7 +21403,7 @@ are condemned.
 
   Luke 19:10 - For the Son of Man came to seek and to save the lost.
 
-54.32.5. Rejecting Jesus in front of others is not good
+54.31.5. Rejecting Jesus in front of others is not good
 
   Luke 9:26 - For whoever is ashamed of me and of my words, of him will the Son of Man be ashamed when he comes in
   his glory and the glory of the Father and of the holy angels.
@@ -21345,7 +21420,7 @@ are condemned.
   Luke 12:8 - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before
   the angels of God,
 
-54.32.6. It's really important to not reject Jesus through
+54.31.6. It's really important to not reject Jesus through
 
   John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
   darkness, but will have the light of life.
@@ -21366,7 +21441,7 @@ are condemned.
 If this verse suggests that Jesus went to the spirits in prison who had in the days of Noah disobeyed, then we
 should definitely obey the gospel while we're alive today.
 
-54.33. I believe that repentance is important in faith and faithfulness to God
+54.32. I believe that repentance is important in faith and faithfulness to God
 
   Acts 2:38 - And Peter said to them, Repent and be baptized every one of you in the name of Jesus Christ for the
   forgiveness of your sins, and you will receive the gift of the Holy Spirit. (ESV)
@@ -21398,7 +21473,7 @@ to stop people from doing bad things, but the 2 Greatest commandments command us
 Lots of people say these days that trying to follow the law is self-righteousness and I don't really agree with
 that because to follow the law in faith is OK. But to be 'under' the law is put oneself under a curse.
 
-54.34. Celebrating/endorsing sin / error is not right
+54.33. Celebrating/endorsing sin / error is not right
 
 If a newly born-again Christian is spending all their time with sinners though and endorsing continually instead
 of being discipled, then they can have their mind conformed to the sinners instead of being strengthened in the
@@ -21407,7 +21482,7 @@ to unbelievers and sinners.
 
 Jesus ate with sinners but Jesus was the special guest. Think of Nicodemus inviting Jesus over.
 
-54.35. Faith has substance to it, and an amount to it, usually drawn out over time
+54.34. Faith has substance to it, and an amount to it, usually drawn out over time
 
   Hebrews 11:1 - Now faith is the substance of things hoped for, the evidence of things not seen. (KJV)
 
@@ -21415,7 +21490,7 @@ Jesus ate with sinners but Jesus was the special guest. Think of Nicodemus invit
 
 For me, I was acting in faith ever since I was born-again, resulting in a huge chain of events and confirmations!
 
-54.36. Faith believes God and hopes in invisible things, and is convicted of them
+54.35. Faith believes God and hopes in invisible things, and is convicted of them
 
 But at the end of the day, justification by faith in Jesus justifies the ungodly sinner - but it is faith that God
 justifies and not faithlessness. It's the type of belief that recognises one's sin, and results in love for Jesus,
@@ -21426,7 +21501,7 @@ and it's obedient and submissive to God - it's repentant.
 
 Where we are unfaithful, though, God is faithful. God wants us to choose Him. He wants us to repent.
 
-54.37. Jesus' words never pass away. The law could only pass away after heaven and earth passes away
+54.36. Jesus' words never pass away. The law could only pass away after heaven and earth passes away
 
   Psalms 119:160 - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
 
@@ -21455,7 +21530,7 @@ Where we are unfaithful, though, God is faithful. God wants us to choose Him. He
 
   Luke 21:33 - Heaven and earth will pass away, but my words will not pass away.
 
-54.38. Structure of the Kingdom
+54.37. Structure of the Kingdom
 
 When applying the law, justice and mercy and faithfulness are the weightier matters of the law. However, the
 remainder of the law is not supposed to be neglected either:
@@ -21493,7 +21568,7 @@ The universe is upheld by the word of Jesus' power.
   God, and who had not worshiped the beast or its image and had not received its mark on their foreheads or their
   hands. They came to life and reigned with Christ for a thousand years.
 
-54.38.1. Great or small in the kingdom of God
+54.37.1. Great or small in the kingdom of God
 
  1. The least will be greatest
 
@@ -21570,7 +21645,7 @@ We must instead be led by the Spirit, and follow Christ Jesus:
   Jesus have crucified the flesh with its passions and desires. If we live by the Spirit, let us also walk by
   the Spirit. (ESV)
 
-54.38.2. God's kingdom is from Heaven to Earth
+54.37.2. God's kingdom is from Heaven to Earth
 
   Genesis 14:19 - And he blessed him and said, Blessed be Abram by God Most High, Possessor of heaven and earth;
 
@@ -21675,7 +21750,7 @@ We must instead be led by the Spirit, and follow Christ Jesus:
 
 The Chosen scene: John 3:16 - YouTube @time: 2 min 8 sec
 
-54.39. There is no sexual immorality in Heaven, no violence, no sinners.
+54.38. There is no sexual immorality in Heaven, no violence, no sinners.
 
 Heaven is not Earth. It's a place without sinning.
 
@@ -21698,7 +21773,7 @@ But the Kingdom of God exists from Heaven to Earth.
   Matthew 22:30 - For in the resurrection they neither marry nor are given in marriage, but are like angels in
   heaven.
 
-54.40. Adhering to the law like a Pharisee - pursuing the law by works
+54.39. Adhering to the law like a Pharisee - pursuing the law by works
 
 But adhering to the law like a Pharisee is like strapping yourself to a razor blade, but that doesn't mean the law
 is wrong.
@@ -21719,7 +21794,7 @@ The law doesn't save:
   Hebrews 7:19 - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through
   which we draw near to God. (ESV)
 
-54.40.1. Instead of adhering to the law like a Pharisee we should become obedient to Jesus
+54.39.1. Instead of adhering to the law like a Pharisee we should become obedient to Jesus
 
 That means loving others the way He loved us, and it involves accepting that He loved us first (through the
 atoning sacrifice):
@@ -21732,7 +21807,7 @@ Christ's love, relieving their burdens and forgiving their trespasses against us
 and forgiveness from God. This is actually following the Great Commandments to love God and our neighbour
 properly.
 
-54.41. Follow the law mercifully and without self-righteousness, accountable to God, being a servant to others
+54.40. Follow the law mercifully and without self-righteousness, accountable to God, being a servant to others
 
 So as to not become a hypocrite or condemn the innocent. Accountable to God - a relationship with God. Without
 self-righteousness.
@@ -21771,7 +21846,7 @@ Christ, being the light of the world.
   in the world, holding fast to the word of life, so that in the day of Christ I may be proud that I did not run
   in vain or labor in vain.
 
-54.42. Being in the Kingdom of Jesus Christ on earth is being the light of the world
+54.41. Being in the Kingdom of Jesus Christ on earth is being the light of the world
 
 Seek the Kingdom of God:
 
@@ -21836,7 +21911,7 @@ our light in the darkness, resisting the falsehood:
   John 15:19 - If you were of the world, the world would love you as its own; but because you are not of the
   world, but I chose you out of the world, therefore the world hates you. (ESV)
 
-54.43. All the law is still used
+54.42. All the law is still used
 
 We're not under / condemned by the Mosaic law but we still don't encourage the breaking of the Mosaic law.
 
@@ -21865,7 +21940,7 @@ written on our heart when we get born-again.
 Right after I got born-again I wrote about the 10 commandments being written on my heart, and I believe it was the
 Holy Spirit inspiring me.
 
-54.43.1. Even the smallest of laws still come into effect in certain circumstances
+54.42.1. Even the smallest of laws still come into effect in certain circumstances
 
   Leviticus 19:27 - You shall not round off the hair on your temples or mar the edges of your beard. (ESV)
 
@@ -21880,7 +21955,7 @@ specific way, or eat food sacrificed to idols.
 Therefore, a person should do what is out of love and faith for the LORD, based on their knowledge of the law,
 their faithfulness to God and their conviction.
 
-54.44. My experience of being born-again, and reasoning surrounding justification
+54.43. My experience of being born-again, and reasoning surrounding justification
 
 I affirm justification through faith alone by the imputed righteousness of having trusting faith in Jesus (in the
 heart, without any work) for the finished work of the cross but I believe that this belief has to be qualified,
@@ -21896,7 +21971,7 @@ The Bible teaches that the Holy Spirit goes to those who obey Jesus.
 
 The Bible also teaches that the Holy Spirit goes those who put their faith on Jesus.
 
-54.44.1. John Piper's view, I affirm, but it also sounds optimal
+54.43.1. John Piper's view, I affirm, but it also sounds optimal
 
 I believe John Piper's view here is optimal, that during the turbulent process of being born-again of the spirit,
 we should rely entirely on the righteousness of Christ, and not be led astray by relying on our own works for
@@ -21905,7 +21980,7 @@ justification.
   John Piper - We should rely entirely on the righteousness of Christ imputed to us by faith alone as the ground
   of God being 100% for us after which necessary sanctification comes.
 
-54.44.2. But my experience was like this
+54.43.2. But my experience was like this
 
 But then, as what happened to me after I was born-again of the Spirit (by the grace of God through faith), is that
 shortly after I was quickly confronted with a lot of paganism, and through obedience to Jesus' commandments
@@ -21917,7 +21992,7 @@ distinctly not Christian, and all I'm saying is that adhering to the truth that 
 but by Christ's finished works was very important for me through that time, so that I wasn't led astray by
 paganism.
 
-54.44.3. Mid-2022 to mid-2023 was chaotic
+54.43.3. Mid-2022 to mid-2023 was chaotic
 
 - I was saved when I was spiritually dead as an act of pure grace - like a plane on the verge of crashing to the
 ground, I was born-again at one of the lowest (perhaps the lowest) points in my life.
@@ -21933,7 +22008,7 @@ Obeying Jesus is very important:
   John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but
   the wrath of God remains on him. (ESV)
 
-54.44.4. An obedient/loving response to Jesus, I think is extremely important
+54.43.4. An obedient/loving response to Jesus, I think is extremely important
 
 I believe it's necessary that we should have a loving response to Jesus, and an obedient response to Jesus. Is
 that preaching justification through my own works or my own effort? No, I don't think so.
@@ -21942,7 +22017,7 @@ The obediently loving response to Jesus after being born-again of the spirit is 
 others (forgive others as we have been forgiven), die to the selfish nature and learn to walk in Jesus'
 commandments.
 
-54.44.5. But I believe the grace is a free gift from God.
+54.43.5. But I believe the grace is a free gift from God.
 
 Jesus is so generous that He saves people who turn out to be unthankful, but we should definitely love Jesus as a
 response. This story should be taken not only to see how Good God is, but also taken as a warning against
@@ -21956,7 +22031,7 @@ unthankfulness:
   ten cleansed? Where are the nine? Was no one found to return and give praise to God except this foreigner? And
   he said to him, Rise and go your way; your faith has made you well. (ESV)
 
-54.45. Justification by faith - Jews + Gentiles, and in-between
+54.44. Justification by faith - Jews + Gentiles, and in-between
 
 There is only the one gospel message: the same gospel that Paul, Jesus, Peter and John preached.
 
@@ -22156,7 +22231,7 @@ It's possible to keep commandments by faith:
   quickly with your accuser while you are going with him to court, lest your accuser hand you over to the judge,
   and the judge to the guard, and you be put in prison. (ESV)
 
-54.46. Theoretically belief usually comes before or at the time receiving the Holy Spirit
+54.45. Theoretically belief usually comes before or at the time receiving the Holy Spirit
 
 But for me I believe before I was born-again and before I was baptised in the Holy Spirit.
 
@@ -28882,6 +28957,11 @@ The most terrifying passage in the Bible | Matthew 7:21-23 - YouTube
   Luke 8:21 - But He answered and said to them, "My mother and My brothers are these who hear the word of God and
   do it." (ESV)
 
+Paul agrees:
+
+  Philippians 4:9 - What you have learned and received and heard and seen in me - practice these things, and the
+  God of peace will be with you. (ESV)
+
 It's obedience which leads to righteousness, even the righteousness of faith:
 
   Romans 6:16 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the
@@ -28990,11 +29070,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-06-12 Wed 00:00
+Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-12 Wed 22:51
+Created: 2024-06-13 Thu 11:27
 
 Validate
 
