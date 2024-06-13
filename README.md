@@ -9846,6 +9846,10 @@ Keeping to <ins>the precepts of the law</ins> is great, and making yourself acco
 
 > **Proverbs 28:9** - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
+Even as Christ-followers, living righteously by loving God and our neighbour, and putting a stop to sin is what we are called to do, and the Torah (law of God) teaches us a lot about how to do that:
+
+> **Psalms 1:1-3** - Blessed is the man who walks not in the counsel of the wicked, nor stands in the way of sinners, nor sits in the seat of scoffers; but his delight is in the law of the LORD, and on his law he meditates day and night. He is like a tree planted by streams of water that yields its fruit in its season, and its leaf does not wither. In all that he does, he prospers. (ESV)
+
 Here, Paul actually argues **for** keeping the precepts of the Torah, and relates actually keeping the precepts to those who have been circumcised in the heart:
 
 > **Romans 2:25-29** - For circumcision indeed is of value if you obey the law, but if you break the law, your circumcision becomes uncircumcision. So, if a man who is uncircumcised keeps <ins>the precepts of the law</ins>, will not his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But <ins>a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter.</ins> His praise is not from man but from God.

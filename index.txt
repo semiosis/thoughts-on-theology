@@ -14210,6 +14210,14 @@ Keeping to the precepts of the law is great, and making yourself accountable to 
 
   Proverbs 28:9 - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
+Even as Christ-followers, living righteously by loving God and our neighbour, and putting a stop to sin is what we
+are called to do, and the Torah (law of God) teaches us a lot about how to do that:
+
+  Psalms 1:1-3 - Blessed is the man who walks not in the counsel of the wicked, nor stands in the way of sinners,
+  nor sits in the seat of scoffers; but his delight is in the law of the LORD, and on his law he meditates day and
+  night. He is like a tree planted by streams of water that yields its fruit in its season, and its leaf does not
+  wither. In all that he does, he prospers. (ESV)
+
 Here, Paul actually argues for keeping the precepts of the Torah, and relates actually keeping the precepts to
 those who have been circumcised in the heart:
 
@@ -29435,7 +29443,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 21:49
+Created: 2024-06-13 Thu 22:17
 
 Validate
 
