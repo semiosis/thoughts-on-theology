@@ -17545,10 +17545,10 @@ The persecution is for the cross of Christ - the offense of the cross:
   endure; (ESV)
 
   II Thessalonians 1:4 - Therefore we ourselves boast about you in the churches of God for your steadfastness and
-  faith in all your persecutions and in the afflictions that you are enduring. (ESV) #+END[QUOTE],
+  faith in all your persecutions and in the afflictions that you are enduring. (ESV)
 
-  #+BEGIN[QUOTE] Matthew 13:21 - yet he has no root in himself, but endures for a while, and when tribulation or
-  persecution arises on account of the word, immediately he falls away. (ESV)
+  Matthew 13:21 - yet he has no root in himself, but endures for a while, and when tribulation or persecution
+  arises on account of the word, immediately he falls away. (ESV)
 
 38.8. The kingdom of heaven may be inherited
 
@@ -17565,8 +17565,11 @@ The persecution is for the cross of Christ - the offense of the cross:
   saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's
   feet.
 
-Surely God has some greater purpose surrounding why I've had to endure near ceaseless spiritual attack, inside and
-outside church, and internationally.
+It was easy at first to rejoice but the spiritual attack I've faced is intolerable, and we are supposed to use the
+word of God to combat these things. And I document it here for others' understanding.
+
+Surely God has some greater purpose surrounding why I've had to endure near ceaseless spiritual attack, and being
+treated like garbage from worldly Christians, and through the press.
 
 38.9.1. The snowballing slander against me will ultimately fail and I'll be vindicated at the right time in this
 life or the next
@@ -29375,7 +29378,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 18:32
+Created: 2024-06-13 Thu 18:47
 
 Validate
 

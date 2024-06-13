@@ -12465,11 +12465,9 @@ The persecution is for the cross of Christ - the offense of the cross:
 
 > **I Corinthians 4:12** - and we labor, working with our own hands. When reviled, we bless; when persecuted, we endure; (ESV)
 
->   **II Thessalonians 1:4** - Therefore we ourselves boast about you in the churches of God for your steadfastness and faith in all your persecutions and in the afflictions that you are enduring. (ESV)
-> \#+END<sub>QUOTE</sub>,
-> 
-> \#+BEGIN<sub>QUOTE</sub>
->   **Matthew 13:21** - yet he has no root in himself, but endures for a while, and when tribulation or persecution arises on account of the word, immediately he falls away. (ESV)
+> **II Thessalonians 1:4** - Therefore we ourselves boast about you in the churches of God for your steadfastness and faith in all your persecutions and in the afflictions that you are enduring. (ESV)
+
+> **Matthew 13:21** - yet he has no root in himself, but endures for a while, and when tribulation or persecution arises on account of the word, immediately he falls away. (ESV)
 
 
 ## The kingdom of heaven may be inherited
@@ -12483,8 +12481,11 @@ The persecution is for the cross of Christ - the offense of the cross:
 
 > **Matthew 5:11-13**  Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet.
 
+It was easy at first to rejoice but the spiritual attack I've faced is intolerable, and we are supposed to use the word of God to combat these things.
+And I document it here for others' understanding.
+
 Surely God has some greater purpose surrounding why I've had to endure near ceaseless spiritual attack,
-inside and outside church, and internationally.
+and being treated like garbage from worldly Christians, and through the press.
 
 
 ### The snowballing slander against me will ultimately fail and I'll be vindicated at the right time in this life or the next
