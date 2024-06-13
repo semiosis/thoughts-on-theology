@@ -101,9 +101,19 @@ through the Red Sea were being led by the Spirit - they were not working for God
   opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you
   are not under the law.
 
-Jesus' disciples here were being led by Jesus. As I understand it, we're only not guilty if we're trusting Jesus
-who justifies the ungodly. Trusting Him who justifies the ungodly has noticeable fruit of following Him because
-those who trust Him follow Him:
+Song
+youtube.com: Shane & Shane: I Will Wait For You {Psalm 130}
+
+Jesus' disciples here were being led by Jesus. As I understand it, we're only not guilty if we're trusting Jehovah
+God who justifies the ungodly by trusting Jesus. Serving Jesus = Following Jesus. We've got to follow Jesus:
+
+  John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
+  serves me, the Father will honor him. (ESV)
+
+  Matthew 8:22 - And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
+
+Trusting Him who justifies the ungodly has noticeable fruit of following Him because those who trust Him follow
+Him:
 
   Matthew 12:1-8 - At that time Jesus went through the grainfields on the Sabbath. His disciples were hungry, and
   they began to pluck heads of grain and to eat. But when the Pharisees saw it, they said to him, Look, your
@@ -113,6 +123,13 @@ those who trust Him follow Him:
   have you not read in the Law how on the Sabbath the priests in the temple profane the Sabbath and are guiltless?
   I tell you, something greater than the temple is here. And if you had known what this means, I desire mercy, and
   not sacrifice, you would not have condemned the guiltless. For the Son of Man is lord of the Sabbath. (ESV)
+
+Jesus will serve His servants who are awake:
+
+  Luke 12:37 - Blessed are those servants whom the master finds awake when he comes. Truly, I say to you, he will
+  dress himself for service and have them recline at table, and he will come and serve them. (ESV)
+
+  Matthew 23:11 - The greatest among you shall be your servant. (ESV)
 
 1.1.3. Notes for Chapter 9, paragraph 3
 
@@ -29102,7 +29119,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 12:13
+Created: 2024-06-13 Thu 12:43
 
 Validate
 
