@@ -4981,6 +4981,8 @@ I agree with Billy Graham:
     
     > **Luke 8:21** - But He answered and said to them, “My mother and My brothers are these who hear the word of God and do it.”
     
+    > **Hebrews 2:11** - For he who sanctifies and those who are sanctified all have one origin. That is why he is not ashamed to call them brothers, (ESV)
+    
     Jesus implies you must obey Him (Jesus) to be part of His family:
     
     > **John 7:16** - So Jesus answered them, My teaching is not mine, but his who sent me.
@@ -21041,6 +21043,18 @@ The motivation for everything must be to glorify God.
 Paul agrees:
 
 > **Philippians 4:9** - What you have learned and received and heard and seen in me — **practice these things**, <ins>and the God of peace will be with you.</ins> (ESV)
+
+Walk as an imitator of Christ:
+
+> **Philippians 3:17-18** - Brothers, join in imitating me, and keep your eyes on those who walk according to the example you have in us. For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
+
+> **I Corinthians 11:1** - Be imitators of me, as I am of Christ. (ESV)
+
+Do not be an enemy of the cross of Christ, imitate Christ:
+
+> **Hebrews 13:7** - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way of life, and imitate their faith. (ESV)
+
+> **III Joh 1:11** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
