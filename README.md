@@ -21091,15 +21091,6 @@ Christian persecution is not for suffering as an evildoer:
 
 > **I Peter 4:15** - But let none of you suffer as a murderer or a thief or an evildoer or as a meddler. (ESV)
 
-What I've gone through after being born-again is definitely a lot of suffering for following Jesus. I've been persecuted as a disciple of Jesus by Christians and by many non-Christians, though I had joy over putting up with it, I'm very tired of it now and exhausted. I'm sorry I am just very tired of it and against false-Christians who are not showing Christ's love - who show no mercy and think just people of the world, and do not have the mind of Christ and who don't know Christ's love, nor can see it in other people.
-
-By writing this document, I do not want to be thought of as a 'living martyr' and I neither want to glory in any of the persecution I've received.
-It sucks. It's not fun, and the people who have persecuted me should definitely repent.
-
-I just want people to stop slandering me in Jesus Christ's name please, and a wife who has actual love in her heart, not malice, nor worldliness,
-and has a real faith in Jesus, someone worth spending the rest of my life with here on this earth,
-and I don't want to be abused for it, especially by so-call Christ-followers who don't actually obey Jesus.
-
 
 # Jesus Christ is fully God and fully human
 
