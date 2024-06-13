@@ -2490,7 +2490,8 @@ Christ's law".
 
 Also, I believe that loving your neighbour as yourself does not cancel out the rest of the law of God, but that a
 person must be actually following Christ by obeying Christ's commandments in order to not be "under the law" and
-to be "not guilty".
+to be "not guilty". Following Jesus starts with believing in Him and believing He is the Son of God, and Anointed
+one, the Messiah, and following Jesus continues in getting to know Him through obedience to Him.
 
   Philippians 3:9-10 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
@@ -6434,9 +6435,15 @@ Also, I have had as of 28 May '24 in my dreams:
 
 star.net.nz: The Word for Today - The right balance - May 28th
 
-Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God. I will be still waiting
-for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God
-in the flesh, the ".
+Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God
+and is Love. I will be still waiting for the Biblical acknowledgement I am waiting for "Jesus is the Son of God
+who has proceeded forth from Father God in the flesh from heaven to earth". Otherwise I'm simply not going to
+trust the spirit sending dreams/visions. They can get very tactical sometimes, so I have to be very discerning.
+Though I will test them because I still get some true visions/dreams sometimes.
+
+  I Joh 4:2-3 - By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the
+  flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the
+  antichrist, which you heard was coming and now is in the world already. (ESV)
 
   I Thessalonians 5:20-22 - Do not despise prophecies, but test everything; hold fast what is good. Abstain from
   every form of evil. (ESV)
@@ -29095,7 +29102,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 11:53
+Created: 2024-06-13 Thu 12:13
 
 Validate
 
