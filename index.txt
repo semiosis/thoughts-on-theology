@@ -5,7 +5,7 @@ and be corrected by the word of God, and I'm happy with what I have written here
 mercy. This document shows my current understanding at the time of writing. I'm not judging people. This is just a
 Bible study. I have just wanted to read the Bible for myself to understand and apply the Scriptures, come into
 agreement with God's Truth and share my understanding it with others for accountability purposes. I don't presume
-to be always right.
+to be always right. I've also added parts of my own testimony.
 
   Psalms 119:105 - Your word is a lamp to my feet and a light to my path. (ESV)
 
@@ -29083,6 +29083,15 @@ it, I'm very tired of it now and exhausted. I'm sorry I am just very tired of it
 are not showing Christ's love - who show no mercy and think just people of the world, and do not have the mind of
 Christ and who don't know Christ's love, nor can see it in other people.
 
+By writing this document, I do not want to be thought of as a 'living martyr' and I neither want to glory in any
+of the persecution I've received. It sucks. It's not fun, and the people who have persecuted me should definitely
+repent.
+
+I just want people to stop slandering me in Jesus Christ's name please, and a wife who has actual love in her
+heart, not malice, nor worldliness, and has a real faith in Jesus, someone worth spending the rest of my life with
+here on this earth, and I don't want to be abused for it, especially by so-call Christ-followers who don't
+actually obey Jesus.
+
 73. Jesus Christ is fully God and fully human
 
 Jesus Christ is the Word of God who became flesh - this is what I believe - not just God in the flesh but God who
@@ -29378,7 +29387,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 18:47
+Created: 2024-06-13 Thu 19:12
 
 Validate
 
