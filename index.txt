@@ -65,8 +65,24 @@ in that heart. That's the pattern Paul wants to be conformed to. And knowing Chr
 means walking in the footsteps of his self-humbling, and experiencing Jesus' help and the fellowship of having Him
 near and His resurrection power on the path of our obedience when it's the hardest".
 
-AMEN!! Very well put by David Mathis. I'd say that in obeying Christ and imitating Christ, we endeavour to be
-found in Him, and He is our righteousness, and He is also our strength.
+Very well put by David Mathis. I'd say that in obeying Christ and imitating Christ, we endeavour to be found in
+Him, and He is our righteousness, and He is also our strength. However, I still believe that the upward call of
+God in Christ Jesus may result in some being martyred.
+
+  John 21:19 - (This he said to show by what kind of death he was to glorify God.) And after saying this he said
+  to him, Follow me. (ESV)
+
+Jesus follows us and supports us:
+
+  I Corinthians 10:4 - and all drank the same spiritual drink. For they drank from the spiritual Rock that
+  followed them, and the Rock was Christ. (ESV)
+
+The crown of life is gifted to those who are obedient, and have been tested. I think this verse can also be taken
+in the literal sense:
+
+  Revelation 2:10 - Do not fear what you are about to suffer. Behold, the devil is about to throw some of you into
+  prison, that you may be tested, and for ten days you will have tribulation. Be faithful unto death, and I will
+  give you the crown of life. (ESV)
 
 1. Confessions of faith
 
@@ -2509,6 +2525,9 @@ has us covered. But we do endeavour, we do try:
 I believe the above prophetically talks about Jesus. We must obey Jesus. God doesn't guarantee that following
 Jesus will be easy.
 
+Song
+youtube.com: Steve Apirana - I Have Decided
+
   John 6:44-46 - No one can come to me unless the Father who sent me draws him. And I will raise him up on the
   last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned
   from the Father comes to me- not that anyone has seen the Father except he who is from God; he has seen the
@@ -4369,7 +4388,8 @@ We love God and our brothers and sisters in Christ by following God's commandmen
   and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are
   not burdensome. (ESV)
 
-The crown of life is gifted to those who are obedient, and have been tested:
+The crown of life is gifted to those who are obedient, and have been tested. I think this verse can also be taken
+in the literal sense:
 
   Revelation 2:10 - Do not fear what you are about to suffer. Behold, the devil is about to throw some of you into
   prison, that you may be tested, and for ten days you will have tribulation. Be faithful unto death, and I will
@@ -15514,6 +15534,9 @@ Jesus has to be our Pearl of Great price:
   Matthew 13:45-46 - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one
   pearl of great value, went and sold all that he had and bought it. (ESV)
 
+Song
+youtube.com: Be the Centre - Michael Frye
+
 29.3.1. We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
 
 Jesus certainly does command us to have emotions for things. For example:
@@ -22510,6 +22533,14 @@ https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/ast
   John 3:33-34 - Whoever receives his testimony sets his seal to this, that God is true. For he whom God has
   sent utters the words of God, for he gives the Spirit without measure. (ESV)
 
+Something I realised fairly recently. I also before having that short conversation with Holy Spirit knew (as I
+was dreaming/asleep) that they were following me:
+
+Jesus follows us and supports us:
+
+  I Corinthians 10:4 - and all drank the same spiritual drink. For they drank from the spiritual Rock that
+  followed them, and the Rock was Christ. (ESV)
+
  3. I wrote about following the law by faith, also law written on my heart.
 
 https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/
@@ -27939,6 +27970,9 @@ glorifies Jesus and glorifies God. The motivation is to glorify Jesus, and to ho
   Romans 12:1 - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living
   sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
 
+Song
+youtube.com: Steve Apirana - Living Sacrifice
+
 This should never replace Jesus, but glorifies Jesus because it's being a disciple of Jesus.
 
   Hebrews 2:10 - For it was fitting for Him, for whom (G3739 hos) are all (G3956 pas) things (G3956 pas), and
@@ -29262,7 +29296,7 @@ Date: 2024-06-13 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-13 Thu 16:19
+Created: 2024-06-13 Thu 17:04
 
 Validate
 
