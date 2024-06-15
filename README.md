@@ -241,6 +241,10 @@ We are freed from, for example, making the worries of the world our first though
 
 > **II Corinthians 3:17** - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
 
+-   **Song:** [youtube.com: Jesus All for Jesus {Lyrics}](https://www.youtube.com/watch?v=Ay7TQe-8G2M)
+
+-   **Lyrics:** Jesus, all for Jesus; All I am and have and ever hope to be; All of my ambitions, hopes and plans; I surrender these into your hands; **For it's only in your will that I am free**;
+
 I believe this. If anyone is trusting that Jesus is the Christ, the Son of God, then they have life in His name. That doesn't mean they have come to know Him yet.
 
 > **John 20:31** - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name. (ESV)
@@ -325,9 +329,11 @@ We learn Christ, and are taught by Christ (becoming obedient to His teachings an
 
 > **Ephesians 4:20-21** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
 
-Therefore, even before I was born-again of the Spirit, as I was endeavoring to practice Jesus' commandments, Jesus must have been already working in me.
+Therefore, even before I was noticeably "born-again of the water and the Spirit" in 2022, I had begun to try to practice Jesus' commandments in 2020/2021 in an effort to seek God, Jesus must have been already working in me, but I say this to explain how I believe that it might be quite hard to pinpoint the starting point, but we know that it's God's grace through faith (believing, obedient, trusting faith) that it happens, but that doesn't mean believing and obeying Jesus are not important to receive the Holy Spirit, because they are.
 
-We have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus. It's to walk in the Spirit, to abide in Jesus' Spirit. You can abide in Jesus' Spirit if You have faith in Him, knowing Him, and being found in Him!
+> **Ephesians 2:8-9** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
+
+By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus: It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if You have faith in Him, knowing Him, and being found in Him!
 
 > **Philippians 3:9-12** - and be found in him, not having a righteousness of my own that comes from the law, but <ins>that which comes through faith in Christ, the righteousness from God that depends on faith</ins> — that <ins>I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death,</ins> <ins>that by any means possible I may attain the resurrection from the dead.</ins> <ins>Not that I have already obtained this or am already perfect, but I press on to make it my own,</ins> because Christ Jesus has made me his own.
 
@@ -5129,7 +5135,7 @@ We believe and obey Jesus:
 
 > **John 3:36** - He who **believes in the Son** has eternal life; but he who does not **obey the Son** will not see life, but the wrath of God abides on him.”
 
-We have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus. It's to walk in the Spirit, to abide in Jesus' Spirit. You can abide in Jesus' Spirit if You have faith in Him, knowing Him, and being found in Him! Faith in Christ I believe means believing in Him and being obedient to Him, having communion with Him, etc. becoming intimate with Him, following Him. This isn't our own merit, but we still obey Jesus to be found in Him. In Him we have Jesus' righteousness:
+By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus: It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if You have faith in Him, knowing Him, and being found in Him! Faith in Christ I believe means believing in Him and being obedient to Him, having communion with Him, etc. becoming intimate with Him, following Him. This isn't our own merit, but we still obey Jesus to be found in Him. In Him we have Jesus' righteousness:
 
 > **Matthew 16:25** - For whoever would save his life will lose it, but whoever loses his life for my sake will find it. (ESV)
 
@@ -7317,7 +7323,7 @@ Justification by works/obedience and justification by so-called 'faith alone' is
 > -   **Eph 2:9** - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
 > -   **Eph 2:10** - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God prepared beforehand so that we would walk in them. (NASB)
 
-We have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus. It's to walk in the Spirit, to abide in Jesus' Spirit. You can abide in Jesus' Spirit if You have faith in Him, knowing Him, and being found in Him!
+By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus: It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if You have faith in Him, knowing Him, and being found in Him!
 
 > **Philippians 3:9-12** - and be found in him, not having a righteousness of my own that comes from the law, but <ins>that which comes through faith in Christ, the righteousness from God that depends on faith</ins> — that <ins>I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death,</ins> <ins>that by any means possible I may attain the resurrection from the dead.</ins> <ins>Not that I have already obtained this or am already perfect, but I press on to make it my own,</ins> because Christ Jesus has made me his own.
 
@@ -13925,7 +13931,7 @@ We learn Christ, and are taught by Christ (becoming obedient to His teachings an
 
 > **Ephesians 4:20-21** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
 
-Therefore, even before I was born-again of the Spirit, as I was endeavoring to practice Jesus' commandments, Jesus was already working in me. I say this for other's understanding.
+Therefore, even before I was noticeably "born-again of the water and the Spirit" in 2022, I had begun to try to practice Jesus' commandments in 2020/2021 in an effort to seek God, Jesus must have been already working in me, but I say this to explain how I believe that it might be quite hard to pinpoint the starting point, but we know that it's God's grace through faith (believing, obedient, trusting faith) that it happens, but that doesn't mean believing and obeying Jesus are not important to receive the Holy Spirit, because they are.
 
 While the Scriptures says that we are born of God when we believe (I've been attending church my whole life, and baptised at 16 years old - 15-17), I was [born-again/regenerated of the Spirit](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) much later (when I was 35). Does that mean I hadn't truly believed until I was 35? Perhaps in a way. I had became disillusioned with AI in 2021 I began seeking after God, and then I got born-again. The Holy Spirit must have been working in my life before I was [born-again of the Spirit in this way](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/). Holy Spirit must have been dwelling **with** me even before He was **in** me:
 
