@@ -19369,7 +19369,11 @@ Jesus' friends do what Jesus' commands them. Jesus' friends hear His voice:
 
 50.2. Sheep vs goats: Sheep inherit the kingdom of God, goats do not
 
-Following Jesus certainly means
+Following Jesus certainly means repenting from, turning away from practicing sin because Jesus taught that we
+should. The ones who practice the works of the flesh will never even enter the kingdom:
+
+  Matthew 5:20 - For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will
+  never enter the kingdom of heaven. (ESV)
 
   I Corinthians 6:9-10 - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
@@ -19380,7 +19384,8 @@ Following Jesus certainly means
   and things like these. I warn you, as I warned you before, that those who do such things will not inherit the
   kingdom of God. (ESV)
 
-Also, obedience means obeying Jesus Christ's commandments! Following Jesus means obeying Jesus' commandments:
+Also, obedience means obeying Jesus Christ's commandments on how to love one another! Following Jesus means
+obeying Jesus' commandments:
 
   Matthew 25:26-46 - But his master answered him, You wicked and slothful servant! You knew that I reap where I
   have not sowed and gather where I scattered no seed? Then you ought to have invested my money with the bankers,
@@ -19411,6 +19416,7 @@ Sheep:
 - They follow Jesus' commandments
 - They are servants
 - They practice righteousness, as Jesus did
+- They repent and turn away from practicing sin
 - They forgive and do not bear a grudge against other family in Christ
 
 Goats:
@@ -30003,7 +30009,7 @@ Date: 2024-06-16 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-16 Sun 17:14
+Created: 2024-06-16 Sun 17:26
 
 Validate
 
