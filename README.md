@@ -36,9 +36,21 @@ Because God loved us first:
 
 > **Philippians 3:9-13** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
-Jesus' servants (people who obey Him) are found **in him**:
+We abide in Jesus when He washes us:
+
+> **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+
+Peter obeyed to let Jesus wash him:
+
+> **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+Jesus' servants (people who obey Him) are found **in him**. Jesus' servants are those who have been washed, and they ought to then wash:
 
 > **Psalms 34:22** - The LORD redeems the life of his **servants**; none of those who take refuge **in him** will be condemned. (ESV)
+
+And they were put in Him by Him:
+
+> **Titus 3:5-7** - he saved us, not because of works done by us in righteousness, but **according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit**, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life. (ESV)
 
 -   **Sermon:** [youtube.com: What Is It Like to 'Know Christ'?](https://www.youtube.com/watch?v=0g2ExGC1GaE)
 
@@ -2064,6 +2076,18 @@ To anyone who receives Jesus, even those who believe on His name, Jesus has give
 Yes, I believe that Jesus can save a person who believes in His name. But He is the judge, and it is written in John's gospel that no person who remains disobedient to Jesus Christ will see life, and I believe that.
 
 > **Revelation of John 3:8** - I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that <ins>you have but little power, and yet you have kept my word and have not denied my name.</ins>
+
+We abide in Jesus when He washes us:
+
+> **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+
+Peter obeyed to let Jesus wash him:
+
+> **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+We call on Jesus to wash us:
+
+> **Acts 22:16** - And now why do you wait? Rise and be baptized and wash away your sins, calling on his name. (ESV)
 
 I think Jesus calls us to pursue perfection through following Him, and we should definitely give it a go:
 
@@ -6756,7 +6780,7 @@ Suffering for righteousness sake (suffering for being Christlike).
 
 > **Philippians 3:8-11** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
 
-Jesus' servants (people who obey Him) are found **in him**:
+Jesus' servants (people who obey Him) are found **in him**. Jesus' servants are those who have been washed, and they ought to then wash:
 
 > **Psalms 34:22** - The LORD redeems the life of his **servants**; none of those who take refuge **in him** will be condemned. (ESV)
 
@@ -7399,7 +7423,7 @@ By His grace we have to actually come into obeying Jesus to find life. Think abo
 
 Faith in Christ I believe means believing in Him and being obedient to Him, having communion with Him, etc. becoming intimate with Him, following Him. This isn't our own merit, but we still obey Jesus to be found in Him. In Him we have Jesus' righteousness:
 
-Jesus' servants (people who obey Him) are found **in him**:
+Jesus' servants (people who obey Him) are found **in him**. Jesus' servants are those who have been washed, and they ought to then wash:
 
 > **Psalms 34:22** - The LORD redeems the life of his **servants**; none of those who take refuge **in him** will be condemned. (ESV)
 
@@ -11116,6 +11140,29 @@ As servants of Jesus, we should encourage other servants of Jesus to maturity:
 > **Colossians 4:12** - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always struggling on your behalf in his prayers, that you may stand mature and fully assured in all the will of God.
 
 > **Colossians 1:7** - just as you learned it from Epaphras our beloved fellow servant. He is a faithful minister of Christ on your behalf
+
+
+## Being washed and washing one another
+
+We abide in Jesus when He washes us:
+
+> **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+
+Peter obeyed to let Jesus wash him:
+
+> **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+We call on Jesus to wash us:
+
+> **Acts 22:16** - And now why do you wait? Rise and be baptized and wash away your sins, calling on his name. (ESV)
+
+> **I Corinthians 6:11** - And such were some of you. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God. (ESV)
+
+Being washed, we ought to wash one another's feet:
+
+> **John 13:14** - If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. (ESV)
+
+> **I Timothy 5:9-10** - Let a widow be enrolled if she is not less than sixty years of age, having been the wife of one husband, and having a reputation for good works: if she has brought up children, has shown hospitality, has washed the feet of the saints, has cared for the afflicted, and has devoted herself to every good work. (ESV)
 
 
 ## Entering into life / the Kingdom of Heaven
