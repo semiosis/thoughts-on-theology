@@ -9142,7 +9142,9 @@ To be fruitful, a person must be further obedient after arriving at the knowledg
 We must take hold of the eternal life to which we are called.
 We made the confession to eternal life, and we must now fight the good fight of the faith, until after being slaves to righteousness, obeying Jesus, we are sanctified and receive eternal life.
 
-> **I Timothy 6:11-16** - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith, love, steadfastness, gentleness.  Fight the good fight of the faith. Take hold of the eternal life to which you were called and about which you made the good confession in the presence of many witnesses.  I charge you in the presence of God, who gives life to all things, and of Christ Jesus, who in his testimony before Pontius Pilate made the good confession, to <ins>keep the commandment unstained and free from reproach until the appearing of our Lord Jesus Christ</ins>, which he will display at the proper time—he who is the blessed and only Sovereign, the King of kings and Lord of lords, who alone has immortality, who dwells in unapproachable light, whom no one has ever seen or can see. To him be honor and eternal dominion. Amen.
+> **Hebrews 3:13-14** - But exhort one another every day, as long as it is called today, that none of you may be hardened by the deceitfulness of sin. For **we share in Christ, if indeed we hold our original confidence firm to the end.** (ESV)
+
+> **I Timothy 6:11-16** - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith, love, steadfastness, gentleness.  **Fight the good fight of the faith**. Take hold of the eternal life to which you were called and about which you made the good confession in the presence of many witnesses.  I charge you in the presence of God, who gives life to all things, and of Christ Jesus, who in his testimony before Pontius Pilate made the good confession, to <ins>keep the commandment unstained and free from reproach until the appearing of our Lord Jesus Christ</ins>, which he will display at the proper time—he who is the blessed and only Sovereign, the King of kings and Lord of lords, who alone has immortality, who dwells in unapproachable light, whom no one has ever seen or can see. To him be honor and eternal dominion. Amen.
 
 > **Matthew 7:21-23** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. (ESV)
 
@@ -14776,6 +14778,22 @@ God loved us first. We must accept that:
 
 > **I John 4:19** - We love <ins>because he first loved us.</ins> (ESV)
 
+We must hold to our original confession and not be hardened by the deceitfulness of sin:
+
+> **Hebrews 3:13-14** - But exhort one another every day, as long as it is called today, that none of you may be hardened by the deceitfulness of sin. For **we share in Christ, if indeed we hold our original confidence firm to the end.** (ESV)
+
+We abide in Jesus when He washes us:
+
+> **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+
+Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+
+> **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+Jesus' servants (people who believe and obey Him) are found **in him**. We know Christ by living in the pattern in which he lived. Jesus' servants are those who have accepted Jesus to wash them, and they ought to then wash one another:
+
+> **Psalms 34:22** - The LORD redeems the life of his **servants**; none of those who take refuge **in him** will be condemned. (ESV)
+
 Abiding in Christ, one abides in God.
 
 > **1 John 4:15** - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
@@ -15622,7 +15640,7 @@ God chooses who is saved, and how they are saved.
 
 God justifies.
 
-> **I Timothy 6:11-16** - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith, love, steadfastness, gentleness.  Fight the good fight of the faith. Take hold of the eternal life to which you were called and about which you made the good confession in the presence of many witnesses.  I charge you in the presence of God, who gives life to all things, and of Christ Jesus, who in his testimony before Pontius Pilate made the good confession, to <ins>keep the commandment unstained and free from reproach until the appearing of our Lord Jesus Christ</ins>, which he will display at the proper time—he who is the blessed and only Sovereign, the King of kings and Lord of lords, who alone has immortality, who dwells in unapproachable light, whom no one has ever seen or can see. To him be honor and eternal dominion. Amen.
+> **I Timothy 6:11-16** - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith, love, steadfastness, gentleness.  **Fight the good fight of the faith**. Take hold of the eternal life to which you were called and about which you made the good confession in the presence of many witnesses.  I charge you in the presence of God, who gives life to all things, and of Christ Jesus, who in his testimony before Pontius Pilate made the good confession, to <ins>keep the commandment unstained and free from reproach until the appearing of our Lord Jesus Christ</ins>, which he will display at the proper time—he who is the blessed and only Sovereign, the King of kings and Lord of lords, who alone has immortality, who dwells in unapproachable light, whom no one has ever seen or can see. To him be honor and eternal dominion. Amen.
 
 Confessing and holding to a creed is working faith though.
 
@@ -17229,6 +17247,8 @@ I know this is talking specifically about taking communion, but I believe it app
 God looks at the heart:
 
 > **II Corinthians 5:10-12** - For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about <ins>what is in the heart</ins>.
+
+> **Hebrews 4:12-13** - For the word of God is living and active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the heart. And no creature is hidden from his sight, but all are naked and exposed to the eyes of him to whom we must give account. (ESV)
 
 Make yourself ready <ins>imminently</ins>:
 

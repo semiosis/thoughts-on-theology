@@ -13213,6 +13213,10 @@ We must take hold of the eternal life to which we are called. We made the confes
 now fight the good fight of the faith, until after being slaves to righteousness, obeying Jesus, we are sanctified
 and receive eternal life.
 
+  Hebrews 3:13-14 - But exhort one another every day, as long as it is called today, that none of you may be
+  hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence firm to
+  the end. (ESV)
+
   I Timothy 6:11-16 - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith,
   love, steadfastness, gentleness. Fight the good fight of the faith. Take hold of the eternal life to which you
   were called and about which you made the good confession in the presence of many witnesses. I charge you in the
@@ -20856,6 +20860,28 @@ God loved us first. We must accept that:
 
   I John 4:19 - We love because he first loved us. (ESV)
 
+We must hold to our original confession and not be hardened by the deceitfulness of sin:
+
+  Hebrews 3:13-14 - But exhort one another every day, as long as it is called today, that none of you may be
+  hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence firm to
+  the end. (ESV)
+
+We abide in Jesus when He washes us:
+
+  John 13:8 - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have
+  no share with me. (ESV)
+
+Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+
+  John 13:9 - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+Jesus' servants (people who believe and obey Him) are found in him. We know Christ by living in the pattern in
+which he lived. Jesus' servants are those who have accepted Jesus to wash them, and they ought to then wash one
+another:
+
+  Psalms 34:22 - The LORD redeems the life of his servants; none of those who take refuge in him will be
+  condemned. (ESV)
+
 Abiding in Christ, one abides in God.
 
   1 John 4:15 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
@@ -24307,6 +24333,11 @@ God looks at the heart:
   persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not
   commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer
   those who boast about outward appearance and not about what is in the heart.
+
+  Hebrews 4:12-13 - For the word of God is living and active, sharper than any two-edged sword, piercing to the
+  division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the
+  heart. And no creature is hidden from his sight, but all are naked and exposed to the eyes of him to whom we
+  must give account. (ESV)
 
 Make yourself ready imminently:
 
@@ -30219,7 +30250,7 @@ Date: 2024-06-19 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-19 Wed 10:23
+Created: 2024-06-19 Wed 10:33
 
 Validate
 
