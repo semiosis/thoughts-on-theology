@@ -4880,6 +4880,9 @@ Coming to Jesus involves denying ourself and taking up our cross daily to follow
   Luke 9:23 - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily
   and follow me. (ESV)
 
+  I Corinthians 15:31 - I protest, brothers, by my pride in you, which I have in Christ Jesus our Lord, I die
+  every day! (ESV)
+
 Christ Jesus judged Paul faithful - Paul was faithful, and Jesus Christ is Paul's Lord. Paul received mercy to
 become obedient. Paul received mercy because he was acting ignorantly - behaving in a way which came from
 disbelief. So then, Christ Jesus displays in Paul His perfect patience to those who would trust in Him for eternal
@@ -15636,6 +15639,9 @@ faith is counted as righteousness,
 - Do what is right and acceptable to him
 - Romans 13:10 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
+  Jeremiah 32:40 - I will make with them an everlasting covenant, that I will not turn away from doing good to
+  them. And I will put the fear of me in their hearts, that they may not turn from me. (ESV)
+
 28.5.4. a life of faith
 
 The followers of Paul the Apostle live by faith; those are the righteous ones. It's a lifestyle.
@@ -16329,6 +16335,13 @@ But through faith in Christ Jesus we are justified and have peace with God.
   God, through faith.
 
 30.3. Guideline
+
+  Exodus 20:12 - Honor your father and your mother, that your days may be long in the land that the LORD your God
+  is giving you. (ESV)
+
+  Ephesians 6:1-3 - Children, obey your parents in the Lord, for this is right. Honor your father and mother (this
+  is the first commandment with a promise), that it may go well with you and that you may live long in the land.
+  (ESV)
 
 According to Matthew 19, obeying (actually keeping, complying with) the commandments (10 commandments, from the
 heart, and in reality, accountable to God / the 2 Great commandments) is important for entering into the Kingdom
@@ -17793,29 +17806,236 @@ with the twelve. (ESV)
 
 
 
-Prophecies About Jesus                     Old Testament Scripture  New Testament Fulfillment
+Prophecies About              Old Testament Scripture                      New Testament Fulfillment
+Jesus
 
-Messiah would be praised by little children.                  Ps 8:2                   Mt 21:16
-Messiah would be betrayed.                                    Ps 41:9, Zc 11:12-13     Lk 22:47-48, Mt 26:14-16
-Messiah's price money would be used to buy a potter's field.  Zc 11:12-13              Mt 27:9-10
-Messiah would be falsely accused.                             Ps 35:11                 Mk 14:57-58
-Messiah would be silent before his accusers.                  Is 53:7                  Mk 15:4-5
-Messiah would be spat upon and struck.                        Is 50:6                  Mt 26:67
-Messiah would be hated without cause.                         Ps 35:19, Psalm 69:4     Jn 15:24-25
-Messiah would be crucified with criminals.                    Is 53:12                 Mt 27:38, Mk 15:27-28
-Messiah would be given vinegar to drink.                      Ps 69:21                 Mt 27:34, Jn 19:28-30
-Messiah's hands and feet would be pierced.                    Ps 22:16, Zc 12:10       Jn 20:25-27
-Messiah would be mocked and ridiculed.                        Ps 22:7-8                Lk 23:35
-Soldiers would gamble for Messiah's garments.                 Ps 22:18                 Lk 23:34, Mt 27:35-36
-Messiah's bones would not be broken.                          Ex 12:46, Ps 34:20       Jn 19:33-36
-Messiah would be forsaken by God.                             Ps 22:1                  Mt 27:46
-Messiah would pray for his enemies.                           Ps 109:4                 Lk 23:34
-Soldiers would pierce Messiah's side.                         Zc 12:10                 Jn 19:34
-Messiah would be buried with the rich.                        Is 53:9                  Mt 27:57-60
-Messiah would resurrect from the dead.                        Ps 16:10, Psalm 49:15    Mt 28:2-7, Ac 2:22-32
-Messiah would ascend to heaven.                               Ps 24:7-10               Mk 16:19, Lk 24:51
-Messiah would be seated at God's right hand.                  Ps 68:18, Psalm 110:1    Mk 16:19, Mt 22:44
-Messiah would be a sacrifice for sin.                         Is 53:5-12               Rm 5:6-8
+Psalms 8:2 - Out of the mouth of babes and  Matthew 21:16 - and they said to him, Do you
+Messiah would be       infants, you have established strength      hear what these are saying? And Jesus said to
+praised by little      because of your foes, to still the enemy    them, Yes; have you never read, Out of the
+children.              and the avenger. (ESV)                      mouth of infants and nursing babies you have
+prepared praise? (ESV)
+Psalms 41:9 - Even my close friend in whom  Luke 22:47-48 - While he was still speaking,
+I trusted, who ate my bread, has lifted     there came a crowd, and the man called Judas,
+his heel against me. (ESV), Zechariah       one of the twelve, was leading them. He drew
+|  12-13 - Then I said to them, If it       near to Jesus to kiss him, but Jesus said to
+seems good to you, give me my wages; but    him, Judas, would you betray the Son of Man
+Messiah would be       if not, keep them. And they weighed out as  with a kiss? (ESV), Matthew 26:14-16 - Then
+betrayed.              my wages thirty pieces of silver. Then the  one of the twelve, whose name was Judas
+LORD said to me, Throw it to the            Iscariot, went to the chief priests and said,
+potter-the lordly price at which I was      What will you give me if I deliver him over
+priced by them. So I took the thirty        to you? And they paid him thirty pieces of
+pieces of silver and threw them into the    silver. And from that moment he sought an
+house of the LORD, to the potter. (ESV)     opportunity to betray him. (ESV)
+Zechariah 11:12-13 - Then I said to them,
+If it seems good to you, give me my wages;  Matthew 27:9-10 - Then was fulfilled what had
+but if not, keep them. And they weighed     been spoken by the prophet Jeremiah, saying,
+Messiah's price money  out as my wages thirty pieces of silver.    And they took the thirty pieces of silver,
+would be used to buy   Then the LORD said to me, Throw it to the   the price of him on whom a price had been set
+a potter's field.      potter-the lordly price at which I was      by some of the sons of Israel, and they gave
+priced by them. So I took the thirty        them for the potter's field, as the Lord
+pieces of silver and threw them into the    directed me. (ESV)
+house of the LORD, to the potter. (ESV)
+Mark 14:57-58 - And some stood up and bore
+Messiah would be       Psalms 35:11 - Malicious witnesses rise     false witness against him, saying, We heard
+falsely accused.       up; they ask me of things that I do not     him say, I will destroy this temple that is
+know. (ESV)                                 made with hands, and in three days I will
+build another, not made with hands. (ESV)
+Isaiah 53:7 - He was oppressed, and he was  Mark 15:4-5 - And Pilate again asked him,
+Messiah would be       afflicted, yet he opened not his mouth;     Have you no answer to make? See how many
+silent before his      like a lamb that is led to the slaughter,   charges they bring against you. But Jesus
+accusers.              and like a sheep that before its shearers   made no further answer, so that Pilate was
+is silent, so he opened not his mouth.      amazed. (ESV)
+(ESV)
+Isaiah 50:6 - I gave my back to those who
+Messiah would be spat  strike, and my cheeks to those who pull     Matthew 26:67 - Then they spit in his face
+upon and struck.       out the beard; I hid not my face from       and struck him. And some slapped him, (ESV)
+disgrace and spitting. (ESV)
+Psalms 35:19 - Let not those rejoice over
+me who are wrongfully my foes, and let not  John 15:24-25 - If I had not done among them
+those wink the eye who hate me without      the works that no one else did, they would
+Messiah would be       cause. (ESV), Psalms 69:4 - More in number  not be guilty of sin, but now they have seen
+hated without cause.   than the hairs of my head are those who     and hated both me and my Father. But the word
+hate me without cause; mighty are those     that is written in their Law must be
+who would destroy me, those who attack me   fulfilled: They hated me without a cause.
+with lies. What I did not steal must I now  (ESV)
+restore? (ESV)
+Isaiah 53:12 - Therefore I will divide him
+a portion with the many, and he shall       Matthew 27:38 - Then two robbers were
+Messiah would be       divide the spoil with the strong, because   crucified with him, one on the right and one
+crucified with         he poured out his soul to death and was     on the left. (ESV), Mark 15:27-28 - And with
+criminals.             numbered with the transgressors; yet he     him they crucified two robbers, one on his
+bore the sin of many, and makes             right and one on his left. (ESV)
+intercession for the transgressors. (ESV)
+Matthew 27:34 - they offered him wine to
+drink, mixed with gall, but when he tasted
+it, he would not drink it. (ESV), John
+|  28-30 - After this, Jesus, knowing that
+Messiah would be       Psalms 69:21 - They gave me poison for      all was now finished, said (to fulfill the
+given vinegar to       food, and for my thirst they gave me sour   Scripture), I thirst. A jar full of sour wine
+drink.                 wine to drink. (ESV)                        stood there, so they put a sponge full of the
+sour wine on a hyssop branch and held it to
+his mouth. When Jesus had received the sour
+wine, he said, It is finished, and he bowed
+his head and gave up his spirit. (ESV)
+John 20:25-27 - So the other disciples told
+Psalms 22:16 - For dogs encompass me; a     him, We have seen the Lord. But he said to
+company of evildoers encircles me; they     them, Unless I see in his hands the mark of
+have pierced my hands and feet- (ESV),      the nails, and place my finger into the mark
+Zechariah 12:10 - And I will pour out on    of the nails, and place my hand into his
+Messiah's hands and    the house of David and the inhabitants of   side, I will never believe. Eight days later,
+feet would be          Jerusalem a spirit of grace and pleas for   his disciples were inside again, and Thomas
+pierced.               mercy, so that, when they look on me, on    was with them. Although the doors were
+him whom they have pierced, they shall      locked, Jesus came and stood among them and
+mourn for him, as one mourns for an only    said, Peace be with you. Then he said to
+child, and weep bitterly over him, as one   Thomas, Put your finger here, and see my
+weeps over a firstborn. (ESV)               hands; and put out your hand, and place it in
+my side. Do not disbelieve, but believe.
+(ESV)
+Psalms 22:7-8 - All who see me mock me;     Luke 23:35 - And the people stood by,
+Messiah would be       they make mouths at me; they wag their      watching, but the rulers scoffed at him,
+mocked and ridiculed.  heads; He trusts in the LORD; let him       saying, He saved others; let him save
+deliver him; let him rescue him, for he     himself, if he is the Christ of God, his
+delights in him! (ESV)                      Chosen One! (ESV)
+Soldiers would gamble  Psalms 22:18 - they divide my garments      Matthew 27:35-36 - And when they had
+for Messiah's          among them, and for my clothing they cast   crucified him, they divided his garments
+garments.              lots. (ESV)                                 among them by casting lots. Then they sat
+down and kept watch over him there. (ESV)
+John 19:33-36 - But when they came to Jesus
+and saw that he was already dead, they did
+Exodus 12:46 - It shall be eaten in one     not break his legs. But one of the soldiers
+house; you shall not take any of the flesh  pierced his side with a spear, and at once
+Messiah's bones would  outside the house, and you shall not break  there came out blood and water. He who saw it
+not be broken.         any of its bones. (ESV), Psalms 34:20 - He  has borne witness-his testimony is true, and
+keeps all his bones; not one of them is     he knows that he is telling the truth-that
+broken. (ESV)                               you also may believe. For these things took
+place that the Scripture might be fulfilled:
+Not one of his bones will be broken. (ESV)
+Psalms 22:1 - My God, my God, why have you  Matthew 27:46 - And about the ninth hour
+Messiah would be       forsaken me? Why are you so far from        Jesus cried out with a loud voice, saying,
+forsaken by God.       saving me, from the words of my groaning?   Eli, Eli, lema sabachthani? that is, My God,
+(ESV)                                       my God, why have you forsaken me? (ESV)
+Messiah would pray     Psalms 109:4 - In return for my love they   Luke 23:34 - And Jesus said, Father, forgive
+for his enemies.       accuse me, but I give myself to prayer.     them, for they know not what they do. And
+(ESV)                                       they cast lots to divide his garments. (ESV)
+Zechariah 12:10 - And I will pour out on
+the house of David and the inhabitants of
+Jerusalem a spirit of grace and pleas for   John 19:34 - But one of the soldiers pierced
+Soldiers would pierce  mercy, so that, when they look on me, on    his side with a spear, and at once there came
+Messiah's side.        him whom they have pierced, they shall      out blood and water. (ESV)
+mourn for him, as one mourns for an only
+child, and weep bitterly over him, as one
+weeps over a firstborn. (ESV)
+Matthew 27:57-60 - When it was evening, there
+came a rich man from Arimathea, named Joseph,
+Isaiah 53:9 - And they made his grave with  who also was a disciple of Jesus. He went to
+the wicked and with a rich man in his       Pilate and asked for the body of Jesus. Then
+Messiah would be       death, although he had done no violence,    Pilate ordered it to be given to him. And
+buried with the rich.  and there was no deceit in his mouth.       Joseph took the body and wrapped it in a
+(ESV)                                       clean linen shroud and laid it in his own new
+tomb, which he had cut in the rock. And he
+rolled a great stone to the entrance of the
+tomb and went away. (ESV)
+Matthew 28:2-7 - And behold, there was a
+great earthquake, for an angel of the Lord
+descended from heaven and came and rolled
+back the stone and sat on it. His appearance
+was like lightning, and his clothing white as
+snow. And for fear of him the guards trembled
+and became like dead men. But the angel said
+to the women, Do not be afraid, for I know
+that you seek Jesus who was crucified. He is
+not here, for he has risen, as he said. Come,
+see the place where he lay. Then go quickly
+and tell his disciples that he has risen from
+the dead, and behold, he is going before you
+to Galilee; there you will see him. See, I
+have told you. (ESV), Acts 2:22-32 - Men of
+Israel, hear these words: Jesus of Nazareth,
+a man attested to you by God with mighty
+works and wonders and signs that God did
+through him in your midst, as you yourselves
+know- this Jesus, delivered up according to
+Psalms 16:10 - For you will not abandon my  the definite plan and foreknowledge of God,
+Messiah would          soul to Sheol, or let your holy one see     you crucified and killed by the hands of
+resurrect from the     corruption. (ESV), Psalms 49:15 - But God   lawless men. God raised him up, loosing the
+dead.                  will ransom my soul from the power of       pangs of death, because it was not possible
+Sheol, for he will receive me. Selah (ESV)  for him to be held by it. For David says
+concerning him, I saw the Lord always before
+me, for he is at my right hand that I may not
+be shaken; therefore my heart was glad, and
+my tongue rejoiced; my flesh also will dwell
+in hope. For you will not abandon my soul to
+Hades, or let your Holy One see corruption.
+You have made known to me the paths of life;
+you will make me full of gladness with your
+presence. Brothers, I may say to you with
+confidence about the patriarch David that he
+both died and was buried, and his tomb is
+with us to this day. Being therefore a
+prophet, and knowing that God had sworn with
+an oath to him that he would set one of his
+descendants on his throne, he foresaw and
+spoke about the resurrection of the Christ,
+that he was not abandoned to Hades, nor did
+his flesh see corruption. This Jesus God
+raised up, and of that we all are witnesses.
+(ESV)
+Psalms 24:7-10 - Lift up your heads, O
+gates! And be lifted up, O ancient doors,
+that the King of glory may come in. Who is  Mark 16:19 - So then the Lord Jesus, after he
+this King of glory? The LORD, strong and    had spoken to them, was taken up into heaven
+Messiah would ascend   mighty, the LORD, mighty in battle! Lift    and sat down at the right hand of God. (ESV),
+to heaven.             up your heads, O gates! And lift them up,   Luke 24:51 - While he blessed them, he parted
+O ancient doors, that the King of glory     from them and was carried up into heaven.
+may come in. Who is this King of glory?     (ESV)
+The LORD of hosts, he is the King of
+glory! Selah (ESV)
+Psalms 68:18 - You ascended on high,
+leading a host of captives in your train    Mark 16:19 - So then the Lord Jesus, after he
+Messiah would be       and receiving gifts among men, even among   had spoken to them, was taken up into heaven
+seated at God's right  the rebellious, that the LORD God may       and sat down at the right hand of God. (ESV),
+hand.                  dwell there. (ESV), Psalms 110:1 - The      Matthew 22:44 - The Lord said to my Lord, Sit
+LORD says to my Lord: Sit at my right       at my right hand, until I put your enemies
+hand, until I make your enemies your        under your feet? (ESV)
+footstool. (ESV)
+Isaiah 53:5-12 - But he was wounded for
+our transgressions; he was crushed for our
+iniquities; upon him was the chastisement
+that brought us peace, and with his
+stripes we are healed. All we like sheep
+have gone astray; we have turned every one
+to his own way; and the LORD has laid on
+him the iniquity of us all. He was
+oppressed, and he was afflicted, yet he
+opened not his mouth; like a lamb that is
+led to the slaughter, and like a sheep
+that before its shearers is silent, so he
+opened not his mouth. By oppression and
+judgment he was taken away; and as for his
+generation, who considered that he was cut
+off out of the land of the living,          Romans 5:6-8 - For while we were still weak,
+stricken for the transgression of my        at the right time Christ died for the
+people? And they made his grave with the    ungodly. For one will scarcely die for a
+Messiah would be a     wicked and with a rich man in his death,    righteous person-though perhaps for a good
+sacrifice for sin.     although he had done no violence, and       person one would dare even to die- but God
+there was no deceit in his mouth. Yet it    shows his love for us in that while we were
+was the will of the LORD to crush him; he   still sinners, Christ died for us. (ESV)
+has put him to grief; when his soul makes
+an offering for sin, he shall see his
+offspring; he shall prolong his days; the
+will of the LORD shall prosper in his
+hand. Out of the anguish of his soul he
+shall see and be satisfied; by his
+knowledge shall the righteous one, my
+servant, make many to be accounted
+righteous, and he shall bear their
+iniquities. Therefore I will divide him a
+portion with the many, and he shall divide
+the spoil with the strong, because he
+poured out his soul to death and was
+numbered with the transgressors; yet he
+bore the sin of many, and makes
+intercession for the transgressors. (ESV)
 
 
 35.1.1. Psalm 31 and Jesus' last words and Jesus saving me
@@ -17825,7 +18045,7 @@ Messiah would be a sacrifice for sin.                         Is 53:5-12        
   Luke 23:46 - Then Jesus, calling out with a loud voice, said, Father, into your hands I commit my spirit! And
   having said this he breathed his last. (ESV)
 
-The Holy Spirit is a person:
+The Holy Spirit is a Person:
 
   John 16:13 - When the Spirit of truth comes, he will guide you into all the truth, for he will not speak on his
   own authority, but whatever he hears he will speak, and he will declare to you the things that are to come.
@@ -17839,7 +18059,9 @@ If the Holy Spirit dwells in you, you are in the Spirit, not in the flesh:
   Acts 1:5 - for John baptized with water, but you will be baptized with the Holy Spirit not many days from now.
   (ESV)
 
-Jesus saving me - This is evidence the Holy Spirit is Person:
+One God, Three Persons: Father, Son and Holy Spirit. AMEN!
+
+Jesus saving me - This is evidence the Holy Spirit is a Person, and evidence to me that the Holy Spirit is God.
 
 - Astral Projection Pt. 2 // Bodacious Blog
 
@@ -30481,13 +30703,22 @@ must be true together, even to have a sound definition of what love is:
   I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
   in us, by the Spirit whom he has given us. (ESV)
 
+The fear of God helps us to obey Him. God please forgive us:
+
+  Jeremiah 32:40 - I will make with them an everlasting covenant, that I will not turn away from doing good to
+  them. And I will put the fear of me in their hearts, that they may not turn from me. (ESV)
+
+  Proverbs 9:10 - The fear of the LORD is the beginning of wisdom, and the knowledge of the Holy One is insight.
+  (ESV)
+
 78.2. For one's work to stand the test of fire
 
 It should be:
 
-- For God's Glory
+- For God's Glory. Amen. All glory to God, not to me
 - In obedience to the Word of God
 - Working in the power of the Holy Spirit
+- youtube.com: God And God Alone {Gospel Medley}
 
 
 God's telephone number                                        The password
@@ -30498,7 +30729,7 @@ known. (ESV)                                               name! (ESV)
 
 
 Song
-Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - YouTube
+youtube.com: Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship
 
   Isaiah 64:4 - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts
   for those who wait for him. (ESV)
@@ -30513,6 +30744,11 @@ Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - 
 - But I'm fighting a spiritual battle right now, and I'm going to speak the truth as best as I can.
 
   I Corinthians 13:6 - it does not rejoice at wrongdoing, but rejoices with the truth. (ESV)
+
+I am really sorry for any hurt I have been the cause of to anyone, and making frustrated prayers to God, like Job
+did, except for many reasons I deserve the tribulation which I have faced.
+
+Please, God, forgive us for our blind spots and errors and continue to sanctify us.
 
 78.4. Prayer of thanks
 
@@ -30572,7 +30808,7 @@ Date: 2024-06-19 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-19 Wed 18:55
+Created: 2024-06-19 Wed 19:23
 
 Validate
 

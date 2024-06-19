@@ -3456,6 +3456,8 @@ Coming to Jesus involves <ins>denying ourself</ins> and taking up our cross dail
 
 > **Luke 9:23** - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily and follow me. (ESV)
 
+> **I Corinthians 15:31** - I protest, brothers, by my pride in you, which I have in Christ Jesus our Lord, I die every day! (ESV)
+
 Christ Jesus judged Paul **faithful** - Paul was faithful, and Jesus Christ is Paul's Lord.
 Paul received mercy to become obedient.
 Paul received mercy because he was **acting ignorantly** - behaving in a way which came from disbelief.
@@ -10763,6 +10765,8 @@ A <ins>key thing</ins> here is that the repentant sinner didn't value his presen
 -   Do what is right and acceptable to him
     -   **Romans 13:10** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
+> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And **I will put the fear of me in their hearts, that they may not turn from me.** (ESV)
+
 
 ### a life of faith
 
@@ -11271,6 +11275,10 @@ But through faith in Christ Jesus we are justified and have peace with God.
 
 
 ## Guideline
+
+> **Exodus 20:12** - Honor your father and your mother, **that your days may be long in the land that the LORD your God is giving you.** (ESV)
+
+> **Ephesians 6:1-3** - Children, obey your parents in the Lord, for this is right. Honor your father and mother (this is the first commandment with a promise), **that it may go well with you and that you may live long in the land.** (ESV)
 
 According to `Matthew 19`, obeying (actually keeping, complying with) the commandments (10 commandments, **from the heart**, and in reality, accountable to God / the 2 Great commandments) is important for entering into the Kingdom of Heaven [well], entering into life [well]:
 
@@ -12258,148 +12266,148 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <tbody>
 <tr>
 <td class="org-left">Messiah would be praised by little children.</td>
-<td class="org-left">Ps 8:2</td>
-<td class="org-left">Mt 21:16</td>
+<td class="org-left"><b>Psalms 8:2</b> - Out of the mouth of babes and infants, you have established strength because of your foes, to still the enemy and the avenger. (ESV)</td>
+<td class="org-left"><b>Matthew 21:16</b> - and they said to him, Do you hear what these are saying? And Jesus said to them, Yes; have you never read, Out of the mouth of infants and nursing babies you have prepared praise? (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be betrayed.</td>
-<td class="org-left">Ps 41:9, Zc 11:12-13</td>
-<td class="org-left">Lk 22:47-48, Mt 26:14-16</td>
+<td class="org-left"><b>Psalms 41:9</b> - Even my close friend in whom I trusted, who ate my bread, has lifted his heel against me. (ESV), <b>Zechariah 11:12-13</b> - Then I said to them, If it seems good to you, give me my wages; but if not, keep them. And they weighed out as my wages thirty pieces of silver. Then the LORD said to me, Throw it to the potter—the lordly price at which I was priced by them. So I took the thirty pieces of silver and threw them into the house of the LORD, to the potter. (ESV)</td>
+<td class="org-left"><b>Luke 22:47-48</b> - While he was still speaking, there came a crowd, and the man called Judas, one of the twelve, was leading them. He drew near to Jesus to kiss him, but Jesus said to him, Judas, would you betray the Son of Man with a kiss? (ESV), <b>Matthew 26:14-16</b> - Then one of the twelve, whose name was Judas Iscariot, went to the chief priests and said, What will you give me if I deliver him over to you? And they paid him thirty pieces of silver. And from that moment he sought an opportunity to betray him. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah's price money would be used to buy a potter's field.</td>
-<td class="org-left">Zc 11:12-13</td>
-<td class="org-left">Mt 27:9-10</td>
+<td class="org-left"><b>Zechariah 11:12-13</b> - Then I said to them, If it seems good to you, give me my wages; but if not, keep them. And they weighed out as my wages thirty pieces of silver. Then the LORD said to me, Throw it to the potter—the lordly price at which I was priced by them. So I took the thirty pieces of silver and threw them into the house of the LORD, to the potter. (ESV)</td>
+<td class="org-left"><b>Matthew 27:9-10</b> - Then was fulfilled what had been spoken by the prophet Jeremiah, saying, And they took the thirty pieces of silver, the price of him on whom a price had been set by some of the sons of Israel, and they gave them for the potter's field, as the Lord directed me. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be falsely accused.</td>
-<td class="org-left">Ps 35:11</td>
-<td class="org-left">Mk 14:57-58</td>
+<td class="org-left"><b>Psalms 35:11</b> - Malicious witnesses rise up; they ask me of things that I do not know. (ESV)</td>
+<td class="org-left"><b>Mark 14:57-58</b> - And some stood up and bore false witness against him, saying, We heard him say, I will destroy this temple that is made with hands, and in three days I will build another, not made with hands. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be silent before his accusers.</td>
-<td class="org-left">Is 53:7</td>
-<td class="org-left">Mk 15:4-5</td>
+<td class="org-left"><b>Isaiah 53:7</b> - He was oppressed, and he was afflicted, yet he opened not his mouth; like a lamb that is led to the slaughter, and like a sheep that before its shearers is silent, so he opened not his mouth. (ESV)</td>
+<td class="org-left"><b>Mark 15:4-5</b> - And Pilate again asked him, Have you no answer to make? See how many charges they bring against you. But Jesus made no further answer, so that Pilate was amazed. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be spat upon and struck.</td>
-<td class="org-left">Is 50:6</td>
-<td class="org-left">Mt 26:67</td>
+<td class="org-left"><b>Isaiah 50:6</b> - I gave my back to those who strike, and my cheeks to those who pull out the beard; I hid not my face from disgrace and spitting. (ESV)</td>
+<td class="org-left"><b>Matthew 26:67</b> - Then they spit in his face and struck him. And some slapped him, (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be hated without cause.</td>
-<td class="org-left">Ps 35:19, Psalm 69:4</td>
-<td class="org-left">Jn 15:24-25</td>
+<td class="org-left"><b>Psalms 35:19</b> - Let not those rejoice over me who are wrongfully my foes, and let not those wink the eye who hate me without cause. (ESV), <b>Psalms 69:4</b> - More in number than the hairs of my head are those who hate me without cause; mighty are those who would destroy me, those who attack me with lies. What I did not steal must I now restore? (ESV)</td>
+<td class="org-left"><b>John 15:24-25</b> - If I had not done among them the works that no one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be crucified with criminals.</td>
-<td class="org-left">Is 53:12</td>
-<td class="org-left">Mt 27:38, Mk 15:27-28</td>
+<td class="org-left"><b>Isaiah 53:12</b> - Therefore I will divide him a portion with the many, and he shall divide the spoil with the strong, because he poured out his soul to death and was numbered with the transgressors; yet he bore the sin of many, and makes intercession for the transgressors. (ESV)</td>
+<td class="org-left"><b>Matthew 27:38</b> - Then two robbers were crucified with him, one on the right and one on the left. (ESV), <b>Mark 15:27-28</b> - And with him they crucified two robbers, one on his right and one on his left. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be given vinegar to drink.</td>
-<td class="org-left">Ps 69:21</td>
-<td class="org-left">Mt 27:34, Jn 19:28-30</td>
+<td class="org-left"><b>Psalms 69:21</b> - They gave me poison for food, and for my thirst they gave me sour wine to drink. (ESV)</td>
+<td class="org-left"><b>Matthew 27:34</b> - they offered him wine to drink, mixed with gall, but when he tasted it, he would not drink it. (ESV), <b>John 19:28-30</b> - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. A jar full of sour wine stood there, so they put a sponge full of the sour wine on a hyssop branch and held it to his mouth. When Jesus had received the sour wine, he said, It is finished, and he bowed his head and gave up his spirit. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah's hands and feet would be pierced.</td>
-<td class="org-left">Ps 22:16, Zc 12:10</td>
-<td class="org-left">Jn 20:25-27</td>
+<td class="org-left"><b>Psalms 22:16</b> - For dogs encompass me; a company of evildoers encircles me; they have pierced my hands and feet— (ESV), <b>Zechariah 12:10</b> - And I will pour out on the house of David and the inhabitants of Jerusalem a spirit of grace and pleas for mercy, so that, when they look on me, on him whom they have pierced, they shall mourn for him, as one mourns for an only child, and weep bitterly over him, as one weeps over a firstborn. (ESV)</td>
+<td class="org-left"><b>John 20:25-27</b> - So the other disciples told him, We have seen the Lord. But he said to them, Unless I see in his hands the mark of the nails, and place my finger into the mark of the nails, and place my hand into his side, I will never believe. Eight days later, his disciples were inside again, and Thomas was with them. Although the doors were locked, Jesus came and stood among them and said, Peace be with you. Then he said to Thomas, Put your finger here, and see my hands; and put out your hand, and place it in my side. Do not disbelieve, but believe. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be mocked and ridiculed.</td>
-<td class="org-left">Ps 22:7-8</td>
-<td class="org-left">Lk 23:35</td>
+<td class="org-left"><b>Psalms 22:7-8</b> - All who see me mock me; they make mouths at me; they wag their heads; He trusts in the LORD; let him deliver him; let him rescue him, for he delights in him! (ESV)</td>
+<td class="org-left"><b>Luke 23:35</b> - And the people stood by, watching, but the rulers scoffed at him, saying, He saved others; let him save himself, if he is the Christ of God, his Chosen One! (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Soldiers would gamble for Messiah's garments.</td>
-<td class="org-left">Ps 22:18</td>
-<td class="org-left">Lk 23:34, Mt 27:35-36</td>
+<td class="org-left"><b>Psalms 22:18</b> - they divide my garments among them, and for my clothing they cast lots. (ESV)</td>
+<td class="org-left"><b>Matthew 27:35-36</b> - And when they had crucified him, they divided his garments among them by casting lots. Then they sat down and kept watch over him there. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah's bones would not be broken.</td>
-<td class="org-left">Ex 12:46, Ps 34:20</td>
-<td class="org-left">Jn 19:33-36</td>
+<td class="org-left"><b>Exodus 12:46</b> - It shall be eaten in one house; you shall not take any of the flesh outside the house, and you shall not break any of its bones. (ESV), <b>Psalms 34:20</b> - He keeps all his bones; not one of them is broken. (ESV)</td>
+<td class="org-left"><b>John 19:33-36</b> - But when they came to Jesus and saw that he was already dead, they did not break his legs. But one of the soldiers pierced his side with a spear, and at once there came out blood and water. He who saw it has borne witness—his testimony is true, and he knows that he is telling the truth—that you also may believe. For these things took place that the Scripture might be fulfilled: Not one of his bones will be broken. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be forsaken by God.</td>
-<td class="org-left">Ps 22:1</td>
-<td class="org-left">Mt 27:46</td>
+<td class="org-left"><b>Psalms 22:1</b> - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my groaning? (ESV)</td>
+<td class="org-left"><b>Matthew 27:46</b> - And about the ninth hour Jesus cried out with a loud voice, saying, Eli, Eli, lema sabachthani? that is, My God, my God, why have you forsaken me? (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would pray for his enemies.</td>
-<td class="org-left">Ps 109:4</td>
-<td class="org-left">Lk 23:34</td>
+<td class="org-left"><b>Psalms 109:4</b> - In return for my love they accuse me, but I give myself to prayer. (ESV)</td>
+<td class="org-left"><b>Luke 23:34</b> - And Jesus said, Father, forgive them, for they know not what they do. And they cast lots to divide his garments. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Soldiers would pierce Messiah's side.</td>
-<td class="org-left">Zc 12:10</td>
-<td class="org-left">Jn 19:34</td>
+<td class="org-left"><b>Zechariah 12:10</b> - And I will pour out on the house of David and the inhabitants of Jerusalem a spirit of grace and pleas for mercy, so that, when they look on me, on him whom they have pierced, they shall mourn for him, as one mourns for an only child, and weep bitterly over him, as one weeps over a firstborn. (ESV)</td>
+<td class="org-left"><b>John 19:34</b> - But one of the soldiers pierced his side with a spear, and at once there came out blood and water. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be buried with the rich.</td>
-<td class="org-left">Is 53:9</td>
-<td class="org-left">Mt 27:57-60</td>
+<td class="org-left"><b>Isaiah 53:9</b> - And they made his grave with the wicked and with a rich man in his death, although he had done no violence, and there was no deceit in his mouth. (ESV)</td>
+<td class="org-left"><b>Matthew 27:57-60</b> - When it was evening, there came a rich man from Arimathea, named Joseph, who also was a disciple of Jesus. He went to Pilate and asked for the body of Jesus. Then Pilate ordered it to be given to him. And Joseph took the body and wrapped it in a clean linen shroud and laid it in his own new tomb, which he had cut in the rock. And he rolled a great stone to the entrance of the tomb and went away. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would resurrect from the dead.</td>
-<td class="org-left">Ps 16:10, Psalm 49:15</td>
-<td class="org-left">Mt 28:2-7, Ac 2:22-32</td>
+<td class="org-left"><b>Psalms 16:10</b> - For you will not abandon my soul to Sheol, or let your holy one see corruption. (ESV), <b>Psalms 49:15</b> - But God will ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)</td>
+<td class="org-left"><b>Matthew 28:2-7</b> - And behold, there was a great earthquake, for an angel of the Lord descended from heaven and came and rolled back the stone and sat on it. His appearance was like lightning, and his clothing white as snow. And for fear of him the guards trembled and became like dead men. But the angel said to the women, Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay. Then go quickly and tell his disciples that he has risen from the dead, and behold, he is going before you to Galilee; there you will see him. See, I have told you. (ESV), <b>Acts 2:22-32</b> - Men of Israel, hear these words: Jesus of Nazareth, a man attested to you by God with mighty works and wonders and signs that God did through him in your midst, as you yourselves know— this Jesus, delivered up according to the definite plan and foreknowledge of God, you crucified and killed by the hands of lawless men. God raised him up, loosing the pangs of death, because it was not possible for him to be held by it. For David says concerning him, I saw the Lord always before me, for he is at my right hand that I may not be shaken; therefore my heart was glad, and my tongue rejoiced; my flesh also will dwell in hope. For you will not abandon my soul to Hades, or let your Holy One see corruption. You have made known to me the paths of life; you will make me full of gladness with your presence. Brothers, I may say to you with confidence about the patriarch David that he both died and was buried, and his tomb is with us to this day. Being therefore a prophet, and knowing that God had sworn with an oath to him that he would set one of his descendants on his throne, he foresaw and spoke about the resurrection of the Christ, that he was not abandoned to Hades, nor did his flesh see corruption. This Jesus God raised up, and of that we all are witnesses. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would ascend to heaven.</td>
-<td class="org-left">Ps 24:7-10</td>
-<td class="org-left">Mk 16:19, Lk 24:51</td>
+<td class="org-left"><b>Psalms 24:7-10</b> - Lift up your heads, O gates! And be lifted up, O ancient doors, that the King of glory may come in. Who is this King of glory? The LORD, strong and mighty, the LORD, mighty in battle! Lift up your heads, O gates! And lift them up, O ancient doors, that the King of glory may come in. Who is this King of glory? The LORD of hosts, he is the King of glory! Selah (ESV)</td>
+<td class="org-left"><b>Mark 16:19</b> - So then the Lord Jesus, after he had spoken to them, was taken up into heaven and sat down at the right hand of God. (ESV), <b>Luke 24:51</b> - While he blessed them, he parted from them and was carried up into heaven. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be seated at God's right hand.</td>
-<td class="org-left">Ps 68:18, Psalm 110:1</td>
-<td class="org-left">Mk 16:19, Mt 22:44</td>
+<td class="org-left"><b>Psalms 68:18</b> - You ascended on high, leading a host of captives in your train and receiving gifts among men, even among the rebellious, that the LORD God may dwell there. (ESV), <b>Psalms 110:1</b> - The LORD says to my Lord: Sit at my right hand, until I make your enemies your footstool. (ESV)</td>
+<td class="org-left"><b>Mark 16:19</b> - So then the Lord Jesus, after he had spoken to them, was taken up into heaven and sat down at the right hand of God. (ESV), <b>Matthew 22:44</b> - The Lord said to my Lord, Sit at my right hand, until I put your enemies under your feet? (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be a sacrifice for sin.</td>
-<td class="org-left">Is 53:5-12</td>
-<td class="org-left">Rm 5:6-8</td>
+<td class="org-left"><b>Isaiah 53:5-12</b> - But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed. All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened not his mouth; like a lamb that is led to the slaughter, and like a sheep that before its shearers is silent, so he opened not his mouth. By oppression and judgment he was taken away; and as for his generation, who considered that he was cut off out of the land of the living, stricken for the transgression of my people? And they made his grave with the wicked and with a rich man in his death, although he had done no violence, and there was no deceit in his mouth. Yet it was the will of the LORD to crush him; he has put him to grief; when his soul makes an offering for sin, he shall see his offspring; he shall prolong his days; the will of the LORD shall prosper in his hand. Out of the anguish of his soul he shall see and be satisfied; by his knowledge shall the righteous one, my servant, make many to be accounted righteous, and he shall bear their iniquities. Therefore I will divide him a portion with the many, and he shall divide the spoil with the strong, because he poured out his soul to death and was numbered with the transgressors; yet he bore the sin of many, and makes intercession for the transgressors. (ESV)</td>
+<td class="org-left"><b>Romans 5:6-8</b> - For while we were still weak, at the right time Christ died for the ungodly. For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)</td>
 </tr>
 </tbody>
 </table>
@@ -12411,7 +12419,7 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 
 > **Luke 23:46** - Then Jesus, calling out with a loud voice, said, Father, into your hands I commit my spirit! And having said this he breathed his last.  (ESV)
 
-The Holy Spirit is a person:
+The Holy Spirit is a Person:
 
 > **John 16:13** - When the Spirit of truth comes, he will guide you into all the truth, for he will not speak on his own authority, but whatever he hears he will speak, and he will declare to you the things that are to come. (ESV)
 
@@ -12421,7 +12429,9 @@ If the Holy Spirit dwells in you, you are in the Spirit, not in the flesh:
 
 > **Acts 1:5** - for John baptized with water, but you will be baptized with the Holy Spirit not many days from now. (ESV)
 
-Jesus saving me - This is evidence the Holy Spirit is Person:
+One God, Three Persons: Father, Son and Holy Spirit. AMEN!
+
+Jesus saving me - This is evidence the Holy Spirit is a Person, and evidence to me that the Holy Spirit is God.
 
 -   [Astral Projection Pt. 2 // Bodacious Blog](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection-pt-2/)
 
@@ -16396,7 +16406,7 @@ The following links obeying the commandments it to Jesus:
 
 An indicator of the ones who are saved is that they have the fear of God in their hearts.
 
-> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And I will put the fear of me in their hearts, that they may not turn from me. (ESV)
+> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And **I will put the fear of me in their hearts, that they may not turn from me.** (ESV)
 
 An indicator of the ones who are saved is that they have remorse for their past sin.
 
@@ -16596,7 +16606,7 @@ When a person is born-again of the Spirit, they receive the Spirit which helps t
 
 > **Ezekiel 11:19-20** - And I will give them one heart, and a new spirit I will put within them. I will remove the heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my rules and obey them. And they shall be my people, and I will be their God. (ESV)
 
-> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And I will put the fear of me in their hearts, that they may not turn from me. (ESV)
+> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And **I will put the fear of me in their hearts, that they may not turn from me.** (ESV)
 
 > **I John 3:9** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God.
 
@@ -19711,7 +19721,7 @@ The Gentiles should not harden their own hearts. Neither should the Jews.
 
 God puts the fear of Him into the elect's heart.
 
-> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And I will put the fear of me in their hearts, that they may not turn from me. (ESV)
+> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And **I will put the fear of me in their hearts, that they may not turn from me.** (ESV)
 
 I still think there is co-operation by the believer before and after spiritual regeneration.
 
@@ -21805,14 +21815,22 @@ Believing Father God Jehovah, loving Him, obeying His commandments, loving and o
 
 > **I John 3:24** - **Whoever keeps his commandments abides in him, and he in them.** And <ins>by this we know that he abides in us, by the Spirit whom he has given us.</ins> (ESV)
 
+The fear of God helps us to obey Him. God please forgive us:
+
+> **Jeremiah 32:40** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And **I will put the fear of me in their hearts, that they may not turn from me.** (ESV)
+
+> **Proverbs 9:10** - The fear of the LORD is the beginning of wisdom, and the knowledge of the Holy One is insight. (ESV)
+
 
 ## For one's work to stand the test of fire
 
 It should be:
 
--   For God's Glory
+-   For God's Glory. Amen. All glory to God, not to me
 -   In obedience to the Word of God
 -   Working in the power of **the Holy Spirit**
+
+-   **Song:** [youtube.com: God And God Alone {Gospel Medley}](https://www.youtube.com/watch?v=yN1RZBxXX_I)
 
 <table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
@@ -21837,7 +21855,7 @@ It should be:
 </tbody>
 </table>
 
--   **Song:** [Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship - YouTube](https://www.youtube.com/watch?v=f2oxGYpuLkw)
+-   **Song:** [youtube.com: Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship](https://www.youtube.com/watch?v=f2oxGYpuLkw)
 
 > **Isaiah 64:4** - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts for those who wait for him. (ESV)
 
@@ -21851,6 +21869,10 @@ It should be:
 -   But I'm fighting a spiritual battle right now, and I'm going to speak the truth as best as I can.
 
 > **I Corinthians 13:6** - it does not rejoice at wrongdoing, but rejoices with the truth. (ESV)
+
+I am really sorry for any hurt I have been the cause of to anyone, and making frustrated prayers to God, like Job did, except for many reasons I deserve the tribulation which I have faced.
+
+Please, God, forgive us for our blind spots and errors and continue to sanctify us.
 
 
 ## Prayer of thanks
