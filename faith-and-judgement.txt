@@ -496,8 +496,8 @@ believing and obeying Jesus are not important to receive the Holy Spirit, becaus
 
 By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus:
 It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the
-pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if You have faith in Him, knowing
-Him, and being found in Him!
+pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if you have faith in Him,
+believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
@@ -5446,6 +5446,8 @@ People who go astray:
 - They have hearts trained in greed.
 - Accursed children! Forsaking the right way, they have gone astray.
 
+God forgive us and grant us sanctification. I know I still have issues, and I want to put to death the sensuality:
+
   II Peter 2:1-22 - But false prophets also arose among the people, just as there will be false teachers among
   you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon
   themselves swift destruction. And many will follow their sensuality, and because of them the way of truth will
@@ -7585,10 +7587,11 @@ We believe and obey Jesus:
 
 By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus:
 It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the
-pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if You have faith in Him, knowing
-Him, and being found in Him! Faith in Christ I believe means believing in Him and being obedient to Him, having
-communion with Him, etc. becoming intimate with Him, following Him. This isn't our own merit, but we still obey
-Jesus to be found in Him. In Him we have Jesus' righteousness:
+pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if you have faith in Him,
+believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him! Faith in Christ I
+believe means believing in Him and being obedient to Him, having communion with Him, etc. becoming intimate with
+Him, following Him. This isn't our own merit, but we still obey Jesus to be found in Him. In Him we have Jesus'
+righteousness:
 
   Matthew 16:25 - For whoever would save his life will lose it, but whoever loses his life for my sake will find
   it. (ESV)
@@ -10819,8 +10822,8 @@ because all the good works we do as a consequence of being redeemed are a gift t
 
 By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus:
 It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the
-pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if You have faith in Him, knowing
-Him, and being found in Him!
+pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if you have faith in Him,
+believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
@@ -29728,9 +29731,20 @@ One year later on 3 May 2023 I pleaded guilty on Easter, and I pleaded guilty in
 watching and knows my innermost thoughts and the fruit of the Spirit while lawful do not justify me. I must carry
 my cross and make testimony of Jesus and follow Christ's law.
 
-There was absolutely no grace in the court process.
+I experienced almost no grace in the time leading up to my dealings with court. It was as if all the grace was
+sucked out of the world. But also, in retrospect I can see that I had blind spots on myself and I was right to
+believe that I was not completely without guilt, and I am glad that I pleaded guilty. But the NZ government truly
+did graciously grant me an unbiased lawyer who graciously was payed for by the government, and the time I spent in
+the asylum did help to humble me and teach me more about loving my neighbour, and the Police also did their jobs
+admirably, and took care of me when I was in a cell, and they also gave me a very small (but valuable) amount of
+time to be heard before having to plead guilty/not guilty. There wasn't exactly no grace in the court process but
+there was very little grace in the court process, which felt mostly beyond my control.
 
-So I decided to just use it as an opportunity to bear witness of Jesus Christ:
+But I'm on the other side of it now and feel like I have learned a lot about what it means to love my neighbour.
+The corrections process which happened after pleading guilty has been very gracious and very valuable.
+
+So I decided to just use court as an opportunity to bear witness of Jesus Christ. And also, as a chance to learn
+humility, and be corrected:
 
   Matthew 10:18 - and you will be dragged before governors and kings for my sake, to bear witness before them and
   the Gentiles. (ESV)
@@ -29773,9 +29787,17 @@ to live by Christ's law.
 
 I made the proposal during this time. I received a dream on 6 Aug, which happened to be the Feast of
 Transfiguration, I found out a year or so later, and made the proposal on 10 Aug, which is the 222 day of 2022, at
-| 22pm. Honestly, at the time I just thought it sounded memorable and I wanted it to be. Go figure!
+| 22pm. Honestly, at the time I just thought it sounded memorable and I wanted it to be. Go figure! I'm not going
+to justify my own actions here.
 
   Galatians 5:18 - But if you are led by the Spirit, you are not under the law. (ESV)
+
+Honestly, I'm just really annoyed I haven't managed to put to death all impure thoughts and behaviour. But I know
+when it's wrong. I just pray for God's grace to be put all the impure thoughts and behaviour to death. I am fully
+aware of the warnings in chapter II Peter 2:1-22. God give me grace please to be sanctified:
+
+  II Peter 2:22 - What the true proverb says has happened to them: The dog returns to its own vomit, and the sow,
+  after washing herself, returns to wallow in the mire. (ESV)
 
 Keeping with obedience to Jesus Christ's commandments is very challenging as the world opposes those who Christ
 has selected.
@@ -30519,7 +30541,7 @@ Date: 2024-06-19 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-19 Wed 16:47
+Created: 2024-06-19 Wed 17:41
 
 Validate
 
