@@ -12099,8 +12099,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Micah 5:2</b> - But you, O Bethlehem Ephrathah, who are too little to be among the clans of Judah, from you shall come forth for me one who is to be ruler in Israel, whose origin is from of old, from ancient days. (ESV)</td>
 <td class="org-left"><b>Matthew 2:1</b> - Now after Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, wise men from the east came to Jerusalem, (ESV), <b>Luke 2:4-6</b> - And Joseph also went up from Galilee, from the town of Nazareth, to Judea, to the city of David, which is called Bethlehem, because he was of the house and lineage of David, to be registered with Mary, his betrothed, who was with child. And while they were there, the time came for her to give birth. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be born of a virgin.</td>
 <td class="org-left"><b>Isaiah 7:14</b> - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. (ESV)</td>
@@ -12113,8 +12133,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Genesis 12:3</b> - I will bless those who bless you, and him who dishonors you I will curse, and in you all the families of the earth shall be blessed. (ESV), <b>Genesis 22:18</b> - and in your offspring shall all the nations of the earth be blessed, because you have obeyed my voice. (ESV)</td>
 <td class="org-left"><b>Matthew 1:1</b> - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV), <b>Romans 9:5</b> - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is God over all, blessed forever. Amen. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be a descendant of Isaac.</td>
 <td class="org-left"><b>Genesis 17:19</b> - God said, No, but Sarah your wife shall bear you a son, and you shall call his name Isaac. I will establish my covenant with him as an everlasting covenant for his offspring after him. (ESV), <b>Genesis 21:12</b> - But God said to Abraham, Be not displeased because of the boy and because of your slave woman. Whatever Sarah says to you, do as she tells you, for through Isaac shall your offspring be named. (ESV)</td>
@@ -12134,8 +12174,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Genesis 49:10</b> - The scepter shall not depart from Judah, nor the ruler's staff from between his feet, until tribute comes to him; and to him shall be the obedience of the peoples. (ESV)</td>
 <td class="org-left"><b>Luke 3:33</b> - the son of Amminadab, the son of Admin, the son of Arni, the son of Hezron, the son of Perez, the son of Judah, (ESV), <b>Hebrews 7:14</b> - For it is evident that our Lord was descended from Judah, and in connection with that tribe Moses said nothing about priests. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be heir to King David's throne.</td>
 <td class="org-left"><b>II Samuel 7:12-13</b> - When your days are fulfilled and you lie down with your fathers, I will raise up your offspring after you, who shall come from your body, and I will establish his kingdom. He shall build a house for my name, and I will establish the throne of his kingdom forever. (ESV), <b>Isaiah 9:7</b> - Of the increase of his government and of peace there will be no end, on the throne of David and over his kingdom, to establish it and to uphold it with justice and with righteousness from this time forth and forevermore. The zeal of the LORD of hosts will do this. (ESV)</td>
@@ -12148,8 +12208,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Psalms 45:6-7</b> - Your throne, O God, is forever and ever. The scepter of your kingdom is a scepter of uprightness; you have loved righteousness and hated wickedness. Therefore God, your God, has anointed you with the oil of gladness beyond your companions; (ESV), <b>Daniel 2:44</b> - And in the days of those kings the God of heaven will set up a kingdom that shall never be destroyed, nor shall the kingdom be left to another people. It shall break in pieces all these kingdoms and bring them to an end, and it shall stand forever, (ESV)</td>
 <td class="org-left"><b>Luke 1:33</b> - and he will reign over the house of Jacob forever, and of his kingdom there will be no end. (ESV), <b>Hebrews 1:8-12</b> - But of the Son he says, Your throne, O God, is forever and ever, the scepter of uprightness is the scepter of your kingdom. You have loved righteousness and hated wickedness; therefore God, your God, has anointed you with the oil of gladness beyond your companions. And, You, Lord, laid the foundation of the earth in the beginning, and the heavens are the work of your hands; they will perish, but you remain; they will all wear out like a garment, like a robe you will roll them up, like a garment they will be changed. But you are the same, and your years will have no end. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be called Immanuel.</td>
 <td class="org-left"><b>Isaiah 7:14</b> - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. (ESV)</td>
@@ -12169,8 +12249,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Jeremiah 31:15</b> - Thus says the LORD: A voice is heard in Ramah, lamentation and bitter weeping. Rachel is weeping for her children; she refuses to be comforted for her children, because they are no more. (ESV)</td>
 <td class="org-left"><b>Matthew 2:16-18</b> - Then Herod, when he saw that he had been tricked by the wise men, became furious, and he sent and killed all the male children in Bethlehem and in all that region who were two years old or under, according to the time that he had ascertained from the wise men. Then was fulfilled what was spoken by the prophet Jeremiah: A voice was heard in Ramah, weeping and loud lamentation, Rachel weeping for her children; she refused to be comforted, because they are no more. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">A messenger would prepare the way for Messiah</td>
 <td class="org-left"><b>Isaiah 40:3-5</b> - A voice cries: In the wilderness prepare the way of the LORD; make straight in the desert a highway for our God. Every valley shall be lifted up, and every mountain and hill be made low; the uneven ground shall become level, and the rough places a plain. And the glory of the LORD shall be revealed, and all flesh shall see it together, for the mouth of the LORD has spoken. (ESV)</td>
@@ -12190,8 +12290,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Deuteronomy 18:15</b> - The LORD your God will raise up for you a prophet like me from among you, from your brothers—it is to him you shall listen— (ESV)</td>
 <td class="org-left"><b>Acts 3:20-22</b> - that times of refreshing may come from the presence of the Lord, and that he may send the Christ appointed for you, Jesus, whom heaven must receive until the time for restoring all the things about which God spoke by the mouth of his holy prophets long ago. Moses said, The Lord God will raise up for you a prophet like me from your brothers. You shall listen to him in whatever he tells you. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be preceded by Elijah.</td>
 <td class="org-left"><b>Malachi 4:5-6</b> - Behold, I will send you Elijah the prophet before the great and awesome day of the LORD comes. And he will turn the hearts of fathers to their children and the hearts of children to their fathers, lest I come and strike the land with a decree of utter destruction. (ESV)</td>
@@ -12218,15 +12338,55 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Isaiah 9:1-2</b> - But there will be no gloom for her who was in anguish. In the former time he brought into contempt the land of Zebulun and the land of Naphtali, but in the latter time he has made glorious the way of the sea, the land beyond the Jordan, Galilee of the nations. The people who walked in darkness have seen a great light; those who dwelt in a land of deep darkness, on them has light shined. (ESV)</td>
 <td class="org-left"><b>Matthew 4:13-16</b> - And leaving Nazareth he went and lived in Capernaum by the sea, in the territory of Zebulun and Naphtali, so that what was spoken by the prophet Isaiah might be fulfilled: The land of Zebulun and the land of Naphtali, the way of the sea, beyond the Jordan, Galilee of the Gentiles— the people dwelling in darkness have seen a great light, and for those dwelling in the region and shadow of death, on them a light has dawned. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would speak in parables.</td>
 <td class="org-left"><b>Psalms 78:2-4</b> - I will open my mouth in a parable; I will utter dark sayings from of old, things that we have heard and known, that our fathers have told us. We will not hide them from their children, but tell to the coming generation the glorious deeds of the LORD, and his might, and the wonders that he has done. (ESV), <b>Isaiah 6:9-10</b> - And he said, Go, and say to this people: Keep on hearing, but do not understand; keep on seeing, but do not perceive. Make the heart of this people dull, and their ears heavy, and blind their eyes; lest they see with their eyes, and hear with their ears, and understand with their hearts, and turn and be healed. (ESV)</td>
 <td class="org-left"><b>Matthew 13:10-15</b> - Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away. This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV), <b>Matthew 13:34-35</b> - All these things Jesus said to the crowds in parables; indeed, he said nothing to them without a parable. This was to fulfill what was spoken by the prophet: I will open my mouth in parables; I will utter what has been hidden since the foundation of the world. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be sent to heal the brokenhearted.</td>
 <td class="org-left"><b>Isaiah 61:1-2</b> - The Spirit of the Lord GOD is upon me, because the LORD has anointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound; to proclaim the year of the LORD's favor, and the day of vengeance of our God; to comfort all who mourn; (ESV)</td>
@@ -12287,8 +12447,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Zechariah 11:12-13</b> - Then I said to them, If it seems good to you, give me my wages; but if not, keep them. And they weighed out as my wages thirty pieces of silver. Then the LORD said to me, Throw it to the potter—the lordly price at which I was priced by them. So I took the thirty pieces of silver and threw them into the house of the LORD, to the potter. (ESV)</td>
 <td class="org-left"><b>Matthew 27:9-10</b> - Then was fulfilled what had been spoken by the prophet Jeremiah, saying, And they took the thirty pieces of silver, the price of him on whom a price had been set by some of the sons of Israel, and they gave them for the potter's field, as the Lord directed me. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be falsely accused.</td>
 <td class="org-left"><b>Psalms 35:11</b> - Malicious witnesses rise up; they ask me of things that I do not know. (ESV)</td>
@@ -12315,8 +12495,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Psalms 35:19</b> - Let not those rejoice over me who are wrongfully my foes, and let not those wink the eye who hate me without cause. (ESV), <b>Psalms 69:4</b> - More in number than the hairs of my head are those who hate me without cause; mighty are those who would destroy me, those who attack me with lies. What I did not steal must I now restore? (ESV)</td>
 <td class="org-left"><b>John 15:24-25</b> - If I had not done among them the works that no one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be crucified with criminals.</td>
 <td class="org-left"><b>Isaiah 53:12</b> - Therefore I will divide him a portion with the many, and he shall divide the spoil with the strong, because he poured out his soul to death and was numbered with the transgressors; yet he bore the sin of many, and makes intercession for the transgressors. (ESV)</td>
@@ -12336,8 +12536,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Psalms 22:16</b> - For dogs encompass me; a company of evildoers encircles me; they have pierced my hands and feet— (ESV), <b>Zechariah 12:10</b> - And I will pour out on the house of David and the inhabitants of Jerusalem a spirit of grace and pleas for mercy, so that, when they look on me, on him whom they have pierced, they shall mourn for him, as one mourns for an only child, and weep bitterly over him, as one weeps over a firstborn. (ESV)</td>
 <td class="org-left"><b>John 20:25-27</b> - So the other disciples told him, We have seen the Lord. But he said to them, Unless I see in his hands the mark of the nails, and place my finger into the mark of the nails, and place my hand into his side, I will never believe. Eight days later, his disciples were inside again, and Thomas was with them. Although the doors were locked, Jesus came and stood among them and said, Peace be with you. Then he said to Thomas, Put your finger here, and see my hands; and put out your hand, and place it in my side. Do not disbelieve, but believe. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be mocked and ridiculed.</td>
 <td class="org-left"><b>Psalms 22:7-8</b> - All who see me mock me; they make mouths at me; they wag their heads; He trusts in the LORD; let him deliver him; let him rescue him, for he delights in him! (ESV)</td>
@@ -12364,8 +12584,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Psalms 22:1</b> - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my groaning? (ESV)</td>
 <td class="org-left"><b>Matthew 27:46</b> - And about the ninth hour Jesus cried out with a loud voice, saying, Eli, Eli, lema sabachthani? that is, My God, my God, why have you forsaken me? (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would pray for his enemies.</td>
 <td class="org-left"><b>Psalms 109:4</b> - In return for my love they accuse me, but I give myself to prayer. (ESV)</td>
@@ -12385,15 +12625,55 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Isaiah 53:9</b> - And they made his grave with the wicked and with a rich man in his death, although he had done no violence, and there was no deceit in his mouth. (ESV)</td>
 <td class="org-left"><b>Matthew 27:57-60</b> - When it was evening, there came a rich man from Arimathea, named Joseph, who also was a disciple of Jesus. He went to Pilate and asked for the body of Jesus. Then Pilate ordered it to be given to him. And Joseph took the body and wrapped it in a clean linen shroud and laid it in his own new tomb, which he had cut in the rock. And he rolled a great stone to the entrance of the tomb and went away. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would resurrect from the dead.</td>
 <td class="org-left"><b>Psalms 16:10</b> - For you will not abandon my soul to Sheol, or let your holy one see corruption. (ESV), <b>Psalms 49:15</b> - But God will ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)</td>
 <td class="org-left"><b>Matthew 28:2-7</b> - And behold, there was a great earthquake, for an angel of the Lord descended from heaven and came and rolled back the stone and sat on it. His appearance was like lightning, and his clothing white as snow. And for fear of him the guards trembled and became like dead men. But the angel said to the women, Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay. Then go quickly and tell his disciples that he has risen from the dead, and behold, he is going before you to Galilee; there you will see him. See, I have told you. (ESV), <b>Acts 2:22-32</b> - Men of Israel, hear these words: Jesus of Nazareth, a man attested to you by God with mighty works and wonders and signs that God did through him in your midst, as you yourselves know— this Jesus, delivered up according to the definite plan and foreknowledge of God, you crucified and killed by the hands of lawless men. God raised him up, loosing the pangs of death, because it was not possible for him to be held by it. For David says concerning him, I saw the Lord always before me, for he is at my right hand that I may not be shaken; therefore my heart was glad, and my tongue rejoiced; my flesh also will dwell in hope. For you will not abandon my soul to Hades, or let your Holy One see corruption. You have made known to me the paths of life; you will make me full of gladness with your presence. Brothers, I may say to you with confidence about the patriarch David that he both died and was buried, and his tomb is with us to this day. Being therefore a prophet, and knowing that God had sworn with an oath to him that he would set one of his descendants on his throne, he foresaw and spoke about the resurrection of the Christ, that he was not abandoned to Hades, nor did his flesh see corruption. This Jesus God raised up, and of that we all are witnesses. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would ascend to heaven.</td>
 <td class="org-left"><b>Psalms 24:7-10</b> - Lift up your heads, O gates! And be lifted up, O ancient doors, that the King of glory may come in. Who is this King of glory? The LORD, strong and mighty, the LORD, mighty in battle! Lift up your heads, O gates! And lift them up, O ancient doors, that the King of glory may come in. Who is this King of glory? The LORD of hosts, he is the King of glory! Selah (ESV)</td>
@@ -12406,8 +12686,28 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <td class="org-left"><b>Psalms 68:18</b> - You ascended on high, leading a host of captives in your train and receiving gifts among men, even among the rebellious, that the LORD God may dwell there. (ESV), <b>Psalms 110:1</b> - The LORD says to my Lord: Sit at my right hand, until I make your enemies your footstool. (ESV)</td>
 <td class="org-left"><b>Mark 16:19</b> - So then the Lord Jesus, after he had spoken to them, was taken up into heaven and sat down at the right hand of God. (ESV), <b>Matthew 22:44</b> - The Lord said to my Lord, Sit at my right hand, until I put your enemies under your feet? (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">Prophecies About Jesus</th>
+<th scope="col" class="org-left">Old Testament Scripture</th>
+<th scope="col" class="org-left">New Testament Fulfillment</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left">Messiah would be a sacrifice for sin.</td>
 <td class="org-left"><b>Isaiah 53:5-12</b> - But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed. All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened not his mouth; like a lamb that is led to the slaughter, and like a sheep that before its shearers is silent, so he opened not his mouth. By oppression and judgment he was taken away; and as for his generation, who considered that he was cut off out of the land of the living, stricken for the transgression of my people? And they made his grave with the wicked and with a rich man in his death, although he had done no violence, and there was no deceit in his mouth. Yet it was the will of the LORD to crush him; he has put him to grief; when his soul makes an offering for sin, he shall see his offspring; he shall prolong his days; the will of the LORD shall prosper in his hand. Out of the anguish of his soul he shall see and be satisfied; by his knowledge shall the righteous one, my servant, make many to be accounted righteous, and he shall bear their iniquities. Therefore I will divide him a portion with the many, and he shall divide the spoil with the strong, because he poured out his soul to death and was numbered with the transgressors; yet he bore the sin of many, and makes intercession for the transgressors. (ESV)</td>
