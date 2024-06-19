@@ -5436,6 +5436,47 @@ We have knowledge of the truth through obedience to the gospel.
   II Timothy 3:13 - while evil people and impostors will go on from bad to worse, deceiving and being deceived.
   (ESV)
 
+People who go astray:
+
+- suffering wrong as the wage for their wrongdoing.
+- they count it pleasure to revel in the daytime.
+- they are blots and blemishes, reveling in their deceptions, while they feast with you.
+- they have eyes full of adultery, insatiable for sin.
+- They entice unsteady souls.
+- They have hearts trained in greed.
+- Accursed children! Forsaking the right way, they have gone astray.
+
+  II Peter 2:1-22 - But false prophets also arose among the people, just as there will be false teachers among
+  you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon
+  themselves swift destruction. And many will follow their sensuality, and because of them the way of truth will
+  be blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is
+  not idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them
+  into hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the
+  ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon
+  the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to
+  extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot,
+  greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after
+  day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows
+  how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment, and
+  especially those who indulge in the lust of defiling passion and despise authority. Bold and willful, they do
+  not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not
+  pronounce a blasphemous judgment against them before the Lord. But these, like irrational animals, creatures of
+  instinct, born to be caught and destroyed, blaspheming about matters of which they are ignorant, will also be
+  destroyed in their destruction, suffering wrong as the wage for their wrongdoing. They count it pleasure to
+  revel in the daytime. They are blots and blemishes, reveling in their deceptions, while they feast with you.
+  They have eyes full of adultery, insatiable for sin. They entice unsteady souls. They have hearts trained in
+  greed. Accursed children! Forsaking the right way, they have gone astray. They have followed the way of Balaam,
+  the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a speechless donkey
+  spoke with human voice and restrained the prophet's madness. These are waterless springs and mists driven by a
+  storm. For them the gloom of utter darkness has been reserved. For, speaking loud boasts of folly, they entice
+  by sensual passions of the flesh those who are barely escaping from those who live in error. They promise them
+  freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to that he is enslaved.
+  For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus
+  Christ, they are again entangled in them and overcome, the last state has become worse for them than the first.
+  For it would have been better for them never to have known the way of righteousness than after knowing it to
+  turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog
+  returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
+
 5.10. Be a disciple of Jesus to be set free and abide forever
 
 - To be Jesus' disciple, we must abide in Jesus' word / obey His commandments.
@@ -17493,31 +17534,259 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 35.1. 44 Prophecies Jesus Christ Fulfilled
 
 
-Prophecies About Jesus                     Old Testament Scripture  New Testament Fulfillment
+Prophecies About Jesus          Old Testament Scripture                   New Testament Fulfillment
 
-Messiah would be born of a woman.                             Ge 3:15                  Mt 1:20, Ga 4:4
-Messiah would be born in Bethlehem.                           Mc 5:2                   Mt 2:1, Lk 2:4-6
-Messiah would be born of a virgin.                            Is 7:14                  Mt 1:22-23, Lk 1:26-31
-Messiah would come from the line of Abraham.                  Ge 12:3, Ge 22:18        Mt 1:1, Rm 9:5
-Messiah would be a descendant of Isaac.                       Ge 17:19, Ge 21:12       Lk 3:34
-Messiah would be a descendant of Jacob.                       Nb 24:17                 Mt 1:2
-Messiah would come from the tribe of Judah.                   Ge 49:10                 Lk 3:33, Heb 7:14
-Messiah would be heir to King David's throne.                 2Sa 7:12-13, Is 9:7      Lk 1:32-33, Rm 1:3
-Messiah's throne will be anointed and eternal.                Ps 45:6-7, Da 2:44       Lk 1:33, Heb 1:8-12
-Messiah would be called Immanuel.                             Is 7:14                  Mt 1:23
-Messiah would spend a season in Egypt.                        Ho 11:1                  Mt 2:14-15
-A massacre of children would happen at Messiah's birthplace.  Je 31:15                 Mt 2:16-18
-A messenger would prepare the way for Messiah                 Is 40:3-5                Lk 3:3-6
-Messiah would be rejected by his own people.                  Ps 69:8, Is 53:3         Jn 1:11, Jn 7:5
-Messiah would be a prophet.                                   De 18:15                 Ac 3:20-22
-Messiah would be preceded by Elijah.                          Ml 4:5-6                 Mt 11:13-14
-Messiah would be declared the Son of God.                     Ps 2:7                   Mt 3:16-17
-Messiah would be called a Nazarene.                           Is 11:1                  Mt 2:23
-Messiah would bring light to Galilee.                         Is 9:1-2                 Mt 4:13-16
-Messiah would speak in parables.                              Ps 78:2-4, Is 6:9-10     Mt 13:10-15, 34-35
-Messiah would be sent to heal the brokenhearted.              Is 61:1-2                Lk 4:18-19
-Messiah would be a priest after the order of Melchizedek.     Ps 110:4                 Heb 5:5-6
-Messiah would be called King.                                 Ps 2:6 Zc 9:9            Mt 27:37, Mk 11:7-11
+Matthew 1:20 - But as he considered these
+Genesis 3:15 - I will put enmity      things, behold, an angel of the Lord appeared
+between you and the woman, and        to him in a dream, saying, Joseph, son of
+Messiah would be born of a  between your offspring and her        David, do not fear to take Mary as your wife,
+woman.                      offspring; he shall bruise your       for that which is conceived in her is from the
+head, and you shall bruise his heel.  Holy Spirit. (ESV), Galatians 4:4 - But when
+(ESV)                                 the fullness of time had come, God sent forth
+his Son, born of woman, born under the law,
+(ESV)
+Matthew 2:1 - Now after Jesus was born in
+Bethlehem of Judea in the days of Herod the
+Micah 5:2 - But you, O Bethlehem      king, behold, wise men from the east came to
+Ephrathah, who are too little to be   Jerusalem, (ESV), Luke 2:4-6 - And Joseph also
+Messiah would be born in    among the clans of Judah, from you    went up from Galilee, from the town of
+Bethlehem.                  shall come forth for me one who is    Nazareth, to Judea, to the city of David,
+to be ruler in Israel, whose origin   which is called Bethlehem, because he was of
+is from of old, from ancient days.    the house and lineage of David, to be
+(ESV)                                 registered with Mary, his betrothed, who was
+with child. And while they were there, the
+time came for her to give birth. (ESV)
+Matthew 1:22-23 - All this took place to
+fulfill what the Lord had spoken by the
+prophet: Behold, the virgin shall conceive and
+bear a son, and they shall call his name
+Immanuel (which means, God with us). (ESV),
+Luke 1:26-31 - In the sixth month the angel
+Isaiah 7:14 - Therefore the Lord      Gabriel was sent from God to a city of Galilee
+himself will give you a sign.         named Nazareth, to a virgin betrothed to a man
+Messiah would be born of a  Behold, the virgin shall conceive     whose name was Joseph, of the house of David.
+virgin.                     and bear a son, and shall call his    And the virgin's name was Mary. And he came to
+name Immanuel. (ESV)                  her and said, Greetings, O favored one, the
+Lord is with you! But she was greatly troubled
+at the saying, and tried to discern what sort
+of greeting this might be. And the angel said
+to her, Do not be afraid, Mary, for you have
+found favor with God. And behold, you will
+conceive in your womb and bear a son, and you
+shall call his name Jesus. (ESV)
+Genesis 12:3 - I will bless those
+who bless you, and him who dishonors  Matthew 1:1 - The book of the genealogy of
+you I will curse, and in you all the  Jesus Christ, the son of David, the son of
+Messiah would come from     families of the earth shall be        Abraham. (ESV), Romans 9:5 - To them belong
+the line of Abraham.        blessed. (ESV), Genesis 22:18 - and   the patriarchs, and from their race, according
+in your offspring shall all the       to the flesh, is the Christ who is God over
+nations of the earth be blessed,      all, blessed forever. Amen. (ESV)
+because you have obeyed my voice.
+(ESV)
+Genesis 17:19 - God said, No, but
+Sarah your wife shall bear you a
+son, and you shall call his name
+Isaac. I will establish my covenant
+with him as an everlasting covenant
+Messiah would be a          for his offspring after him. (ESV),   Luke 3:34 - the son of Jacob, the son of
+descendant of Isaac.        Genesis 21:12 - But God said to       Isaac, the son of Abraham, the son of Terah,
+Abraham, Be not displeased because    the son of Nahor, (ESV)
+of the boy and because of your slave
+woman. Whatever Sarah says to you,
+do as she tells you, for through
+Isaac shall your offspring be named.
+(ESV)
+Numbers 24:17 - I see him, but not
+now; I behold him, but not near: a
+Messiah would be a          star shall come out of Jacob, and a   Matthew 1:2 - Abraham was the father of Isaac,
+descendant of Jacob.        scepter shall rise out of Israel; it  and Isaac the father of Jacob, and Jacob the
+shall crush the forehead of Moab and  father of Judah and his brothers, (ESV)
+break down all the sons of Sheth.
+(ESV)
+Genesis 49:10 - The scepter shall     Luke 3:33 - the son of Amminadab, the son of
+not depart from Judah, nor the        Admin, the son of Arni, the son of Hezron, the
+Messiah would come from     ruler's staff from between his feet,  son of Perez, the son of Judah, (ESV), Hebrews
+the tribe of Judah.         until tribute comes to him; and to    7:14 - For it is evident that our Lord was
+him shall be the obedience of the     descended from Judah, and in connection with
+peoples. (ESV)                        that tribe Moses said nothing about priests.
+(ESV)
+II Samuel 7:12-13 - When your days
+are fulfilled and you lie down with
+your fathers, I will raise up your
+offspring after you, who shall come
+from your body, and I will establish  Luke 1:32-33 - He will be great and will be
+his kingdom. He shall build a house   called the Son of the Most High. And the Lord
+for my name, and I will establish     God will give to him the throne of his father
+Messiah would be heir to    the throne of his kingdom forever.    David, and he will reign over the house of
+King David's throne.        (ESV), Isaiah 9:7 - Of the increase   Jacob forever, and of his kingdom there will
+of his government and of peace there  be no end. (ESV), Romans 1:3 - concerning his
+will be no end, on the throne of      Son, who was descended from David according to
+David and over his kingdom, to        the flesh (ESV)
+establish it and to uphold it with
+justice and with righteousness from
+this time forth and forevermore. The
+zeal of the LORD of hosts will do
+this. (ESV)
+Psalms 45:6-7 - Your throne, O God,   Luke 1:33 - and he will reign over the house
+is forever and ever. The scepter of   of Jacob forever, and of his kingdom there
+your kingdom is a scepter of          will be no end. (ESV), Hebrews 1:8-12 - But of
+uprightness; you have loved           the Son he says, Your throne, O God, is
+righteousness and hated wickedness.   forever and ever, the scepter of uprightness
+Therefore God, your God, has          is the scepter of your kingdom. You have loved
+anointed you with the oil of          righteousness and hated wickedness; therefore
+Messiah's throne will be    gladness beyond your companions;      God, your God, has anointed you with the oil
+anointed and eternal.       (ESV), Daniel 2:44 - And in the days  of gladness beyond your companions. And, You,
+of those kings the God of heaven      Lord, laid the foundation of the earth in the
+will set up a kingdom that shall      beginning, and the heavens are the work of
+never be destroyed, nor shall the     your hands; they will perish, but you remain;
+kingdom be left to another people.    they will all wear out like a garment, like a
+It shall break in pieces all these    robe you will roll them up, like a garment
+kingdoms and bring them to an end,    they will be changed. But you are the same,
+and it shall stand forever, (ESV)     and your years will have no end. (ESV)
+Isaiah 7:14 - Therefore the Lord      Matthew 1:23 - Behold, the virgin shall
+Messiah would be called     himself will give you a sign.         conceive and bear a son, and they shall call
+Immanuel.                   Behold, the virgin shall conceive     his name Immanuel (which means, God with us).
+and bear a son, and shall call his    (ESV)
+name Immanuel. (ESV)
+Matthew 2:14-15 - And he rose and took the
+Hosea 11:1 - When Israel was a        child and his mother by night and departed to
+Messiah would spend a       child, I loved him, and out of Egypt  Egypt and remained there until the death of
+season in Egypt.            I called my son. (ESV)                Herod. This was to fulfill what the Lord had
+spoken by the prophet, Out of Egypt I called
+my son. (ESV)
+Matthew 2:16-18 - Then Herod, when he saw that
+he had been tricked by the wise men, became
+Jeremiah 31:15 - Thus says the LORD:  furious, and he sent and killed all the male
+A voice is heard in Ramah,            children in Bethlehem and in all that region
+A massacre of children      lamentation and bitter weeping.       who were two years old or under, according to
+would happen at Messiah's   Rachel is weeping for her children;   the time that he had ascertained from the wise
+birthplace.                 she refuses to be comforted for her   men. Then was fulfilled what was spoken by the
+children, because they are no more.   prophet Jeremiah: A voice was heard in Ramah,
+(ESV)                                 weeping and loud lamentation, Rachel weeping
+for her children; she refused to be comforted,
+because they are no more. (ESV)
+Isaiah 40:3-5 - A voice cries: In     Luke 3:3-6 - And he went into all the region
+the wilderness prepare the way of     around the Jordan, proclaiming a baptism of
+the LORD; make straight in the        repentance for the forgiveness of sins. As it
+desert a highway for our God. Every   is written in the book of the words of Isaiah
+valley shall be lifted up, and every  the prophet, The voice of one crying in the
+A messenger would prepare   mountain and hill be made low; the    wilderness: Prepare the way of the Lord, make
+the way for Messiah         uneven ground shall become level,     his paths straight. Every valley shall be
+and the rough places a plain. And     filled, and every mountain and hill shall be
+the glory of the LORD shall be        made low, and the crooked shall become
+revealed, and all flesh shall see it  straight, and the rough places shall become
+together, for the mouth of the LORD   level ways, and all flesh shall see the
+has spoken. (ESV)                     salvation of God. (ESV)
+Psalms 69:8 - I have become a
+stranger to my brothers, an alien to
+my mother's sons. (ESV), Isaiah 53:3  John 1:11 - He came to his own, and his own
+Messiah would be rejected   - He was despised and rejected by     people did not receive him. (ESV), John 7:5 -
+by his own people.          men; a man of sorrows, and            For not even his brothers believed in him.
+acquainted with grief; and as one     (ESV)
+from whom men hide their faces he
+was despised, and we esteemed him
+not. (ESV)
+Acts 3:20-22 - that times of refreshing may
+come from the presence of the Lord, and that
+Deuteronomy 18:15 - The LORD your     he may send the Christ appointed for you,
+God will raise up for you a prophet   Jesus, whom heaven must receive until the time
+Messiah would be a          like me from among you, from your     for restoring all the things about which God
+prophet.                    brothers-it is to him you shall       spoke by the mouth of his holy prophets long
+listen- (ESV)                         ago. Moses said, The Lord God will raise up
+for you a prophet like me from your brothers.
+You shall listen to him in whatever he tells
+you. (ESV)
+Malachi 4:5-6 - Behold, I will send
+you Elijah the prophet before the
+great and awesome day of the LORD     Matthew 11:13-14 - For all the Prophets and
+Messiah would be preceded   comes. And he will turn the hearts    the Law prophesied until John, and if you are
+by Elijah.                  of fathers to their children and the  willing to accept it, he is Elijah who is to
+hearts of children to their fathers,  come. (ESV)
+lest I come and strike the land with
+a decree of utter destruction. (ESV)
+Matthew 3:16-17 - And when Jesus was baptized,
+Psalms 2:7 - I will tell of the       immediately he went up from the water, and
+Messiah would be declared   decree: The LORD said to me, You are  behold, the heavens were opened to him, and he
+the Son of God.             my Son; today I have begotten you.    saw the Spirit of God descending like a dove
+(ESV)                                 and coming to rest on him; and behold, a voice
+from heaven said, This is my beloved Son, with
+whom I am well pleased. (ESV)
+Isaiah 11:1 - There shall come forth  Matthew 2:23 - And he went and lived in a city
+Messiah would be called a   a shoot from the stump of Jesse, and  called Nazareth, that what was spoken by the
+Nazarene.                   a branch from his roots shall bear    prophets might be fulfilled: He shall be
+fruit. (ESV)                          called a Nazarene. (ESV)
+Isaiah 9:1-2 - But there will be no   Matthew 4:13-16 - And leaving Nazareth he went
+gloom for her who was in anguish. In  and lived in Capernaum by the sea, in the
+the former time he brought into       territory of Zebulun and Naphtali, so that
+contempt the land of Zebulun and the  what was spoken by the prophet Isaiah might be
+land of Naphtali, but in the latter   fulfilled: The land of Zebulun and the land of
+Messiah would bring light   time he has made glorious the way of  Naphtali, the way of the sea, beyond the
+to Galilee.                 the sea, the land beyond the Jordan,  Jordan, Galilee of the Gentiles- the people
+Galilee of the nations. The people    dwelling in darkness have seen a great light,
+who walked in darkness have seen a    and for those dwelling in the region and
+great light; those who dwelt in a     shadow of death, on them a light has dawned.
+land of deep darkness, on them has    (ESV)
+light shined. (ESV)
+Matthew 13:10-15 - Then the disciples came and
+said to him, Why do you speak to them in
+parables? And he answered them, To you it has
+Psalms 78:2-4 - I will open my mouth  been given to know the secrets of the kingdom
+in a parable; I will utter dark       of heaven, but to them it has not been given.
+sayings from of old, things that we   For to the one who has, more will be given,
+have heard and known, that our        and he will have an abundance, but from the
+fathers have told us. We will not     one who has not, even what he has will be
+hide them from their children, but    taken away. This is why I speak to them in
+tell to the coming generation the     parables, because seeing they do not see, and
+glorious deeds of the LORD, and his   hearing they do not hear, nor do they
+might, and the wonders that he has    understand. Indeed, in their case the prophecy
+Messiah would speak in      done. (ESV), Isaiah 6:9-10 - And he   of Isaiah is fulfilled that says: You will
+parables.                   said, Go, and say to this people:     indeed hear but never understand, and you will
+Keep on hearing, but do not           indeed see but never perceive. For this
+understand; keep on seeing, but do    people's heart has grown dull, and with their
+not perceive. Make the heart of this  ears they can barely hear, and their eyes they
+people dull, and their ears heavy,    have closed, lest they should see with their
+and blind their eyes; lest they see   eyes and hear with their ears and understand
+with their eyes, and hear with their  with their heart and turn, and I would heal
+ears, and understand with their       them. (ESV), Matthew 13:34-35 - All these
+hearts, and turn and be healed.       things Jesus said to the crowds in parables;
+(ESV)                                 indeed, he said nothing to them without a
+parable. This was to fulfill what was spoken
+by the prophet: I will open my mouth in
+parables; I will utter what has been hidden
+since the foundation of the world. (ESV)
+Isaiah 61:1-2 - The Spirit of the
+Lord GOD is upon me, because the
+LORD has anointed me to bring good    Luke 4:18-19 - The Spirit of the Lord is upon
+news to the poor; he has sent me to   me, because he has anointed me to proclaim
+Messiah would be sent to    bind up the brokenhearted, to         good news to the poor. He has sent me to
+heal the brokenhearted.     proclaim liberty to the captives,     proclaim liberty to the captives and
+and the opening of the prison to      recovering of sight to the blind, to set at
+those who are bound; to proclaim the  liberty those who are oppressed, to proclaim
+year of the LORD's favor, and the     the year of the Lord's favor. (ESV)
+day of vengeance of our God; to
+comfort all who mourn; (ESV)
+Hebrews 5:5-6 - So also Christ did not exalt
+Messiah would be a priest   Psalms 110:4 - The LORD has sworn     himself to be made a high priest, but was
+after the order of          and will not change his mind, You     appointed by him who said to him, You are my
+Melchizedek.                are a priest forever after the order  Son, today I have begotten you; as he says
+of Melchizedek. (ESV)                 also in another place, You are a priest
+forever, after the order of Melchizedek. (ESV)
+Matthew 27:37 - And over his head they put the
+charge against him, which read, This is Jesus,
+the King of the Jews. (ESV), Mark 11:7-11 -
+Psalms 2:6 - As for me, I have set    And they brought the colt to Jesus and threw
+my King on Zion, my holy hill.        their cloaks on it, and he sat on it. And many
+(ESV), Zechariah 9:9 - Rejoice        spread their cloaks on the road, and others
+greatly, O daughter of Zion! Shout    spread leafy branches that they had cut from
+Messiah would be called     aloud, O daughter of Jerusalem!       the fields. And those who went before and
+King.                       behold, your king is coming to you;   those who followed were shouting, Hosanna!
+righteous and having salvation is     Blessed is he who comes in the name of the
+he, humble and mounted on a donkey,   Lord! Blessed is the coming kingdom of our
+on a colt, the foal of a donkey.      father David! Hosanna in the highest! And he
+(ESV)                                 entered Jerusalem and went into the temple.
+And when he had looked around at everything,
+as it was already late, he went out to Bethany
+with the twelve. (ESV)
 
 
 
@@ -30250,7 +30519,7 @@ Date: 2024-06-19 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-19 Wed 10:33
+Created: 2024-06-19 Wed 16:47
 
 Validate
 

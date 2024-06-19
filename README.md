@@ -3827,6 +3827,18 @@ We have knowledge of the truth through obedience to the gospel.
 
 > **II Timothy 3:13** - while evil people and impostors will go on from bad to worse, deceiving and being deceived. (ESV)
 
+People who go astray:
+
+-   suffering wrong as the wage for their wrongdoing.
+-   they count it pleasure to revel in the daytime.
+-   they are blots and blemishes, reveling in their deceptions, while they feast with you.
+-   they have eyes full of adultery, insatiable for sin.
+-   They entice unsteady souls.
+-   They have hearts trained in greed.
+-   Accursed children! Forsaking the right way, they have gone astray.
+
+> **II Peter 2:1-22** - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. And many will follow their sensuality, and because of them the way of truth will be blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot, greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment, and especially those who indulge in the lust of defiling passion and despise authority. Bold and willful, they do not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not pronounce a blasphemous judgment against them before the Lord. But these, like irrational animals, creatures of instinct, born to be caught and destroyed, blaspheming about matters of which they are ignorant, will also be destroyed in their destruction, suffering wrong as the wage for their wrongdoing. They count it pleasure to revel in the daytime. They are blots and blemishes, reveling in their deceptions, while they feast with you. They have eyes full of adultery, insatiable for sin. They entice unsteady souls. They have hearts trained in greed. Accursed children! Forsaking the right way, they have gone astray. They have followed the way of Balaam, the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a speechless donkey spoke with human voice and restrained the prophet's madness. These are waterless springs and mists driven by a storm. For them the gloom of utter darkness has been reserved. For, speaking loud boasts of folly, they entice by sensual passions of the flesh those who are barely escaping from those who live in error. They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first. For it would have been better for them never to have known the way of righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
+
 
 ## Be a disciple of Jesus to be set free and abide forever
 
@@ -12063,162 +12075,162 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <tbody>
 <tr>
 <td class="org-left">Messiah would be born of a woman.</td>
-<td class="org-left">Ge 3:15</td>
-<td class="org-left">Mt 1:20, Ga 4:4</td>
+<td class="org-left"><b>Genesis 3:15</b> - I will put enmity between you and the woman, and between your offspring and her offspring; he shall bruise your head, and you shall bruise his heel. (ESV)</td>
+<td class="org-left"><b>Matthew 1:20</b> - But as he considered these things, behold, an angel of the Lord appeared to him in a dream, saying, Joseph, son of David, do not fear to take Mary as your wife, for that which is conceived in her is from the Holy Spirit. (ESV), <b>Galatians 4:4</b> - But when the fullness of time had come, God sent forth his Son, born of woman, born under the law, (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be born in Bethlehem.</td>
-<td class="org-left">Mc 5:2</td>
-<td class="org-left">Mt 2:1, Lk 2:4-6</td>
+<td class="org-left"><b>Micah 5:2</b> - But you, O Bethlehem Ephrathah, who are too little to be among the clans of Judah, from you shall come forth for me one who is to be ruler in Israel, whose origin is from of old, from ancient days. (ESV)</td>
+<td class="org-left"><b>Matthew 2:1</b> - Now after Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, wise men from the east came to Jerusalem, (ESV), <b>Luke 2:4-6</b> - And Joseph also went up from Galilee, from the town of Nazareth, to Judea, to the city of David, which is called Bethlehem, because he was of the house and lineage of David, to be registered with Mary, his betrothed, who was with child. And while they were there, the time came for her to give birth. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be born of a virgin.</td>
-<td class="org-left">Is 7:14</td>
-<td class="org-left">Mt 1:22-23, Lk 1:26-31</td>
+<td class="org-left"><b>Isaiah 7:14</b> - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. (ESV)</td>
+<td class="org-left"><b>Matthew 1:22-23</b> - All this took place to fulfill what the Lord had spoken by the prophet: Behold, the virgin shall conceive and bear a son, and they shall call his name Immanuel (which means, God with us). (ESV), <b>Luke 1:26-31</b> - In the sixth month the angel Gabriel was sent from God to a city of Galilee named Nazareth, to a virgin betrothed to a man whose name was Joseph, of the house of David. And the virgin's name was Mary. And he came to her and said, Greetings, O favored one, the Lord is with you! But she was greatly troubled at the saying, and tried to discern what sort of greeting this might be. And the angel said to her, Do not be afraid, Mary, for you have found favor with God. And behold, you will conceive in your womb and bear a son, and you shall call his name Jesus. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would come from the line of Abraham.</td>
-<td class="org-left">Ge 12:3, Ge 22:18</td>
-<td class="org-left">Mt 1:1, Rm 9:5</td>
+<td class="org-left"><b>Genesis 12:3</b> - I will bless those who bless you, and him who dishonors you I will curse, and in you all the families of the earth shall be blessed. (ESV), <b>Genesis 22:18</b> - and in your offspring shall all the nations of the earth be blessed, because you have obeyed my voice. (ESV)</td>
+<td class="org-left"><b>Matthew 1:1</b> - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV), <b>Romans 9:5</b> - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is God over all, blessed forever. Amen. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be a descendant of Isaac.</td>
-<td class="org-left">Ge 17:19, Ge 21:12</td>
-<td class="org-left">Lk 3:34</td>
+<td class="org-left"><b>Genesis 17:19</b> - God said, No, but Sarah your wife shall bear you a son, and you shall call his name Isaac. I will establish my covenant with him as an everlasting covenant for his offspring after him. (ESV), <b>Genesis 21:12</b> - But God said to Abraham, Be not displeased because of the boy and because of your slave woman. Whatever Sarah says to you, do as she tells you, for through Isaac shall your offspring be named. (ESV)</td>
+<td class="org-left"><b>Luke 3:34</b> - the son of Jacob, the son of Isaac, the son of Abraham, the son of Terah, the son of Nahor, (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be a descendant of Jacob.</td>
-<td class="org-left">Nb 24:17</td>
-<td class="org-left">Mt 1:2</td>
+<td class="org-left"><b>Numbers 24:17</b> - I see him, but not now; I behold him, but not near: a star shall come out of Jacob, and a scepter shall rise out of Israel; it shall crush the forehead of Moab and break down all the sons of Sheth. (ESV)</td>
+<td class="org-left"><b>Matthew 1:2</b> - Abraham was the father of Isaac, and Isaac the father of Jacob, and Jacob the father of Judah and his brothers, (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would come from the tribe of Judah.</td>
-<td class="org-left">Ge 49:10</td>
-<td class="org-left">Lk 3:33, Heb 7:14</td>
+<td class="org-left"><b>Genesis 49:10</b> - The scepter shall not depart from Judah, nor the ruler's staff from between his feet, until tribute comes to him; and to him shall be the obedience of the peoples. (ESV)</td>
+<td class="org-left"><b>Luke 3:33</b> - the son of Amminadab, the son of Admin, the son of Arni, the son of Hezron, the son of Perez, the son of Judah, (ESV), <b>Hebrews 7:14</b> - For it is evident that our Lord was descended from Judah, and in connection with that tribe Moses said nothing about priests. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be heir to King David's throne.</td>
-<td class="org-left">2Sa 7:12-13, Is 9:7</td>
-<td class="org-left">Lk 1:32-33, Rm 1:3</td>
+<td class="org-left"><b>II Samuel 7:12-13</b> - When your days are fulfilled and you lie down with your fathers, I will raise up your offspring after you, who shall come from your body, and I will establish his kingdom. He shall build a house for my name, and I will establish the throne of his kingdom forever. (ESV), <b>Isaiah 9:7</b> - Of the increase of his government and of peace there will be no end, on the throne of David and over his kingdom, to establish it and to uphold it with justice and with righteousness from this time forth and forevermore. The zeal of the LORD of hosts will do this. (ESV)</td>
+<td class="org-left"><b>Luke 1:32-33</b> - He will be great and will be called the Son of the Most High. And the Lord God will give to him the throne of his father David, and he will reign over the house of Jacob forever, and of his kingdom there will be no end. (ESV), <b>Romans 1:3</b> - concerning his Son, who was descended from David according to the flesh (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah's throne will be anointed and eternal.</td>
-<td class="org-left">Ps 45:6-7, Da 2:44</td>
-<td class="org-left">Lk 1:33, Heb 1:8-12</td>
+<td class="org-left"><b>Psalms 45:6-7</b> - Your throne, O God, is forever and ever. The scepter of your kingdom is a scepter of uprightness; you have loved righteousness and hated wickedness. Therefore God, your God, has anointed you with the oil of gladness beyond your companions; (ESV), <b>Daniel 2:44</b> - And in the days of those kings the God of heaven will set up a kingdom that shall never be destroyed, nor shall the kingdom be left to another people. It shall break in pieces all these kingdoms and bring them to an end, and it shall stand forever, (ESV)</td>
+<td class="org-left"><b>Luke 1:33</b> - and he will reign over the house of Jacob forever, and of his kingdom there will be no end. (ESV), <b>Hebrews 1:8-12</b> - But of the Son he says, Your throne, O God, is forever and ever, the scepter of uprightness is the scepter of your kingdom. You have loved righteousness and hated wickedness; therefore God, your God, has anointed you with the oil of gladness beyond your companions. And, You, Lord, laid the foundation of the earth in the beginning, and the heavens are the work of your hands; they will perish, but you remain; they will all wear out like a garment, like a robe you will roll them up, like a garment they will be changed. But you are the same, and your years will have no end. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be called Immanuel.</td>
-<td class="org-left">Is 7:14</td>
-<td class="org-left">Mt 1:23</td>
+<td class="org-left"><b>Isaiah 7:14</b> - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. (ESV)</td>
+<td class="org-left"><b>Matthew 1:23</b> - Behold, the virgin shall conceive and bear a son, and they shall call his name Immanuel (which means, God with us). (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would spend a season in Egypt.</td>
-<td class="org-left">Ho 11:1</td>
-<td class="org-left">Mt 2:14-15</td>
+<td class="org-left"><b>Hosea 11:1</b> - When Israel was a child, I loved him, and out of Egypt I called my son. (ESV)</td>
+<td class="org-left"><b>Matthew 2:14-15</b> - And he rose and took the child and his mother by night and departed to Egypt and remained there until the death of Herod. This was to fulfill what the Lord had spoken by the prophet, Out of Egypt I called my son. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">A massacre of children would happen at Messiah's birthplace.</td>
-<td class="org-left">Je 31:15</td>
-<td class="org-left">Mt 2:16-18</td>
+<td class="org-left"><b>Jeremiah 31:15</b> - Thus says the LORD: A voice is heard in Ramah, lamentation and bitter weeping. Rachel is weeping for her children; she refuses to be comforted for her children, because they are no more. (ESV)</td>
+<td class="org-left"><b>Matthew 2:16-18</b> - Then Herod, when he saw that he had been tricked by the wise men, became furious, and he sent and killed all the male children in Bethlehem and in all that region who were two years old or under, according to the time that he had ascertained from the wise men. Then was fulfilled what was spoken by the prophet Jeremiah: A voice was heard in Ramah, weeping and loud lamentation, Rachel weeping for her children; she refused to be comforted, because they are no more. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">A messenger would prepare the way for Messiah</td>
-<td class="org-left">Is 40:3-5</td>
-<td class="org-left">Lk 3:3-6</td>
+<td class="org-left"><b>Isaiah 40:3-5</b> - A voice cries: In the wilderness prepare the way of the LORD; make straight in the desert a highway for our God. Every valley shall be lifted up, and every mountain and hill be made low; the uneven ground shall become level, and the rough places a plain. And the glory of the LORD shall be revealed, and all flesh shall see it together, for the mouth of the LORD has spoken. (ESV)</td>
+<td class="org-left"><b>Luke 3:3-6</b> - And he went into all the region around the Jordan, proclaiming a baptism of repentance for the forgiveness of sins. As it is written in the book of the words of Isaiah the prophet, The voice of one crying in the wilderness: Prepare the way of the Lord, make his paths straight. Every valley shall be filled, and every mountain and hill shall be made low, and the crooked shall become straight, and the rough places shall become level ways, and all flesh shall see the salvation of God. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be rejected by his own people.</td>
-<td class="org-left">Ps 69:8, Is 53:3</td>
-<td class="org-left">Jn 1:11, Jn 7:5</td>
+<td class="org-left"><b>Psalms 69:8</b> - I have become a stranger to my brothers, an alien to my mother's sons. (ESV), <b>Isaiah 53:3</b> - He was despised and rejected by men; a man of sorrows, and acquainted with grief; and as one from whom men hide their faces he was despised, and we esteemed him not. (ESV)</td>
+<td class="org-left"><b>John 1:11</b> - He came to his own, and his own people did not receive him. (ESV), <b>John 7:5</b> - For not even his brothers believed in him. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be a prophet.</td>
-<td class="org-left">De 18:15</td>
-<td class="org-left">Ac 3:20-22</td>
+<td class="org-left"><b>Deuteronomy 18:15</b> - The LORD your God will raise up for you a prophet like me from among you, from your brothers—it is to him you shall listen— (ESV)</td>
+<td class="org-left"><b>Acts 3:20-22</b> - that times of refreshing may come from the presence of the Lord, and that he may send the Christ appointed for you, Jesus, whom heaven must receive until the time for restoring all the things about which God spoke by the mouth of his holy prophets long ago. Moses said, The Lord God will raise up for you a prophet like me from your brothers. You shall listen to him in whatever he tells you. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be preceded by Elijah.</td>
-<td class="org-left">Ml 4:5-6</td>
-<td class="org-left">Mt 11:13-14</td>
+<td class="org-left"><b>Malachi 4:5-6</b> - Behold, I will send you Elijah the prophet before the great and awesome day of the LORD comes. And he will turn the hearts of fathers to their children and the hearts of children to their fathers, lest I come and strike the land with a decree of utter destruction. (ESV)</td>
+<td class="org-left"><b>Matthew 11:13-14</b> - For all the Prophets and the Law prophesied until John, and if you are willing to accept it, he is Elijah who is to come. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be declared the Son of God.</td>
-<td class="org-left">Ps 2:7</td>
-<td class="org-left">Mt 3:16-17</td>
+<td class="org-left"><b>Psalms 2:7</b> - I will tell of the decree: The LORD said to me, You are my Son; today I have begotten you. (ESV)</td>
+<td class="org-left"><b>Matthew 3:16-17</b> - And when Jesus was baptized, immediately he went up from the water, and behold, the heavens were opened to him, and he saw the Spirit of God descending like a dove and coming to rest on him; and behold, a voice from heaven said, This is my beloved Son, with whom I am well pleased. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be called a Nazarene.</td>
-<td class="org-left">Is 11:1</td>
-<td class="org-left">Mt 2:23</td>
+<td class="org-left"><b>Isaiah 11:1</b> - There shall come forth a shoot from the stump of Jesse, and a branch from his roots shall bear fruit. (ESV)</td>
+<td class="org-left"><b>Matthew 2:23</b> - And he went and lived in a city called Nazareth, that what was spoken by the prophets might be fulfilled: He shall be called a Nazarene. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would bring light to Galilee.</td>
-<td class="org-left">Is 9:1-2</td>
-<td class="org-left">Mt 4:13-16</td>
+<td class="org-left"><b>Isaiah 9:1-2</b> - But there will be no gloom for her who was in anguish. In the former time he brought into contempt the land of Zebulun and the land of Naphtali, but in the latter time he has made glorious the way of the sea, the land beyond the Jordan, Galilee of the nations. The people who walked in darkness have seen a great light; those who dwelt in a land of deep darkness, on them has light shined. (ESV)</td>
+<td class="org-left"><b>Matthew 4:13-16</b> - And leaving Nazareth he went and lived in Capernaum by the sea, in the territory of Zebulun and Naphtali, so that what was spoken by the prophet Isaiah might be fulfilled: The land of Zebulun and the land of Naphtali, the way of the sea, beyond the Jordan, Galilee of the Gentiles— the people dwelling in darkness have seen a great light, and for those dwelling in the region and shadow of death, on them a light has dawned. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would speak in parables.</td>
-<td class="org-left">Ps 78:2-4, Is 6:9-10</td>
-<td class="org-left">Mt 13:10-15, 34-35</td>
+<td class="org-left"><b>Psalms 78:2-4</b> - I will open my mouth in a parable; I will utter dark sayings from of old, things that we have heard and known, that our fathers have told us. We will not hide them from their children, but tell to the coming generation the glorious deeds of the LORD, and his might, and the wonders that he has done. (ESV), <b>Isaiah 6:9-10</b> - And he said, Go, and say to this people: Keep on hearing, but do not understand; keep on seeing, but do not perceive. Make the heart of this people dull, and their ears heavy, and blind their eyes; lest they see with their eyes, and hear with their ears, and understand with their hearts, and turn and be healed. (ESV)</td>
+<td class="org-left"><b>Matthew 13:10-15</b> - Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away. This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV), <b>Matthew 13:34-35</b> - All these things Jesus said to the crowds in parables; indeed, he said nothing to them without a parable. This was to fulfill what was spoken by the prophet: I will open my mouth in parables; I will utter what has been hidden since the foundation of the world. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be sent to heal the brokenhearted.</td>
-<td class="org-left">Is 61:1-2</td>
-<td class="org-left">Lk 4:18-19</td>
+<td class="org-left"><b>Isaiah 61:1-2</b> - The Spirit of the Lord GOD is upon me, because the LORD has anointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound; to proclaim the year of the LORD's favor, and the day of vengeance of our God; to comfort all who mourn; (ESV)</td>
+<td class="org-left"><b>Luke 4:18-19</b> - The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor. He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those who are oppressed, to proclaim the year of the Lord's favor. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be a priest after the order of Melchizedek.</td>
-<td class="org-left">Ps 110:4</td>
-<td class="org-left">Heb 5:5-6</td>
+<td class="org-left"><b>Psalms 110:4</b> - The LORD has sworn and will not change his mind, You are a priest forever after the order of Melchizedek. (ESV)</td>
+<td class="org-left"><b>Hebrews 5:5-6</b> - So also Christ did not exalt himself to be made a high priest, but was appointed by him who said to him, You are my Son, today I have begotten you; as he says also in another place, You are a priest forever, after the order of Melchizedek. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left">Messiah would be called King.</td>
-<td class="org-left">Ps 2:6 Zc 9:9</td>
-<td class="org-left">Mt 27:37, Mk 11:7-11</td>
+<td class="org-left"><b>Psalms 2:6</b> - As for me, I have set my King on Zion, my holy hill. (ESV), <b>Zechariah 9:9</b> - Rejoice greatly, O daughter of Zion! Shout aloud, O daughter of Jerusalem! behold, your king is coming to you; righteous and having salvation is he, humble and mounted on a donkey, on a colt, the foal of a donkey. (ESV)</td>
+<td class="org-left"><b>Matthew 27:37</b> - And over his head they put the charge against him, which read, This is Jesus, the King of the Jews. (ESV), <b>Mark 11:7-11</b> - And they brought the colt to Jesus and threw their cloaks on it, and he sat on it. And many spread their cloaks on the road, and others spread leafy branches that they had cut from the fields. And those who went before and those who followed were shouting, Hosanna! Blessed is he who comes in the name of the Lord! Blessed is the coming kingdom of our father David! Hosanna in the highest! And he entered Jerusalem and went into the temple. And when he had looked around at everything, as it was already late, he went out to Bethany with the twelve. (ESV)</td>
 </tr>
 </tbody>
 </table>
