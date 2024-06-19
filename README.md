@@ -621,6 +621,10 @@ Also, the Lord Jesus Himself baptized Gentile believers in the Holy Spirit, peop
 
 > **Acts 10:44-48** - While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. For they were hearing them speaking in tongues and extolling God. Then Peter declared, **Can anyone withhold water for baptizing these people, who have received the Holy Spirit just as we have?** <ins>And he commanded them to be baptized in the name of Jesus Christ.</ins> Then they asked him to remain for some days. (ESV)
 
+> **Matthew 3:11** - I baptize you with water for repentance, but he who is coming after me is mightier than I, whose sandals I am not worthy to carry. He will baptize you with the Holy Spirit and with fire. (ESV)
+
+-   **Interlinear Bible:** [biblehub.com 3-11.htm: Matthew 3:11 Interlinear](https://biblehub.com/interlinear/matthew/3-11.htm)
+
 We need to be born of water and the Spirit to enter the kingdom of God:
 
 > **John 3:5** - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
@@ -20471,7 +20475,7 @@ With the light of truth, people may go from darkness to light:
 
 > **Acts 26:18** - to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me.
 
-> **\*Galatians 3:13-14** - Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith.
+> **Galatians 3:13-14** - Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith.
 
 The world (the remaining people, who have not repented) may know that Father God has sent Jesus and loved Jesus' disciples:
 
@@ -21830,7 +21834,8 @@ It should be:
 -   In obedience to the Word of God
 -   Working in the power of **the Holy Spirit**
 
--   **Song:** [youtube.com: God And God Alone {Gospel Medley}](https://www.youtube.com/watch?v=yN1RZBxXX_I)
+-   **Medley:** [youtube.com: God And God Alone {Gospel Medley}](https://www.youtube.com/watch?v=yN1RZBxXX_I)
+-   **Medley:** [youtube.com: Holy Are You Lord Medley | Jesus Image](https://www.youtube.com/watch?v=8xs_wiKWZuc)
 
 <table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
