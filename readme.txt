@@ -60,7 +60,8 @@ loved us and forgive us first
   that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies
   ahead, (ESV)
 
-It's perfect self-humbling obedience which only Jesus Christ managed to reach:
+It's perfect self-humbling obedience without committing sin which only Jesus Christ managed to reach, was able to
+reach and was destined to reach:
 
   Philippians 2:8 - And being found in human form, he humbled himself by becoming obedient to the point of death,
   even death on a cross. (ESV)
@@ -110,6 +111,16 @@ Jesus follows us and supports us:
 
   I Corinthians 10:4 - and all drank the same spiritual drink. For they drank from the spiritual Rock that
   followed them, and the Rock was Christ. (ESV)
+
+Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. God's
+strength does not a guarantee that we will not suffer as a result of following Jesus. But God gives us the power
+at the time we need it to endure the suffering:
+
+  Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
+  every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
+  looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
+  cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
+  sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
 
 The crown of life is gifted to those who are obedient, and have been tested. I think this verse can also be taken
 in the literal sense:
@@ -1434,7 +1445,8 @@ We should aim to fulfill these great commandments while being merciful:
   under the law of liberty. For judgment is without mercy to one who has shown no mercy. Mercy triumphs over
   judgment. (ESV)
 
-It's perfect self-humbling obedience which only Jesus Christ managed to reach:
+It's perfect self-humbling obedience without committing sin which only Jesus Christ managed to reach, was able to
+reach and was destined to reach:
 
   Philippians 2:8 - And being found in human form, he humbled himself by becoming obedient to the point of death,
   even death on a cross. (ESV)
@@ -30127,6 +30139,9 @@ Required to satisfy the "Christ's love" criteria I believe are:
 - We forgive out of a loving response to God and to others, knowing we have already been forgiven of our debt
 - It must satisfy Christ's law
 - Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
+- Be a servant; consider others more significant than yourself
+- Seek to do not harm to your neighbour
+- Bear one another's burdens without partiality
 
 Our first agape love has to be Jesus:
 
@@ -30917,6 +30932,16 @@ I was spiritually bankrupt and I knew I needed God's help.
   Ephesians 2:4-5 - But God, being rich in mercy, because of the great love with which he loved us, even when we
   were dead in our trespasses, made us alive together with Christ-by grace you have been saved- (ESV)
 
+Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. God's
+strength does not a guarantee that we will not suffer as a result of following Jesus. But God gives us the power
+at the time we need it to endure the suffering:
+
+  Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
+  every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
+  looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
+  cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
+  sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
+
 72.11.1. I was spiritually blind
 
   I Corinthians 2:14 - The natural person does not accept the things of the Spirit of God, for they are folly to
@@ -31307,7 +31332,7 @@ Date: 2024-06-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-21 Fri 11:24
+Created: 2024-06-21 Fri 11:40
 
 Validate
 
