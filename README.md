@@ -276,6 +276,8 @@ I believe this. If anyone is trusting that Jesus is the Christ, the Son of God, 
 
 > **John 20:31** - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name. (ESV)
 
+> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might **live through him**. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
+
 > **Ephesians 2:10** - For we are his workmanship, **created in Christ Jesus for good works**, which God prepared beforehand, that we should walk in them. (ESV)
 
 While obedience exists in the heart, as belief does, as **faith is** <ins>believing and obedient</ins> **trust**, works are the actions we do out of that obedience, that love for Jesus, and out of ongoing believing, obedient faith, out of obedience to the Holy Spirit:
@@ -396,6 +398,10 @@ In order to know God we must love one another in the way that God has loved us:
 
 > **I John 4:7-12** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
 
+We live through the life of Jesus in this intellectual and experiential knowledge - a bit like an umbilical cord:
+
+> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might **live through him**. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
+
 We should labor for the food that endures to eternal life:
 
 > **John 6:27** - Do not labor for the food that perishes, but for the food that endures to eternal life, which the Son of Man will give to you. For on him God the Father has set his seal. (ESV)
@@ -404,7 +410,7 @@ We should labor for the food that endures to eternal life:
 
 We have to put sin away after we come to believe in Him:
 
-> **Colossians 3:5-10** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator.
+> **Colossians 3:5-10** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these *you too once walked, when you were living in them*. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have **put on the new self, which is being renewed in knowledge after the image of its creator.**
 
 A new creation lives for Christ:
 
@@ -437,6 +443,10 @@ There is a change in our lives:
 And eventually His commandments become unburdensome, and we're keeping them, and we have confidence we have come to know Him:
 
 > **I John 2:3-4** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+We must live in the spirit the way God does, not for human passions, but for the will of God:
+
+> **I Peter 4:1-6** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. With respect to this they are surprised when you do not join them in the same flood of debauchery, and they malign you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel was preached even to those who are dead, that though judged in the flesh the way people are, they might **live in the spirit the way God does.** (ESV)
 
 When we believe God's word given through Jesus, we have passed from death to life. We should definitely then listen to Jesus to see what He has actually spoken.
 
@@ -1435,6 +1445,8 @@ Jesus first made Paul His own, now Paul wants to press on to perfection/completi
 
 We have different gifts, a different calling. We cannot compare or boast. We're different parts of the body of Christ.
 
+> **I Peter 4:10** - As each has received a gift, use it to serve one another, as good stewards of God's varied grace: (ESV)
+
 Let's see what the word **katergazomai** (the word for 'work out') means:
 
 -   [Philippians 2:12 (Interlinear)](https://biblehub.com/interlinear/philippians/2-12.htm)
@@ -1513,18 +1525,19 @@ It's a '<sub>working</sub> out\_' of the salvation that is free-grace.
     
     Do nothing from selfish-ambition or conceit:
     
-    > **Philippians 2:3** - Do nothing from rivalry or conceit, but in humility count others more significant than yourselves. (ESV)
+    > **Philippians 2:3** - Do nothing from rivalry or conceit, but **in humility count others more significant than yourselves.** (ESV)
     
     Do all things without grumbling or disputing:
     
     > **Philippians 2:14** - Do all things without grumbling or questioning, (ESV)
     
-    It seems like we're saved (delivered) from:
+    It seems like we're saved (delivered) from (among other things):
     
     -   selfish ambition
     -   conceit
     -   grumbling
     -   [petty] disputing
+    -   sin that leads to death
 
 
 ### God working in us
@@ -2350,7 +2363,15 @@ The demons have belief, but they don't have a response of love towards God:
 
 > **James 2:19** - You believe that God is one; you do well. Even the demons believe—and shudder! (ESV)
 
-> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+Jesus was and is obedient to Father God:
+
+> **John 6:38** - For I have come down from heaven, not to do my own will but the will of him who sent me. (ESV)
+
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
+
+Jesus loves Father God. Jesus obeyed God with perfect self-humbling obedience **so that the world may know that He loves Father God**:
+
+> **John 14:31** - but **I do as the Father has commanded me, so that the world may know that I love the Father**. Rise, let us go from here. (ESV)
 
 > **John 8:44** - You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
@@ -2374,7 +2395,7 @@ Our response might be a positive response of proclaiming to others how much God 
 
 We **must** have a response of love for Jesus:
 
-> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
 
 So we want to have a response of love for Jesus:
 
@@ -2545,6 +2566,12 @@ There are some doctrines that are so essential that to deny them is to not be a 
 > **I John 4:2** - By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, (ESV)
 
 > **I John 2:22** - Who is the liar but he who denies that Jesus is the Christ? This is the antichrist, he who denies the Father and the Son. (ESV)
+
+> **II John 1:7** - For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. (ESV)
+
+I confess that God was acting through Jesus Christ as He walked the earth in the flesh, around 2000 years ago, and that God is still working through us who are in Christ Jesus.
+
+> **John 10:32** - Jesus answered them, “I showed you many good works from the Father; for which of them are you stoning Me?”
 
 I also think it's important to have an accurate Christology:
 
@@ -4105,7 +4132,7 @@ So to receive the Holy Spirit:
 
 > **Galatians 5:22-23** - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. (ESV)
 
-> **II Timothy 1:7** - for God gave us a spirit not of fear but of power and love and self-control. (ESV)
+> **II Timothy 1:7** - for **God gave us a spirit not of fear but of power and love and self-control.** (ESV)
 
 > **II Timothy 1:7** - For God has not given us a spirit of timidity, but of power and love and discipline. (NASB)
 
@@ -4834,7 +4861,7 @@ I still profess that Jesus Christ is the Only-Begotten Son of God who has procee
 Also, I have had as of 28 May '24 in my dreams:
 
 -   A picture of "Jehovah 🌹" - Jehovah's name with a rose by it, and
--   A voice which said, "Jesus is God"
+-   A distinctly male voice which said, "Jesus is God"
 
 [star.net.nz:  The Word for Today - The right balance - May 28th](https://www.star.net.nz/the-word-for-today/-the-right-balance-2024_05_28)
 
@@ -5350,7 +5377,7 @@ You must obey Jesus:
 
 We **must** have a response of love for Jesus:
 
-> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
 
 We want to go ahead towards knowledge of Jesus, and not remain in darkness:
 
@@ -5477,6 +5504,16 @@ Jesus has been perfectly obedient, so Jesus speaks what Father God speaks, and w
 Also, through perfect obedience, Jesus has spoken Father God's commandment of eternal life, which is what He has said:
 
 -   <ins>"the Father who sent me has himself given me a commandment—what to say and what to speak."</ins>
+
+God sent Jesus:
+
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
+
+> **I Peter 3:17** - For it is better to suffer for doing good, if that should be God's will, than for doing evil. (ESV)
+
+Obeying God's will often leads to suffering by the hands of those who are in darkness:
+
+> **I Peter 4:19** - Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. (ESV)
 
 Whoever has faith in Jesus, has faith in God. Whoever sees Jesus sees the Father:
 
@@ -5709,7 +5746,7 @@ So the promise is for all who put their faith in God by obeying Jesus Christ wit
 
 If we are led by the spirit then we are not under the Mosaic law. So we should stop sinning as it is described by such works of the flesh as listed:
 
-> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. (ESV)
+> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God.** (ESV)
 
 The law (Mosaic law) is laid down for those who are lawless and disobedient!:
 
@@ -6590,6 +6627,10 @@ We are set free from sin and become slaves of God (so we obey God!!) and the obe
     Faith receives and continues to receive the supply of the Spirit. So a person needs to be having faith in Jesus to be led by the Spirit.
     
     Sanctification is personal righteousness that is fruit that comes from being in Jesus Christ, Him being our righteousness - we're grafted into Jesus like branches on a tree and become healthier. We must and **should** stop sinning.
+    
+    We must live in the spirit the way God does, not for human passions, but for the will of God:
+    
+    > **I Peter 4:1-6** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. With respect to this they are surprised when you do not join them in the same flood of debauchery, and they malign you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel was preached even to those who are dead, that though judged in the flesh the way people are, they might **live in the spirit the way God does.** (ESV)
 
 
 ### We must have attention to Jesus Christ our Lord
@@ -6910,6 +6951,20 @@ It involves:
     -   being a slave to righteousness, obeying Jesus
         -   being obedient to Jesus, instead of being obedient to the world
 -   loving selflessly as Jesus loved
+
+Also, through perfect obedience, Jesus has spoken Father God's commandment of eternal life, which is what He has said:
+
+-   <ins>"the Father who sent me has himself given me a commandment—what to say and what to speak."</ins>
+
+God sent Jesus:
+
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
+
+> **I Peter 3:17** - For it is better to suffer for doing good, if that should be God's will, than for doing evil. (ESV)
+
+Obeying God's will often leads to suffering by the hands of those who are in darkness:
+
+> **I Peter 4:19** - Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. (ESV)
 
 
 ## We must believe the truth, stop sinning, and live to righteousness
@@ -7596,7 +7651,7 @@ I think the Apostle John means that new believers need to go on to abide in Jesu
 
 I feel like having love for Jesus is inseparable with believing Him and believing in Him for one of Jesus' sheep:
 
-> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
 
 > **II John 1:5-10** - And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we have had from the beginning—that we love one another. And this is love, that we walk according to his commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it. For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -7634,7 +7689,7 @@ When James mentions "justification by works", he actually is referring to justif
 
 > **Hebrews 11:31** - By faith Rahab the prostitute did not perish with those who were disobedient, because she had given a friendly welcome to the spies. (ESV)
 
-Jesus bore our sins in His body on the tree so that we **might** die to sin and live to righteousness. We are also supposed to live in the truth and in the love of God, ourselves practicing the love of Christ, and entrust ourselves to God, even when others are lying about us and slandering us.
+Jesus bore our sins in His body on the tree so that we **might** die to sin and live to righteousness. We are also supposed to live in the truth and in the love of God, ourselves practicing the love of Christ, and entrust ourselves to God, even when others make things more difficult.
 
 > **I Peter 2:22-24** - He committed no sin, neither was deceit found in his mouth. When he was reviled, he did not revile in return; when he suffered, he did not threaten, but continued entrusting himself to him who judges justly. He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed. (ESV)
 
@@ -8039,7 +8094,7 @@ Therefore, faith quickly progresses into good work, serving the living God:
 
 Those who's Father is God love Jesus, and will to do the will of God:
 
-> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
 
 But those who's father is the devil lie out of their own character - they mean to lie when they lie, and they will to do the devil's desires:
 
@@ -9952,6 +10007,8 @@ We must bear one another's burdens:
 
 > **Galatians 6:2** - Bear one another's burdens, and so fulfill the law of Christ.
 
+> **Romans 13:9-10** - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. **Love does no wrong to a neighbor; therefore love is the fulfilling of the law.** (ESV)
+
 Otherwise, the Son of Man will send his angels, and gather out of his kingdom all causes of sin and all law-breakers, and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth:
 
 > **Matthew 13:41-42** - The Son of Man will send his angels, and they will gather out of his kingdom all causes of sin and all law-breakers, and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth.
@@ -11101,7 +11158,7 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 
 ## What's the relationship between loving God and loving Jesus?
 
-> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+> **John 8:42** - Jesus said to them, **If God were your Father, you would love me,** for I came from God and I am here. <ins>I came not of my own accord, but **he sent me**.</ins> (ESV)
 
 > **John 5:42** - But I know that you do not have the love of God within you. (ESV)
 
@@ -12071,7 +12128,7 @@ Jesus has shown us the Way we have to **walk** in. The Way is Himself. To walk i
 
 > **John 14:16-24** - And I will ask the Father, and he will give you another Helper, to be with you forever, In that day you will know that I am in my Father, and you in me, and I in you. Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
 
-Jesus manifests to those who keep His word and obey Him.
+Jesus manifests to those who keep His word and obey Him:
 
 > **John 14:22-23** - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him.
 
@@ -13399,12 +13456,22 @@ The law certainly still exists:
 
 > **1 Timothy 1:8-11** - Now we know that the law is good, if one uses it lawfully, understanding this, that the law is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
-But Christians are not <ins>under</ins> the law while we are led by the Spirit:
+> **Romans 13:10** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
 
 ## [The Epistle of Ignatius to the Magnesians](http://persweb.wabash.edu/facstaff/royaltyr/AncientCities/web/bradleyj/Project%201/The%20Epistle%20of%20Ignatius%20to%20the%20Magnesians.htm)
 
+But Christians are not <ins>under</ins> the law while we are led by the Spirit:
+
 > **Ignatius to the Magnesians 8** - Be not deceived with strange doctrines, nor with old fables, which are unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace. For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being inspired by His grace to fully convince the unbelieving that there is **one God, who has manifested Himself by Jesus Christ His Son, who is His eternal Word**, not proceeding forth from silence, and who in all things pleased Him that sent Him.
+
+**If** we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ) then we are not under the Mosaic law, but we are bearing one another's burdens impartially and not harming our neighbour, and we are not allowing sin to reign in our mortal bodies. Inheriting the Kingdom of God is for those who abide by God's law, and conform to Christ's image, and do not allow sin to reign in their mortal body:
+
+> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God.** (ESV)
+
+We must abide in Jesus. God doesn't give glory to anyone else. God is love and God is Jehovah and God is Jesus:
+
+> **Isaiah 42:8** - I am the LORD; that is my name; my glory I give to no other, nor my praise to carved idols. (ESV)
 
 
 # The LORD our God and my Lord Jesus Christ
@@ -13660,6 +13727,8 @@ We should be more confident with the light!
 
 -   **Song:** [This Is The Day {Garratt} - YouTube](https://www.youtube.com/watch?v=T9Eqm8uIuck)
 
+> **Romans 13:12-14** - The night is far gone; the day is at hand. So then let us **cast off the works of darkness and put on the armor of light**. Let us walk properly as in the daytime, not in orgies and drunkenness, not in sexual immorality and sensuality, not in quarreling and jealousy. But **put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires.** (ESV)
+
 
 ## No more night
 
@@ -13780,6 +13849,18 @@ We should be more confident with the light!
 
 
 # Eldership
+
+
+## Cultivating discipleship
+
+I believe that opportunity to exercise Christ's love should be encouraged, and the benefit of the doubt should be given for the sake of Jesus,
+rather than punishing newborn Christians and disciples of Jesus.
+
+> **Philippians 2:3** - Do nothing from rivalry or conceit, but **in humility count others more significant than yourselves.** (ESV)
+
+> **Galatians 5:22-23** - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. (ESV)
+
+> **II Timothy 1:7** - for **God gave us a spirit not of fear but of power and love and self-control.** (ESV)
 
 
 ## Don't dominate the flock, but be an example
@@ -14098,6 +14179,13 @@ Jesus Himself is the bread of God - Jesus Himself **is** the source of life:
 > **Romans 1:23** - and exchanged the glory of the immortal God for images resembling mortal man and birds and animals and reptiles. (ESV)
 
 > **Psalms 106:20** - They exchanged the glory of God for the image of an ox that eats grass. (ESV)
+
+
+## Jesus is reigning in power over everything - it's all in His control
+
+> **Hebrews 2:8** - putting everything in subjection under his feet. Now in putting everything in subjection to him, he left nothing outside his control. At present, we do not yet see everything in subjection to him. (ESV)
+
+> **Ephesians 1:21** - far above all rule and authority and power and dominion, and above every name that is named, not only in this age but also in the one to come. (ESV)
 
 
 # Man is made in the image of God
@@ -14419,7 +14507,7 @@ Being <ins>led by the spirit involves following Christ's law.</ins> To be marrie
 
 **If** we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ) then we are not under the Mosaic law.:
 
-> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. (ESV)
+> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God.** (ESV)
 
 Now while we may have faith, hoping, even having a conviction for something which God may not have directly told us about (such as a marriage),
 ultimately God may approve or deny it:
@@ -14978,7 +15066,7 @@ But neither does marriage between man and woman even exist in heaven.
 But those who practice sexual impurity which includes homosexuality probably wont **inherit** the kingdom,
 nor enter into the New Jerusalem in Heaven - those are for the saints (those who keep God's commandments AND have faith in Jesus).
 
-> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. (ESV)
+> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God.** (ESV)
 
 > **II Corinthians 11:2** - I feel a divine jealousy for you, for I <ins>betrothed you to one husband, to present you as a pure virgin to Christ</ins>. (ESV)
 
@@ -15610,7 +15698,7 @@ Knowing God means loving as Jesus loved us:
 
 > **I John 4:6-7** - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us. By this we know the Spirit of truth and the spirit of error. Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
 
-> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might live through him. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
+> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might **live through him**. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
 
 Jesus commanded us to love one another in the way He loved us:
 
@@ -15998,7 +16086,7 @@ Being led by the spirit involves following Christ's law:
 
 **If** we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ) then we are not under the Mosaic law.:
 
-> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. (ESV)
+> **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God.** (ESV)
 
 So we should still stop sinning as it is described:
 
@@ -16342,7 +16430,7 @@ The universe is upheld by the word of Jesus' power.
     
     > **Matthew 7:3-5** - Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye. (ESV)
     
-    > **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. (ESV)
+    > **Galatians 5:18-21** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God.** (ESV)
     
     We must be **doing** the will of God to not be under the law:
     
@@ -16425,6 +16513,8 @@ The universe is upheld by the word of Jesus' power.
 ## There is no sexual immorality in Heaven, no violence, no sinners.
 
 Heaven is not Earth. It's a place without sinning.
+
+> **Psalms 11:5** - The LORD tests the righteous, but his soul hates the wicked and the one who loves violence. (ESV)
 
 But the Kingdom of God exists from Heaven to Earth.
 
@@ -17590,13 +17680,17 @@ We **must** have faith in Jesus for the righteousness of God that comes by faith
 
 > **Romans 10:4** - For Christ is the end of the law for righteousness to everyone who believes.
 
-Jesus is our High Priest
+Jesus is our High Priest:
 
--   **Romans 8:1** - There is therefore now no condemnation for those who are in Christ Jesus.
--   **Romans 8:3-4** - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, **in order that the righteous requirement of the law might be fulfilled in us**, who walk not according to the flesh but according to the Spirit.
+> **Romans 8:1** - There is therefore now no condemnation for those who are in Christ Jesus. (ESV)
 
-Jesus condemned sin in the flesh. Now we walk according to the spirit so that the righteous requirement of the law might be fulfilled in us.
-It's still really important to put a stop to sin!
+> **Romans 8:3-4** - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, **in order that the righteous requirement of the law might be fulfilled in us**, **who walk** not according to the flesh but **according to the Spirit.** (ESV)
+
+Jesus condemned sin in the flesh. Now we walk according to the spirit so that the righteous requirement of the law might be fulfilled in us - doing no harm to our neighbour.
+
+It's still really important to put a stop to sin, and show no partiality as we love our neighbour as ourselves, doing no harm to our neighbour and bearing one another's burdens!
+
+Grace given through faith alone is not license to sin, but the power of salvation to be corrected, healed and brought into obedience to God, and into loving God and your neighbour.
 
 
 ### We must stop sinning after receiving the 'big forgiveness' for past sin
@@ -17851,6 +17945,10 @@ We are bondservants of Christ and it is freedom.
 If you are disobedient to God then you are under the Law.
 
 > **Galatians 5:18** - But **if** you are led by the Spirit, you are not under the Law.
+
+Being led by the spirit, a person would be doing no wrong to their neighbour:
+
+> **Romans 13:10** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
 > **I Peter 2:16** - Live as people who are free, not using your freedom as a cover-up for evil, but living as servants of God.
 
@@ -18397,6 +18495,16 @@ Be on your guard. Jesus sends us out to be like scapegoats. Be wise and remain b
 Do not fear persecutors. Fear God. But put your trust in God because He takes care of those who fear Him. Speak the truth:
 
 > **Matthew 10:26-31** - So have no fear of them, for nothing is covered that will not be revealed, or hidden that will not be known. What I tell you in the dark, say in the light, and what you hear whispered, proclaim on the housetops. And do not fear those who kill the body but cannot kill the soul. Rather fear him who can destroy both soul and body in hell. Are not two sparrows sold for a penny? And not one of them will fall to the ground apart from your Father. But even the hairs of your head are all numbered. Fear not, therefore; you are of more value than many sparrows. (ESV)
+
+Being subject to governing authorities does not mean behaving like them, but rather is about being blameless before God:
+
+> **Romans 13:1** - Let every person be subject to the governing authorities. For there is no authority except from God, and those that exist have been instituted by God. (ESV)
+
+> **Matthew 23:3** - so practice and observe whatever they tell you—but not what they do. For they preach, but do not practice. (ESV)
+
+> **Mark 12:17** - Jesus said to them, Render to Caesar the things that are Caesar's, and to God the things that are God's. And they marveled at him. (ESV)
+
+> **Mark 15:14** - And Pilate said to them, Why, what evil has he done? But they shouted all the more, Crucify him. (ESV)
 
 Take Jesus' yoke upon yourself:
 
@@ -20162,7 +20270,7 @@ And Jesus instructs us to have an obedient heart if we want to know that Jesus' 
 
 ## God loved us first
 
-> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might live through him. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
+> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might **live through him**. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
 
 > **Isaiah 64:8** - But now, O LORD, you are our Father; we are the clay, and you are our potter; we are all the work of your hand. (ESV)
 
@@ -20488,6 +20596,8 @@ A relationship is formed between the obedient person and God:
 
 ## The life that Father God gave us is in His Son, Jesus Christ
 
+> **I John 4:8-11** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might **live through him**. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
+
 
 ### God made Himself knowable by sending Jesus Christ, who has made Father God known
 
@@ -20505,7 +20615,9 @@ Grace, mercy, and the eternal life which God has given us is in Jesus Christ. He
 
 > **I John 5:11** - And this is the testimony, that God gave us eternal life, and this life is in his Son.
 
-God was acting through Jesus Christ as He walked the earth in the flesh, around 2000 years ago.
+I confess that God was acting through Jesus Christ as He walked the earth in the flesh, around 2000 years ago, and that God is still working through us who are in Christ Jesus.
+
+> **Philippians 2:13** - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
 > **John 10:32** - Jesus answered them, “I showed you many good works from the Father; for which of them are you stoning Me?”
 
@@ -20948,7 +21060,7 @@ Jesus, by His own authority, rose from the dead. AMEN!!
 > **Acts 1:1-12** - The first account I composed, Theophilus, about all that Jesus began to do and teach, until the day when He was taken up to heaven, after He had by **the Holy Spirit** given orders to the apostles whom He had chosen. To these He also presented Himself alive after His suffering, by many convincing proofs, appearing to them over a period of forty days and speaking of the things concerning the kingdom of God. Gathering them together, He commanded them not to leave Jerusalem, but to wait for what the Father had promised, “Which,” He said, “you heard of from Me; for John baptized with water, but you will be baptized with **the Holy Spirit** not many days from now.” So when they had come together, they were asking Him, saying, “Lord, is it at this time You are restoring the kingdom to Israel?” He said to them, “It is not for you to know times or epochs which the Father has fixed by His own authority; but you will receive power when **the Holy Spirit** has come upon you; and you shall be My witnesses both in Jerusalem, and in all Judea and Samaria, and even to the remotest part of the earth.” And after He had said these things, He was lifted up while they were looking on, and a cloud received Him out of their sight. And as they were gazing intently into the sky while He was going, behold, two men in white clothing stood beside them. They also said, “Men of Galilee, why do you stand looking into the sky? This Jesus, who has been taken up from you into heaven, will come in just the same way as you have watched Him go into heaven.” Then they returned to Jerusalem from the mount called Olivet, which is near Jerusalem, a Sabbath day’s journey away. (ESV)
 
 
-# Armour of God
+# Armour of God / Armour of Light
 
 > **Ephesians 6:11-13** - Put on the whole armor of God, that you may be able to stand against the schemes of the devil. For we do not wrestle against flesh and blood, but against the rulers, against the authorities, against the cosmic powers over this present darkness, against the spiritual forces of evil in the heavenly places. Therefore take up the whole armor of God, that you may be able to withstand in the evil day, and having done all, to stand firm. (ESV)
 
@@ -20987,8 +21099,8 @@ We must have belief in the truth while being sanctified by the Spirit through fa
 
 ## Breastplate of Righteousness
 
--   Imputed righteousness
-    -   righteousness through faith in Jesus Christ
+
+### Imputed righteousness - The righteousness through faith in Jesus Christ.
 
 > **Philippians 3:9** - and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— (ESV)
 
@@ -20997,6 +21109,17 @@ We must have belief in the truth while being sanctified by the Spirit through fa
 > **Isaiah 59:17-18** - He put on righteousness as a breastplate, and a helmet of salvation on his head; he put on garments of vengeance for clothing, and wrapped himself in zeal as a cloak. According to their deeds, so will he repay, wrath to his adversaries, repayment to his enemies; to the coastlands he will render repayment. (ESV)
 
 > **I Corinthians 1:30** - He is the source of your life in Christ Jesus, whom God made our wisdom and our righteousness and sanctification and redemption. (ESV)
+
+
+### Personal holiness righteousness - Godliness
+
+Cast off the works of darkness and put on the **armor of light**:
+
+> **Romans 13:12-14** - The night is far gone; the day is at hand. So then let us **cast off the works of darkness and put on the armor of light**. Let us walk properly as in the daytime, not in orgies and drunkenness, not in sexual immorality and sensuality, not in quarreling and jealousy. But **put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires.** (ESV)
+
+Live in the spirit the way God does:
+
+> **I Peter 4:1-6** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. With respect to this they are surprised when you do not join them in the same flood of debauchery, and they malign you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel was preached even to those who are dead, that though judged in the flesh the way people are, they might **live in the spirit the way God does.** (ESV)
 
 
 ## Shoes of the Gospel of Peace
@@ -21055,7 +21178,9 @@ Our hope of salvation which we have in Jesus Christ.
 
 ### Keep a clean heart with God
 
-> **Hebrews 4:12** - For the word of God is living and active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the heart. (ESV)
+> **Hebrews 4:12-13** - For the word of God is living and active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the heart. And no creature is hidden from his sight, but all are naked and exposed to the eyes of him to whom we must give account. (ESV)
+
+> **Acts 24:14-16** - But this I confess to you, that according to the Way, which they call a sect, I worship the God of our fathers, believing everything laid down by the Law and written in the Prophets, having a hope in God, which these men themselves accept, that there will be a resurrection of both the just and the unjust. So I always take pains to have a clear conscience toward both God and man. (ESV)
 
 
 ### Repent
@@ -21138,6 +21263,10 @@ Jesus sent us. We seek to glorify Jesus. We seek to glorify our Master.
 We seek to glorify God. We seek to be found in Jesus. We seek the glorification that comes from being found in our Master, Jesus Christ.
 
 > **John 7:18** - The one who speaks on his own authority seeks his own glory, but the one who seeks the glory of him who sent him is true, and in him there is no falsehood.
+
+We must abide in Jesus. God doesn't give glory to anyone else. God is love and God is Jehovah and God is Father God and Jesus Christ who He sent:
+
+> **Isaiah 42:8** - I am the LORD; that is my name; my glory I give to no other, nor my praise to carved idols. (ESV)
 
 I'm using the Word of God and doing this Bible study to tread on serpents. Thanks Jesus for giving me authority to do that:
 
@@ -21307,6 +21436,14 @@ It's Christlike to forgive others' offences against us:
 We'll be chastised if we do not forgive our brother from our heart:
 
 > **Matthew 18:35** - So also my heavenly Father will do to every one of you, if you do not forgive your brother from your heart. (ESV)
+
+Get out of debt to others:
+
+> **Romans 13:7** - Pay to all what is owed to them: taxes to whom taxes are owed, revenue to whom revenue is owed, respect to whom respect is owed, honor to whom honor is owed. (ESV)
+
+Come to the place where we owe others nothing but to love them:
+
+> **Romans 13:8** - Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. (ESV)
 
 Our unforgiveness is an impediment to receiving forgiveness:
 
@@ -21620,11 +21757,13 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 
 ## 2020 (About 1 and a bit years before I was born-again of the Spirit)
 
-I was attempting to prove that "faithful, truthful, unconditional" love should be the basis of a romantic relationship
-and I did not have any success in finding one.
+I was attempting to prove that "faithful, truthful, unconditional" love should be the basis of a romantic relationship and I did not have any success in finding one.
 
-But in all fairness, at this time **I still didn't have a relationship with God** that involved following Christ's law - I had not learned yet
-to follow Jesus, nor did I know Jesus yet, at least not very well.
+But in all fairness, at this time **I still didn't have a relationship with God** where I considered Christ's law and bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part of agape love. I was still just getting to know Jesus and I had a lot to learn.
+
+> **Romans 13:10** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+> **Philippians 2:3-5** - Do nothing from rivalry or conceit, but in humility count others more significant than yourselves. Let each of you **look not only to his own interests, but also to the interests of others.** Have this mind among yourselves, which is yours in Christ Jesus, (ESV)
 
 I gave up on seeking a romantic
 relationship with that person because there was definitely no
@@ -21871,6 +22010,12 @@ I am a new creation:
 
 > **II Corinthians 5:14-17** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and <ins>he died for all, that those who live might no longer live for themselves but for him</ins> who for their sake died and was raised. From now on, therefore, we regard no one according to the flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
 
+Being a new creation is a new start where we are repenting from sin, and putting on holiness, and walking according to the spirit fulfilling the requirement of the law:
+
+> **Colossians 3:5-10** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these *you too once walked, when you were living in them*. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have **put on the new self, which is being renewed in knowledge after the image of its creator.**
+
+> **Romans 8:3-4** - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, **in order that the righteous requirement of the law might be fulfilled in us**, **who walk** not according to the flesh but **according to the Spirit.** (ESV)
+
 > -   **In anticipation of any spiritual backlash I will leave the following disclaimer:** In Jesus Christ's name I rebuke any spirit which tries to put the old issues of the past (before I was born-again on 2 April 2022) back on to me. I am a new Creation in Christ Jesus ever since I was born-again and regenerated on [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/). As I understand it, as of then I had a completely clean record. I'm basically 2 years old. On top of that there is no condemnation for those in Christ Jesus. Yes the Apostle John says that we ought to pass-forward love as a response, but I also have the right to move on completely from things which did not work out, and I offer that same right to others as well.
 
 Our debt was cancelled:
@@ -21881,7 +22026,9 @@ AMEN!! This doesn't justify the mistakes I've made in the past, but I do believe
 
 > **Romans 6:11** - So you also must consider yourselves dead to sin and alive to God in Christ Jesus. (ESV)
 
-I wont allow myself to be buried in condemnation by other people or by the enemy. Rather, I'll just use this as an opportunity to live faithfully to God with gratitude and an appropriate response of obedience and love for God and love for Jesus while on this earth:
+-   **Song:** [youtube.com: Worthy | Live | Elevation Worship](https://www.youtube.com/watch?v=Ak5WTb-mgeA&list=RDdhU-Omwg2rU&index=9)
+    
+    I wont allow myself to be buried in condemnation by other people or by the enemy. Rather, I'll just use this as an opportunity to live faithfully to God with gratitude and an appropriate response of obedience and love for God and love for Jesus while on this earth:
 
 > **Romans 6:12-13** - Let not sin therefore reign in your mortal bodies, to make you obey their passions. Do not present your members to sin as instruments for unrighteousness, but present yourselves to God as those who have been brought from death to life, and your members to God as instruments for righteousness. (ESV)
 
@@ -21960,6 +22107,16 @@ I think what this verse says is that putting a stop to sin 'closes doors' which 
 > **I John 5:18** - We know that everyone who has been born of God does not keep on sinning, but he who was born of God protects him, and the evil one does not touch him. (ESV)
 
 > **Psalms 66:18** - If I had cherished iniquity in my heart, the Lord would not have listened. (ESV)
+
+I'm fighting hard against evil spirits to make no provision for the flesh:
+
+> **Romans 13:12-14** - The night is far gone; the day is at hand. So then let us **cast off the works of darkness and put on the armor of light**. Let us walk properly as in the daytime, not in orgies and drunkenness, not in sexual immorality and sensuality, not in quarreling and jealousy. But **put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires.** (ESV)
+
+> **I Peter 4:5-10** - but they will give account to him who is ready to judge the living and the dead. For this is why the gospel was preached even to those who are dead, that though judged in the flesh the way people are, they might **live in the spirit the way God does**. The end of all things is at hand; therefore **be self-controlled and sober-minded** for the sake of your prayers. Above all, **keep loving one another earnestly, since love covers a multitude of sins**. Show hospitality to one another without grumbling. As each has received a gift, use it to serve one another, as good stewards of God's varied grace: (ESV)
+
+We must live in the spirit the way God does, not for human passions, but for the will of God:
+
+> **I Peter 4:1-6** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. With respect to this they are surprised when you do not join them in the same flood of debauchery, and they malign you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel was preached even to those who are dead, that though judged in the flesh the way people are, they might **live in the spirit the way God does.** (ESV)
 
 
 ## The very reason I found myself in court is for coming to the light, and for exposing darkness, even that of my own fault, but that meant doing the right thing even though it would give me a conviction
@@ -22070,7 +22227,7 @@ I was spiritually bankrupt and I knew I needed God's help.
 > **John 6:44** - No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. (ESV)
 
 
-### My spiritual senses were enabled
+### My spiritual senses were enabled / eyes were opened
 
 I was born-again of the Spirit.
 
