@@ -1265,7 +1265,7 @@ We must believe Jesus is who He says He is:
 
 We must love Jesus:
 
-> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
+> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 In my understanding, I consider all who are repentantly trusting in the Lord Jesus Christ, who is God the Son, for their salvation, if they are willing <ins>turn to and obey Him</ins>, **if Father God puts them in**, obediently trusting Jesus Christ who is their life, to be <ins>in Christ Jesus,</ins> no matter what else I say in this document.
 
@@ -1793,7 +1793,7 @@ Jesus must be our number 1 heart's desire:
 
 We must love Jesus by keeping His commandments:
 
-> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
+> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 If we treasure Jesus, and make Jesus our number 1 heart's desire, we will be able to keep Jesus' commandments:
 
@@ -7933,7 +7933,7 @@ I'm **trusting God** wholeheartedly to be justified because of Christ's finished
 
 I'm unsure if the following applies for justification (it may be that it is meant in a different context), but in some sense, forgiving others is still required if someone wants God to forgive them:
 
-> **Mark 11:25** - And whenever you stand praying, forgive, if you have anything against anyone, so that your Father also who is in heaven may forgive you your trespasses. (ESV) (ESV)
+> **Mark 11:25** - And whenever you stand praying, forgive, if you have anything against anyone, so that your Father also who is in heaven may forgive you your trespasses. (ESV)
 
 > **Matthew 6:12-15** -  and forgive us our debts, as we also have forgiven our debtors.  And lead us not into temptation, but deliver us from evil.  For if you forgive others their trespasses, your heavenly Father will also forgive you, but if you do not forgive others their trespasses, neither will your Father forgive your trespasses.  (ESV)
 
@@ -9544,13 +9544,23 @@ The reason we want to be righteous is so we get God.
 
 > **Ephesians 5:6** - Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience.
 
-Now obeying God is more than just believing, it's obeying (which is proportional to the magnitude of the faith).
+Now faith in God is more than just believing, it's walking in that belief, and it's even obedience, and out of that obedience comes love.
 
-Understand that the ones who remained in the boat and did not step out onto the water did not have enough faith to walk on water.
+Love for Jesus is based on obedient faith.
+
+> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
+
+> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall <ins>live by</ins> faith.
+
+Faith in God is believing God and walking in that belief and trusting Jesus and obeying Jesus and allowing Jesus to work through you as you believe and obey His commandments.
+
+The ones who remained in the boat and did not step out onto the water did not have enough faith to walk on water.
 
 > **Matthew 14:27-32** - But immediately Jesus spoke to them, saying, Take heart; it is I. Do not be afraid. And Peter answered him, Lord, if it is you, **command** me to come to you on the water. He said, Come. So Peter **got out of the boat and walked on the water and came to Jesus**. But when he saw the wind, he was afraid, and beginning to sink he cried out, Lord, save me. Jesus immediately reached out his hand and took hold of him, saying to him, O you of little faith, why did you doubt? And when they got into the boat, the wind ceased.
 
-Fear made them disobedient. They had only a small amount of faith.
+Fear and doubt weakened their faith. Maybe Peter took his eyes off Jesus, and instead focused on the water.
 
 > **Hebrews 2:2** - For since the message declared by angels proved to be reliable and every transgression or disobedience received a just retribution,
 
@@ -10853,7 +10863,7 @@ A <ins>key thing</ins> here is that the repentant sinner didn't value his presen
 
 ### a life of faith
 
-The followers of Paul the Apostle <ins>live by</ins> faith; those are the righteous ones. It's a lifestyle.
+The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
 
 > **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall <ins>live by</ins> faith.
 
@@ -11714,7 +11724,7 @@ Abraham believed and obeyed to receive:
 
 > **Hebrews 11:8** - <ins>By faith</ins> **Abraham obeyed** when he was called to go out to a place that he was **to receive** as an inheritance. And he went out, not knowing where he was going. (ESV)
 
-Because we obey God, we receive when we ask:
+Because we love and obey God, loving and obeying Jesus, we receive from God when we ask in faith:
 
 > **I John 3:22** - and whatever we ask we receive from him, **because we keep his commandments and do what pleases him**. (ESV)
 
@@ -12978,9 +12988,11 @@ Abraham believed and obeyed to receive:
 
 > **Hebrews 11:13** - These all died in faith, not having received the things promised, but having seen them and greeted them from afar, and having acknowledged that they were strangers and exiles on the earth.
 
-Because we obey God, we receive when we ask:
+Because we love and obey God, loving and obeying Jesus, we receive from God when we ask in faith:
 
 > **I John 3:22** - and whatever we ask we receive from him, **because we keep his commandments and do what pleases him**. (ESV)
+
+Ask in obedient faith without any doubting:
 
 > **James 1:6-7** - But let him ask in faith, with no doubting, for the one who doubts is like a wave of the sea that is driven and tossed by the wind. For that person must not suppose that he will receive anything from the Lord; (ESV)
 
@@ -18422,9 +18434,9 @@ You must be born again:
 
 If you love Jesus, keep His commandments. The one who keeps Jesus' commandments is the one who loves Jesus:
 
-> **John 14:15** - If you love me, you will keep my commandments.
+> **John 14:15** - If you love me, you will keep my commandments. (ESV)
 
-> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
+> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 Those who have testimony of Jesus should preach testify that he is the one appointed by God to be judge of the living and the dead:
 
@@ -19054,7 +19066,7 @@ Repentance in the heart:
 
 ### 
 
-> **Mark 11:25** - And whenever you stand praying, forgive, if you have anything against anyone, so that your Father also who is in heaven may forgive you your trespasses. (ESV) (ESV)
+> **Mark 11:25** - And whenever you stand praying, forgive, if you have anything against anyone, so that your Father also who is in heaven may forgive you your trespasses. (ESV)
 
 
 ### 
