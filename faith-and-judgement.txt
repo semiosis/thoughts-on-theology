@@ -11,18 +11,23 @@ to be always right. I've also added parts of my own testimony.
 
   I agree whole heartedly with Keith Green here:
 
-    o Keith Green 1978 : Make My Life A Prayer to You {live} - YouTube
+    o youtube.com: Keith Green 1978 : Make My Life A Prayer to You {live}
 
   I agree whole heartedly also with MP Nick Fletcher:
 
-    o Christian MP: 'A life in Christ is the most wonderful thing' - YouTube
+    o youtube.com: Christian MP: a??A life in Christ is the most wonderful thinga??
 
-  I agree whole heartedly with John Piper in these videos:
+  I agree whole heartedly with John Piper in these videos. I've been watching some sermons from Desiring God:
 
-    o The Blazing Center by John Piper - YouTube
-    o John Piper - God's Delight in Obedience - YouTube
-    o His Voice in Yours: How Christ Wins the World - YouTube
-    o God is the Gospel - YouTube
+    o youtube.com: The Blazing Center by John Piper
+    o youtube.com: God's Delight in Obedience
+    o youtube.com: His Voice in Yours: How Christ Wins the World
+    o youtube.com: God is the Gospel
+
+  I agree whole-heartedly with David Mathis also:
+
+    o youtube.com: What Is It Like to 'Know Christ'?
+    o youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty
 
 Acknowledgement
 To be able to have affection for God and treasure God, and have a desire for God is such a gift.... Thank you John
@@ -30982,7 +30987,7 @@ Date: 2024-06-20 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-20 Thu 17:26
+Created: 2024-06-20 Thu 17:37
 
 Validate
 
