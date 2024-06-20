@@ -1,7 +1,7 @@
 This document has been a work in progress. I have been born-again and have done my own Bible study to be taught and be corrected by the word of God, and I'm happy with what I have written here.
 I'm trying to speak the truth in mercy. This document shows my current understanding at the time of writing. I'm not judging people. This is just
 a Bible study. I have just wanted to read the Bible for myself to understand and apply the Scriptures, come into agreement with God's Truth and share my understanding it with others for accountability purposes. I don't presume to be always right.
-I've also added parts of my own testimony.
+I've also added parts of my own testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in God through Jesus Christ.
 
 > **Psalms 119:105** - Your word is a lamp to my feet and a light to my path. (ESV)
 
@@ -14017,6 +14017,14 @@ For that reason, I would have more confidence before God if I was serving Him, h
 
 > **Psalms 1:4-5** - The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will not stand in the judgment, nor sinners in the congregation of the righteous; (ESV)
 
+Glorification can only come through being found in Jesus Christ:
+
+> **Isaiah 42:8** - I am the LORD; that is my name; my glory I give to no other, nor my praise to carved idols. (ESV)
+
+And in Jesus Christ there is no sin:
+
+> **I John 3:5-6** - You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him.
+
 A comprehensive and broad understanding of the Bible is certainly important so we are not "tossed around by every wind of doctrine", and to grow into and become established in the knowledge of Jesus, and able to not be tossed around when people ask questions about doctrine (I have often felt tested in this way, and sometimes unprepared), and that is why I am writing this Bible study out:
 
 > **Ephesians 4:11-16** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, **to equip the saints** for the **work** of ministry, for **building up the body of Christ**, until we all attain to the **unity of the faith and of the knowledge of the Son of God**, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be <ins>children, tossed to and fro by the waves and carried about by every wind of doctrine</ins>, by human cunning, by craftiness in **deceitful** schemes. Rather, **speaking the truth in love**, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love. (ESV)
@@ -14038,6 +14046,14 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 > **John 3:36** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 Therefore, I don't want to flat-out disqualify people who do not have precisely the correct doctrine or theology.
+
+Is there a subtle difference between 'believer' and 'saint'?
+
+> **II Thessalonians 1:9-12** - They will suffer the punishment of eternal destruction, away from the presence of the Lord and from the glory of his might, when he comes on that day to be glorified in his saints, and to be **marveled at among all who have believed**, because our testimony to you was believed. To this end we always pray for you, that our God may make you worthy of his calling and may **fulfill every resolve for good and every work of faith by his power**, so that the name of our Lord Jesus may be glorified in you, and you in him, <ins>according to the grace of our God and the Lord Jesus Christ.</ins> (ESV)
+
+Saints keep the commandments of God:
+
+> **Revelation of John 14:12** - Here is a call for the endurance of the saints, those who keep the commandments of God and their faith in Jesus.
 
 Jesus goes to those who hear His voice to bring them into His flock:
 
@@ -22085,7 +22101,7 @@ We're supposed to do good works of faith by Jesus' power so that Jesus' name is 
 
 ### Believers will marvel. The saints will do good works which glorify Jesus, all done in God's grace
 
-Is there a subtle difference between 'believer' and 'saint'?
+Is there a subtle difference between 'believer' and 'saint'? Saints keep the commandments of God.
 
 > **II Thessalonians 1:9-12** - They will suffer the punishment of eternal destruction, away from the presence of the Lord and from the glory of his might, when he comes on that day to be glorified in his saints, and to be **marveled at among all who have believed**, because our testimony to you was believed. To this end we always pray for you, that our God may make you worthy of his calling and may **fulfill every resolve for good and every work of faith by his power**, so that the name of our Lord Jesus may be glorified in you, and you in him, <ins>according to the grace of our God and the Lord Jesus Christ.</ins> (ESV)
 
