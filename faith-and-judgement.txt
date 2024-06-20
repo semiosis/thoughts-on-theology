@@ -2132,6 +2132,15 @@ We need to perform our salvation in obedience to God:
   Philippians 2:12 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much
   more in my absence, work out (katergazomai) your own salvation with fear and trembling, (ESV)
 
+Sermon
+youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty
+
+Jesus first made Paul His own, now Paul wants to press on to perfection/completion:
+
+  Philippians 3:11-12 - that by any means possible I may attain the resurrection from the dead. Not that I have
+  already obtained this or am already perfect, but I press on to make it my own, because Christ Jesus has made me
+  his own. (ESV)
+
 We have different gifts, a different calling. We cannot compare or boast. We're different parts of the body of
 Christ.
 
@@ -2224,7 +2233,11 @@ We work out the salvation He worked for.
   Philippians 2:12 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but
   much more in my absence, work out your own salvation with fear and trembling, (ESV)
 
-We self-humblingly obey in joy for the reward. We self-humblingly obey to please our Father.
+- We self-humblingly obey in joy for the reward.
+- We self-humblingly obey to please our Father.
+
+  Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must
+  believe that he exists and that he rewards those who seek him. (ESV)
 
 God's people no longer offer slaughtered animals, but we offer ourselves, all we are, our lives in obedience
 to Him:
@@ -30969,7 +30982,7 @@ Date: 2024-06-20 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-20 Thu 17:21
+Created: 2024-06-20 Thu 17:26
 
 Validate
 
