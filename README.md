@@ -11,7 +11,7 @@ I've also added parts of my own testimony.
 > 
 > I agree whole heartedly also with MP Nick Fletcher:
 > 
-> -   [youtube.com: Christian MP: a??A life in Christ is the most wonderful thinga??](https://www.youtube.com/watch?v=TWPoQN8PO9E)
+> -   [youtube.com: Christian MP: "A life in Christ is the most wonderful thing"](https://www.youtube.com/watch?v=TWPoQN8PO9E)
 > 
 > I agree whole heartedly with John Piper in these videos. I've been watching some sermons from [Desiring God](https://www.youtube.com/@desiringGod):
 > 
@@ -490,6 +490,8 @@ But we must turn to obedience to Jesus and loving with Christ's love to come to 
 The initial seal of the Holy Spirit comes with hearing the gospel and believing in Jesus.
 
 > **Ephesians 1:13-14** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+
+> **Acts 20:32** - And now I commend you to God and to the word of his grace, which is able to build you up and to give you the inheritance among all those who are sanctified. (ESV)
 
 
 ## Further repentance from sin and to come to love in the way that Jesus did is an inevitable consequence of being born of God i.e. truly believing in Jesus
@@ -4385,9 +4387,9 @@ Then we continue following Jesus out of faithful obedience.
 
 All of these I believe belong under the umbrella of faith, not works:
 
--   Taking communion is not 'dead works'. It's obedience.
--   Getting baptised is not 'dead works'. It's obedience.
--   Obeying Jesus Christ's commandments are not 'dead works'. It's obedience.
+-   Taking communion is not 'dead works'. It's obedience / walking in obedient faith.
+-   Getting baptised is not 'dead works'. It's obedience / walking in obedient faith.
+-   Obeying Jesus Christ's commandments are not 'dead works'. It's obedience / walking in obedient faith.
 
 Faith presses on to walk the same way Jesus walked - even to spend the rest of the time on earth obedient to Jesus to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God, stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in his sufferings) and His resurrection:
 
@@ -6583,7 +6585,7 @@ We are set free from sin and become slaves of God (so we obey God!!) and the obe
     
     > **Galatians 3:1-5** - O foolish Galatians! Who has bewitched you? It was before your eyes that Jesus Christ was publicly portrayed as crucified. Let me ask you only this: Did you **receive the Spirit** by works of the law or **by hearing with faith**? Are you so foolish? Having begun by the Spirit, are you now being perfected by the flesh? Did you suffer so many things in vain—if indeed it was in vain? Does he who **supplies the Spirit** to you and works miracles among you do so by works of the law, or by hearing with faith— (ESV)
     
-    -   **Sermon:** [The Law Refutes Justification by Law: Galatians 3:6a??9, Part 1 - YouTube](https://www.youtube.com/watch?v=34pBf5pZq_I)
+    -   **Sermon:** [The Law Refutes Justification by Law: Galatians 3:6, Part 1 - YouTube](https://www.youtube.com/watch?v=34pBf5pZq_I)
     
     Faith receives and continues to receive the supply of the Spirit. So a person needs to be having faith in Jesus to be led by the Spirit.
     
@@ -16665,7 +16667,7 @@ To be justified, a person must <ins>walk in the footsteps of the faith that our 
 
 How do we become sons of Abraham:
 
--   **Sermon:** [How Do Gentiles Become Sons of Abraham? Galatians 3:6a??9, Part 3 - YouTube](https://www.youtube.com/watch?v=a2xzr8ZJpn8)
+-   **Sermon:** [How Do Gentiles Become Sons of Abraham? Galatians 3:6, Part 3 - YouTube](https://www.youtube.com/watch?v=a2xzr8ZJpn8)
 
 I do believe that trusting inevitably bears fruit. Also Abraham obeyed God's commandments - that's all tied up inside the faith which Abraham had towards God.
 We must have faith in God, too, but with respect to having faith in Jesus Christ, following Jesus Christ.
@@ -21602,8 +21604,8 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 
 ## 2020 (About 1 and a bit years before I was born-again of the Spirit)
 
-I was attempting to prove that "faithful, truthful, unconditional" love
-should be the basis of a romantic relationship, and I would receive persecution for it.
+I was attempting to prove that "faithful, truthful, unconditional" love should be the basis of a romantic relationship
+and I did not have any success in finding one.
 
 But in all fairness, at this time **I still didn't have a relationship with God** that involved following Christ's law - I had not learned yet
 to follow Jesus, nor did I know Jesus yet, at least not very well.
@@ -21637,7 +21639,7 @@ And almost as soon as I met this person I had to let her go for the time being a
 
 > **Matthew 7:24** - Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. (ESV)
 
-I just say this in order to describe the events leading up to being born-again, for the sake of others, and so they may know how God saved me, as this is my testimony of being born-again.
+I just say this in order to describe the events leading up to being born-again, for the sake of others, and so they may know how God drew me to Jesus to save me, as this is my testimony of being born-again.
 
 Even though from time to time I sin, I do not consider myself to be a 'ravenous wolf' because I'm in a world that is incredibly toxic and unconducive to holiness. Nor am I a liar by nature. I hate lying. And I rejoice in the truth. Also my first allegiance is always to Jesus. I am conformed to Jesus, not trying to conform Jesus to me. Jesus also did battle against demons, and I identify as being with Him, on His side, of the truth.
 
@@ -21665,6 +21667,22 @@ True freedom is found in Jesus, not in the AI stuff:
 ## Being born-again / being regenerated of Spirit
 
 God made me born-again/regenerated me on [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) and following Jesus became the most important thing.
+
+I **was** washed and sanctified:
+
+> **I Corinthians 6:11** - And such were some of you. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God. (ESV)
+
+I'm still being sanctified:
+
+> **Hebrews 10:14** - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
+
+I myself am also trying to cooperate with Jesus and the Holy Spirit to be sanctified:
+
+> **John 17:19** - And for their sake I consecrate myself, that they also may be sanctified in truth. (ESV)
+
+An import part of being sanctified and made perfect/complete is having love perfected with us - getting better at holding no grudges and loving our neighbour as ourselves and loving God obeying God, and being faithful to God even with a good conscience with regards to God's precepts:
+
+> **I John 4:17** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
 
 > **I John 4:7** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
 
@@ -22166,7 +22184,7 @@ Jesus Christ was not made. He was there with Jehovah in the beginning. He is the
 
 # AMEN!!
 
--   **Sermon:** [Therea??s Only One Acceptable Motive To Serve God - YouTube](https://www.youtube.com/watch?v=TEa3UWFgwnk)
+-   **Sermon:** [There's Only One Acceptable Motive To Serve God - YouTube](https://www.youtube.com/watch?v=TEa3UWFgwnk)
 
 The motivation for everything must be to glorify God.
 
