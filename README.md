@@ -1462,6 +1462,56 @@ So I think trusting Jesus, obeying Jesus and believing Jesus' words, and believi
 > **Matthew 7:13-16** - Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow and the way is hard that leads to life, and those who find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles?
 
 
+### The Christian life is both gift and duty
+
+Fighting sin is both a gift from God and a duty we act.
+
+Increasing holiness is both a gift and a duty.
+
+It is a gift of grace that we receive from Jesus and the way that we receive a gift that involves your thoughts, desires and behaviour
+is by having the thoughts, the desires and actions.
+It is a gift you live out, work out.
+It's a '<sub>working</sub> out\_' of the salvation that is free-grace.
+
+1.  Jesus' obedience
+
+    > **Philippians 2:7-9** - but made himself nothing, taking the form of a servant, being born in the likeness of men. And being found in human form, he humbled himself by becoming obedient to the point of death, even death on a cross. Therefore God has highly exalted him and bestowed on him the name that is above every name, (ESV)
+
+2.  Our following His example
+
+    How to grow in Christlikeness.
+    
+    > **Philippians 2:12-18** - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. Do all things without grumbling or questioning, that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be proud that I did not run in vain or labor in vain. Even if I am to be poured out as a drink offering upon the sacrificial offering of your faith, I am glad and rejoice with you all. Likewise you also should be glad and rejoice with me. (ESV)
+    
+    We follow the one who obeyed and was rewarded.
+    
+    We work **out** the salvation He worked **for**.
+    
+    > **Philippians 2:12** - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, (ESV)
+    
+    We self-humblingly obey in joy for the reward.
+    We self-humblingly obey to please our Father.
+    
+    God's people no longer offer slaughtered animals, but we offer ourselves, all we are, our lives in obedience to Him:
+    
+    > **Romans 12:1** - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
+    
+    Do nothing from selfish-ambition or conceit:
+    
+    > **Philippians 2:3** - Do nothing from rivalry or conceit, but in humility count others more significant than yourselves. (ESV)
+    
+    Do all things without grumbling or disputing:
+    
+    > **Philippians 2:14** - Do all things without grumbling or questioning, (ESV)
+    
+    It seems like we're saved (delivered) from:
+    
+    -   selfish ambition
+    -   conceit
+    -   grumbling
+    -   [petty] disputing
+
+
 ### God working in us
 
 God loved us first. We must accept that:
