@@ -60,11 +60,14 @@ loved us and forgive us first
   that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies
   ahead, (ESV)
 
-It's perfect self-humbling obedience throughout His sinless life that only Jesus Christ has reached, was able to
-reach and was destined to reach:
+It's perfect self-humbling obedience throughout His sinless life as He walked the earth in the flesh that only
+Jesus Christ has reached, was able to reach and was destined to reach:
 
   Philippians 2:8 - And being found in human form, he humbled himself by becoming obedient to the point of death,
   even death on a cross. (ESV)
+
+  I Corinthians 15:45 - Thus it is written, The first man Adam became a living being; the last Adam became a
+  life-giving spirit. (ESV)
 
 We abide in Jesus when He washes us:
 
@@ -113,8 +116,8 @@ Jesus follows us and supports us:
   followed them, and the Rock was Christ. (ESV)
 
 Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. God's
-strength does not a guarantee that we will not suffer as a result of following Jesus. But God gives us the power
-at the time we need it to endure the suffering:
+strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the power at
+the time we need it to endure the suffering:
 
   Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
   every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
@@ -588,6 +591,10 @@ We live through the life of Jesus in this intellectual and experiential knowledg
   made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is
   love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
   Beloved, if God so loved us, we also ought to love one another.
+
+Jesus Himself is the bread of God - Jesus Himself is the source of life:
+
+  John 6:33 - For the bread of God is he who comes down from heaven and gives life to the world.
 
 We should labor for the food that endures to eternal life:
 
@@ -3420,6 +3427,9 @@ believing faith, Paul says it was actually God's doing:
   of God, (ESV)
 
   John 6:68 - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, (ESV)
+
+Song
+youtube.com: Show Us Christ - Sovereign Grace
 
   Romans 10:17 - So faith comes from hearing, and hearing through the word of Christ. (ESV)
 
@@ -19156,7 +19166,8 @@ The law certainly still exists:
 
   Romans 13:10 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
-41.5. The Epistle of Ignatius to the Magnesians
+Read
+The Epistle of Ignatius to the Magnesians
 
 But Christians are not under the law while we are led by the Spirit:
 
@@ -19168,9 +19179,10 @@ But Christians are not under the law while we are led by the Spirit:
   Him that sent Him.
 
 If we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ)
-then we are not under the Mosaic law, but we are bearing one another's burdens impartially and not harming our
-neighbour, and we are not allowing sin to reign in our mortal bodies. Inheriting the Kingdom of God is for those
-who abide by God's law, and conform to Christ's image, and do not allow sin to reign in their mortal body:
+then we are not under the Mosaic law, but we are trying to bear one another's burdens without partiality and
+seeking to not harming our neighbour, and we are seeking to not allowing sin to reign in our mortal bodies.
+Inheriting the Kingdom of God is for those who abide by God's law, and conform to Christ's image, and do not allow
+sin to reign in their mortal body:
 
   Galatians 5:18-21 - But if you are led by the Spirit, you are not under the law. Now the works of the flesh are
   evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger,
@@ -20084,10 +20096,17 @@ Jesus goes to those who hear His voice to bring them into His flock:
 
 Jesus Christ is God's servant. We are Jesus' servants. It is a kingdom of servants, obedient to God.
 
-Not all religions are equal. There is only one true God, the Father of Jesus Christ who has revealed Himself in
-Jesus Christ.
+48.0.1. Not all religions are equal. There is only one true God, the Father of Jesus Christ who has revealed Himself
+in Jesus Christ
 
-The only way is Jesus:
+  Ignatius to the Magnesians 8 - Be not deceived with strange doctrines, nor with old fables, which are
+  unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace.
+  For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being
+  inspired by His grace to fully convince the unbelieving that there is one God, who has manifested Himself by
+  Jesus Christ His Son, who is His eternal Word, not proceeding forth from silence, and who in all things pleased
+  Him that sent Him.
+
+The only way to Father God is through Jesus:
 
   John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
   through me. (ESV)
@@ -28878,7 +28897,7 @@ to remembrance all the words of Jesus:
   John 14:26 - But the Helper, the Holy Spirit, whom the Father will send in my name, he will teach you all things
   and bring to your remembrance all that I have said to you.
 
-65.2.10. Jesus is God with us
+65.2.10. Jesus is Immanuel, God with us
 
   Matthew 1:18-25 - Now the birth of Jesus Christ took place in this way. When his mother Mary had been betrothed
   to Joseph, before they came together she was found to be with child from the Holy Spirit. And her husband
@@ -30422,7 +30441,8 @@ and with a different charge, Christ's law still applies:
   yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as
   transgressors. (ESV)
 
-Despite being born-again, we must sow our own life for Jesus' sake:
+Despite being born of water and the Spirit, we must commit to offering our entire life as a living sacrifice for
+God, to sow our own life for Jesus' sake:
 
   II Corinthians 5:17 - Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold,
   the new has come.
@@ -30960,11 +30980,17 @@ Doing the will of God is important for inheriting the kingdom of God:
   Matthew 25:23 - His master said to him, Well done, good and faithful servant. You have been faithful over a
   little; I will set you over much. Enter into the joy of your master. (ESV)
 
-Sigh.... For the record, as of <2024-06-13 Thu>, it still feels as though I'm being hit by witchcraft. The spirit
-spouse stuff has continued. It's only been a problem since the end of 2022, and I think its objective is to make
-me feel disqualified, but I know it's just demons/witchcraft and I'm resisting it to my best ability, including in
-my thoughts. Asides from that, I'll continue endeavouring to abide by Jesus' commandments, and I have a good
-conscience.
+Sigh.... For the record, as of <2024-06-13 Thu>, it still feels as though I'm being hit by witchcraft.
+
+The spirit spouse stuff has continued. It's only been a problem since the end of 2022, and I think its objective
+is to make me feel disqualified, but I know it's just demons/witchcraft and I'm resisting it to my best ability,
+including in my thoughts.
+
+Asides from that, I'll continue endeavouring to abide by Jesus' commandments, and I have a good conscience.
+
+I'm also experiencing a lot of testing, and positive interactions, and some encouragements from God, and I'm
+feeling like studying the Gospel of Jesus using the Bible is changing my life for the better, and I feel really
+confident having a much better perspective.
 
   Galatians 5:19-21 - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry,
   sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies,
@@ -30992,8 +31018,8 @@ I was spiritually bankrupt and I knew I needed God's help.
   were dead in our trespasses, made us alive together with Christ-by grace you have been saved- (ESV)
 
 Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. God's
-strength does not a guarantee that we will not suffer as a result of following Jesus. But God gives us the power
-at the time we need it to endure the suffering:
+strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the power at
+the time we need it to endure the suffering:
 
   Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
   every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
@@ -31393,7 +31419,7 @@ Date: 2024-06-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-21 Fri 13:15
+Created: 2024-06-21 Fri 14:15
 
 Validate
 
