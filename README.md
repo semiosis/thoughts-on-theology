@@ -296,8 +296,9 @@ While obedience exists in the heart, as belief does, as **faith is** <ins>believ
 
 Christianity is a relationship, like a marriage:
 
--   Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
+-   Acceptance comes at the beginning; Jesus gives us the benefit of the doubt. Just start serving Jesus
     -   We must still forgive and love our family in Christ. This isn't 'work', but it is obedience, and it is a required heart attitude
+    -   **Romans 14:18** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 -   It's not a merit-based religion
 -   We **must** have a response of love for Jesus
     -   **John 14:21** - <ins>Whoever has my commandments and keeps them, he it is who loves me.</ins> And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -4102,7 +4103,7 @@ We should use the Word of God to come against even arguments and opinions which 
 
 > **II Corinthians 10:2-6** - I beg of you that when I am present I may not have to show boldness with such confidence as I count on showing against some who suspect us of walking according to the flesh. For though we walk in the flesh, we are not waging war according to the flesh. For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. <ins>We destroy arguments and every lofty opinion raised against the</ins> **knowledge of God**, and **take every thought captive to obey Christ**, being <ins>ready to punish every disobedience, when your obedience is complete</ins>. (ESV)
 
-"<sub>ready</sub> to punish every disobedience, when your obedience is complete\_" means to even be ready to come against slip-ups.
+<ins>"ready to punish every disobedience, when your obedience is complete"</ins> I think means to even be ready to come against slip-ups.
 
 > **Proverbs 16:32** - Whoever is slow to anger is better than the mighty, and <ins>he who rules his spirit</ins> than he who takes a city. (ESV)
 
@@ -10387,7 +10388,7 @@ God's commandments through Jesus is within the Law of God. Faith in Jesus is how
 
 Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism):
 
-> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye salted in Him, lest any one among you should be corrupted, since by your savour ye shall be convicted. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 I read the following as, as we have faith in Jesus, following Him, where we have fallen short, Jesus has covered us, but we still try to live righteously. We still live with faith in God.
 
@@ -10502,7 +10503,7 @@ We may abide in Jesus' love by keeping His commandments, and we may abide in Fat
 
 ### Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism)
 
-> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye salted in Him, lest any one among you should be corrupted, since by your savour ye shall be convicted. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 
 ### Jesus' commandments don't contradict the rest of the commandments
@@ -17549,11 +17550,17 @@ We should be able to see the transformation described in the sermon of the mount
 
 &#x2014;
 
-> **Matthew 5:11-13** - Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet. (ESV)
+> **Matthew 5:11-13** - Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the **salt of the earth**, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet. (ESV)
 
 -   **<ins>Condition:</ins> If people revile and persecute you for Jesus' sake and your faith in Him:** <ins>Promise:</ins> The Son of Man (Jesus) will reward you in Heaven and the reward will be great
 
 -   **Song:** [youtube.com: I Asked The Lord - Indelible Grace](https://www.youtube.com/watch?v=0cnEDUMfPXs&list=RD0cnEDUMfPXs&start_radio=1)
+
+The "salt of the earth" are the disciples of Jesus.
+
+> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+
+> **Matthew 11:6** - And blessed is the one who is not offended by me. (ESV)
 
 &#x2014;
 
@@ -18221,7 +18228,7 @@ Our heavenly inheritance is imperishable!
 
 ### The fiery trial and the rapture being contemporaneous
 
-So long as I'm in the fiery trial I am currently in, will expect rapture as though it were imminent. Come lord Jesus!
+So long as I'm in the fiery trial I am currently in, will expect rapture as though it were imminent. Come, Lord Jesus!
 
 > **Revelation of John 22:20** - He who testifies to these things says, Surely I am coming soon. Amen. Come, Lord Jesus! (ESV)
 
@@ -18479,7 +18486,7 @@ Come and follow Jesus and allow Him to make you into a fisher of men:
 
 Rejoice when you're persecuted in Jesus' name:
 
-> **Matthew 5:11-13** - Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet. (ESV)
+> **Matthew 5:11-13** - Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the **salt of the earth**, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet. (ESV)
 
 Let your light shine before all people:
 
@@ -18701,7 +18708,7 @@ The words Jesus Christ spoke were **altogether** a commandment of eternal life w
 
 ### Rejoice when persecuted, and slandered on Jesus' account
 
-> **Matthew 5:11-13** - Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the salt of the earth, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet. (ESV)
+> **Matthew 5:11-13** - Blessed are you when others revile you and persecute you and utter all kinds of evil against you falsely on my account. Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. You are the **salt of the earth**, but if salt has lost its taste, how shall its saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's feet. (ESV)
 
 Following Jesus:
 

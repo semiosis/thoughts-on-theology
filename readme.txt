@@ -409,9 +409,10 @@ John Lennox - How Christianity Is Different From Every Religion - YouTube
 
 Christianity is a relationship, like a marriage:
 
-- Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
+- Acceptance comes at the beginning; Jesus gives us the benefit of the doubt. Just start serving Jesus
 - We must still forgive and love our family in Christ. This isn't 'work', but it is obedience, and it is a
 required heart attitude
+- Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 - It's not a merit-based religion
 - We must have a response of love for Jesus
 - John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will
@@ -5849,8 +5850,8 @@ of God. Even our thoughts must be brought into obedience to Christ:
   knowledge of God, and take every thought captive to obey Christ, being ready to punish every disobedience, when
   your obedience is complete. (ESV)
 
-"[ready] to punish every disobedience, when your obedience is complete_" means to even be ready to come against
-slip-ups.
+"ready to punish every disobedience, when your obedience is complete" I think means to even be ready to come
+against slip-ups.
 
   Proverbs 16:32 - Whoever is slow to anger is better than the mighty, and he who rules his spirit than he who
   takes a city. (ESV)
@@ -24882,6 +24883,18 @@ Promise: The Son of Man (Jesus) will reward you in Heaven and the reward will be
 Song
 youtube.com: I Asked The Lord - Indelible Grace
 
+The "salt of the earth" are the disciples of Jesus.
+
+  Ignatius to the Magnesians 10 - Let us not, therefore, be insensible to His kindness. For were He to reward us
+  according to our works, we should cease to be. Therefore, having become His disciples, let us learn to live
+  according to the principles of Christianity. For whosoever is called by any other name besides this, is not of
+  God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is
+  Jesus Christ. Be ye salted in Him, lest any one among you should be corrupted, since by your savour ye shall be
+  convicted. It is absurd to profess Christ Jesus, and to Judaize. For Christianity did not embrace Judaism, but
+  Judaism Christianity, that so every tongue which believeth might be gathered together to God.
+
+  Matthew 11:6 - And blessed is the one who is not offended by me. (ESV)
+
 -
 
   Matthew 7:7 - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you.
@@ -25768,7 +25781,7 @@ Our heavenly inheritance is imperishable!
 
 59.2.1. The fiery trial and the rapture being contemporaneous
 
-So long as I'm in the fiery trial I am currently in, will expect rapture as though it were imminent. Come lord
+So long as I'm in the fiery trial I am currently in, will expect rapture as though it were imminent. Come, Lord
 Jesus!
 
   Revelation of John 22:20 - He who testifies to these things says, Surely I am coming soon. Amen. Come, Lord
@@ -31469,7 +31482,7 @@ Date: 2024-06-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-21 Fri 17:43
+Created: 2024-06-21 Fri 18:06
 
 Validate
 
