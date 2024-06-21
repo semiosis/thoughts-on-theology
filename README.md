@@ -5246,6 +5246,8 @@ We must obey! This obedience is being led by the Spirit.
     
     > **Philippians 3:2-3** - Look out for the dogs, look out for the evildoers, look out for those who mutilate the flesh. For we are the real circumcision, who worship by the Spirit of God and glory in Christ Jesus and put no confidence in the flesh— (ESV)
     
+    > **Hebrews 12:28-29** - Therefore let us be grateful for receiving a kingdom that cannot be shaken, and thus let us offer to God acceptable worship, with reverence and awe, for our God is a consuming fire. (ESV)
+    
     Paul says that pursuing the righteousness that is by Mosaic law, is placing confidence in the flesh:
     
     > **Philippians 3:4-7** - though I myself have reason for confidence in the flesh also. If anyone else thinks he has reason for confidence in the flesh, I have more: circumcised on the eighth day, of the people of Israel, of the tribe of Benjamin, a Hebrew of Hebrews; as to the law, a Pharisee; as to zeal, a persecutor of the church; as to righteousness, under the law blameless. But whatever gain I had, I counted as loss for the sake of Christ. (ESV)
@@ -20800,6 +20802,10 @@ As Jesus came in His Father's name, and spoke His Father's words,
 
 > **John 14:26** - But the Helper, **the Holy Spirit**, whom the Father will send in my name, <ins>he</ins> will teach you all things and bring to your remembrance all that I have said to you.
 
+The following verse was brought to my mind as I was sleeping:
+
+> **I John 4:19** - We love <ins>because he first loved us.</ins> (ESV)
+
 
 ### Jesus is Immanuel, God with us
 
@@ -22386,6 +22392,8 @@ By God's grace I've been set free from sin, and brought into a relationship with
 
 -   **Sermon:** [His Voice in Yours: How Christ Wins the World - YouTube](https://www.youtube.com/watch?v=fYJ1oFqSgv4)
 
+> **Revelation of John 14:7** - And he said with a loud voice, **Fear God and give him glory**, because the hour of his judgment has come, and worship him who made heaven and earth, the sea and the springs of water. (ESV)
+
 > **Matthew 13:45-52** - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down and sorted the good into containers but threw away the bad. So it will be at the close of the age. <ins>The angels will come out and separate the evil from the righteous and throw them into the fiery furnace.</ins> In that place there will be weeping and gnashing of teeth. Have you understood all these things? They said to him, Yes. And he said to them, Therefore every scribe who has been trained for the kingdom of heaven is like a master of a house, who brings out of his treasure what is new and what is old.
 
 God is not saving Lucifer/Satan/the devil or his demons/devils. They're all going to hell forever. Amen to that:
@@ -22493,9 +22501,6 @@ It should be:
 -   In obedience to the Word of God
 -   Working in the power of **the Holy Spirit**
 
--   **Medley:** [youtube.com: God And God Alone {Gospel Medley}](https://www.youtube.com/watch?v=yN1RZBxXX_I)
--   **Medley:** [youtube.com: Holy Are You Lord Medley | Jesus Image](https://www.youtube.com/watch?v=8xs_wiKWZuc)
-
 <table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
@@ -22519,6 +22524,9 @@ It should be:
 </tbody>
 </table>
 
+-   **Medley:** [youtube.com: God And God Alone {Gospel Medley}](https://www.youtube.com/watch?v=yN1RZBxXX_I)
+-   **Medley:** [youtube.com: Holy Are You Lord Medley | Jesus Image](https://www.youtube.com/watch?v=8xs_wiKWZuc)
+-   **Song:** [youtube.com: All Honor {Consuming Fire} | Jesus Image](https://www.youtube.com/watch?v=DeHWWK3Vmnk)
 -   **Song:** [youtube.com: Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship](https://www.youtube.com/watch?v=f2oxGYpuLkw)
 
 > **Isaiah 64:4** - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts for those who wait for him. (ESV)

@@ -7561,6 +7561,9 @@ We worship God by the Spirit, following Jesus, not the flesh:
   flesh. For we are the real circumcision, who worship by the Spirit of God and glory in Christ Jesus and put
   no confidence in the flesh- (ESV)
 
+  Hebrews 12:28-29 - Therefore let us be grateful for receiving a kingdom that cannot be shaken, and thus let
+  us offer to God acceptable worship, with reverence and awe, for our God is a consuming fire. (ESV)
+
 Paul says that pursuing the righteousness that is by Mosaic law, is placing confidence in the flesh:
 
   Philippians 3:4-7 - though I myself have reason for confidence in the flesh also. If anyone else thinks he
@@ -28904,6 +28907,10 @@ to remembrance all the words of Jesus:
   John 14:26 - But the Helper, the Holy Spirit, whom the Father will send in my name, he will teach you all things
   and bring to your remembrance all that I have said to you.
 
+The following verse was brought to my mind as I was sleeping:
+
+  I John 4:19 - We love because he first loved us. (ESV)
+
 65.2.10. Jesus is Immanuel, God with us
 
   Matthew 1:18-25 - Now the birth of Jesus Christ took place in this way. When his mother Mary had been betrothed
@@ -31172,6 +31179,9 @@ now.
 Sermon
 His Voice in Yours: How Christ Wins the World - YouTube
 
+  Revelation of John 14:7 - And he said with a loud voice, Fear God and give him glory, because the hour of his
+  judgment has come, and worship him who made heaven and earth, the sea and the springs of water. (ESV)
+
   Matthew 13:45-52 - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one
   pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net
   that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down
@@ -31335,8 +31345,6 @@ It should be:
 - For God's Glory. Amen. All glory to God, not to me
 - In obedience to the Word of God
 - Working in the power of the Holy Spirit
-- youtube.com: God And God Alone {Gospel Medley}
-- youtube.com: Holy Are You Lord Medley | Jesus Image
 
 
 God's telephone number                                        The password
@@ -31345,6 +31353,15 @@ Jeremiah 33:3 - Call to me and I will answer you, and      Psalms 100:4 - Enter 
 will tell you great and hidden things that you have not    his courts with praise! Give thanks to him; bless his
 known. (ESV)                                               name! (ESV)
 
+
+Medley
+youtube.com: God And God Alone {Gospel Medley}
+
+Medley
+youtube.com: Holy Are You Lord Medley | Jesus Image
+
+Song
+youtube.com: All Honor {Consuming Fire} | Jesus Image
 
 Song
 youtube.com: Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship
@@ -31426,7 +31443,7 @@ Date: 2024-06-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-21 Fri 14:21
+Created: 2024-06-21 Fri 15:15
 
 Validate
 
