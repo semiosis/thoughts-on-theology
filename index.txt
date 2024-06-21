@@ -60,7 +60,7 @@ loved us and forgive us first
   that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies
   ahead, (ESV)
 
-It's perfect self-humbling obedience without committing sin which only Jesus Christ managed to reach, was able to
+It's perfect self-humbling obedience throughout His sinless life that only Jesus Christ has reached, was able to
 reach and was destined to reach:
 
   Philippians 2:8 - And being found in human form, he humbled himself by becoming obedient to the point of death,
@@ -681,6 +681,9 @@ Belief (in the heart) that Jesus is the Son of God leads to:
   the world-our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of
   God? (ESV)
 
+Song
+youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}
+
 3.1. Experiential heart belief through obedience
 
 If you want to really get to know someone then you would learn to walk in their footsteps. Belief must arrive in
@@ -1108,7 +1111,8 @@ Like the:
 
 - Israelites walking through the Red Sea, or
 - Noah building the ark, or
-- The lame man standing up to be healed
+- The lame man standing up to be healed, or
+- Peter allowing Jesus to wash his feet
 
 Obedience to the gospel leads to eternal salvation. I believe obedience should arrive at belief, and belief should
 yield obedience, and knowledge.
@@ -31389,7 +31393,7 @@ Date: 2024-06-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-21 Fri 12:15
+Created: 2024-06-21 Fri 13:15
 
 Validate
 

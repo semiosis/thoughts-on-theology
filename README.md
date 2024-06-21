@@ -41,7 +41,7 @@ Because God loved us first:
 
 > **Philippians 3:9-13** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
-It's <ins>perfect</ins> self-humbling obedience without committing sin which only Jesus Christ managed to reach, was able to reach and was destined to reach:
+It's <ins>perfect</ins> self-humbling obedience throughout His sinless life that only Jesus Christ has reached, was able to reach and was destined to reach:
 
 > **Philippians 2:8** - And being found in human form, <ins>he **humbled himself** by becoming **obedient** to the point of death, even death on a cross.</ins> (ESV)
 
@@ -464,6 +464,8 @@ Belief (in the heart) that Jesus is the Son of God leads to:
 
 > **I John 5:3-5** - For this is the love of God, that **we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world.** And this is the victory that has overcome the world—our faith. **Who is it that overcomes the world except the one who believes that Jesus is the Son of God?** (ESV)
 
+-   **Song:** [youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}](https://www.youtube.com/watch?v=Z32HiCoFzlU&list=RD0cnEDUMfPXs&index=4)
+
 
 ## Experiential heart belief through obedience
 
@@ -750,7 +752,8 @@ Like the:
 
 -   Israelites walking through the Red Sea, or
 -   Noah building the ark, or
--   The lame man standing up to be healed
+-   The lame man standing up to be healed, or
+-   Peter allowing Jesus to wash his feet
 
 Obedience to the gospel leads to eternal salvation. I believe obedience should arrive at belief, and belief should yield obedience, and **knowledge**.
 
