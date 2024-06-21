@@ -1604,13 +1604,19 @@ Walk as an imitator of Christ:
 
   I Corinthians 11:1 - Be imitators of me, as I am of Christ. (ESV)
 
-Do not be an enemy of the cross of Christ, imitate Christ:
+Do not be an enemy of the cross of Christ, submit to the righteousness of God - we needed Jehovah God, Father of
+Jesus Christ, to pay for our sin - and we must imitate Christ, passing forward Christ's love and forgiving as we
+have been forgiven, and repenting from sin:
 
   Hebrews 13:7 - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way
   of life, and imitate their faith. (ESV)
 
   III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
   has not seen God. (ESV)
+
+  Jude 1:4 - For certain people have crept in unnoticed who long ago were designated for this condemnation,
+  ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus
+  Christ. (ESV)
 
 3.13.2. We are saved by grace through faith in Jesus Christ
 
@@ -31228,7 +31234,9 @@ Walk as an imitator of Christ:
 
   I Corinthians 11:1 - Be imitators of me, as I am of Christ. (ESV)
 
-Do not be an enemy of the cross of Christ, imitate Christ:
+Do not be an enemy of the cross of Christ, submit to the righteousness of God - we needed Jehovah God, Father of
+Jesus Christ, to pay for our sin - and we must imitate Christ, passing forward Christ's love and forgiving as we
+have been forgiven, and repenting from sin:
 
   Hebrews 13:7 - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way
   of life, and imitate their faith. (ESV)
@@ -31381,7 +31389,7 @@ Date: 2024-06-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-21 Fri 12:07
+Created: 2024-06-21 Fri 12:15
 
 Validate
 
