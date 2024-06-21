@@ -156,7 +156,7 @@ Jesus will serve His servants who are awake:
     12  5 Eph. 2:1,5
     13  6 Titus 3:3–5; John 6:44
 
-I don't **entirely** agree with this paragraph saying all ability of will is lost. But I do believe that without God's assistance in drawing us to Jesus, it is impossible for us to be saved.
+I don't **entirely** agree with this paragraph saying all ability of will is lost (I could be wrong). But I do believe that without God's assistance in drawing us to Jesus, it is impossible for us to be saved.
 
 > **Isaiah 1:19** - If you are willing and obedient, you shall eat the good of the land; (ESV)
 
@@ -1021,6 +1021,10 @@ Eternal life is given to anyone who believes in Him. I guess there are simply [s
 
 > **John 6:47** - Truly, truly, I say to you, whoever believes has eternal life. (ESV)
 
+God commanded eternal life for those who believe: God's word never comes back void:
+
+> **Isaiah 55:11** - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
+
 In this current time (world) we may receive more than we lose for the sake of the kingdom, and eternal life is also received in the age to come:
 
 > **Luke 18:29-30** - And he said to them, Truly, I say to you, there is no one who has left house or wife or brothers or parents or children, for the sake of the kingdom of God, who will not receive many times more in this time, and **in the age to come eternal life**. (ESV)
@@ -1029,16 +1033,45 @@ I do not affirm all religions. But I affirm **Romans 10:9**. I affirm that indiv
 
 > **Romans 10:9** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
 
+Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
+
+From our perspective it may look like things are **still being brought into subjection to Him**:
+
+> **Ephesians 1:22** - And he put all things under his feet and gave him as head over all things to the church,
+
+> **Hebrews 2:5-8** - Now it was not to angels that God subjected the world to come, of which we are speaking. It has been testified somewhere, What is man, that you are mindful of him, or the son of man, that you care for him? You made him for a little while lower than the angels; you have crowned him with glory and honor, putting everything in subjection under his feet. Now in putting **everything in subjection to him**, <ins>he left nothing outside his control</ins>. At present, we do not yet see everything in subjection to him.
+
+Everything is put in subjection under Jesus and in subjection under Father God:
+
+> **I Corinthians 15:24-28** - Then comes the end, when he delivers the kingdom to God the Father after destroying every rule and every authority and power. For he must reign until he has put **all his enemies under his feet. The last enemy to be destroyed is death.** For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all.
+
+Including our own mortal bodies!
+
+> **Philippians 3:21** - who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. (ESV)
+
 Consider that in truthfully confessing that Jesus is Lord, that person has faith **in** Jesus,
 and in believing in their heart that God raised Him from the dead,
 that person has faith **in** God even in the matter that Jesus was resurrected, even for our justification.
 So it's faith not only in the finished work of Christ on the cross, but faith in Jesus Himself.
+
 That's important in my opinion because we must trust Jesus Himself to follow Him, to love Him, to keep His words,
 to keep His commandments, to keep our eyes on Him, to abide by His teaching.
 
 And out of the heart should flow rivers of living water. Now that re-emphasises that belief should be in the heart:
 
 > **John 7:38** - Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of living water. (ESV)
+
+Walk as an imitator of Christ:
+
+> **Philippians 3:17-18** - Brothers, join in imitating me, and keep your eyes on those who walk according to the example you have in us. For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
+
+> **I Corinthians 11:1** - Be imitators of me, as I am of Christ. (ESV)
+
+Do not be an enemy of the cross of Christ, imitate Christ:
+
+> **Hebrews 13:7** - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way of life, and imitate their faith. (ESV)
+
+> **III John 1:11** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
 
 
 ### We are saved by grace through faith in Jesus Christ
@@ -11626,7 +11659,7 @@ Submitting to the righteousness that comes through having faith in Jesus is beli
     
     Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
     
-    From our perspective it may look like things are still being brought into subjection to Him:
+    From our perspective it may look like things are **still being brought into subjection to Him**:
     
     > **John 16:33** - I have said these things to you, that in me you may have peace.  In the world you will have tribulation.  But take heart; I have overcome the world.  (ESV)
     
@@ -11668,7 +11701,7 @@ Submitting to the righteousness that comes through having faith in Jesus is beli
     
     Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
     
-    From our perspective it may look like things are still being brought into subjection to Him:
+    From our perspective it may look like things are **still being brought into subjection to Him**:
     
     > **Ephesians 1:22** - And he put all things under his feet and gave him as head over all things to the church,
     
@@ -11676,7 +11709,7 @@ Submitting to the righteousness that comes through having faith in Jesus is beli
     
     Everything is put in subjection under Jesus and in subjection under Father God:
     
-    > **I Corinthians 15:24-28** - Then comes the end, when he delivers the kingdom to God the Father after destroying every rule and every authority and power. For he must reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all.
+    > **I Corinthians 15:24-28** - Then comes the end, when he delivers the kingdom to God the Father after destroying every rule and every authority and power. For he must reign until he has put **all his enemies under his feet. The last enemy to be destroyed is death.** For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all.
     
     -   **Song:** [Victor's Crown - Darlene Zschech {Official Live Video} - YouTube](https://www.youtube.com/watch?v=_2nBOGA6X2g&list=RDurnl_qYQ9l0&index=3)
 
