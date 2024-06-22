@@ -720,7 +720,51 @@ sufferings, living has He lived) and His resurrection:
   Acts 19:4 - And Paul said, John baptized with the baptism of repentance, telling the people to believe in the
   one who was to come after him, that is, Jesus. (ESV)
 
-3.3. A person who is really believing in Jesus will do the works of Jesus - they'll produce good works
+3.3. Born of God
+
+I think being born of God might in some way mean being born of the will of God:
+
+  John 1:13 - who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+Someone who has just been born of God is a newborn, an infant in Christ.
+
+3.3.1. Peter initially protested, but then came to trust Jesus and have a "share with Jesus"
+
+  John 13:6-9 - He came to Simon Peter, who said to him, Lord, do you wash my feet? Jesus answered him, What I am
+  doing you do not understand now, but afterward you will understand. Peter said to him, You shall never wash my
+  feet. Jesus answered him, If I do not wash you, you have no share with me. Simon Peter said to him, Lord, not my
+  feet only but also my hands and my head! (ESV)
+
+3.3.2. Jesus created disciples of Himself
+
+We must turn to obedience to Jesus and loving with Christ's love to come to know Him:
+
+  John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
+  them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
+  If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have
+  given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant
+  is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
+
+  John 13:34-35 - A new commandment I give to you, that you love one another: just as I have loved you, you also
+  are to love one another. By this all people will know that you are my disciples, if you have love for one
+  another. (ESV)
+
+3.3.3. Everyone who is actively and actually believing that Jesus is the Christ has been born of God
+
+  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. (ESV)
+
+3.3.4. Whoever loves with Christ's love has been born of God and knows God
+
+  I John 4:6-12 - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us.
+  By this we know the Spirit of truth and the spirit of error. Beloved, let us love one another, for love is from
+  God, and whoever loves has been born of God and knows God. Anyone who does not love does not know God, because
+  God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so
+  that we might live through him. In this is love, not that we have loved God but that he loved us and sent his
+  Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. No one
+  has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
+
+3.4. A person who is really believing in Jesus will do the works of Jesus - they'll produce good works
 
 This doesn't necessarily mean that obedience is nonexistent before good works, as believing in Jesus is obedience,
 and repentance is obedience and these things are not good works. It is obedient to end (turn away from) the bad
@@ -733,13 +777,6 @@ But repentance and belief should result in good works (serving the living God):
 
   Hebrews 9:14 - how much more will the blood of Christ, who through the eternal Spirit offered himself without
   blemish to God, purify our conscience from dead works to serve the living God. (ESV)
-
-3.4. Everyone who is actively and actually believing that Jesus is the Christ has been born of God
-
-But we must turn to obedience to Jesus and loving with Christ's love to come to know Him:
-
-  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
-  Father loves whoever has been born of him. (ESV)
 
 3.4.1. Receiving the inheritance naturally comes after hearing the word of truth and believing in Jesus
 
@@ -29462,7 +29499,8 @@ flesh. Jesus is the Word
 
 Jesus, by His own authority, rose from the dead. AMEN!!
 
-Message To All Christians - YouTube @time: 2 min 54 sec
+Sermon
+youtube.com: Message To All Christians @time: 2 min 54 sec
 
   John 10:17-18 - For this reason the Father loves me, because I lay down my life that I may take it up again. No
   one takes it from me, but I lay it down of my own accord. I have authority to lay it down, and I have authority
@@ -30600,7 +30638,9 @@ I actually don't think it was a delusion though. I actually think it's the truth
   never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will
   pass away. (ESV)
 
-We are commanded to love our wives the way Jesus did. -
+We are commanded to love our wives the way Jesus did:
+
+Read
 https://omny.fm/shows/today/questions-to-ask-before-you-marry-1-12-june-2024
 
   Ephesians 5:25-27 - Husbands, love your wives, as Christ loved the church and gave himself up for her, that he
@@ -30790,9 +30830,8 @@ We can still ask for more grace when we are in need:
   Hebrews 4:16 - Let us then with confidence draw near to the throne of grace, that we may receive mercy and find
   grace to help in time of need. (ESV)
 
-Consider St Polycarp:
-
-- en.wikipedia.org: Polycarp - Wikipedia
+Consider St Polycarp
+en.wikipedia.org: Polycarp - Wikipedia
 
 I had to sacrifice the marriage proposal I made being born again in order to not put her in first place, and also
 to abide by Christ's law because selfish agape is no agape at all and love comes from God, and it's because God
@@ -30846,7 +30885,6 @@ spirits:
   Romans 6:11 - So you also must consider yourselves dead to sin and alive to God in Christ Jesus. (ESV)
 
 Song
-
 youtube.com: Worthy | Live | Elevation Worship
 
 I wont allow myself to be buried in condemnation by other people or by the enemy. Rather, I'll just use this as an
@@ -31555,7 +31593,7 @@ Date: 2024-06-22 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-22 Sat 17:20
+Created: 2024-06-22 Sat 19:39
 
 Validate
 
