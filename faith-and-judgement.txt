@@ -2435,6 +2435,9 @@ God who is working in us, transforming us, sanctifying us, restoring us:
 
   Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
+Song
+youtube.com: Yet Not I, But Through Christ In Me - Selah ~ 1 Hour Lyric Video
+
 We serve Christ:
 
   Matthew 25:40 - And the King will answer them, Truly, I say to you, as you did it to one of the least of these
@@ -30115,6 +30118,15 @@ Paul commends giving even beyond their means. This is in accordance with the wid
   their own free will, begging us earnestly for the favor of taking part in the relief of the saints- and this,
   not as we expected, but they gave themselves first to the Lord and then by the will of God to us. (ESV)
 
+Give as you have made up in your mind, not reluctantly or under compulsion, but resist other people deterring you
+from giving when your heart convicts you it's the right thing to do as far as obeying Jesus goes:
+
+  II Corinthians 9:6-9 - The point is this: whoever sows sparingly will also reap sparingly, and whoever sows
+  bountifully will also reap bountifully. Each one must give as he has made up his mind, not reluctantly or under
+  compulsion, for God loves a cheerful giver. And God is able to make all grace abound to you, so that having all
+  sufficiency in all things at all times, you may abound in every good work. As it is written, He has distributed
+  freely, he has given to the poor; his righteousness endures forever. (ESV)
+
 71.6. Do the good works which have been gifted to you
 
 Our works have been gifted to us by God's grace - works of deed and word:
@@ -31106,8 +31118,11 @@ I claim to be an obedient child of God - trusting in Jesus and responsive to the
 and follow the law of God in my mind, and I actually try very hard to not be conformed to sinful lusts - and I
 though I was quite successful in doing in advance of my trial, but it's just so difficult to live properly now
 because of such intense persecution in this world - physical and spiritual, inside and outside of church, so I'm
-complaining to God and saying it has been far too difficult. I will still try aim to put that stuff to death and
-to be holy in all my conduct:
+complaining to God and saying it has been far too difficult.
+
+  Psalms 142:2 - I pour out my complaint before him; I tell my trouble before him. (ESV)
+
+I will still try aim to put that stuff to death and to be holy in all my conduct:
 
   I Peter 1:14-19 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
   who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
@@ -31168,6 +31183,13 @@ I know my family in Christ also experience the same kind of suffering / spiritua
 
 Song
 youtube.com: Elvis Presley - Help me {With Lyrics}
+
+Well this morning <2024-06-23 Sun> I dreamed of rebuking evil spirits in Jesus' name and I remember even willing
+in my heart as I was sleeping to rebuke them in Jehovah's name too, and I believe it was the Holy Spirit fighting
+for me as I was sleeping, and woke up after that. But I feel so encouraged when the Holy Spirit fights for me in
+my sleep. Also, after waking up I felt noticeably freed from the spirit spouse stuff - very encouraging. I was
+woken up by evil spirits again after that a couple more times this morning from memory, but I just put on some
+praise and worship music.
 
 72.11. In my helpless state I cried out to God for help, and He made me born-again of the spirit
 
@@ -31589,11 +31611,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-06-22 Sat 00:00
+Date: 2024-06-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-22 Sat 19:39
+Created: 2024-06-23 Sun 09:18
 
 Validate
 
