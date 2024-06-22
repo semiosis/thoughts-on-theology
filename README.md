@@ -977,6 +977,10 @@ Loving our neighbour as ourself should look like showing merciful love to those 
 
 > **Luke 10:29-37** - But he, desiring to justify himself, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, he had compassion. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, Take care of him, and whatever more you spend, I will repay you when I come back. <ins>Which of these three, do you think,</ins> **proved to be a neighbor** <ins>to the man who fell among the robbers?</ins> He said, <ins>The one who showed him mercy.</ins> And Jesus said to him, You go, and **do likewise.** (ESV)
 
+We should be loving our neighbour continually:
+
+> **John 13:1** - Now before the Feast of the Passover, when Jesus knew that his hour had come to depart out of this world to the Father, **having loved his own who were in the world, he loved them to the end.** (ESV)
+
 > **Mark 12:30-31** - And you shall love the Lord your God with all your heart and with all your soul and with all your mind and with all your strength. The second is this: You shall love your neighbor as yourself. There is no other commandment greater than these. (ESV)
 
 > **Mark 12:32-34** - And the scribe said to him, You are right, Teacher. You have truly said that he is one, and there is no other besides him. And to love him with all the heart and with all the understanding and with all the strength, and to love one's neighbor as oneself, is much more than all whole burnt offerings and sacrifices. And when Jesus saw that he answered wisely, he said to him, You are not far from the kingdom of God. And after that no one dared to ask him any more questions. (ESV)
@@ -4565,6 +4569,8 @@ We are implored to strive to follow Jesus to our best ability:
 
 ### The gospel has to be obeyed
 
+-   **Read:** [gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
+
 > **II Thessalonians 1:4-8** - Therefore we ourselves boast about you in the churches of God for your steadfastness and faith in all your persecutions and in the afflictions that you are enduring. This is evidence of the righteous judgment of God, that you may be considered worthy of the kingdom of God, for which you are also suffering— since indeed God considers it just to repay with affliction those who afflict you, and to grant relief to you who are afflicted as well as to us, when the Lord Jesus is revealed from heaven with his mighty angels in flaming fire, inflicting **vengeance on those who do not know God** and **on those who do not obey the gospel of our Lord Jesus**.
 
 > **I Peter 4:12-19** - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though something strange were happening to you. But rejoice insofar as you share Christ's sufferings, that you may also rejoice and be glad when his glory is revealed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory and of God rests upon you. But let none of you suffer as a murderer or a thief or an evildoer or as a meddler. Yet if anyone suffers as a Christian, let him not be ashamed, but let him glorify God in that name. <ins>For it is time for judgment to begin at the household of God; and if it begins with us, what will be the outcome for those who do not obey the gospel of God?</ins> And If the righteous is scarcely saved, what will become of the ungodly and the sinner? Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good.
@@ -4572,6 +4578,8 @@ We are implored to strive to follow Jesus to our best ability:
 Where there is perfect belief, I think there is perfect obedience:
 
 > **John 3:36** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+-   **[Bonhoeffer seems to have a very similar view](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/) to my own:** Though we are not saved by our works, Bonhoeffer believes that there is a great peril in ascribing “chronological distinctions” between belief (faith) and obedience as some often do. He believes that if we divorce the two (faith/obedience) we will inevitably overlook their essential unity to our detriment. **You cannot have one without the other.** Bonhoeffer says it like this, *“Only he who believes is obedient, and only he who is obedient believes.”*
 
 > **Matthew 5:44-45** - But I say to you, love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven; for He causes His sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous.
 
@@ -17259,7 +17267,7 @@ We have to learn the voice of God.
 The Holy Spirit train us to learn the voice of God.
 
 
-## Born of God
+## Born of Water and the Spirit
 
 When a person is born-again of the Spirit, they receive the Spirit which helps them to stop sinning and it's really important to do so.
 
@@ -21905,6 +21913,7 @@ Required to satisfy the "Christ's love" criteria I believe are:
 -   Be a servant; consider others more significant than yourself
 -   Seek to do not harm to your neighbour
 -   Bear one another's burdens without partiality
+-   We should endeavour to love not just on occasion, but at all times, continually, as Jesus did, and <ins>give our all</ins>
 
 Our first agape love has to be Jesus:
 
@@ -21929,6 +21938,10 @@ Because God loved us first:
 -   We must forgive as we have been forgiven
 
 > **Philippians 3:9-13** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
+
+We should be loving our neighbour continually:
+
+> **John 13:1** - Now before the Feast of the Passover, when Jesus knew that his hour had come to depart out of this world to the Father, **having loved his own who were in the world, he loved them to the end.** (ESV)
 
 
 ### Obedience to God and passing forward the love of Christ
