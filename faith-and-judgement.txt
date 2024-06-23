@@ -93,8 +93,8 @@ And they were put in Him by Him:
   our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life.
   (ESV)
 
-Us walking in faith is God working in us. God works in us to save us. Since trusting obedience to God is walking
-in faith, God works in us through faith. We believe and obey as God works in us, making our paths straight for us:
+When we walk in trusting, believing, obedient faith, God works in us and to deliver us and makes our paths
+straight for us:
 
   Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
   day of Jesus Christ. (ESV)
@@ -137,20 +137,6 @@ The followers of Paul the Apostle live by (walk by) faith; those are the righteo
   Galatians 3:11 - Now it is evident that no one is justified before God by the law, for The righteous shall live
   by faith. (ESV)
 
-I believe that becoming the righteousness of God is instantaneous when we believe but also cooperative as we live,
-submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash
-us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking
-in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk
-into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the
-righteousness that is by faith. I believe we have His righteousness because we are found in Him and He is our High
-Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we
-have His righteousness, because we are found in Him and are being perfected and sanctified like a branch getting
-healthier because it's connected to Jesus:
-
-  II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
-  righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
-  (ESV)
-
 The crown of life is gifted to those who are obedient, and have been tested. I think this verse can also be taken
 in the literal sense:
 
@@ -158,7 +144,7 @@ in the literal sense:
   prison, that you may be tested, and for ten days you will have tribulation. Be faithful unto death, and I will
   give you the crown of life. (ESV)
 
-Love for Jesus is based on obedient faith. Jesus will manifest to those who keeps His commandments:
+Jesus will manifest to those who keep His commandments:
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -2232,8 +2218,8 @@ We are commanded to be innocent, and to bear witness of Jesus before men who per
   describe it more of a
   my-willingness-to-work-serving-Christ-based-on-Jesus'-finished-works-and-God-working-in-me-based gospel.
 
-Us walking in faith is God working in us. God works in us to save us. Since trusting obedience to God is walking
-in faith, God works in us through faith. We believe and obey as God works in us, making our paths straight for us:
+When we walk in trusting, believing, obedient faith, God works in us and to deliver us and makes our paths
+straight for us:
 
   Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
   day of Jesus Christ. (ESV)
@@ -9239,7 +9225,7 @@ I think, that means that if a person loves (is obedient to) and has faith in Him
 
 11.1. We must live by faith - live by obedience to God!
 
-Love for Jesus is based on obedient faith. Jesus will manifest to those who keeps His commandments:
+Jesus will manifest to those who keep His commandments:
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -11625,8 +11611,8 @@ So when we obey Jesus' words and commandments, Jesus works in us:
   John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
   spirit and life. (ESV)
 
-Us walking in faith is God working in us. God works in us to save us. Since trusting obedience to God is walking
-in faith, God works in us through faith. We believe and obey as God works in us, making our paths straight for us:
+When we walk in trusting, believing, obedient faith, God works in us and to deliver us and makes our paths
+straight for us:
 
   Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
   day of Jesus Christ. (ESV)
@@ -14180,7 +14166,7 @@ God is the Gospel - YouTube @time: 40 min 42 sec
 Now faith in God is more than just believing, it's walking in that belief, and it's even obedience, and out of
 that obedience comes love.
 
-Love for Jesus is based on obedient faith. Jesus will manifest to those who keeps His commandments:
+Jesus will manifest to those who keep His commandments:
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -31836,7 +31822,7 @@ Date: 2024-06-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-23 Sun 17:36
+Created: 2024-06-23 Sun 17:47
 
 Validate
 
