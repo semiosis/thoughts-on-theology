@@ -93,6 +93,12 @@ And they were put in Him by Him:
   our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life.
   (ESV)
 
+Us walking in faith is God working in us. God works in us to save us. Since trusting obedience to God is walking
+in faith, God works in us through faith. We believe and obey as God works in us, making our paths straight for us:
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
+
 Sermon
 youtube.com: What Is It Like to 'Know Christ'?
 
@@ -131,14 +137,15 @@ The followers of Paul the Apostle live by (walk by) faith; those are the righteo
   Galatians 3:11 - Now it is evident that no one is justified before God by the law, for The righteous shall live
   by faith. (ESV)
 
-I believe that becoming the righteousness of God is cooperative on submitting to the righteousness of God (Jesus'
-righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in
-Jesus (a believing and obedient trust), following Jesus, walking in faith, and behaving as one of God's children,
-following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that
-walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His
-righteousness because we are found in Him and He is our High Priest and or Lord and King, and Saviour. Living by
-faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found in Him
-and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
+I believe that becoming the righteousness of God is instantaneous when we believe but also cooperative as we live,
+submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash
+us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking
+in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk
+into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the
+righteousness that is by faith. I believe we have His righteousness because we are found in Him and He is our High
+Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we
+have His righteousness, because we are found in Him and are being perfected and sanctified like a branch getting
+healthier because it's connected to Jesus:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
@@ -2225,7 +2232,8 @@ We are commanded to be innocent, and to bear witness of Jesus before men who per
   describe it more of a
   my-willingness-to-work-serving-Christ-based-on-Jesus'-finished-works-and-God-working-in-me-based gospel.
 
-God works in us to save us. Since trusting obedience to God is walking in faith, God works in us through faith:
+Us walking in faith is God working in us. God works in us to save us. Since trusting obedience to God is walking
+in faith, God works in us through faith. We believe and obey as God works in us, making our paths straight for us:
 
   Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
   day of Jesus Christ. (ESV)
@@ -5372,14 +5380,15 @@ God's will to receive it.
   Revelation of John 22:3 - No longer will there be anything accursed, but the throne of God and of the Lamb will
   be in it, and his servants will worship him. (ESV)
 
-I believe that becoming the righteousness of God is cooperative on submitting to the righteousness of God (Jesus'
-righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in
-Jesus (a believing and obedient trust), following Jesus, walking in faith, and behaving as one of God's children,
-following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that
-walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His
-righteousness because we are found in Him and He is our High Priest and or Lord and King, and Saviour. Living by
-faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found in Him
-and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
+I believe that becoming the righteousness of God is instantaneous when we believe but also cooperative as we live,
+submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash
+us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking
+in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk
+into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the
+righteousness that is by faith. I believe we have His righteousness because we are found in Him and He is our High
+Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we
+have His righteousness, because we are found in Him and are being perfected and sanctified like a branch getting
+healthier because it's connected to Jesus:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
@@ -10754,14 +10763,15 @@ Jesus has consecrated Himself.
 
 We are healed, corrected, sanctified by God's word.
 
-I believe that becoming the righteousness of God is cooperative on submitting to the righteousness of God (Jesus'
-righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in
-Jesus (a believing and obedient trust), following Jesus, walking in faith, and behaving as one of God's children,
-following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that
-walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His
-righteousness because we are found in Him and He is our High Priest and or Lord and King, and Saviour. Living by
-faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found in Him
-and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
+I believe that becoming the righteousness of God is instantaneous when we believe but also cooperative as we live,
+submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash
+us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking
+in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk
+into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the
+righteousness that is by faith. I believe we have His righteousness because we are found in Him and He is our High
+Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we
+have His righteousness, because we are found in Him and are being perfected and sanctified like a branch getting
+healthier because it's connected to Jesus:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
@@ -11502,14 +11512,15 @@ may be that this works like a blood transfusion, or a like Jesus' car battery re
 should be received by faith, faith which includes the belief of faith and the obedience of faith, such as
 obedience to the discipline of Christ, that should yield the peaceful fruit of righteousness.
 
-I believe that becoming the righteousness of God is cooperative on submitting to the righteousness of God (Jesus'
-righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in
-Jesus (a believing and obedient trust), following Jesus, walking in faith, and behaving as one of God's children,
-following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that
-walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His
-righteousness because we are found in Him and He is our High Priest and or Lord and King, and Saviour. Living by
-faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found in Him
-and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
+I believe that becoming the righteousness of God is instantaneous when we believe but also cooperative as we live,
+submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash
+us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking
+in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk
+into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the
+righteousness that is by faith. I believe we have His righteousness because we are found in Him and He is our High
+Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we
+have His righteousness, because we are found in Him and are being perfected and sanctified like a branch getting
+healthier because it's connected to Jesus:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
@@ -11614,7 +11625,8 @@ So when we obey Jesus' words and commandments, Jesus works in us:
   John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
   spirit and life. (ESV)
 
-God works in us to save us. Since trusting obedience to God is walking in faith, God works in us through faith:
+Us walking in faith is God working in us. God works in us to save us. Since trusting obedience to God is walking
+in faith, God works in us through faith. We believe and obey as God works in us, making our paths straight for us:
 
   Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
   day of Jesus Christ. (ESV)
@@ -17472,14 +17484,15 @@ Faith involves obedience. It's repentance from sin to the aligning of the heart 
 
 33.2. The faith itself may be a gift, but certainly is cooperative
 
-I believe that becoming the righteousness of God is cooperative on submitting to the righteousness of God (Jesus'
-righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in
-Jesus (a believing and obedient trust), following Jesus, walking in faith, and behaving as one of God's children,
-following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that
-walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His
-righteousness because we are found in Him and He is our High Priest and or Lord and King, and Saviour. Living by
-faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found in Him
-and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
+I believe that becoming the righteousness of God is instantaneous when we believe but also cooperative as we live,
+submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash
+us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking
+in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk
+into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the
+righteousness that is by faith. I believe we have His righteousness because we are found in Him and He is our High
+Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we
+have His righteousness, because we are found in Him and are being perfected and sanctified like a branch getting
+healthier because it's connected to Jesus:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
@@ -31823,7 +31836,7 @@ Date: 2024-06-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-23 Sun 17:27
+Created: 2024-06-23 Sun 17:36
 
 Validate
 
