@@ -11940,9 +11940,11 @@ And they will **know** the Truth.
 
 We must be thinking as a person of Heaven.
 
--   [youtube.com: Live Like You Belong in Heaven: [[https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV][Philippians 3:18-21](https://www.youtube.com/watch?v=psOxlnZCQQA), Part 7]]
+-   [youtube.com: Live Like You Belong in Heaven: Philippians 3:18-21, Part 7](https://www.youtube.com/watch?v=psOxlnZCQQA)
 
-> **[Philippians 3:18-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV)** - For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. Their end is destruction, their god is their belly, and they glory in their shame, with minds set on earthly things. But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. (ESV)
+> **[Philippians 3:18-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV)** - For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. Their end is destruction, their god is their belly, and they glory in their shame, with minds set on earthly things. But **our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself.** (ESV)
+
+> **Galatians 15:16-18** - Only let us hold true to what we have attained. Brothers, **join in imitating me, and keep your eyes on those who walk according to the example you have in us.** For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
 
 
 ## Pray for others to come into Jesus' Kingdom
