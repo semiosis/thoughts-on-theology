@@ -47,7 +47,7 @@ It's <ins>perfect</ins> self-humbling obedience throughout His sinless life as H
 
 > **[I Corinthians 15:45](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A45&version=ESV)** - Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. (ESV)
 
-We abide in Jesus when He washes us:
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
@@ -712,7 +712,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
 
 > **[I Corinthians 2:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A14&version=ESV)** - The natural person does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned. (ESV)
 
-> **[John 3:3-5](https://www.biblegateway.com/passage/?search=John%203%3A3-5&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God.  Nicodemus said to him, How can a man be born when he is old?  Can he enter a second time into his mother's womb and be born?  Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
+> **[John 3:3-5](https://www.biblegateway.com/passage/?search=John%203%3A3-5&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old?  Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
 
 
 ### The Holy Spirit may teach us even before He is **in** us, by helping us as He dwells **with** us
@@ -2306,7 +2306,7 @@ Yes, I believe that Jesus can save a person who believes in His name. But He is 
 
 > **[Revelation of John 3:8](https://www.biblegateway.com/passage/?search=Revelation%203%3A8&version=ESV)** - I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that <ins>you have but little power, and yet you have kept my word and have not denied my name.</ins>
 
-We abide in Jesus when He washes us:
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
@@ -7729,7 +7729,7 @@ Having believed in Jesus, having begun to trust in Jesus, we have become obedien
 
 > **[John 13:6-7](https://www.biblegateway.com/passage/?search=John%2013%3A6-7&version=ESV)** - He came to Simon Peter, who said to him, Lord, do you wash my feet? Jesus answered him, What I am doing you do not understand now, but afterward you will understand. (ESV)
 
-We abide in Jesus when He washes us:
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
@@ -11537,7 +11537,7 @@ As servants of Jesus, we should encourage other servants of Jesus to maturity:
 
 ## Being washed and washing one another
 
-We abide in Jesus when He washes us:
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
@@ -13582,7 +13582,7 @@ We must do good, and behave like the children of God, or we will not enter the K
 
 ### Trust Jesus like a child trusts their parents
 
-We abide in Jesus when He washes us:
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
@@ -13626,7 +13626,7 @@ Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
 ### We must be born-again
 
-> **[John 3:3-5](https://www.biblegateway.com/passage/?search=John%203%3A3-5&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God.  Nicodemus said to him, How can a man be born when he is old?  Can he enter a second time into his mother's womb and be born?  Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
+> **[John 3:3-5](https://www.biblegateway.com/passage/?search=John%203%3A3-5&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old?  Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
 
 > **[John 1:12](https://www.biblegateway.com/passage/?search=John%201%3A12&version=ESV)** - But to all who did receive him, who believed in his name, he gave the right to become children of God, (ESV)
 
@@ -13639,12 +13639,34 @@ It is the sovereign work of God to make someone born-again of the Spirit, but th
 > **[John 1:11-13](https://www.biblegateway.com/passage/?search=John%201%3A11-13&version=ESV)** - He came to His own, and those who were His own did not receive Him. But <ins>as many as received Him, to them He gave the right to become children of God, even to those who believe (G4100 **pisteuo**) in His name</ins>, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God.
 
 
+### We must be born of God
+
+I think being born of God might in some way mean being born of *the will of* God:
+
+> **[John 1:13](https://www.biblegateway.com/passage/?search=John%201%3A13&version=ESV)** - who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+
+### We must be able to discern the will of God, and want to do it
+
+> **[Romans 12:2](https://www.biblegateway.com/passage/?search=Romans%2012%3A2&version=ESV)** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
+
+> **[Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew%206%3A10&version=ESV)** - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
+
+
 ### We must do the will of God
+
+Jesus has to be your Lord in reality, i.e. doing Father God's will:
 
 > **[Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew%207%3A21&version=ESV)** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
 
+We must be **doing** the will of God to not be under the law:
 
-### We must accept it as a child
+> **[Psalms 143:10](https://www.biblegateway.com/passage/?search=Psalms%20143%3A10&version=ESV)** - <ins>Teach me to do your will,</ins> for you are my God! **Let your good Spirit lead me** on level ground! (ESV)
+
+> **[I John 2:17](https://www.biblegateway.com/passage/?search=1%20John%202%3A17&version=ESV)** - And the world is passing away along with its desires, but whoever does the <ins>will of God</ins> abides forever.
+
+
+### We must accept it as a child, and as a child of Father God
 
 > **[Matthew 18:3](https://www.biblegateway.com/passage/?search=Matthew%2018%3A3&version=ESV)** - and said, Truly, I say to you, unless you turn and become like children, you will never enter the kingdom of heaven.
 
@@ -13658,9 +13680,34 @@ It is the sovereign work of God to make someone born-again of the Spirit, but th
 > **[Luke 18:24-25](https://www.biblegateway.com/passage/?search=Luke%2018%3A24-25&version=ESV)** - Jesus, looking at him with sadness, said, How difficult it is for those who have wealth to enter the kingdom of God! For it is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. (ESV)
 
 
-### We must have faith in Jesus
+### Even doing good and put to silence the ignorance of foolish people is the will of God
+
+Even doing good is important for entering the kingdom of heaven:
+
+> **[I Peter 2:15](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A15&version=ESV)** - For this is the will of God, that by doing good you should put to silence the ignorance of foolish people.
+
+> **[Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew%207%3A21&version=ESV)** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
+
+
+### We must abide in Jesus through faith, then we have Jesus' righteousness, but faith in Jesus progresses to obedience to Jesus, which is doing the will of God
+
+We may abide in Jesus, but we should still go about doing the will of God to enter the kingdom of heaven:
 
 > **[Matthew 5:20](https://www.biblegateway.com/passage/?search=Matthew%205%3A20&version=ESV)** - For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will never enter the kingdom of heaven. (ESV)
+
+> **[Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew%207%3A21&version=ESV)** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
+
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
+
+> **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
+
+> **[John 13:9](https://www.biblegateway.com/passage/?search=John%2013%3A9&version=ESV)** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+Jesus' servants (people who believe and obey Him) are found **in him**. We know Christ by living in the pattern in which he lived. Jesus' servants are those who have accepted Jesus to wash them, and they ought to then wash one another:
+
+> **[Psalms 34:22](https://www.biblegateway.com/passage/?search=Psalms%2034%3A22&version=ESV)** - The LORD redeems the life of his **servants**; none of those who take refuge **in him** will be condemned. (ESV)
 
 
 ### We must turn from sin
@@ -15653,7 +15700,7 @@ We must hold to our original confession and not be hardened by the deceitfulness
 
 > **[Hebrews 3:13-14](https://www.biblegateway.com/passage/?search=Hebrews%203%3A13-14&version=ESV)** - But exhort one another every day, as long as it is called today, that none of you may be hardened by the deceitfulness of sin. For **we share in Christ, if indeed we hold our original confidence firm to the end.** (ESV)
 
-We abide in Jesus when He washes us:
+We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
