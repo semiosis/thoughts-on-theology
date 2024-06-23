@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 JUN 2024 09:28
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 JUN 2024 10:18
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1742,7 +1742,7 @@ Overfull \hbox (14.0049pt too wide) in paragraph at lines 30969--30970
 []\TU/lmr/m/n/10.95 In Jesus Christ’s
  []
 
-[586]
+[586] [587]
 Missing character: There is no מ in font [lmmono10-regular]:!
 Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no ֹ in font [lmmono10-regular]:!
@@ -1758,32 +1758,31 @@ Missing character: There is no ֹ in font [lmmono10-regular]:!
 Missing character: There is no ז in font [lmmono10-regular]:!
 Missing character: There is no ֵ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
- [587] [588] [589] [590] [591] [592] [593] [594] [595] [596] [597]
+ [588] [589] [590] [591] [592] [593] [594] [595] [596] [597]
 [598]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 31640--31640
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 31670--31670
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 31640--31640
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 31670--31670
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
-
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 31653--31653
+[599]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 31683--31683
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-[599]
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 31678.
- [600]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 31678.
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 31708.
+[600]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 31708.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 31678.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 31678
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 31708.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 31708
 .
 
 
@@ -1797,7 +1796,7 @@ Package rerunfilecheck Info: Checksums for `README.out':
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 31678.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 31708.
  ) 
 Here is how much of TeX's memory you used:
  11041 strings out of 494868
