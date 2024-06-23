@@ -83,7 +83,7 @@ The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are 
 
 > **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
 
-I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+I believe that becoming the righteousness of God is **cooperative** on submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His righteousness because we are found **in** Him and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found **in** Him and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -1200,7 +1200,7 @@ We must continue in our faith. We must continue to believe Jesus and trust in Je
 
 > **John 8:31-32** - So Jesus said to the Jews <ins>who had believed in him</ins>, **If you abide in my word, you are truly my disciples, and you will know the truth**, <ins>and the truth will set you free.</ins> (ESV)
 
-I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+I believe that becoming the righteousness of God is **cooperative** in that we allow Jesus to wash us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children is how we receive and walk into the kingdom which is given to us and that walking (living, **katergazomai**) in a childlike faith in Jesus is how we have the righteousness that is by faith. Living by faith is walking in faith, is following Jesus:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -3780,7 +3780,7 @@ Grace is free, but a person **must** become obedient - God gives the heart to ob
 
 > **Revelation of John 22:3** - No longer will there be anything accursed, but <ins>the throne of God and of the Lamb</ins> will be in it, and **his servants will worship him.** (ESV)
 
-I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+I believe that becoming the righteousness of God is **cooperative** on submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His righteousness because we are found **in** Him and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found **in** Him and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -7394,7 +7394,7 @@ As we are have faith in Jesus, even obeying Him to go out into the world, we are
 
 We are healed, corrected, sanctified by God's word.
 
-I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+I believe that becoming the righteousness of God is **cooperative** on submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His righteousness because we are found **in** Him and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found **in** Him and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -7888,7 +7888,7 @@ of faith, such as obedience to the discipline
 of Christ, that should yield the peaceful
 fruit of righteousness.
 
-I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+I believe that becoming the righteousness of God is **cooperative** on submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His righteousness because we are found **in** Him and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found **in** Him and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -11993,7 +11993,7 @@ Faith involves obedience. It's repentance from sin to the aligning of the heart 
 
 ## The faith itself may be a gift, but certainly is cooperative
 
-I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+I believe that becoming the righteousness of God is **cooperative** on submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have His righteousness because we are found **in** Him and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have His righteousness, because we are found **in** Him and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 

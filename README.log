@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 JUN 2024 17:08
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 JUN 2024 17:29
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -929,6 +929,7 @@ Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
+ [216]
 Missing character: There is no ἄ in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
 Missing character: There is no θ in font [lmmono10-regular]:!
@@ -952,7 +953,7 @@ Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
- [216] [217] [218] [219] [220]
+ [217] [218] [219] [220]
 [221] [222] [223] [224] [225] [226] [227] [228] [229] [230] [231] [232]
 [233] [234] [235] [236] [237] [238] [239] [240] [241]
 Overfull \hbox (143.15952pt too wide) in paragraph at lines 12743--12744
@@ -1754,7 +1755,7 @@ Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 31499.
 Here is how much of TeX's memory you used:
  11032 strings out of 494868
  155583 string characters out of 6175714
- 259408 words of memory out of 5000000
+ 260408 words of memory out of 5000000
  14867 multiletter control sequences out of 15000+600000
  10411 words of font info for 54 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
