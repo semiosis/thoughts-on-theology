@@ -51,7 +51,7 @@ We abide in Jesus when He washes us:
 
 > **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
-Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
 
 > **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
 
@@ -79,9 +79,21 @@ Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to b
 
 > **Hebrews 12:1-3** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
 
+The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
+
+> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
+
+I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
+
+> **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
+
 The crown of life is gifted to those who are obedient, and have been tested. I think this verse can also be taken in the literal sense:
 
 > **Revelation 2:10** - Do not fear what you are about to suffer. Behold, the devil is about to throw **some of you** into prison, that you may be **tested,** and for ten days you will have tribulation. Be faithful unto death, and I will give you the <ins>crown of life.</ins> (ESV)
+
+Love for Jesus is based on obedient faith. Jesus will manifest to those who keeps His commandments:
+
+> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 
 # Confessions of faith
@@ -1188,7 +1200,7 @@ We must continue in our faith. We must continue to believe Jesus and trust in Je
 
 > **John 8:31-32** - So Jesus said to the Jews <ins>who had believed in him</ins>, **If you abide in my word, you are truly my disciples, and you will know the truth**, <ins>and the truth will set you free.</ins> (ESV)
 
-Becoming the righteousness of God is cooperative:
+I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -1372,7 +1384,7 @@ We are given the Holy Spirit. The Holy Spirit cleanses our hearts by faith. As w
 
 If we have faith in Jesus then we obey Jesus' commandments when presented with opportunities. We walk by faith, not sight. When other people discourage you from following Jesus' commandments, but you choose to obey Jesus anyway, this is overcoming the enemy by faith:
 
-> **II Corinthians 5:7** - for we walk by faith, not by sight. (ESV)
+> **II Corinthians 5:7** - for we **walk by faith**, not by sight. (ESV)
 
 With God's help, we must drop the old selfish self and allow Jesus to come in with the new obediently loving self:
 
@@ -2298,7 +2310,7 @@ We abide in Jesus when He washes us:
 
 > **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
-Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
 
 > **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
 
@@ -3133,7 +3145,7 @@ We come to Jesus by faith and not by sight:
 
 > **Hebrews 11:1** - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
 
-> **II Corinthians 5:7** - for we walk by faith, not by sight. (ESV)
+> **II Corinthians 5:7** - for we **walk by faith**, not by sight. (ESV)
 
 We must come to Jesus for eternal life:
 
@@ -3768,7 +3780,7 @@ Grace is free, but a person **must** become obedient - God gives the heart to ob
 
 > **Revelation of John 22:3** - No longer will there be anything accursed, but <ins>the throne of God and of the Lamb</ins> will be in it, and **his servants will worship him.** (ESV)
 
-Becoming the righteousness of God is cooperative:
+I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -6314,7 +6326,13 @@ I think, that means that if a person **loves** (is obedient to) and has faith in
 
 ## We must **live** by faith - live by obedience to God!
 
-> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall live by faith. (ESV)
+Love for Jesus is based on obedient faith. Jesus will manifest to those who keeps His commandments:
+
+> **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
+
+> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
@@ -6322,7 +6340,7 @@ It's obedience which leads to righteousness, even the righteousness of faith:
 
 > **Habakkuk 2:4** - Behold, his soul is puffed up; it is not upright within him, but the righteous shall **live by** his faith. (ESV)
 
-> **II Corinthians 5:7** - for we walk by faith, not by sight. (ESV)
+> **II Corinthians 5:7** - for we **walk by faith**, not by sight. (ESV)
 
 > **Galatians 2:20** - I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. (ESV)
 
@@ -6728,7 +6746,7 @@ We are given the Holy Spirit. The Holy Spirit cleanses our hearts by faith. As w
 
 If we have faith in Jesus then we obey Jesus' commandments when presented with opportunities. We walk by faith, not sight. When other people discourage you from following Jesus' commandments, but you choose to obey Jesus anyway, this is overcoming the enemy by faith:
 
-> **II Corinthians 5:7** - for we walk by faith, not by sight. (ESV)
+> **II Corinthians 5:7** - for we **walk by faith**, not by sight. (ESV)
 
 Do what Jesus says and receive eternal life - obey Jesus:
 
@@ -7376,7 +7394,7 @@ As we are have faith in Jesus, even obeying Him to go out into the world, we are
 
 We are healed, corrected, sanctified by God's word.
 
-Becoming the righteousness of God is cooperative:
+I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -7713,7 +7731,7 @@ We abide in Jesus when He washes us:
 
 > **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
-Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
 
 > **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
 
@@ -7868,9 +7886,9 @@ should be received by faith, faith which
 includes the belief of faith and the obedience
 of faith, such as obedience to the discipline
 of Christ, that should yield the peaceful
-fruit of righteousness. 
+fruit of righteousness.
 
-Becoming the righteousness of God is cooperative:
+I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -9746,13 +9764,13 @@ The reason we want to be righteous is so we get God.
 
 Now faith in God is more than just believing, it's walking in that belief, and it's even obedience, and out of that obedience comes love.
 
-Love for Jesus is based on obedient faith.
+Love for Jesus is based on obedient faith. Jesus will manifest to those who keeps His commandments:
 
 > **John 14:21** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
 
-> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall <ins>live by</ins> faith.
+> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
 
 Faith in God is believing God and walking in that belief and trusting Jesus and obeying Jesus and allowing Jesus to work through you as you believe and obey His commandments.
 
@@ -11087,7 +11105,7 @@ A <ins>key thing</ins> here is that the repentant sinner didn't value his presen
 
 The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
 
-> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall <ins>live by</ins> faith.
+> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
 
 I think there's probably some nuance between between being spared from death, from condemnation and receiving eternal life.
 
@@ -11218,7 +11236,7 @@ reason to discourage people from obeying the gospel by the false (in my opinion)
 
 > **James 1:21-22** - Therefore put away all filthiness and rampant wickedness and <ins>receive with meekness the implanted word, which is able to save your souls.</ins> But <ins>be doers of the word, and not hearers only, deceiving yourselves.</ins> (ESV)
 
-> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall <ins>live by</ins> faith.
+> **Galatians 3:11** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
 
 A person must be at least willing to do His will - obedience is at the essence of faith:
 
@@ -11515,7 +11533,7 @@ We abide in Jesus when He washes us:
 
 > **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
-Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
 
 > **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
 
@@ -11975,7 +11993,7 @@ Faith involves obedience. It's repentance from sin to the aligning of the heart 
 
 ## The faith itself may be a gift, but certainly is cooperative
 
-Becoming the righteousness of God is cooperative:
+I believe that becoming the righteousness of God is **cooperative** and that a childlike trust, a believing and obedient trust, following Jesus, <ins>walking</ins> in faith is how we receive and walk into the kingdom and how we have the righteousness that is by faith. Living by faith is a lifestyle:
 
 > **II Corinthians 5:21-6:1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
@@ -13492,7 +13510,7 @@ We abide in Jesus when He washes us:
 
 > **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
-Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
 
 > **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
 
@@ -13500,6 +13518,13 @@ Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus do
 ### Follow Jesus as a child follows their parents
 
 > **John 10:26-29** - but you do not believe because you are not part of my flock. My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of the Father's hand. (ESV)
+
+
+### We must love Jesus and the other children of God
+
+> **John 8:42** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV) 
+
+> **I John 5:1-2** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
 
 
 ### Have active faith in Jesus and **trust** in Him. This is the good news:
@@ -14850,7 +14875,7 @@ And Jesus encourages us to have obedient faith in Him even to the point, even to
 
 We are walking by faith, and not sight, and to walk by faith is to actually see clearly, where to not walk in faith is actually to walk in darkness:
 
-> **II Corinthians 5:7** - for we walk by faith, not by sight. (ESV)
+> **II Corinthians 5:7** - for we **walk by faith**, not by sight. (ESV)
 
 > **Psalms 119:105** - Your word is a lamp to my feet and a light to my path. (ESV)
 
@@ -15556,7 +15581,7 @@ We abide in Jesus when He washes us:
 
 > **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
 
-Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+Peter believed/received/obeyed/trusted like a child of God (he cooperated) to let Jesus wash him but it was Jesus doing the work:
 
 > **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
 
@@ -17540,7 +17565,7 @@ With faith we believe what God's Word tells us:
 
 We walk by faith, not by sight:
 
-> **II Corinthians 5:7** - for we walk by faith, not by sight. (ESV)
+> **II Corinthians 5:7** - for we **walk by faith**, not by sight. (ESV)
 
 Faith in the Truth naturally produces evidence of the faith, as a person is believing the Truth, and operating in the Truth, people should be able to recognise it:
 
