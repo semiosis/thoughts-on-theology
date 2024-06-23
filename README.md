@@ -973,9 +973,9 @@ Love God [from the heart and soul] so that we may live:
 
 > **[Deuteronomy 30:6](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A6&version=ESV)** - And **the LORD your God will circumcise your heart** and the heart of your offspring, so that you will **love the LORD your God** <ins>with all your heart and with all your soul</ins>, **that you may live**. (ESV)
 
-Love your neighbour as yourself:
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us:
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 Jesus' commandments us to even love one another, anyone around you, with selfless love:
 
@@ -1009,7 +1009,7 @@ The same way that Jesus loved, selflessly:
 
 Loving one another includes forgiving one another. Forgiving others means not holding a grudge:
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 We should aim to fulfill these great commandments while being merciful:
 
@@ -2053,7 +2053,7 @@ We are supposed to fulfill the royal law:
 
 But we must love like Christ loved us in the knowledge that He loved us first. We must forgive our family in Christ, as we have been forgiven:
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 Also, I believe that abiding by Christ's law and loving your neighbour as yourself **does not cancel out** <ins>the rest of the law of God</ins>, but that a person must be **actually following Christ** by **obeying Christ's commandments** in order to not be "under the law" and to be "not guilty". Following Jesus starts with believing in Him and believing He is the Son of God, and Anointed one, the Messiah, and following Jesus continues in getting to know Him through obedience to Him:
 
@@ -8082,7 +8082,7 @@ AMEN!!
 
 Also, it looks like John Piper has another talk on this:
 
--   [The Jerusalem Above Is Free: [[https://www.biblegateway.com/passage/?search=Galatians%204%3A21-31&version=ESV][Galatians 4:21-31](https://www.youtube.com/watch?v=nRvTnpnNI_k), Part 5 - YouTube]]
+-   [The Jerusalem Above Is Free: Galatians 4:21-31, Part 5 - YouTube](https://www.youtube.com/watch?v=nRvTnpnNI_k)
 
 > **[Galatians 4:22-23](https://www.biblegateway.com/passage/?search=Galatians%204%3A22-23&version=ESV)** - For it is written that Abraham had two sons, one by a slave woman and one by a free woman. But the son of the slave was born according to the flesh, while the son of the free woman was born through promise. (ESV)
 
@@ -8135,7 +8135,13 @@ Before accepting God's forgiveness yourself, submitting to the righteousness of 
 
 > **[Isaiah 64:6](https://www.biblegateway.com/passage/?search=Isaiah%2064%3A6&version=ESV)** - We have all become like one who is unclean, and all our righteous deeds are like a polluted garment. We all fade like a leaf, and our iniquities, like the wind, take us away. (ESV)
 
-You will never be able to return enough stolen goods to God to ever be justified. Nor would you ever be able to forgive enough other people to attain that justification. <ins>We ultimately need God's forgiveness through faith in Jesus</ins>, and so we need to come to realise our spiritual bankruptcy before God and cry out to Him to forgive us. Self-righteousness has no place in asking God to be forgiven and justified by faith in the atonement made by God in Jesus:
+The "Our Father" prayer applies to those who are actually children of God, but it's a good :
+
+> **Matthew 6:8-15** - Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and **forgive us our debts, as we also have forgiven our debtors**. And lead us not into temptation, but deliver us from evil. For **if you forgive others their trespasses, your heavenly Father will also forgive you**, but **if you do not forgive others their trespasses, neither will your Father forgive your trespasses**. (ESV)
+
+You will never be able to return enough stolen goods to God to ever be justified. Nor would you ever be able to forgive enough other people to attain that justification. <ins>We ultimately need God's forgiveness through faith in Jesus</ins>, and so we need to come to realise our spiritual bankruptcy before God and cry out to Him to forgive us.
+
+Self-righteousness has no place in asking God to be forgiven and justified by faith in the atonement made by God in Jesus:
 
 > **[Romans 4:5-7](https://www.biblegateway.com/passage/?search=Romans%204%3A5-7&version=ESV)** - And <ins>to the one who does not work but trusts him who justifies the ungodly, his faith is counted as righteousness,</ins> just as David also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; (ESV)
 
@@ -11767,7 +11773,7 @@ We are supposed to fulfill the royal law:
 
 But we must love like Christ loved us in the knowledge that He loved us first. We must forgive our family in Christ, as we have been forgiven:
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 AMEN!!
 
@@ -13481,6 +13487,74 @@ Those who hunger and thirst for righteousness will be satisfied.
 Please God, give me the righteousness required to enter the kingdom.
 
 
+## Jesus explains how we can go about seeking the Kingdom of God and His righteousness - this is obedience (the type of faith we must have), not works!
+
+Jesus has told us what we must do, and to obey Him is to follow Him, and be led by Him.
+
+Jesus says the following teachings which he outlines in `Matthew 5-7` are extremely important:
+
+> **[Matthew 7:24-27](https://www.biblegateway.com/passage/?search=Matthew%207%3A24-27&version=ESV)** - Everyone then who **hears these words of mine and does them** will be like a wise man who built his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock. And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it. (ESV)
+
+The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
+
+> **[Galatians 3:11](https://www.biblegateway.com/passage/?search=Galatians%203%3A11&version=ESV)** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
+
+
+### Love your enemies
+
+We must be like children of God to enter the Kingdom. Children of God are like their Father. So we **must** love our enemies:
+
+> **[Matthew 5:44-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A44-48&version=ESV)** - But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+
+### Practice your righteousness for God's commendation
+
+We must absolutely be faithful to God who sees in secret. Having an awareness and a faith in God is very important for behaving as children of God:
+
+> **[Matthew 6:1-4](https://www.biblegateway.com/passage/?search=Matthew%206%3A1-4&version=ESV)** - Beware of practicing your righteousness before other people in order to be seen by them, for then you will have no reward from your Father who is in heaven. Thus, when you give to the needy, sound no trumpet before you, as the hypocrites do in the synagogues and in the streets, that they may be praised by others. Truly, I say to you, they have received their reward. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. (ESV)
+
+
+### Will for God's will to be done
+
+> **[Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew%206%3A10&version=ESV)** - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
+
+
+### Do the will of God
+
+We want to be children of God, so we must act like children of God:
+
+> **[Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew%207%3A21&version=ESV)** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
+
+We don't want to be children of the devil:
+
+> **[John 8:44](https://www.biblegateway.com/passage/?search=John%208%3A44&version=ESV)** - You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. (ESV)
+
+
+### Forgive everyone
+
+I believe we need to be serving Christ to be led by the Spirit, and that means forgiving everyone is important. Jesus commanded us to love one another as He loved us.
+
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us:
+
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
+
+Jesus' commandments us to even love one another, anyone around you, with selfless love:
+
+> **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)** - A new commandment I give to you, that you love one another: just as I have loved you, you also are to love one another. By this all people will know that you are my disciples, if you have love for one another. (ESV)
+
+If we are servants of Christ then we are acceptable to God:
+
+> **[Romans 14:18](https://www.biblegateway.com/passage/?search=Romans%2014%3A18&version=ESV)** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). **Led by the Spirit = following Jesus**. That's not *working* but it is *walking* and it is being obedient to Jesus. The Israelites through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+
+> **[Galatians 5:16-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A16-18&version=ESV)** - But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But **if** you are led by the Spirit, you are not under the law.
+
+> **[Matthew 6:8-15](https://www.biblegateway.com/passage/?search=Matthew%206%3A8-15&version=ESV)** - Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and **forgive us our debts, as we also have forgiven our debtors**. And lead us not into temptation, but deliver us from evil. For **if you forgive others their trespasses, your heavenly Father will also forgive you**, but **if you do not forgive others their trespasses, neither will your Father forgive your trespasses**. (ESV)
+
+> **[Matthew 6:12](https://www.biblegateway.com/passage/?search=Matthew%206%3A12&version=ESV)** - and forgive us our debts, as we also have forgiven our debtors. (ESV)
+
+
 ## Entering the kingdom
 
 We must receive the kingdom of God like a child - like Father God's child. Children easily **trust, believe, follow and obey their parents** - they also **act like their parents**. We must **receive the kingdom of God like a child of God**:
@@ -14668,9 +14742,9 @@ Goats:
 
 -   Goats are disobedient!
 
-Love your neighbour as yourself:
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us:
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 
 # Marriage
@@ -21733,7 +21807,7 @@ Before God we're all guilty:
 
 Loving one another includes forgiving one another. Forgiving others means not holding a grudge:
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 Forgiving each other moves mountains (I know Gospel of Thomas is not considered canon, but this saying rings true for me, and I believe it means that when two people make peace, they can move mountains. Whether Jesus truly said it or not, who knows.):
 
@@ -22248,7 +22322,7 @@ But the NZ government truly did graciously grant me an unbiased lawyer who graci
 
 But I'm on the other side of it now and feel like I have learned a lot about what it means to love my neighbour.
 
-> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
 The corrections process which happened after pleading guilty has been very gracious and very valuable.
 
