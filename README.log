@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 JUN 2024 17:50
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 JUN 2024 19:30
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -644,7 +644,14 @@ Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no θ in font [lmmono10-regular]:!
 Missing character: There is no ε in font [lmmono10-regular]:!
-[43] [44] [45] [46] [47] [48] [49] [50] [51] [52]
+[43] [44] [45]
+Overfull \hbox (294.68092pt too wide) in paragraph at lines 2504--2505
+[]\TU/lmr/m/n/10.95 Even having faith in God through faith in Jesus is obedienc
+e according to \TU/lmtt/m/n/10.95 [[https://www.biblegateway.com/passage/?searc
+h=Romans%2016%3A26&version=ESV][Romans
+ []
+
+[46] [47] [48] [49] [50] [51] [52]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 2929.
@@ -669,8 +676,19 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 2929.
 
-[53] [54] [55] [56] [57] [58] [59] [60] [61] [62] [63] [64] [65] [66] [67]
-[68] [69] [70]
+[53] [54] [55] [56] [57] [58] [59] [60] [61] [62] [63] [64] [65] [66]
+Overfull \hbox (20.1206pt too wide) in paragraph at lines 3677--3678
+[]\TU/lmtt/m/n/10.95 [[https://www.biblegateway.com/passage/?search=Hebrews%201
+1%3A9&version=ESV][Hebrews 11:9]] \TU/lmr/m/n/10.95 says
+ []
+
+
+Overfull \hbox (5.28336pt too wide) in paragraph at lines 3697--3698
+[][]\TU/lmr/m/n/10.95 [[https://www.biblegateway.com/passage/?search=Hebrews%20
+4%3A3&version=ESV][Hebrews 4:3[] Interlinear:
+ []
+
+[67] [68] [69] [70]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 3924.
@@ -695,7 +713,13 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 3924.
 
-[71] [72] [73] [74] [75] [76]
+[71] [72] [73] [74] [75]
+Overfull \hbox (4.97556pt too wide) in paragraph at lines 4170--4171
+[]\TU/lmr/m/n/10.95 I believe \TU/lmtt/m/n/10.95 [[https://www.biblegateway.com
+/passage/?search=John%205%3A24&version=ESV][John 5:24]]
+ []
+
+[76]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 4239.
@@ -758,11 +782,17 @@ Missing character: There is no ς in font [lmroman10-italic]:mapping=tex-text;!
  [90] [91] [92] [93] [94] [95] [96] [97] [98] [99]
 [100] [101] [102] [103]
 Overfull \hbox (7.19118pt too wide) in paragraph at lines 5610--5611
-[]\TU/lmr/bx/n/10.95 Philippians 2:1-13 \TU/lmr/m/n/10.95 - So if there is any 
-encouragement in Christ, any comfort from love, any |   []
+[][]\TU/lmr/bx/n/10.95 Philippians 2:1-13[] \TU/lmr/m/n/10.95 - So if there is 
+any encouragement in Christ, any comfort from love, any |   []
  []
 
-[104] [105] [106] [107] [108]
+[104]
+Overfull \hbox (4.97556pt too wide) in paragraph at lines 5667--5668
+[]\TU/lmr/m/n/10.95 I believe \TU/lmtt/m/n/10.95 [[https://www.biblegateway.com
+/passage/?search=John%205%3A24&version=ESV][John 5:24]]
+ []
+
+[105] [106] [107] [108]
 Overfull \hbox (42.22986pt too wide) in paragraph at lines 5858--5859
 [][]$[][][][][] [] [] [] [][][][][][][][][][][][] [] [][][][][][][][][] [] [][]
 [] [] [][][][] [] [][] [] [][] [] [][][][][][][][][][][][][][][][][][][][][][][
@@ -773,16 +803,21 @@ Overfull \hbox (42.22986pt too wide) in paragraph at lines 5858--5859
 [109] [110] [111] [112] [113] [114] [115] [116] [117] [118] [119] [120]
 [121] [122] [123] [124] [125] [126] [127] [128] [129] [130] [131] [132]
 [133]
+Overfull \hbox (30.35873pt too wide) in paragraph at lines 7014--7015
+[][]\TU/lmr/m/n/10.95 The Spirit in Us Cries ’Abba Father’: [[https://www.bible
+gateway.com/passage/?search=Galatians%204%3A1-
+ []
+
 Missing character: There is no 🌹 in font [lmroman10-regular]:mapping=tex-text;!
- [134] [135] [136]
+[134] [135] [136]
 
 Package hyperref Warning: Difference (2) between bookmark levels is greater 
 (hyperref)                than one, level fixed on input line 7124.
 
 [137] [138] [139] [140] [141]
 Overfull \hbox (7.19118pt too wide) in paragraph at lines 7393--7394
-[]\TU/lmr/bx/n/10.95 Philippians 2:1-13 \TU/lmr/m/n/10.95 - So if there is any 
-encouragement in Christ, any comfort from love, any |   []
+[][]\TU/lmr/bx/n/10.95 Philippians 2:1-13[] \TU/lmr/m/n/10.95 - So if there is 
+any encouragement in Christ, any comfort from love, any |   []
  []
 
 [142] [143] [144] [145] [146] [147] [148] [149] [150] [151] [152] [153]
@@ -842,8 +877,14 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 9344.
 
-[178] [179] [180] [181] [182] [183] [184] [185] [186] [187] [188] [189]
-[190] [191] [192] [193] [194] [195]
+[178] [179] [180] [181] [182]
+Overfull \hbox (158.24377pt too wide) in paragraph at lines 9600--9601
+[][]\TU/lmr/m/n/10.95 The Law Refutes Justification by Law: [[https://www.bible
+gateway.com/passage/?search=Galatians%203%3A6&version=ESV][Galatians
+ []
+
+[183] [184] [185] [186] [187] [188] [189] [190] [191] [192] [193] [194]
+[195]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 10312.
@@ -893,12 +934,36 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 10663.
 
-[203] [204] [205] [206] [207] [208]
+[203] [204]
+Overfull \hbox (165.07106pt too wide) in paragraph at lines 10749--10749
+[] \TU/lmtt/m/n/10.95 9  13 [[https://www.biblegateway.com/passage/?search=Roma
+ns%207%3A18&version=ESV][Rom. 7:18]],23; Eccles. 7:20; 1 John 1:8[] 
+ []
+
+[205] [206] [207]
+Overfull \hbox (97.06068pt too wide) in paragraph at lines 10891--10892
+\TU/lmr/m/n/10.95 obeyed Jesus whether they know about \TU/lmtt/m/n/10.95 [[htt
+ps://www.biblegateway.com/passage/?search=Mark%2011%3A22&version=ESV][Mark
+ []
+
+[208]
 
 Package hyperref Warning: Difference (2) between bookmark levels is greater 
 (hyperref)                than one, level fixed on input line 10938.
 
-[209] [210] [211] [212] [213] [214] [215] [216]
+[209] [210]
+Overfull \hbox (53.69322pt too wide) in paragraph at lines 11072--11073
+[][]\TU/lmr/m/n/10.95 You Are a Child of the Free Woman: [[https://www.biblegat
+eway.com/passage/?search=Galatians%204%3A21-
+ []
+
+[211] [212] [213] [214] [215]
+Overfull \hbox (14.61809pt too wide) in paragraph at lines 11344--11345
+[][]\TU/lmr/m/n/10.95 [[https://www.biblegateway.com/passage/?search=Romans%203
+%3A28&version=ESV][Romans
+ []
+
+[216]
 Missing character: There is no λ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no γ in font [lmmono10-regular]:!
@@ -952,9 +1017,14 @@ Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
- [217] [218] [219] [220]
-[221] [222] [223] [224] [225] [226] [227] [228] [229] [230] [231] [232]
-[233] [234] [235] [236] [237] [238] [239] [240] [241]
+ [217] [218] [219] [220] [221] [222] [223] [224] [225] [226] [227]
+[228] [229] [230] [231] [232] [233] [234] [235] [236] [237] [238]
+Overfull \hbox (216.8098pt too wide) in paragraph at lines 12568--12568
+[] \TU/lmtt/m/n/10.95 6   morally to be true or certain; once ([[https://www.bi
+blegateway.com/passage/?search=Isaiah%2030%3A21&version=ESV][Isa. 30:21]];[] 
+ []
+
+[239] [240] [241]
 Overfull \hbox (143.15952pt too wide) in paragraph at lines 12743--12744
 []\TU/lmr/bx/n/10.95 With God\TU/lmr/m/n/10.95 , the impossible is possible. I 
 think this is saying that |   []: 
@@ -1151,8 +1221,13 @@ merciful to me, a sinner!"[]
 Missing character: There is no ∝ in font [lmmono10-regular]:!
 [302]
 Missing character: There is no ∝ in font [lmmono10-regular]:!
- [303] [304] [305] [306] [307] [308] [309] [310] [311] [312] [313]
-[314]
+
+Overfull \hbox (0.56926pt too wide) in paragraph at lines 16042--16043
+[][]\TU/lmr/m/n/10.95 [[https://www.biblegateway.com/passage/?search=1%20John%2
+05%3A1&version=ESV][1 John 5:1[] Interlin-
+ []
+
+[303] [304] [305] [306] [307] [308] [309] [310] [311] [312] [313] [314]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 16694.
@@ -1178,16 +1253,27 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 16694.
 
 [315] [316] [317] [318] [319] [320] [321] [322]
+Overfull \hbox (70.90111pt too wide) in paragraph at lines 17030--17031
+[][]\TU/lmr/m/n/10.95 youtube.com: Live Like You Belong in Heaven: [[https://ww
+w.biblegateway.com/passage/?search=Philippians%203%3A18-
+ []
+
+
 Overfull \hbox (64.96521pt too wide) in paragraph at lines 17067--17068
 []\TU/lmr/m/n/10.95 I like to think about faith in God as an equation like: \TU
 /lmtt/m/n/10.95 Believing-God * Obedience/Action/Work/Love/PatientEndurance\TU/
 lmr/m/n/10.95 . 
  []
 
-[323] [324] [325] [326] [327] [328] [329] [330] [331]
+[323] [324] [325] [326] [327] [328] [329] [330]
+Overfull \hbox (130.57858pt too wide) in paragraph at lines 17493--17493
+[]\TU/lmtt/m/n/10.95 1           Faith ([[https://www.biblegateway.com/passage/
+?search=Galatians%203%3A6-9&version=ESV][Galatians 3:6-9]])[] 
+ []
+
+[331]
 Missing character: There is no 􄌹 in font [lmroman10-regular]:mapping=tex-text;!
- [332] [333] [334]
-[335]
+ [332] [333] [334] [335]
 Underfull \hbox (badness 3601) in paragraph at lines 17770--17770
 []\TU/lmr/m/n/10.95 Messiah would be born of a
  []
@@ -1224,7 +1310,7 @@ Underfull \hbox (badness 1163) in paragraph at lines 17808--17808
 
 [340]
 Underfull \hbox (badness 10000) in paragraph at lines 17819--17819
-[]\TU/lmr/bx/n/10.95 Deuteronomy 18:15 \TU/lmr/m/n/10.95 - The
+[][]\TU/lmr/bx/n/10.95 Deuteronomy 18:15[] \TU/lmr/m/n/10.95 - The
  []
 
 [341]
@@ -1299,7 +1385,7 @@ Underfull \hbox (badness 6016) in paragraph at lines 17900--17900
 
 [349]
 Underfull \hbox (badness 1424) in paragraph at lines 17908--17908
-[]\TU/lmr/bx/n/10.95 Psalms 16:10 \TU/lmr/m/n/10.95 - For you will
+[][]\TU/lmr/bx/n/10.95 Psalms 16:10[] \TU/lmr/m/n/10.95 - For you will
  []
 
 [350]
@@ -1318,7 +1404,7 @@ Underfull \hbox (badness 1371) in paragraph at lines 17917--17917
 
 
 Underfull \hbox (badness 1303) in paragraph at lines 17925--17925
-[]\TU/lmr/bx/n/10.95 Isaiah 53:5-12 \TU/lmr/m/n/10.95 - But he was
+[][]\TU/lmr/bx/n/10.95 Isaiah 53:5-12[] \TU/lmr/m/n/10.95 - But he was
  []
 
 [352] [353] [354] [355] [356] [357] [358] [359] [360] [361] [362] [363]
@@ -1353,7 +1439,28 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 19839.
 
-[386] [387] [388] [389] [390] [391] [392] [393] [394]
+[386] [387] [388] [389] [390]
+Overfull \hbox (395.02101pt too wide) in paragraph at lines 20106--20106
+[] \TU/lmtt/m/n/10.95 7          |     |    |  |     |    |   |  | |  Jesus, th
+e good shepherd - [[https://www.biblegateway.com/passage/?search=John%2010%3A11
+&version=ESV][John 10:11]][] 
+ []
+
+
+Overfull \hbox (331.78477pt too wide) in paragraph at lines 20106--20106
+[] \TU/lmtt/m/n/10.95 8          |     |    |  |     |                Jesus, th
+e Door - [[https://www.biblegateway.com/passage/?search=John%2010%3A7&version=E
+SV][John 10:7]][] 
+ []
+
+
+Overfull \hbox (308.78978pt too wide) in paragraph at lines 20106--20106
+[]\TU/lmtt/m/n/10.95 21      (thief/goat)                                  ||  
+     [[https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV][
+John 10:1]][] 
+ []
+
+[391] [392] [393] [394]
 Missing character: There is no מ in font [lmmono10-regular]:!
 Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no ֹ in font [lmmono10-regular]:!
@@ -1369,8 +1476,8 @@ Missing character: There is no ֹ in font [lmmono10-regular]:!
 Missing character: There is no ז in font [lmmono10-regular]:!
 Missing character: There is no ֵ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
- [395] [396] [397]
-[398] [399] [400] [401] [402] [403] [404] [405] [406] [407] [408]
+ [395] [396] [397] [398] [399] [400] [401] [402]
+[403] [404] [405] [406] [407] [408]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 (hyperref)                removing `math shift' on input line 20989.
@@ -1405,7 +1512,13 @@ Overfull \hbox (21.60612pt too wide) in paragraph at lines 21279--21280
 [413] [414] [415] [416] [417] [418] [419] [420] [421] [422] [423] [424]
 [425] [426] [427] [428] [429] [430] [431] [432] [433] [434] [435] [436]
 [437] [438] [439] [440] [441] [442] [443] [444] [445] [446] [447] [448]
-[449] [450] [451] [452] [453] [454] [455] [456] [457] [458]
+[449] [450] [451] [452] [453] [454] [455]
+Overfull \hbox (184.69348pt too wide) in paragraph at lines 23616--23617
+[][]\TU/lmr/m/n/10.95 How Do Gentiles Become Sons of Abraham? [[https://www.bib
+legateway.com/passage/?search=Galatians%203%3A6&version=ESV][Galatians
+ []
+
+[456] [457] [458]
 Missing character: There is no 􀧁 in font [lmroman10-regular]:mapping=tex-text;!
  [459]
 Overfull \hbox (21.60612pt too wide) in paragraph at lines 23836--23837
@@ -1514,13 +1627,29 @@ Overfull \hbox (17.31909pt too wide) in paragraph at lines 24886--24887
  []
 
 [478] [479] [480] [481] [482] [483] [484] [485] [486] [487] [488] [489]
-[490] [491] [492] [493] [494] [495] [496] [497] [498] [499] [500] [501]
-[502] [503] [504] [505] [506] [507] [508] [509] [510] [511] [512] [513]
-[514] [515] [516] [517] [518] [519] [520] [521] [522] [523] [524] [525]
-[526] [527] [528] [529] [530] [531] [532] [533] [534] [535] [536] [537]
-Missing character: There is no 􇩙 in font [lmroman10-regular]:mapping=tex-text;!
+[490] [491] [492] [493]
+Overfull \hbox (195.42451pt too wide) in paragraph at lines 25831--25832
+[][]\TU/lmr/m/n/10.95 Why is Friendship with the World Enmity with God? {[[http
+s://www.biblegateway.com/passage/?search=James%204%3A4&version=ESV][James
+ []
 
-[538] [539] [540] [541]
+[494] [495] [496] [497] [498] [499] [500] [501] [502] [503] [504]
+Overfull \hbox (85.65637pt too wide) in paragraph at lines 26448--26449
+[]\TU/lmr/m/n/10.95 Some manuscripts include ’fasting’ in [][[https://www.bible
+gateway.com/passage/?search=Mark%209%3A29&version=ESV][Mark
+ []
+
+[505] [506] [507] [508] [509] [510] [511] [512] [513] [514] [515] [516]
+[517] [518] [519] [520] [521] [522] [523] [524] [525] [526] [527] [528]
+[529] [530] [531] [532]
+Overfull \hbox (165.07106pt too wide) in paragraph at lines 28125--28125
+[] \TU/lmtt/m/n/10.95 9  13 [[https://www.biblegateway.com/passage/?search=Roma
+ns%207%3A18&version=ESV][Rom. 7:18]],23; Eccles. 7:20; 1 John 1:8[] 
+ []
+
+[533] [534] [535] [536] [537]
+Missing character: There is no 􇩙 in font [lmroman10-regular]:mapping=tex-text;!
+ [538] [539] [540] [541]
 Missing character: There is no ḵ in font [lmmono10-regular]:!
 Missing character: There is no ḵ in font [lmmono10-regular]:!
 Missing character: There is no ḵ in font [lmmono10-regular]:!
@@ -1679,7 +1808,8 @@ Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no ֹ in font [lmmono10-regular]:!
 Missing character: There is no ׃ in font [lmmono10-regular]:!
 Missing character: There is no ס in font [lmmono10-regular]:!
- [542] [543] [544] [545] [546]
+ [542] [543] [544]
+[545] [546]
 Overfull \hbox (110.33736pt too wide) in paragraph at lines 28844--28845
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
@@ -1710,8 +1840,13 @@ Missing character: There is no ֹ in font [lmmono10-regular]:!
 Missing character: There is no ז in font [lmmono10-regular]:!
 Missing character: There is no ֵ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
- [583] [584] [585] [586] [587] [588] [589] [590] [591] [592] [593]
-[594]
+ [583] [584] [585] [586] [587] [588] [589] [590] [591]
+Overfull \hbox (3.07684pt too wide) in paragraph at lines 31316--31317
+[]\TU/lmr/m/n/10.95 The most terrifying passage in the Bible | [[https://www.bi
+blegateway.com/passage/?search=Matthew%207%3A21-
+ []
+
+[592] [593] [594]
 Overfull \hbox (61.59361pt too wide) in paragraph at lines 31461--31461
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
@@ -1758,6 +1893,6 @@ Here is how much of TeX's memory you used:
  14867 multiletter control sequences out of 15000+600000
  10411 words of font info for 54 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6273b,1152s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,1152s stack positions out of 5000i,500n,10000p,200000b,80000s
 
 Output written on ./README.pdf (596 pages).

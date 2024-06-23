@@ -2507,8 +2507,9 @@ Chris Tomlin - Holy Forever {Lyric Video} - YouTube
   Hebrews 12:28-29 - Therefore let us be grateful for receiving a kingdom that cannot be shaken, and thus let us
   offer to God acceptable worship, with reverence and awe, for our God is a consuming fire. (ESV)
 
-Even having faith in God through faith in Jesus is obedience according to Romans 16:26. If a person is trusting in
-Him when they die, they will live.
+Even having faith in God through faith in Jesus is obedience according to
+[[https://www.biblegateway.com/passage/?search=Romans%2016%3A26&version=ESV][Romans 16:26]]. If a person is
+trusting in Him when they die, they will live.
 
   Romans 16:26 - but has now been disclosed and through the prophetic writings has been made known to all nations,
   according to the command of the eternal God, to bring about the obedience of faith - (ESV)
@@ -3620,7 +3621,8 @@ Obedience to God is faith. Abraham went to live in the land of promise by obedie
   tent, with Bethel on the west and Ai on the east. And there he built an altar to the LORD and called upon the
   name of the LORD. (ESV)
 
-Hebrews 11:9 says that Abraham went to live in the land of promise by faith:
+[[https://www.biblegateway.com/passage/?search=Hebrews%2011%3A9&version=ESV][Hebrews 11:9]] says that Abraham went
+to live in the land of promise by faith:
 
   Hebrews 11:9 - By faith he went to live in the land of promise, as in a foreign land, living in tents with Isaac
   and Jacob, heirs with him of the same promise. (ESV)
@@ -3639,8 +3641,9 @@ for your soul:
 
 The rest goes to those who have believed. Believing in Jesus is obedience to the gospel:
 
-Hebrews 4:3 Interlinear: for we do enter into the rest - we who did believe, as He said, 'So I sware in My anger,
-If they shall enter into My rest - ;' and yet the works were done from the foundation of the world,
+[[https://www.biblegateway.com/passage/?search=Hebrews%204%3A3&version=ESV][Hebrews 4:3 Interlinear: for we do
+enter into the rest - we who did believe, as He said, 'So I sware in My anger, If they shall enter into My rest -
+;' and yet the works were done from the foundation of the world,]]
 
   Hebrews 4:3 - For we who have believed enter that rest, as he has said, As I swore in my wrath, They shall not
   enter my rest, although his works were finished from the foundation of the world.
@@ -4087,7 +4090,8 @@ that receive forgiveness of sins through his name:
   spirit and life.
 
 We must honour Jesus Christ in our bodies and in our lives - fruitful labour, so that we can be confident with
-John 5:24. AMEN!! We must be slaves of righteousness, leading to sanctification, which at its end is eternal life:
+[[https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV][John 5:24]]. AMEN!! We must be slaves of
+righteousness, leading to sanctification, which at its end is eternal life:
 
   John 5:21-24 - For as the Father raises the dead and gives them life, so also the Son gives life to whom he
   will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they
@@ -4095,8 +4099,9 @@ John 5:24. AMEN!! We must be slaves of righteousness, leading to sanctification,
   you, whoever hears my word and believes (G4100 pisteuo) him who sent me has eternal life. He does not come into
   judgment, but has passed from death to life.
 
-I believe John 5:24 is a true statement and that it should not be read outside of the words Jesus said directly
-before it (Whoever does not honor the Son does not honor the Father who sent him).
+I believe [[https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV][John 5:24]] is a true
+statement and that it should not be read outside of the words Jesus said directly before it (Whoever does not
+honor the Son does not honor the Father who sent him).
 
 We do not nullify the rest of what Jesus has commanded of and asked of us. If Jesus is your judge, then I think
 it's wise to take on board the rest of what Jesus has said:
@@ -5667,8 +5672,9 @@ We must honour Jesus Christ:
   you, whoever hears my word and believes (G4100 pisteuo) him who sent me has eternal life. He does not come into
   judgment, but has passed from death to life.
 
-I believe John 5:24 is a true statement and that it should not be read outside of the words Jesus said directly
-before it (Whoever does not honor the Son does not honor the Father who sent him).
+I believe [[https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV][John 5:24]] is a true
+statement and that it should not be read outside of the words Jesus said directly before it (Whoever does not
+honor the Son does not honor the Father who sent him).
 
 We do not nullify the rest of what Jesus has commanded of and asked of us. If Jesus is your judge, then I think
 it's wise to take on board the rest of what Jesus has said:
@@ -6946,8 +6952,8 @@ Jehovah is God Almighty:
   Exodus 6:3 - I appeared to Abraham, to Isaac, and to Jacob, as God Almighty, but by my name the LORD I did not
   make myself known to them. (ESV)
 
-Exodus 6:3 Interlinear: and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name
-Jehovah, I have not been known to them;
+[[https://www.biblegateway.com/passage/?search=Exodus%206%3A3&version=ESV][Exodus 6:3 Interlinear: and I appear
+unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been known to them;]]
 
 6. Jehovah is Almighty God, Creator of Heaven and Earth
 
@@ -7162,7 +7168,9 @@ We, personally cry "Abba, Father!" We call to Father God.
   also be glorified with him. (ESV)
 
 Sermon
-The Spirit in Us Cries 'Abba Father': Galatians 4:1-7, Part 5 - YouTube
+The Spirit in Us Cries 'Abba Father':
+[[https://www.biblegateway.com/passage/?search=Galatians%204%3A1-7&version=ESV][Galatians 4:1-7, Part 5 -
+YouTube]]
 
 I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknowledge that Jesus Christ has come
 in the flesh.
@@ -9828,7 +9836,9 @@ Faith receives and continues to receive the supply of the Spirit and we are led 
   you and works miracles among you do so by works of the law, or by hearing with faith- (ESV)
 
 Sermon
-The Law Refutes Justification by Law: Galatians 3:6, Part 1 - YouTube
+The Law Refutes Justification by Law:
+[[https://www.biblegateway.com/passage/?search=Galatians%203%3A6&version=ESV][Galatians 3:6, Part 1 -
+YouTube]]
 
 Faith receives and continues to receive the supply of the Spirit. So a person needs to be having faith in
 Jesus to be led by the Spirit.
@@ -9925,8 +9935,9 @@ Jesus, are Jesus' sheep, and are led by the Spirit, obeying and following Jesus'
 - Whoever is actively believing/trusting/obeying Jesus is not judged.
 - Whoever is disbelieving/distrusting/disobeying Jesus is judged even now.
 
-John 3:18 Interlinear: he who is believing in him is not judged, but he who is not believing hath been judged
-already, because he hath not believed in the name of the only begotten Son of God.
+[[https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV][John 3:18 Interlinear: he who is
+believing in him is not judged, but he who is not believing hath been judged already, because he hath not believed
+in the name of the only begotten Son of God.]]
 
   John 3:18 - He who believes (G4100 pisteuo) in Him is not judged; he who does not believe (G4100 pisteuo) has
   been judged (G2919 krino) already (G2235 ede), because he has not believed (G4100 pisteuo) in the name of the
@@ -10986,7 +10997,7 @@ The 1689 Baptist confession affirms that the problem of corruption remains after
 |  mortified, yet both itself, and the first
 |  motions thereof, are truly and properly sin.14
 | 
-|  13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
+|  13 [[https://www.biblegateway.com/passage/?search=Romans%207%3A18&version=ESV][Rom. 7:18]],23; Eccles. 7:20; 1 John 1:8
 |   14 Rom. 7:23-25; Gal. 5:17
 
 I affirm that even after regeneration and being healed, corruption has remained a problem for me mainly because of
@@ -11155,7 +11166,8 @@ True faith is always obedient; faith is always prepared to obey more:
   speaking on my own authority.
 
 You can't even have faith in God without obeying Jesus because the one who has faith in God has already obeyed
-Jesus whether they know about Mark 11:22 or not. So it's not a dead work.
+Jesus whether they know about [[https://www.biblegateway.com/passage/?search=Mark%2011%3A22&version=ESV][Mark
+|  22]] or not. So it's not a dead work.
 
   Philippians 2:12 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much
   more in my absence, work out (katergazomai) your own salvation with fear and trembling, (ESV)
@@ -11347,7 +11359,9 @@ We are slaves to Christ Jesus:
   eternal life in Christ Jesus our Lord. (NASB)
 
 Bible study
-You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 - YouTube @time: 2 min 6 sec
+You Are a Child of the Free Woman:
+[[https://www.biblegateway.com/passage/?search=Galatians%204%3A21-31&version=ESV][Galatians 4:21-31, Part 8 -
+YouTube @time: 2 min 6 sec]]
 
 So John Piper is taking the Apostle John's writing in II John 1:9 and saying that Apostle John is warning against
 people talking about justification through works, but I don't think that's what the Apostle John is talking about.
@@ -11645,7 +11659,7 @@ God's the justifier of a person's faith and that both obedience and belief are p
 should keep the faith until and beyond when we receive personal assurance of justification from God.
 
 Interlinear Bible
-Romans 3:28
+[[https://www.biblegateway.com/passage/?search=Romans%203%3A28&version=ESV][Romans 3:28]]
 
 |  3049 [e]    1063 [e]  1344 [e]        4102 [e]
 |  logizometha gar       dikaiousthai    pistei
@@ -11756,7 +11770,9 @@ AMEN!!
 
 Also, it looks like John Piper has another talk on this:
 
-- The Jerusalem Above Is Free: Galatians 4:21-31, Part 5 - YouTube
+- The Jerusalem Above Is Free:
+[[https://www.biblegateway.com/passage/?search=Galatians%204%3A21-31&version=ESV][Galatians 4:21-31, Part 5 -
+YouTube]]
 
   Galatians 4:22-23 - For it is written that Abraham had two sons, one by a slave woman and one by a free woman.
   But the son of the slave was born according to the flesh, while the son of the free woman was born through
@@ -12856,7 +12872,7 @@ faith.
 |   a primitive root; properly, to build up or support; to foster
 |   as a parent or nurse; figuratively to render (or be) firm or
 |   faithful, to trust or believe, to be permanent or quiet;
-|   morally to be true or certain; once (Isa. 30:21;
+|   morally to be true or certain; once ([[https://www.biblegateway.com/passage/?search=Isaiah%2030%3A21&version=ESV][Isa. 30:21]];
 |   interchangeable with 541) to go to the right hand:--hence,
 |   assurance, believe, bring up, establish, + fail, be faithful
 |   (of long continuance, stedfast, sure, surely, trusty,
@@ -16352,8 +16368,9 @@ There is still obedience required. Obedience is intrinsic to faith. Obedience le
 Everyone believing that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever
 has been born of him.
 
-- 1 John 5:1 Interlinear: Every one who is believing that Jesus is the Christ, of God he hath been begotten, and
-every one who is loving Him who did beget, doth love also him who is begotten of Him:
+- [[https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV][1 John 5:1 Interlinear: Every one
+who is believing that Jesus is the Christ, of God he hath been begotten, and every one who is loving Him who
+did beget, doth love also him who is begotten of Him:]]
 
   I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. (ESV)
@@ -17393,7 +17410,9 @@ And they will know the Truth.
 
 We must be thinking as a person of Heaven.
 
-- youtube.com: Live Like You Belong in Heaven: Philippians 3:18-21, Part 7
+- youtube.com: Live Like You Belong in Heaven:
+[[https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV][Philippians 3:18-21, Part
+7]]
 
   Philippians 3:18-21 - For many, of whom I have often told you and now tell you even with tears, walk as enemies
   of the cross of Christ. Their end is destruction, their god is their belly, and they glory in their shame, with
@@ -17860,7 +17879,7 @@ The ones under the law who also walk in the footsteps of the faith that Abraham 
 come under the umbrella of the faith of Abraham, which the Gentiles who also share the faith of Abraham are
 included within.
 
-|           Faith (Galatians 3:6-9)
+|           Faith ([[https://www.biblegateway.com/passage/?search=Galatians%203%3A6-9&version=ESV][Galatians 3:6-9]])
 |         /       \
 |    Those who     Gentiles who share
 |  pursue the law      the faith
@@ -20689,8 +20708,8 @@ they are saved.
 |    and disobedient  |  |     |    |                ||
 |        goat    |    |  |     |    |   |            || Saved by entering through Jesus
 |          |     |    |  |     |    |   |  |        ||||
-|          |     |    |  |     |    |   |  | |  Jesus, the good shepherd - John 10:11
-|          |     |    |  |     |                Jesus, the Door - John 10:7
+|          |     |    |  |     |    |   |  | |  Jesus, the good shepherd - [[https://www.biblegateway.com/passage/?search=John%2010%3A11&version=ESV][John 10:11]]
+|          |     |    |  |     |                Jesus, the Door - [[https://www.biblegateway.com/passage/?search=John%2010%3A7&version=ESV][John 10:7]]
 |      Trusting--------------------------------------|--->
 |   sheep (justifed)   |  |                          ||||     pasture
 |           |     |   _|                              ||
@@ -20703,7 +20722,7 @@ they are saved.
 |                                                     ||    Thief comes to
 |       unbelieving          dead works              /||\    steal, kill
 |       dead worker --------------------------------- || ->    and destroy
-|       (thief/goat)                                  ||       John 10:1
+|       (thief/goat)                                  ||       [[https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV][John 10:1]]
 
   John 10:7 - So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. (ESV)
 
@@ -23864,7 +23883,8 @@ We must instead be led by the Spirit, and follow Christ Jesus:
   I Corinthians 15:50d - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor
   does the perishable inherit the imperishable.
 
-The Chosen scene: John 3:16 - YouTube @time: 2 min 8 sec
+The Chosen scene: [[https://www.biblegateway.com/passage/?search=John%203%3A16&version=ESV][John 3:16 -
+YouTube @time: 2 min 8 sec]]
 
 54.38. There is no sexual immorality in Heaven, no violence, no sinners.
 
@@ -24209,7 +24229,8 @@ circumcised, I believe with having faith in Jesus Christ:
 How do we become sons of Abraham:
 
 Sermon
-How Do Gentiles Become Sons of Abraham? Galatians 3:6, Part 3 - YouTube
+How Do Gentiles Become Sons of Abraham?
+[[https://www.biblegateway.com/passage/?search=Galatians%203%3A6&version=ESV][Galatians 3:6, Part 3 - YouTube]]
 
 I do believe that trusting inevitably bears fruit. Also Abraham obeyed God's commandments - that's all tied up
 inside the faith which Abraham had towards God. We must have faith in God, too, but with respect to having faith
@@ -26348,7 +26369,8 @@ Even our bodies will be raised imperishable:
 60.2.1. Friendship with the world is emnity to God
 
 Article
-Why is Friendship with the World Enmity with God? {James 4:4} - InspiredWalk.com
+Why is Friendship with the World Enmity with God?
+{[[https://www.biblegateway.com/passage/?search=James%204%3A4&version=ESV][James 4:4} - InspiredWalk.com]]
 
   James 4:4 - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore
   whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
@@ -26967,7 +26989,8 @@ Be humble while fasting and supplicating to God:
   call this a fast, and a day acceptable to the LORD? Is not this the fast that I choose: to loose the bonds of
   wickedness, to undo the straps of the yoke, to let the oppressed go free, and to break every yoke? (ESV)
 
-Some manuscripts include 'fasting' in Mark 9:29:
+Some manuscripts include 'fasting' in
+[[https://www.biblegateway.com/passage/?search=Mark%209%3A29&version=ESV][Mark 9:29]]:
 
   Mark 9:29 - And he said to them, This kind cannot be driven out by anything but prayer. (ESV)
 
@@ -28463,7 +28486,7 @@ The 1689 Baptist confession affirms that the problem of corruption remains after
 |  mortified, yet both itself, and the first
 |  motions thereof, are truly and properly sin.14
 | 
-|  13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
+|  13 [[https://www.biblegateway.com/passage/?search=Romans%207%3A18&version=ESV][Rom. 7:18]],23; Eccles. 7:20; 1 John 1:8
 |   14 Rom. 7:23-25; Gal. 5:17
 
 64.1. My experience in turning to love Jesus and obey Jesus
@@ -31642,7 +31665,8 @@ The motivation for everything must be to glorify God.
 
 78.1. Do the will of the Father - obey Jesus - AMEN!!
 
-The most terrifying passage in the Bible | Matthew 7:21-23 - YouTube
+The most terrifying passage in the Bible |
+[[https://www.biblegateway.com/passage/?search=Matthew%207%3A21-23&version=ESV][Matthew 7:21-23 - YouTube]]
 
   Luke 8:21 - But He answered and said to them, "My mother and My brothers are these who hear the word of God and
   do it." (ESV)
@@ -31822,7 +31846,7 @@ Date: 2024-06-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-23 Sun 17:47
+Created: 2024-06-23 Sun 19:25
 
 Validate
 
