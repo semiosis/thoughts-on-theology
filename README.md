@@ -2417,7 +2417,7 @@ Have faith in God and have faith in Jesus:
 
 Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
-> **Romans 4:5** - And to the one who does not work but trusts (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 I think faith is more like hopeful/trusting belief that results in action (walking by faith).
 
@@ -3661,7 +3661,9 @@ Jesus said He will not cast people out <ins>who have come to Him</ins>, and it's
 
 > **John 6:37** - All that the Father gives me will come to me, and <ins>whoever comes to me</ins> I will never cast out. (ESV)
 
-Coming to Jesus is the requirement for not being cast out, and coming to Jesus Christ means obedience and following Jesus. We must receive the kingdom of God like a child - like Father God's child. Children easily **trust, believe, follow and obey their parents** - they also **act like their parents**. We must **receive the kingdom of God like a child of God**:
+Coming to Jesus is the requirement for not being cast out, and coming to Jesus Christ means obedience and following Jesus.
+
+We must receive the kingdom of God like a child - like Father God's child. Children easily **trust, believe, follow and obey their parents** - they also **act like their parents**. We must **receive the kingdom of God like a child of God**:
 
 > **Luke 18:16-22** - But Jesus called them to him, saying, Let the children come to me, and do not hinder them, for to such belongs the kingdom of God. Truly, I say to you, whoever does not **receive the kingdom of God like a child** shall not enter it. And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit adultery, Do not murder, Do not steal, Do not bear false witness, Honor your father and mother. And he said, All these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that you have and distribute to the poor, and you will have treasure in heaven; and come, follow me.
 
@@ -3983,7 +3985,7 @@ It's by faith in Christ that we are justified, and faith involves obedience (at 
 
 It's faith in the heart which we need; obedience to Jesus Christ and belief in Jesus Christ in the heart, and belief and obedience to God who has <ins>raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification</ins>.
 
-> **John 3:16** - For God so loved the world, that he gave his only Son, that whoever believes (G4100 pisteuo) in him should not perish but have eternal life. (ESV)
+> **John 3:16** - For God so loved the world, that he gave his only Son, that whoever believes (G4100 **pisteuo**) in him should not perish but have eternal life. (ESV)
 
     1  :  4100  pisteuo  pist-yoo'-o
     2  
@@ -7701,7 +7703,7 @@ Have faith in God and have faith in Jesus:
 
 Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
-> **Romans 4:5** - And to the one who does not work but trusts (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 Having believed in Jesus, having begun to trust in Jesus, we have become obedient to Jesus. Jesus works on us as we trust in Him even before we understand what He's doing, and we have become obedient because he commanded us to trust Him:
 
@@ -9777,7 +9779,7 @@ Jesus commanded us to believe (**pisteuo**) in Him:
 
 Paul says we must trust (**pisteuo**) in Him:
 
-> **Romans 4:5** - And to the one who does not work but trusts (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 Having believed in Jesus, having begun to trust in Jesus, we have become obedient to Jesus. Jesus works on us as we trust in Him even before we understand what He's doing, and we have become obedient because he commanded us to trust Him:
 
@@ -13461,10 +13463,56 @@ Please God, give me the righteousness required to enter the kingdom.
 
 ## Entering the kingdom
 
+We must receive the kingdom of God like a child - like Father God's child. Children easily **trust, believe, follow and obey their parents** - they also **act like their parents**. We must **receive the kingdom of God like a child of God**:
 
-### This is the good news. I do think 'believes' really means has active faith in
+> **Luke 18:16-22** - But Jesus called them to him, saying, Let the children come to me, and do not hinder them, for to such belongs the kingdom of God. Truly, I say to you, whoever does not **receive the kingdom of God like a child** shall not enter it. And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit adultery, Do not murder, Do not steal, Do not bear false witness, Honor your father and mother. And he said, All these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that you have and distribute to the poor, and you will have treasure in heaven; and come, follow me.
 
-> **John 3:16** - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. (ESV)
+Like a child of God:
+
+-   behave like a child of God
+    -   like a child takes after their parents
+-   trust like a child trusts their parents
+    -   believe like a child believes their parents
+    -   obey like a child obeys their parents
+-   follow like a child follows their parents
+
+
+### Behave like a child of God, as a child takes after their parents
+
+We must do good, and behave like the children of God, or we will not enter the Kingdom:
+
+> **I John 3:10** - By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+
+> **Luke 6:35** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+
+### Trust Jesus like a child trusts their parents
+
+We abide in Jesus when He washes us:
+
+> **John 13:8** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+
+Peter believed/received/obeyed/trusted to let Jesus wash him but it was Jesus doing the work:
+
+> **John 13:9** - Simon Peter said to him, Lord, not my feet only but also my hands and my head! (ESV)
+
+
+### Follow Jesus as a child follows their parents
+
+> **John 10:26-29** - but you do not believe because you are not part of my flock. My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of the Father's hand. (ESV)
+
+
+### Have active faith in Jesus and **trust** in Him. This is the good news:
+
+> **John 3:16** - For God so loved the world, that he gave his only Son, that whoever believes (G4100 **pisteuo**) in him should not perish but have eternal life. (ESV)
+
+Have faith in God and have faith in Jesus:
+
+> **John 14:1** - “Do not let your heart be troubled; believe (G4100 **pisteuo**) in God, believe (G4100 **pisteuo**) also in Me.
+
+Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
+
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 > **John 3:36** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
@@ -13495,11 +13543,6 @@ It is the sovereign work of God to make someone born-again of the Spirit, but th
 > **Matthew 7:21** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
 
 
-### We must have faith in Jesus
-
-> **Matthew 5:20** - For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will never enter the kingdom of heaven. (ESV)
-
-
 ### We must accept it as a child
 
 > **Matthew 18:3** - and said, Truly, I say to you, unless you turn and become like children, you will never enter the kingdom of heaven.
@@ -13512,6 +13555,11 @@ It is the sovereign work of God to make someone born-again of the Spirit, but th
 > **Mark 10:23-25** - And Jesus looked around and said to his disciples, How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! It is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. (ESV)
 
 > **Luke 18:24-25** - Jesus, looking at him with sadness, said, How difficult it is for those who have wealth to enter the kingdom of God! For it is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. (ESV)
+
+
+### We must have faith in Jesus
+
+> **Matthew 5:20** - For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will never enter the kingdom of heaven. (ESV)
 
 
 ### We must turn from sin
@@ -14857,7 +14905,7 @@ I pray that God will not count sin done in my brokenness.
 
 Trusting Him means having faith in Him, obeying, believing in God and having the fear of God, believing, following, yielding to Jesus. Ungodly here means wicked or behaviour not in accordance with the knowledge of God. Only God can justify the ungodly, so that's why by following Him, knowing we can be ungodly, we have the hope of God justifying us:
 
-> **Romans 4:5** - And to the one who does not work but trusts (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 This qualifies:
 
@@ -15791,7 +15839,7 @@ And if a person doesn't believe in reality, then that person probably isn't save
 
 Trusting Him means having faith in Him, obeying, believing in God and having the fear of God, believing, following, yielding to Jesus. Ungodly here means wicked or behaviour not in accordance with the knowledge of God. Only God can justify the ungodly, so that's why by following Him, knowing we can be ungodly, we have the hope of God justifying us:
 
-> **Romans 4:5** - And to the one who does not work but trusts (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 This qualifies:
 
@@ -18613,7 +18661,7 @@ Have faith in God and have faith in Jesus:
 
 Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
-> **Romans 4:5** - And to the one who does not work but trusts (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+> **Romans 4:5** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
 Repent, for the kingdom of heaven is near:
 
