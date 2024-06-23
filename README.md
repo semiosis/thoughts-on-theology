@@ -3661,9 +3661,9 @@ Jesus said He will not cast people out <ins>who have come to Him</ins>, and it's
 
 > **John 6:37** - All that the Father gives me will come to me, and <ins>whoever comes to me</ins> I will never cast out. (ESV)
 
-Coming to Jesus is the requirement for not being cast out, and coming to Jesus Christ means obedience and following Jesus:
+Coming to Jesus is the requirement for not being cast out, and coming to Jesus Christ means obedience and following Jesus. We must receive the kingdom of God like a child - like Father God's child. Children easily **trust, believe, follow and obey their parents** - they also **act like their parents**. We must **receive the kingdom of God like a child of God**:
 
-> **Luke 18:16-22** - But Jesus called them to him, saying, Let the children come to me, and do not hinder them, for to such belongs the kingdom of God. Truly, I say to you, whoever does not receive the kingdom of God like a child shall not enter it. And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit adultery, Do not murder, Do not steal, Do not bear false witness, Honor your father and mother. And he said, All these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that you have and distribute to the poor, and you will have treasure in heaven; and come, follow me.
+> **Luke 18:16-22** - But Jesus called them to him, saying, Let the children come to me, and do not hinder them, for to such belongs the kingdom of God. Truly, I say to you, whoever does not **receive the kingdom of God like a child** shall not enter it. And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit adultery, Do not murder, Do not steal, Do not bear false witness, Honor your father and mother. And he said, All these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that you have and distribute to the poor, and you will have treasure in heaven; and come, follow me.
 
 Following Jesus may simply mean going to Him for mercy; asking Him for mercy or forgiveness:
 
@@ -12148,6 +12148,10 @@ Actually complying with the law (not breaking it) is good:
 
 > **James 4:11-12** - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
 
+It's God who judges and gives mercy:
+
+> **Romans 9:15-16** - For he says to Moses, I will have mercy on whom I have mercy, and I will have compassion on whom I have compassion. So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
+
 > **Luke 16:15-17** - And he said to them, You are those who justify yourselves before men, but God knows your hearts. For what is exalted among men is an abomination in the sight of God.  The Law and the Prophets were until John; since then the good news of the kingdom of God is preached, and everyone forces his way into it.  But it is easier for heaven and earth to pass away than for one dot of the Law to become void.
 
 -   John the baptist taught 'turn from sin and believe in the One to come':
@@ -12259,6 +12263,29 @@ We receive **the Holy Spirit** through faith:
 > **Galatians 3:2** - Let me ask you only this: Did you receive the Spirit by works of the law or by hearing with faith?􄌹
 
 But faith is obedient.
+
+
+## Mercy
+
+Mercy is available from God, and there are some things we can do as we ask God for mercy:
+
+> **Romans 9:15-16** - For he says to Moses, I will have mercy on whom I have mercy, and I will have compassion on whom I have compassion. So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
+
+Accept correction from God, and ask God for mercy to change to love God and your neighbour better:
+
+> **Luke 18:13** - But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful to me, a sinner! (ESV)
+
+Forgive others:
+
+> **Matthew 6:12-15** - and forgive us our debts, as we also have forgiven our debtors. And lead us not into temptation, but deliver us from evil. For if you forgive others their trespasses, your heavenly Father will also forgive you, but if you do not forgive others their trespasses, neither will your Father forgive your trespasses. (ESV)
+
+Be merciful to others:
+
+> **Matthew 5:7** - Blessed are the merciful, for they shall receive mercy.
+
+Be humble:
+
+> **James 4:6** - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble. (ESV)
 
 
 ## The law is good, if used properly - and its usage is part of the gospel
@@ -13334,6 +13361,10 @@ To get to know Jesus, we must obey His commandments:
 ## The merciful shall receive mercy
 
 > **Matthew 5:7** - Blessed are the merciful, for they shall receive mercy.
+
+> **Romans 9:15-16** - For he says to Moses, I will have mercy on whom I have mercy, and I will have compassion on whom I have compassion. So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
+
+> **James 4:6** - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble. (ESV)
 
 
 ## Without holiness, no-one will see the Lord
@@ -16149,6 +16180,8 @@ The Didache's estimated range of dating is 50-120 A.D, according to [earlychrist
 > **Matthew 5:47-48** - And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect.
 
 Of course, I believe God doesn't send all His servants to be martyred, but probably uses what amount a person is willing to bear for the Lord Jesus.
+
+-   **Quote from John Piper:** "We don't kill to spread our kingdom. We die to spread our kingdom." AMEN!!
 
 > **Matthew 19:21** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me.
 
@@ -22361,6 +22394,9 @@ Also, to "be holy as He is holy" when people deny relationships and marriage, an
 > **Colossians 2:18-21** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (ESV)
 
 I'm definitely taking this stuff to God's court and asking for grace to be sanctified/delivered.
+
+> **James 4:6** - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble. (ESV)
+
 I think delivered is the better term because I've endured isolation, and even cut off from Christian fellowship for following Jesus,
 denied marriage, denied relationships continually, locally and internationally slandered,
 and after getting born-again enduring the most soul-crushing circumstances,
@@ -22408,6 +22444,8 @@ Personal righteousness (holiness and 'doing good') is still extremely important 
 Doing the will of God is important for **inheriting** the kingdom of God:
 
 > **Matthew 25:23** - His master said to him, Well done, good and faithful servant. You have been faithful over a little; I will set you over much. Enter into the joy of your master. (ESV)
+
+-   **Quote from CH Spurgeon:** "Peace is joy resting, and joy is peace dancing"
 
 Sigh&#x2026;. For the record, as of <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-06-13 Thu&gt;</span></span>, it still feels as though I'm being hit by witchcraft.
 
