@@ -3950,6 +3950,20 @@ Sovereign God, looks into dead, glory-ignoring heart and says, "Let there be lig
 
 ## Gospel
 
+We are being saved by the gospel as we hold fast to the word:
+
+> **I Corinthians 15:1-2** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
+Christ died for our sins:
+
+> **I Corinthians 15:3-8** - For I delivered to you as of first importance what I also received: that Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve. Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. (ESV)
+
+y the grace of God, we are transformed as we work out our salvation, and it's the grace of God working:
+
+> **I Corinthians 15:9-11** - For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. But by the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is with me. Whether then it was I or they, so we preach and so you believed. (ESV)
+
+-   **Message:** [youtube.com: C S  Lewis message 2024 -  Faith in action God fights for you, but you must also act](https://www.youtube.com/watch?v=5I7aZfuxt6s)
+
 The Good News of Jesus Christ is **the power of God for salvation** (stress: **power of God** for salvation) to everyone who believes:
 
 -   **salvation from sin**, and
