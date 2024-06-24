@@ -2110,6 +2110,13 @@ Following Jesus includes your thought life:
 
 > **[Philippians 4:8](https://www.biblegateway.com/passage/?search=Philippians%204%3A8&version=ESV)** - Finally, brothers, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable, if there is any excellence, if there is anything worthy of praise, think about these things. (ESV)
 
+All people should seek to follow the Royal Law which is to love one's neighbour as themself,
+bearing their neighbours burdens and forgiving one another, but who has done that perfectly?
+
+As Christians we were at one time disobedient, and were not able to do this perfectly, and we have been saved by Jesus, having been forgiven by Him,
+and after we are grafted into Christ, we now have His righteousness and Almighty God as our Father, and Jesus is our Master and we seek to please our Master,
+like the All Blacks try to please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His Spirit, and His Spirit helps us to do this.
+
 
 ## Following Jesus is the way of righteousness
 
