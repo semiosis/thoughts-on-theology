@@ -378,10 +378,18 @@ It's obedience which leads to righteousness, even the righteousness of faith:
   one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
 
 In Christ Jesus there is freedom from things which were bad for us, including selfishness, condemnation, slavery
-to sin and death. There is freedom from anything that tries to hinder us from obeying God in truth.
+to sin and death, and feeling like we're not good enough for God. There is freedom from anything that tries to
+hinder us from obeying God in truth:
 
   I Peter 2:16 - Live as people who are free, not using your freedom as a cover-up for evil, but living as
   servants of God. (ESV)
+
+  Galatians 5:1-6 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I
+  testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed
+  from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by
+  faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor
+  uncircumcision counts for anything, but only faith working through love. (ESV)
 
 We are freed from, for example, making the worries of the world our first thought in the day such as thinking
 always in terms of "will I have enough money, for example", to instead, with the Holy Spirit in us, thinking
@@ -11801,7 +11809,7 @@ God's the justifier of a person's faith and that both obedience and belief are p
 should keep the faith until and beyond when we receive personal assurance of justification from God.
 
 Interlinear Bible
-[[https://www.biblegateway.com/passage/?search=Romans%203%3A28&version=ESV][Romans 3:28]]
+Romans 3:28
 
 |  3049 [e]    1063 [e]  1344 [e]        4102 [e]
 |  logizometha gar       dikaiousthai    pistei
@@ -11871,7 +11879,7 @@ salvation
   To be "under the law" is to be condemned in Adam, rather than justified in Christ.
 
   All unbelievers, both Jews and Gentiles, are "under the law," but all believers in both Testaments are "under
-  grace" (Rom 6:14) in Christ, who came to "redeem those who were under the law" (Gal 4:
+  grace" (Rom 6:14) in Christ, who came to "redeem those who were under the law" (Gal 4:5).
 
   True believers keep the good law of God in faith, under grace, as an expression of love to God and others
   because of so great a salvation.
@@ -11923,7 +11931,16 @@ Also, it looks like John Piper has another talk on this:
   of the free woman. (ESV)
 
 In Christ Jesus there is freedom from things which were bad for us, including selfishness, condemnation, slavery
-to sin and death. There is freedom from anything that tries to hinder us from obeying God in truth.
+to sin and death, and feeling like we're not good enough for God. There is freedom from anything that tries to
+hinder us from obeying God in truth:
+
+  I Peter 2:16 - Live as people who are free, not using your freedom as a cover-up for evil, but living as
+  servants of God. (ESV)
+
+God accepts those who serve Christ. We come under Jesus' banner, and His righteousness, but we still follow after
+Him and serve Him in word and deed:
+
+  Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
 We are freed from, for example, making the worries of the world our first thought in the day such as thinking
 always in terms of "will I have enough money, for example", to instead, with the Holy Spirit in us, thinking
@@ -32337,7 +32354,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 14:55
+Created: 2024-06-24 Mon 15:24
 
 Validate
 
