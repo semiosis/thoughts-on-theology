@@ -754,7 +754,10 @@ Someone who has just been born of God is a newborn, an infant in Christ.
 
 3.3.2. Jesus created disciples of Himself
 
-We must turn to obedience to Jesus and loving with Christ's love to come to know Him:
+We must turn to obedience to Jesus and loving with Christ's love to come to know Him. We ought to love as Christ
+loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did. We
+are saved to obey, not obey to be WASHED or to be put into Christ, because we already have been put into Christ,
+but we obey to wash others:
 
   John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
   them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
@@ -31335,16 +31338,44 @@ Him.
 
 As far as my court situation goes, it happened after I was born-again and regenerated. My debt was already
 cancelled. I want to be clear about this because I don't want to mislead anyone. I strongly believe that I was hit
-by an antichrist spirit trying to make it appear as though I was not born-again after being born-again of the
-Spirit.
+by an antichrist spirit trying to make it appear as though I needed to work for my salvation - this happened after
+I was born of the Spirit! Madness! I had just been born-again!
 
   Matthew 5:25-26 - Come to terms quickly with your accuser while you are going with him to court, lest your
   accuser hand you over to the judge, and the judge to the guard, and you be put in prison. Truly, I say to you,
   you will never get out until you have paid the last penny. (ESV)
 
+We must turn to obedience to Jesus and loving with Christ's love to come to know Him. We ought to love as Christ
+loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did. We
+are saved to obey, not obey to be WASHED or to be put into Christ, because we already have been put into Christ,
+but we obey to wash others:
+
+  John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
+  them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
+  If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have
+  given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant
+  is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
+
+Christians are instructed to love our enemies, to have the love of our Heavenly Father:
+
+  Matthew 5:43-44 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, (ESV)
+
 I still believe strongly that there was an antichrist spirit meddling in the situation with court in 2022, with an
 agenda of pressuring me to be deceived into thinking I was not forgiven, and pressuring me to be deceived that I
 needed to pay for my salvation. I have lots of evidence of this.
+
+When it comes to 'works', I believe disciples of Jesus should know they are forgiven by grace through faith and
+also practice righteousness. Christians should both submit to the righteousness of God through faith in Jesus
+Christ, having the imputed righteousness of Christ and they should practice righteousness, and should seek to keep
+accountability to God (not to men), in secret knowing God sees, over their personal righteousness / deeds:
+
+  Matthew 23:2-7 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
+  you-but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
+  them on people's shoulders, but they themselves are not willing to move them with their finger. They do all
+  their deeds to be seen by others. For they make their phylacteries broad and their fringes long, and they love
+  the place of honor at feasts and the best seats in the synagogues and greetings in the marketplaces and being
+  called rabbi by others. (ESV)
 
 But at the time I was being led by the Spirit, walking in seeking to know Jesus Christ through following His
 commandments, so I decided I would use it as an opportunity in what felt like a graceless situation to demonstrate
@@ -31385,14 +31416,6 @@ Jesus went to the cross in the appearance of a criminal, but He committed no cri
   have spoken to you, that my joy may be in you, and that your joy may be full. This is my commandment, that you
   love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his
   friends. You are my friends if you do what I command you.
-
-We must turn to obedience to Jesus and loving with Christ's love to come to know Him:
-
-  John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
-  them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
-  If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have
-  given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant
-  is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
 
 We must practice the truth:
 
@@ -32174,7 +32197,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 11:39
+Created: 2024-06-24 Mon 11:57
 
 Validate
 
