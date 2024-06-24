@@ -5631,7 +5631,7 @@ We are being saved by the gospel as we hold fast to the word:
   which you stand, and by which you are being saved, if you hold fast to the word I preached to you-unless you
   believed in vain. (ESV)
 
-Christ died for our sins:
+By the grace of God, Christ died for our sins:
 
   I Corinthians 15:3-8 - For I delivered to you as of first importance what I also received: that Christ died for
   our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in
@@ -5639,7 +5639,7 @@ Christ died for our sins:
   than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he
   appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. (ESV)
 
-y the grace of God, we are transformed as we work out our salvation, and it's the grace of God working:
+By the grace of God we are transformed as we work out our salvation, and it's the grace of God working:
 
   I Corinthians 15:9-11 - For I am the least of the apostles, unworthy to be called an apostle, because I
   persecuted the church of God. But by the grace of God I am what I am, and his grace toward me was not in vain.
@@ -32380,7 +32380,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 18:05
+Created: 2024-06-24 Mon 18:12
 
 Validate
 
