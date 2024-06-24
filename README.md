@@ -2053,11 +2053,21 @@ Because God loved us *first*:
 -   We should love because *He loved us first*
 -   We must forgive as *we have been **forgiven***
 
-> **[Luke 7:42-43](https://www.biblegateway.com/passage/?search=Luke%207%3A42-43&version=ESV)** - When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. (ESV)
+God cancelled the record of debt of our sin with the blood of Jesus Christ:
 
 > **[Colossians 2:14](https://www.biblegateway.com/passage/?search=Colossians%202%3A14&version=ESV)** - by canceling the record of debt that stood against us with its legal demands. This he set aside, nailing it to the cross. (ESV)
 
+We are supposed to have a response of **repentance from sin**. God's kindness is meant to lead us to repentance from sin:
+
+> **Romans 2:4** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
+
+We are supposed to have a response of love for Jesus. God's forgiveness should lead us to love God and want to obey Him:
+
+> **[Luke 7:42-43](https://www.biblegateway.com/passage/?search=Luke%207%3A42-43&version=ESV)** - When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. (ESV)
+
 -   **Song:** [youtube.com: In Christ Alone {My Hope Is Found} - Adrienne Liesching | LYRIC VIDEO](https://www.youtube.com/watch?v=rn9-UNer6MQ&list=RDdhU-Omwg2rU&index=12)
+
+It's for our own good that we stop sinning.
 
 Sin no more so that nothing worse happens:
 
@@ -2132,7 +2142,28 @@ and after we are grafted into Christ, we now have His righteousness and Almighty
 like the All Blacks try to please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His Spirit, and His Spirit helps us to do this.
 
 
-### Christians should live fulfilling the royal law
+### God disciplines us even if we love Jesus
+
+The ones who love Jesus, keep His teachings:
+
+> **[John 14:23-24](https://www.biblegateway.com/passage/?search=John%2014%3A23-24&version=ESV)** - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
+God may discipline us, even if we love Jesus and keep Jesus' commandments:
+
+> **Hebrews 12:6** - For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
+
+We have to believe and obey the Truth. We have to agree with the word of God, and allow God to correct our beliefs and behaviour:
+
+> **[John 17:17-19](https://www.biblegateway.com/passage/?search=John%2017%3A17-19&version=ESV)** - **Sanctify them in the truth; Your word is truth.** As you sent me into the world, <ins>so I have sent them into the world.</ins> And for their sake I consecrate myself, that they also may be sanctified in truth.  (ESV)
+
+I think we can expect God will discipline us to help us to keep the Royal Law.
+
+Whoever loves with Christ's love knows Father God:
+
+> **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+
+
+### Christians should live fulfilling the Royal Law
 
 Those walking (living) according to Jesus' Spirit should be able to do this:
 
@@ -2145,6 +2176,10 @@ Those walking (living) according to Jesus' Spirit should be able to do this:
 > **[Romans 13:10](https://www.biblegateway.com/passage/?search=Romans%2013%3A10&version=ESV)** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
 > **[Romans 13:8](https://www.biblegateway.com/passage/?search=Romans%2013%3A8&version=ESV)** - Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. (ESV)
+
+Whoever loves with Christ's love knows Father God:
+
+> **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
 
 
 ### Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus, Jesus having fulfilled the entire law and prophets
@@ -3973,7 +4008,7 @@ We have to repent and believe:
 
 > **[Mark 1:14-15](https://www.biblegateway.com/passage/?search=Mark%201%3A14-15&version=ESV)** - Now after John was arrested, Jesus came into Galilee, proclaiming the gospel of God, and saying, The time is fulfilled, and the kingdom of God is at hand; **repent and believe in the gospel**. (ESV)
 
-We have to believe the Truth. We have to agree with the word of God:
+We have to believe and obey the Truth. We have to agree with the word of God, and allow God to correct our beliefs and behaviour:
 
 > **[John 17:17-19](https://www.biblegateway.com/passage/?search=John%2017%3A17-19&version=ESV)** - **Sanctify them in the truth; Your word is truth.** As you sent me into the world, <ins>so I have sent them into the world.</ins> And for their sake I consecrate myself, that they also may be sanctified in truth.  (ESV)
 
