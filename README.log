@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 JUN 2024 19:57
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 JUN 2024 20:07
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1813,7 +1813,7 @@ Package rerunfilecheck Warning: File `README.out' has changed.
 
 Package rerunfilecheck Info: Checksums for `README.out':
 (rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  18248416813433C475C9F82E774A2D9B.
+(rerunfilecheck)             After:  9F7F63C067E81A423D10CE014E64AC01.
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 

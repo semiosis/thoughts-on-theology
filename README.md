@@ -2142,15 +2142,15 @@ and after we are grafted into Christ, we now have His righteousness and Almighty
 like the All Blacks try to please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His Spirit, and His Spirit helps us to do this.
 
 
-### God disciplines us even if we love Jesus
+### God definitely disciplines us even if we love Jesus - **every** son he receives
 
 The ones who love Jesus, keep His teachings:
 
 > **[John 14:23-24](https://www.biblegateway.com/passage/?search=John%2014%3A23-24&version=ESV)** - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
-God may discipline us, even if we love Jesus and keep Jesus' commandments:
+God *definitely* disciplines us, even if we love Jesus and keep Jesus' commandments:
 
-> **Hebrews 12:6** - For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
+> **[Hebrews 12:6-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A6-8&version=ESV)** - For the Lord disciplines the one he loves, and chastises **every son whom he receives**. It is for discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not discipline? If you are left without discipline, in which **all have participated**, then you are illegitimate children and not sons.
 
 We have to believe and obey the Truth. We have to agree with the word of God, and allow God to correct our beliefs and behaviour:
 
@@ -10055,7 +10055,7 @@ Even as we are going through hardship for following Jesus, we should rejoice bec
 
 ### Illegitimate children are left without discipline and are not sons
 
-> **[Hebrews 12:6-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A6-8&version=ESV)** - For the Lord disciplines the one he loves, and chastises every son whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not discipline? If you are left without discipline, in which all have participated, then you are illegitimate children and not sons.
+> **[Hebrews 12:6-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A6-8&version=ESV)** - For the Lord disciplines the one he loves, and chastises **every son whom he receives**. It is for discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not discipline? If you are left without discipline, in which **all have participated**, then you are illegitimate children and not sons.
 
 
 ## The measure of <ins>what we hear and take heed of</ins> and <ins>how we hear and let take root in us</ins> will be measured to us
