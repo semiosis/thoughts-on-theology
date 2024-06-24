@@ -2041,7 +2041,7 @@ Practicing witchcraft, for example, is definitely not loving your neighbour as y
 
 Forgiveness from God is received by faith:
 
-> **Romans 3:25** - whom God put forward as a propitiation by his blood, to be received by faith. This was to show **God's righteousness**, because in his divine forbearance he had passed over former sins. (ESV)
+> **[Romans 3:25](https://www.biblegateway.com/passage/?search=Romans%203%3A25&version=ESV)** - whom God put forward as a propitiation by his blood, to be received by faith. This was to show **God's righteousness**, because in his divine forbearance he had passed over former sins. (ESV)
 
 Because God loved us *first*:
 
@@ -2051,7 +2051,17 @@ Because God loved us *first*:
 -   We should love because *He loved us first*
 -   We must forgive as *we have been **forgiven***
 
+> **[Luke 7:42-43](https://www.biblegateway.com/passage/?search=Luke%207%3A42-43&version=ESV)** - When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. (ESV)
+
+> **[Colossians 2:14](https://www.biblegateway.com/passage/?search=Colossians%202%3A14&version=ESV)** - by canceling the record of debt that stood against us with its legal demands. This he set aside, nailing it to the cross. (ESV)
+
 -   **Song:** [youtube.com: In Christ Alone {My Hope Is Found} - Adrienne Liesching | LYRIC VIDEO](https://www.youtube.com/watch?v=rn9-UNer6MQ&list=RDdhU-Omwg2rU&index=12)
+
+Sin no more so that nothing worse happens:
+
+> **[John 5:14](https://www.biblegateway.com/passage/?search=John%205%3A14&version=ESV)** - Afterward Jesus found him in the temple and said to him, See, you are well! Sin no more, that nothing worse may happen to you. (ESV)
+
+> **[John 8:10-11](https://www.biblegateway.com/passage/?search=John%208%3A10-11&version=ESV)** - Jesus stood up and said to her, Woman, where are they? Has no one condemned you? She said, No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more. (ESV)
 
 
 ### Subsequent behaviour - the Golden Rule and the Royal Law
@@ -2118,6 +2128,32 @@ bearing their neighbours burdens and forgiving one another, but who has done tha
 As Christians we were at one time disobedient, and were not able to do this perfectly, and we have been saved by Jesus, having been forgiven by Him,
 and after we are grafted into Christ, we now have His righteousness and Almighty God as our Father, and Jesus is our Master and we seek to please our Master,
 like the All Blacks try to please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His Spirit, and His Spirit helps us to do this.
+
+
+### Christians should live fulfilling the royal law
+
+Those walking (living) according to Jesus' Spirit should be able to do this:
+
+> **[Romans 8:4](https://www.biblegateway.com/passage/?search=Romans%208%3A4&version=ESV)** - in order that the righteous requirement of the law **might be fulfilled in us**, who walk not according to the flesh but according to the Spirit. (ESV)
+
+> **[James 2:8](https://www.biblegateway.com/passage/?search=James%202%3A8&version=ESV)** - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. (ESV)
+
+> **[Galatians 6:2](https://www.biblegateway.com/passage/?search=Galatians%206%3A2&version=ESV)** - Bear one another's burdens, and so fulfill the law of Christ. (ESV)
+
+> **[Romans 13:10](https://www.biblegateway.com/passage/?search=Romans%2013%3A10&version=ESV)** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+> **[Romans 13:8](https://www.biblegateway.com/passage/?search=Romans%2013%3A8&version=ESV)** - Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. (ESV)
+
+
+### Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus, Jesus having fulfilled the entire law and prophets
+
+> **[John 15:25](https://www.biblegateway.com/passage/?search=John%2015%3A25&version=ESV)** - But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)
+
+> **[John 18:9](https://www.biblegateway.com/passage/?search=John%2018%3A9&version=ESV)** - This was to fulfill the word that he had spoken: Of those whom you gave me I have lost not one. (ESV)
+
+> **[Matthew 26:56](https://www.biblegateway.com/passage/?search=Matthew%2026%3A56&version=ESV)** - But all this has taken place that the Scriptures of the prophets might be fulfilled. Then all the disciples left him and fled. (ESV)
+
+> **[Matthew 5:17](https://www.biblegateway.com/passage/?search=Matthew%205%3A17&version=ESV)** - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to fulfill them. (ESV)
 
 
 ## Following Jesus is the way of righteousness
@@ -6661,7 +6697,27 @@ The whole world is accountable to God over the law of God:
 
 The law is still used in judgement, but the one who has faith in Jesus is not condemned.
 
-The law is good and just and Jesus both obeyed it flawlessly, but He also fulfilled it like a prophesy.
+The law is good and just and Jesus both obeyed it flawlessly, but He also fulfilled it like a prophesy:
+
+> **[Acts 3:18](https://www.biblegateway.com/passage/?search=Acts%203%3A18&version=ESV)** - But what God foretold by the mouth of all the prophets, that his Christ would suffer, he thus fulfilled. (ESV)
+
+> **[John 15:25](https://www.biblegateway.com/passage/?search=John%2015%3A25&version=ESV)** - But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)
+
+> **[John 18:9](https://www.biblegateway.com/passage/?search=John%2018%3A9&version=ESV)** - This was to fulfill the word that he had spoken: Of those whom you gave me I have lost not one. (ESV)
+
+> **[Matthew 26:56](https://www.biblegateway.com/passage/?search=Matthew%2026%3A56&version=ESV)** - But all this has taken place that the Scriptures of the prophets might be fulfilled. Then all the disciples left him and fled. (ESV)
+
+> **[Matthew 5:17](https://www.biblegateway.com/passage/?search=Matthew%205%3A17&version=ESV)** - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to fulfill them. (ESV)
+
+> **[John 18:32](https://www.biblegateway.com/passage/?search=John%2018%3A32&version=ESV)** - This was to fulfill the word that Jesus had spoken to show by what kind of death he was going to die. (ESV)
+
+> **[John 19:24](https://www.biblegateway.com/passage/?search=John%2019%3A24&version=ESV)** - so they said to one another, Let us not tear it, but cast lots for it to see whose it shall be. This was **to fulfill the Scripture** which says, They divided my garments among them, and for my clothing they cast lots. So the soldiers did these things, (ESV)
+
+> **[John 19:28](https://www.biblegateway.com/passage/?search=John%2019%3A28&version=ESV)** - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. (ESV)
+
+It was inevitable. The Scripture **had** to be fulfilled:
+
+> **[Acts 1:16](https://www.biblegateway.com/passage/?search=Acts%201%3A16&version=ESV)** - Brothers, **the Scripture had to be fulfilled**, which the Holy Spirit spoke beforehand by the mouth of David concerning Judas, who became a guide to those who arrested Jesus. (ESV)
 
 
 ### Didache
@@ -10516,7 +10572,9 @@ I enjoyed this video, but I still am of the opinion that <ins>keeping</ins> the 
 but <ins>following it by faith</ins> (receiving our justification from Jesus by obedience to Jesus) is not prohibited, so long as it is pursued by faith and submitting to God's righteousness:
 
 -   [Public Debate - Should Christians Keep The Law? - YouTube](https://www.youtube.com/watch?v=CNHKqhwu6Bo)
--   The law is good and just and Jesus both obeyed it flawlessly, but He also fulfilled it like a prophesy.
+-   The law is good and just and Jesus both obeyed it flawlessly, but He also fulfilled it like a prophesy:
+
+> **[Acts 3:18](https://www.biblegateway.com/passage/?search=Acts%203%3A18&version=ESV)** - But what God foretold by the mouth of all the prophets, that his Christ would suffer, he thus fulfilled. (ESV)
 
 Christians follow Jesus first and foremost:
 
