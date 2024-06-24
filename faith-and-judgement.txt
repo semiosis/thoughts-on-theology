@@ -3105,7 +3105,9 @@ We are supposed to fulfill the Royal Law, even after having received forgiveness
   (ESV)
 
 Committing sin can still happen after having been forgiven. Committing sin happens when we do not fulfill the
-Royal Law:
+Royal Law, or when we are showing unfair bias as we do it. Therefore being led by the Spirit of Jesus, we should
+be abiding by the Royal law, and to be deliberately breaking the Royal law, a person could no longer say they are
+being led by the Spirit of Jesus:
 
   James 2:8-9 - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as
   yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as
@@ -32354,7 +32356,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 15:24
+Created: 2024-06-24 Mon 17:36
 
 Validate
 
