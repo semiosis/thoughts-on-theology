@@ -2425,7 +2425,8 @@ We work out the salvation He worked for.
   believe that he exists and that he rewards those who seek him. (ESV)
 
 God's people no longer offer slaughtered animals, but we offer ourselves, all we are, our lives in obedience
-to Him:
+to Him. We are to practice personal holiness, putting a stop to sin, and living to serve God, and love one
+another:
 
   Romans 12:1 - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living
   sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
@@ -31118,15 +31119,36 @@ even with a good conscience with regards to God's precepts:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
+Ever since 2 April 2022 I have been a new creation. I am controlled by the love of Christ and have stopped
+thinking like the world thinks, and I've been living for Christ, and I've been learning to do that better:
+
+  II Corinthians 5:14-17 - For the love of Christ controls us, because we have concluded this: that one has died
+  for all, therefore all have died; and he died for all, that those who live might no longer live for themselves
+  but for him who for their sake died and was raised. From now on, therefore, we regard no one according to the
+  flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if
+  anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come. (ESV)
+
 I had an out-of-body meeting with the Holy Spirit, and a dream on 3 May 2022 foreshadowing 1 year later on 3 May
 2023 when I ended up pleading guilty in court.
+
+Even though I have been born-again, and I think I've been treated with almost zero, even treated unfairly, I do
+not say I am without sin, and to have pleaded 'not guilty' as I am seeking to be obedient to Jesus, even while
+repenting from certain things which were nothing to do with court, and to not use the year I was born of the
+Spirit to make testimony of Jesus I think would be to dishonour Jesus, as Jesus is my Lord. So for that and also
+to try to do no harm to my neighbour, and also because I am not without sin, even after being washed and
+regenerated, I pleaded guilty in court:
+
+  I John 1:8-10 - If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our
+  sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. If we say we
+  have not sinned, we make him a liar, and his word is not in us. (ESV)
 
   Romans 3:4 - By no means! Let God be true though every one were a liar, as it is written, That you may be
   justified in your words, and prevail when you are judged. (ESV)
 
   Romans 3:23 - for all have sinned and fall short of the glory of God, (ESV)
 
-I did not want to test God by pleading not guilty, especially on Easter.
+I was also asked just leading up to Easter what I would plea. I did not want to test God by pleading not guilty,
+especially on Easter.
 
 Nor does it make sense to challenge someone in court who you want to marry because:
 
@@ -31138,6 +31160,8 @@ Nor does it make sense to challenge someone in court who you want to marry becau
 
 Nor does it make senses to pit old concerns of my pre-born-again life such as "a conviction might make it harder
 to get a job" up against the needs of the person I want to marry.
+
+There was simply no logic as far as godly wisdom goes to pleading 'not guilty'.
 
 And we are called to love with Christ's love impartially, so had the court situation been with different people
 and with a different charge, Christ's law still applies:
@@ -32313,7 +32337,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 14:01
+Created: 2024-06-24 Mon 14:55
 
 Validate
 
