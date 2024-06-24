@@ -755,9 +755,11 @@ Someone who has just been born of God is a newborn, an infant in Christ.
 3.3.2. Jesus created disciples of Himself
 
 We must turn to obedience to Jesus and loving with Christ's love to come to know Him. We ought to love as Christ
-loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did. We
-are saved to obey, not obey to be WASHED or to be put into Christ, because we already have been put into Christ,
-but we obey to wash others:
+loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did and
+we practice personal righteousness while having His imputed righteousness, as he is our Master.
+
+We are saved to obey God better. God puts us into Christ. We obey to wash others, and for ourselves to be
+sanctified, like a branch becoming healthier in the tree:
 
   John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
   them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
@@ -31371,8 +31373,8 @@ We must turn to obedience to Jesus and loving with Christ's love to come to know
 loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did and
 we practice personal righteousness while having His imputed righteousness, as he is our Master.
 
-We are saved to obey, not obey to be put into Christ. We already have been put into Christ, but we obey to wash
-others, and to ourselves be sanctified, like a branch becoming healthier in the tree:
+We are saved to obey God better. God puts us into Christ. We obey to wash others, and for ourselves to be
+sanctified, like a branch becoming healthier in the tree:
 
   John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
   them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
@@ -32222,7 +32224,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 12:23
+Created: 2024-06-24 Mon 12:34
 
 Validate
 
