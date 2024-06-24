@@ -14861,14 +14861,23 @@ purchased through His blood
 - Law of God
 - Great commandments
 - 1) To love the Lord your God with all your heart, soul, mind and strength, and 2) love your
-neighbour as yourself
-- We should endeavour to fulfill these by following Jesus
-- Romans 8:3-4 - For God has done what the law, weakened by the flesh, could not do. By sending
-his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in
-order that the righteous requirement of the law might be fulfilled in us, who walk not
-according to the flesh but according to the Spirit. (ESV)
+neighbour as yourself (the Royal Law)
+- We should still endeavour to fulfill these by following Jesus:
+- Believe in Him, believe Him
+- Accept the atonement made by His blood, accept forgiveness from God
+- Love one another the same way He loved us
+- Jesus' Spirit helps us to fulfill the requirement of the law as we walk in His Spirit:
+- Romans 8:3-4 - For God has done what the law, weakened by the flesh, could not do. By
+sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the
+flesh, in order that the righteous requirement of the law might be fulfilled in us, who
+walk not according to the flesh but according to the Spirit. (ESV)
+- Golden Rule
+- Living by the Golden Rule (or better, the Royal Law) still comes after having been forgiven by
+Jesus:
+- Matthew 7:12 - So whatever you wish that others would do to you, do also to them, for this is
+the Law and the Prophets. (ESV)
 - 10 Commandments
-- We should endeavour to remain faithful to God with these from the heart
+- We should endeavour to remain faithful to God with these from the heart:
 - I John 5:21 - Little children, keep yourselves from idols. (ESV)
 - Matthew 5:28 - But I say to you that everyone who looks at a woman with lustful intent has
 already committed adultery with her in his heart. (ESV)
@@ -32304,7 +32313,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 13:21
+Created: 2024-06-24 Mon 14:01
 
 Validate
 
