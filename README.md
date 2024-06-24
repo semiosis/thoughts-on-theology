@@ -21648,6 +21648,34 @@ Jesus, by His own authority, rose from the dead. AMEN!!
 
 ## Belt of Truth
 
+-   **Message:** [youtube.com: C S  Lewis message 2024 -  Faith in action God fights for you, but you must also act @time: 13 min 7 sec](https://youtube.com/watch?v=5I7aZfuxt6s&t=787)
+
+> **CS Lewis** - Think of it as the sturdy belt
+> a soldier wears, holding everything in
+> place.
+> 
+> The Truth serves as the foundation of our
+> spiritual lives, anchoring us in a world
+> full of deceptions and falsehoods.
+> 
+> It is the Word of God that anchors us and
+> sets us free, as Jesus said in [John 8:32](https://www .biblegateway.com/passage/?search=John%208%3 A32&version=ESV).
+> 
+> Then there is the breastplate of
+> righteousness.
+> 
+> This piece of armour protects our hearts
+> against the enemy's attacks.
+> 
+> It is a reminder of the righteousness we
+> have through Christ, not because of anything
+> we have done, but because of His sacrifice
+> on the cross.
+> 
+> It is about living in obedience and
+> integrity, knowing that we are clothed in
+> His righteousness.
+
 > **[Ephesians 6:14](https://www.biblegateway.com/passage/?search=Ephesians%206%3A14&version=ESV)** - Stand therefore, having fastened on the **belt of truth**, and having put on the **breastplate of righteousness**, (ESV)
 
 > **[Ephesians 5:9](https://www.biblegateway.com/passage/?search=Ephesians%205%3A9&version=ESV)** - (for the fruit of light is found in all that is good and right and true), (ESV)
