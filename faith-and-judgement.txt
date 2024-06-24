@@ -3018,7 +3018,20 @@ loved us and forgive us first
 - We must forgive as we have been forgiven
 - youtube.com: In Christ Alone {My Hope Is Found} - Adrienne Liesching | LYRIC VIDEO
 
-4.2.2. Subsequent behaviour - the Golden Rule
+4.2.2. Subsequent behaviour - the Golden Rule and the Royal Law
+
+When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
+grace through faith and they should also practice their righteousness. Christians should both submit to the
+righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ and they should
+practice righteousness (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability
+primarily to God in regards to the law because He sees everything, and secondarily to men to love as Jesus loved:
+
+  Matthew 23:2-7 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
+  you-but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
+  them on people's shoulders, but they themselves are not willing to move them with their finger. They do all
+  their deeds to be seen by others. For they make their phylacteries broad and their fringes long, and they love
+  the place of honor at feasts and the best seats in the synagogues and greetings in the marketplaces and being
+  called rabbi by others. (ESV)
 
 We love in the knowledge we have already been loved first when God sent Jesus Christ to pay for our sin with His
 blood. I was born-again of the Spirit and regenerated on 2 April 2022.
@@ -31367,10 +31380,11 @@ I still believe strongly that there was an antichrist spirit meddling in the sit
 agenda of pressuring me to be deceived into thinking I was not forgiven, and pressuring me to be deceived that I
 needed to pay for my salvation. I have lots of evidence of this.
 
-When it comes to 'works', I believe disciples of Jesus should know they are forgiven by grace through faith and
-also practice righteousness. Christians should both submit to the righteousness of God through faith in Jesus
-Christ, having the imputed righteousness of Christ and they should practice righteousness, and should seek to keep
-accountability to God (not to men), in secret knowing God sees, over their personal righteousness / deeds:
+When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
+grace through faith and they should also practice their righteousness. Christians should both submit to the
+righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ and they should
+practice righteousness (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability
+primarily to God in regards to the law because He sees everything, and secondarily to men to love as Jesus loved:
 
   Matthew 23:2-7 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
   you-but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
@@ -32199,7 +32213,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 12:04
+Created: 2024-06-24 Mon 12:12
 
 Validate
 
