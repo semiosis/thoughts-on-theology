@@ -2737,7 +2737,9 @@ The prophets, saints, and servants of Jesus will be rewarded:
   yourselves. And we urge you, brothers, admonish the idle, encourage the fainthearted, help the weak, be patient
   with them all. (ESV)
 
-I just want to be clear that good works we do in obedience to Jesus are still considered a gift to us:
+I just want to be clear that good works we do in obedience to Jesus are still considered a gift to us. We work out
+what God has worked for. It's even a gift too be in position of being able to do good works in service to Jesus
+after He has washed us:
 
   Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, not a result of works, so that no one may boast. (ESV)
@@ -5573,6 +5575,31 @@ salvation - so they are a goat, not a sheep.
 
 5.7.10. Doing the will of God
 
+The will of God:
+
+- Arrive at maturity and fully assured in all the will of God
+- We must look at what all of the will of God is for us and endeavour to be mature and fully assured with
+all of it
+- Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always
+struggling on your behalf in his prayers, that you may stand mature and fully assured in all the
+will of God. (ESV)
+- Be transformed by the renewal of your mind
+- Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by
+testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+- We must take every thought captive to be obedient to Christ
+- II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of
+God, and take every thought captive to obey Christ, being ready to punish every disobedience, when
+your obedience is complete. (ESV)
+- We want our mind to be the mind of Christ
+- I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have
+the mind of Christ. (ESV)
+- Be a servant of Christ
+- Ephesians 6:6 - not by the way of eye-service, as people-pleasers, but as servants of Christ, doing the
+will of God from the heart, (ESV)
+- Give thanks in all circumstances
+- I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for
+you. (ESV)
+
   Mark 3:35 - Whoever does the will of God, he is my brother and sister and mother. (ESV)
 
   Romans 8:27 - And he who searches hearts knows what is the mind of the Spirit, because the Spirit intercedes for
@@ -5593,16 +5620,22 @@ salvation - so they are a goat, not a sheep.
   Ephesians 1:1 - Paul, an apostle of Christ Jesus by the will of God, To the saints who are in Ephesus, and are
   faithful in Christ Jesus: (ESV)
 
+Be a servant of Christ:
+
   Ephesians 6:6 - not by the way of eye-service, as people-pleasers, but as servants of Christ, doing the will of
   God from the heart, (ESV)
 
   Colossians 1:1 - Paul, an apostle of Christ Jesus by the will of God, and Timothy our brother, (ESV)
+
+Arrive at maturity and fully assured in all the will of God:
 
   Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always struggling on your
   behalf in his prayers, that you may stand mature and fully assured in all the will of God. (ESV)
 
   I Thessalonians 4:3 - For this is the will of God, your sanctification: that you abstain from sexual immorality;
   (ESV)
+
+Give thanks in all circumstances:
 
   I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for you.
   (ESV)
@@ -5612,6 +5645,8 @@ salvation - so they are a goat, not a sheep.
 
   Hebrews 10:36 - For you have need of endurance, so that when you have done the will of God you may receive what
   is promised. (ESV)
+
+Doing good = holding to our confession and maintaining godly behaviour:
 
   I Peter 2:15 - For this is the will of God, that by doing good you should put to silence the ignorance of
   foolish people. (ESV)
@@ -11493,7 +11528,9 @@ In obeying God, God helps us:
   Joshua 1:9 - Have I not commanded you? Be strong and courageous. Do not be frightened, and do not be dismayed,
   for the LORD your God is with you wherever you go. (ESV)
 
-I just want to be clear that good works we do in obedience to Jesus are still considered a gift to us:
+I just want to be clear that good works we do in obedience to Jesus are still considered a gift to us. We work out
+what God has worked for. It's even a gift too be in position of being able to do good works in service to Jesus
+after He has washed us:
 
   Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, not a result of works, so that no one may boast. (ESV)
@@ -13257,7 +13294,7 @@ obedience.
 
   II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God,
   and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience
-  is complete.
+  is complete. (ESV)
 
 Hebrews describes faith as the hope and conviction we need to draw near to God because we need to believe that
 He exists and that He rewards those who seek him.
@@ -14409,9 +14446,12 @@ God is the Gospel - YouTube @time: 40 min 42 sec
 
   Colossians 1:21 - And you, who once were alienated and hostile in mind, doing evil deeds,
 
+  Hebrews 12:11 - For the moment all discipline seems painful rather than pleasant, but later it yields the
+  peaceful fruit of righteousness to those who have been trained by it. (ESV)
+
   II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God, and
   take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is
-  complete.
+  complete. (ESV)
 
   Ephesians 2:2 - in which you once walked, following the course of this world, following the prince of the power
   of the air, the spirit that is now at work in the sons of disobedience-
@@ -19394,13 +19434,6 @@ The persecution is for the cross of Christ - the offense of the cross:
   Matthew 13:21 - yet he has no root in himself, but endures for a while, and when tribulation or persecution
   arises on account of the word, immediately he falls away. (ESV)
 
-38.8. The kingdom of heaven may be inherited
-
-  Matthew 5:10 - Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of
-  heaven. (ESV)
-
-  Matthew 5:3-9 - Blessed are the poor in spirit, for theirs is the kingdom of heaven.
-
 39. The Kingdom of God
 
 After I got born-again I started getting dreams with themes of the 'Kingdom of God', and also through interactions
@@ -19414,6 +19447,43 @@ observed:
   of God is not coming with signs to be observed, nor will they say, Look, here it is! or There! for behold, the
   kingdom of God is in the midst of you.
 
+Also, entering the kingdom of God is entering into righteousness and peace and joy in the Holy Spirit:
+
+  Romans 14:17-20 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
+  and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. So then let us
+  pursue what makes for peace and for mutual upbuilding. Do not, for the sake of food, destroy the work of God.
+  Everything is indeed clean, but it is wrong for anyone to make another stumble by what he eats. (ESV)
+
+Those in the Kingdom of God are serving Christ. As we serve Christ, we are approved by God:
+
+  Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
+obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
+We are the light of the world. Yes, we must do good:
+
+  Matthew 5:14-20 - You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a
+  lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let
+  your light shine before others, so that they may see your good works and give glory to your Father who is in
+  heaven. Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to
+  fulfill them. For truly, I say to you, until heaven and earth pass away, not an iota, not a dot, will pass from
+  the Law until all is accomplished. Therefore whoever relaxes one of the least of these commandments and teaches
+  others to do the same will be called least in the kingdom of heaven, but whoever does them and teaches them will
+  be called great in the kingdom of heaven. For I tell you, unless your righteousness exceeds that of the scribes
+  and Pharisees, you will never enter the kingdom of heaven.
+
+We must do good, and behave like the children of God, or we will not enter the Kingdom:
+
+  I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil: whoever
+  does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+
+  I John 3:7 - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. (ESV)
+
 40. Entering and inheriting the kingdom
 
 There's so much stuff to do to enter the kingdom... I feel entirely unworthy.
@@ -19424,6 +19494,17 @@ feel as though I am approaching it and haven't quite entered it (just being hone
 Those who hunger and thirst for righteousness will be satisfied.
 
 Please God, give me the righteousness required to enter the kingdom.
+
+  Matthew 5:10 - Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of
+  heaven. (ESV)
+
+  Matthew 5:3-9 - Blessed are the poor in spirit, for theirs is the kingdom of heaven.
+
+  Matthew 19:23-26 - And Jesus said to his disciples, Truly, I say to you, only with difficulty will a rich person
+  enter the kingdom of heaven. Again I tell you, it is easier for a camel to go through the eye of a needle than
+  for a rich person to enter the kingdom of God. When the disciples heard this, they were greatly astonished,
+  saying, Who then can be saved? But Jesus looked at them and said, With man this is impossible, but with God all
+  things are possible. (ESV)
 
 40.1. Jesus explains how we can go about seeking the Kingdom of God and His righteousness - this is obedience (the
 type of faith we must have), not works!
@@ -20133,14 +20214,14 @@ It's really important to come to communion with the type of heart that would yea
   I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
   blood of Jesus his Son cleanses us from all sin.
 
-  I Corinthians 2:11 - For who knows a person's thoughts except the spirit of that person, which is in him? So
+  I Corinthians 2:11-16 - For who knows a person's thoughts except the spirit of that person, which is in him? So
   also no one comprehends the thoughts of God except the Spirit of God. Now we have received not the spirit of the
   world, but the Spirit who is from God, that we might understand the things freely given us by God. And we impart
   this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual truths to those who
   are spiritual. The natural person does not accept the things of the Spirit of God, for they are folly to him,
   and he is not able to understand them because they are spiritually discerned. The spiritual person judges all
   things, but is himself to be judged by no one. For who has understood the mind of the Lord so as to instruct
-  him? But we have the mind of Christ.
+  him? But we have the mind of Christ. (ESV)
 
   John 5:39 - You search the Scriptures because you think that in them you have eternal life; and it is they that
   bear witness about me,
@@ -31974,11 +32055,21 @@ for when that happens by being holy and loving:
   I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
   as he is so also are we in this world. (ESV)
 
-Personal righteousness (holiness and 'doing good') is still extremely important for inheriting the kingdom of God:
+Both our faith and our love should be increasing:
+
+  II Thessalonians 1:3 - We ought always to give thanks to God for you, brothers, as is right, because your faith
+  is growing abundantly, and the love of every one of you for one another is increasing. (ESV)
+
+Doing the will of God is still extremely important for inheriting the kingdom of God. The will of God includes
+exercising personal righteousness as a fruit of sanctification (holiness, loving your neighbour as yourself, and
+doing good):
 
   I Corinthians 6:9-10 - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
   thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God. (ESV)
+
+  Hebrews 12:11 - For the moment all discipline seems painful rather than pleasant, but later it yields the
+  peaceful fruit of righteousness to those who have been trained by it. (ESV)
 
 Doing the will of God is important for inheriting the kingdom of God:
 
@@ -32447,7 +32538,7 @@ Date: 2024-06-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-24 Mon 20:04
+Created: 2024-06-26 Wed 11:25
 
 Validate
 
