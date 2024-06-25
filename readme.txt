@@ -4311,6 +4311,23 @@ God still makes apostles and prophetic people:
   by every joint with which it is equipped, when each part is working properly, makes the body grow so that it
   builds itself up in love. (ESV)
 
+I myself, right after being born-again, have had visions of planting churches in the South Pacific. I've also had
+a vision of the morning star arising in the sky, and many other such visions.
+
+  II Peter 1:19 - And we have something more sure, the prophetic word, to which you will do well to pay attention
+  as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts, (ESV)
+
+Anyway, I know that God still makes apostles and prophetic people and is still working on the earth. Cessationists
+are quite simply incorrect. However apostolic and prophetic people have the truth revealed to them. These roles
+are service roles though for helping the body of Christ grow in the knowledge of the Son of God, so there's no
+bragging, just serving one another, as we have different roles in the body of Christ:
+
+  Ephesians 3:5 - which was not made known to the sons of men in other generations as it has now been revealed to
+  his holy apostles and prophets by the Spirit. (ESV)
+
+  I Corinthians 2:4 - and my speech and my message were not in plausible words of wisdom, but in demonstration of
+  the Spirit and of power, (ESV)
+
 But we should listen to sound teaching first and always test the spirits:
 
   II Timothy 4:3 - For the time is coming when people will not endure sound teaching, but having itching ears they
@@ -32534,11 +32551,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-06-24 Mon 00:00
+Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 11:25
+Created: 2024-06-26 Wed 11:52
 
 Validate
 

@@ -2938,7 +2938,19 @@ Paul and the other faithful Apostles were exhibited as last of all, like men sen
 
 God still makes apostles and prophetic people:
 
-> **[Ephesians 4:11-16](https://www.biblegateway.com/passage/?search=Ephesians%204%3A11-16&version=ESV)** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, **to equip the saints** for the **work** of ministry, for **building up the body of Christ**, until we all attain to the **unity of the faith and of the knowledge of the Son of God**, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be <ins>children, tossed to and fro by the waves and carried about by every wind of doctrine</ins>, by human cunning, by craftiness in **deceitful** schemes. Rather, **speaking the truth in love**, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love. (ESV)
+> **[Ephesians 4:11-16](https://www.biblegateway.com/passage/?search=Ephesians%204%3A11-16&version=ESV)** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, **to equip the saints** for the **work** of ministry, for **building up the body of Christ**, *until we all attain* to the **unity of the faith and of the knowledge of the Son of God**, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be <ins>children, tossed to and fro by the waves and carried about by every wind of doctrine</ins>, by human cunning, by craftiness in **deceitful** schemes. Rather, **speaking the truth in love**, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love. (ESV)
+
+I myself, right after being born-again, have had visions of planting churches in the South Pacific.
+I've also had a vision of the morning star arising in the sky, and many other such visions.
+
+> **[II Peter 1:19](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A19&version=ESV)** - And we have something more sure, the prophetic word, to which you will do well to pay attention as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts, (ESV)
+
+Anyway, I **know** that God still makes apostles and prophetic people and is still working on the earth.
+Cessationists are quite simply incorrect. However apostolic and prophetic people have the truth revealed to them. These roles are service roles though for helping the body of Christ grow in the knowledge of the Son of God, so there's no bragging, just serving one another, as we have different roles in the body of Christ:
+
+> **[Ephesians 3:5](https://www.biblegateway.com/passage/?search=Ephesians%203%3A5&version=ESV)** - which was not made known to the sons of men in other generations as it has now been revealed to his holy apostles and prophets by the Spirit. (ESV)
+
+> **[I Corinthians 2:4](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A4&version=ESV)** - and my speech and my message were not in plausible words of wisdom, but in demonstration of the Spirit and of power, (ESV)
 
 But we should listen to sound teaching first and always test the spirits:
 
@@ -14724,7 +14736,7 @@ And in Jesus Christ there is no sin:
 
 A comprehensive and broad understanding of the Bible is certainly important so we are not "tossed around by every wind of doctrine", and to grow into and become established in the knowledge of Jesus, and able to not be tossed around when people ask questions about doctrine (I have often felt tested in this way, and sometimes unprepared), and that is why I am writing this Bible study out:
 
-> **[Ephesians 4:11-16](https://www.biblegateway.com/passage/?search=Ephesians%204%3A11-16&version=ESV)** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, **to equip the saints** for the **work** of ministry, for **building up the body of Christ**, until we all attain to the **unity of the faith and of the knowledge of the Son of God**, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be <ins>children, tossed to and fro by the waves and carried about by every wind of doctrine</ins>, by human cunning, by craftiness in **deceitful** schemes. Rather, **speaking the truth in love**, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love. (ESV)
+> **[Ephesians 4:11-16](https://www.biblegateway.com/passage/?search=Ephesians%204%3A11-16&version=ESV)** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, **to equip the saints** for the **work** of ministry, for **building up the body of Christ**, *until we all attain* to the **unity of the faith and of the knowledge of the Son of God**, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be <ins>children, tossed to and fro by the waves and carried about by every wind of doctrine</ins>, by human cunning, by craftiness in **deceitful** schemes. Rather, **speaking the truth in love**, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love. (ESV)
 
 We shouldn't go beyond what is written:
 
@@ -23329,3 +23341,4 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 > **[Hebrews 13:20-21](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A20-21&version=ESV)** - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will, working in us that which is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen. (ESV)
 
 -   **Download:** [PDF](https://raw.githubusercontent.com/semiosis/semiosis.github.io/master/README.pdf), [TEXT](https://raw.githubusercontent.com/semiosis/semiosis.github.io/master/index.txt), [MARKDOWN](https://raw.githubusercontent.com/semiosis/semiosis.github.io/master/README.md), [ORG](https://raw.githubusercontent.com/semiosis/semiosis.github.io/master/README.org), [semiosis.github.io](https://semiosis.github.io/)
+
