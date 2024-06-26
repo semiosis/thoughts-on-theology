@@ -723,6 +723,20 @@ Belief (in the heart) that Jesus is the Son of God leads to:
 Song
 youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}
 
+I was born-again of the Spirit on 2 April 2022 where I was given a new body, or it was regenerated - a blue
+light-body. But for most of my life I have been a nominal Christian. For the 2 years leading up to 2 April 2022, I
+can tell that God was working in my life. So was I born-again when I first believed as a child, or when I was
+baptised as a teenager? Not in the same way I was born-again on 2 April 2022. On 2 April 2022 I was truly born of
+God, and my best explanation as to what had changed was that I had begun to authentically seek God and to be
+obedient to Jesus, accountable to God who sees in secret, and not to man, and that activated a real prayer life,
+even though I could not yet hear His voice. On the 2 April 2022 I was born-again of water and the Spirit - I was
+spiritually regenerated. When that happened God had put the fear of Him in my heart so that I would not turn from
+Him. When I first 'believed' the gospel, this had not happened yet, but I had the testimony. Being born-again of
+water and the Spirit, I believe is what I experienced on 2 April 2022. But hearing and keeping the gospel of Jesus
+I believe they will have the event like my 2 April 2022 event happen in their future some time, I assume, or
+perhaps it is 'entering the Kingdom of God'. I don't know exactly how it works. I'm retroactively trying to figure
+out what has happened by reading the Scriptures.
+
 3.1. Experiential heart belief through obedience
 
 If you want to really get to know someone then you would learn to walk in their footsteps. Belief must arrive in
@@ -32870,7 +32884,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 22:56
+Created: 2024-06-26 Wed 23:31
 
 Validate
 
