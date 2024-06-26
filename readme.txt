@@ -3122,6 +3122,16 @@ a reality if we are not following Jesus. We get on top of it by following Jesus 
   you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the
   Spirit, and you will not gratify the desires of the flesh. (ESV)
 
+Someone who has just been "born of God" is an infant in Christ. I mention this because an infant:
+
+  I Corinthians 3:1 - But I, brothers, could not address you as spiritual people, but as people of the flesh, as
+  infants in Christ. (ESV)
+
+A person who is mature in Christ has faith in Christ, follows the teachings of Christ and the pattern of His life:
+
+  Colossians 1:28 - Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present
+  everyone mature in Christ. (ESV)
+
 The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives
 good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our
 own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's
@@ -32671,7 +32681,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 19:22
+Created: 2024-06-26 Wed 20:39
 
 Validate
 

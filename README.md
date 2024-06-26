@@ -2108,17 +2108,25 @@ It is clear that following Jesus helps us to not sin, which means that the destr
 
 > **[Galatians 5:14-16](https://www.biblegateway.com/passage/?search=Galatians%205%3A14-16&version=ESV)** - For **the whole law is fulfilled in one word: You shall love your neighbor as yourself.** But if you bite and devour one another, watch out that you are not consumed by one another. But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. (ESV)
 
+Someone who has just been "born of God" is an infant in Christ. I mention this because an infant:
+
+> **[I Corinthians 3:1](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A1&version=ESV)** - But I, brothers, could not address you as spiritual people, but as people of the flesh, as infants in Christ. (ESV)
+
+A person who is mature in Christ has faith in Christ, follows the teachings of Christ and the pattern of His life:
+
+> **[Colossians 1:28](https://www.biblegateway.com/passage/?search=Colossians%201%3A28&version=ESV)** - Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present everyone mature in Christ. (ESV)
+
 The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is **the** Son of God.
 
 We should love others, as we would want to be loved by others. God gives common grace to all people, even the evil. We should love in this way, as our Father in Heaven:
 
-> **Matthew 5:45** - so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. (ESV)
+> **[Matthew 5:45](https://www.biblegateway.com/passage/?search=Matthew%205%3A45&version=ESV)** - so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. (ESV)
 
 I <ins>do **not** think</ins> the Golden Rule is saying that "God is humanity." <ins>Neither do I think</ins> the Golden Rule is saying that God treats us precisely how we treat others.
 
 I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by our enemies - love people the way Father God loves us:
 
-> **Matthew 7:9-12** - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will **your Father** who is in heaven give good things to those who ask him! So **whatever you wish that others would do to you, do also to them**, for this is the Law and the Prophets. (ESV)
+> **[Matthew 7:9-12](https://www.biblegateway.com/passage/?search=Matthew%207%3A9-12&version=ESV)** - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will **your Father** who is in heaven give good things to those who ask him! So **whatever you wish that others would do to you, do also to them**, for this is the Law and the Prophets. (ESV)
 
 Living by the Golden Rule (or better, the Royal Law) still comes after having been forgiven by Jesus:
 
