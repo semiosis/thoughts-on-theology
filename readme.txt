@@ -2870,8 +2870,16 @@ For assurance of salvation, here's three indicators:
 1. A change of heart towards humility, fear of God, belief and trust in Jesus to be saved, an awareness of one's
 own sin and the reality of judgement, and acknowledging Jesus' Lordship and deity:
 
-All the thief could do was look to Jesus and cry out for mercy but thankfully that is all he needed. This was all
-that was required of him for salvation and the same is true for us.
+All the thief could do was look to Jesus and cry out for mercy but thankfully that is all he needed.
+
+  My thoughts: I still think that the thief obeyed the gospel by submitting to the righteousness of God. He had
+  obeyed the gospel, and was no longer an enemy of the cross of Christ. Had he gone on living in this world, I
+  think he would have continued in obedience to Jesus and even in good works of service to Jesus because he
+  repented from his sin, he acknowledged Jesus was righteous and did not serve the punishment that they deserved,
+  he asked Jesus to remember him in His kingdom, and had the fear of God in his heart which would have caused him
+  to not turn from God.
+
+This was all that was required of him for salvation and the same is true for us.
 
   The thief didn't get to go learn the bible, or get baptised or begin to follow Jesus in the way that he lived,
   but that is not to say that those things are not important because they are. Those are things that God has
@@ -32593,7 +32601,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 12:26
+Created: 2024-06-26 Wed 13:21
 
 Validate
 
