@@ -2108,11 +2108,11 @@ It is clear that following Jesus helps us to not sin, which means that the destr
 
 > **[Galatians 5:14-16](https://www.biblegateway.com/passage/?search=Galatians%205%3A14-16&version=ESV)** - For **the whole law is fulfilled in one word: You shall love your neighbor as yourself.** But if you bite and devour one another, watch out that you are not consumed by one another. But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. (ESV)
 
-Someone who has just been "born of God" is an infant in Christ. I mention this because an infant grows into maturity, into living in the Spirit the way that God does:
+Someone who has just been "born of God" is an infant in Christ and is counted as a child of God, but an infant. I mention this because an infant grows into maturity, into living in the Spirit the way that God does, into thinking and behaving as a mature child of God:
 
 > **[I Corinthians 3:1](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A1&version=ESV)** - But I, brothers, could not address you as spiritual people, but as people of the flesh, as infants in Christ. (ESV)
 
-> **Romans 8:14** - For all who are led by the Spirit of God are sons of God. (ESV)
+> **[Romans 8:14](https://www.biblegateway.com/passage/?search=Romans%208%3A14&version=ESV)** - For all who are led by the Spirit of God are sons of God. (ESV)
 
 A person who is mature in Christ has faith in Christ, follows the teachings of Christ and the pattern of His life, and is spiritually minded, and thinks with Christ's wisdom, not worldly wisdom, and lives for the will of God:
 

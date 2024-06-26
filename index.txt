@@ -3122,8 +3122,9 @@ a reality if we are not following Jesus. We get on top of it by following Jesus 
   you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the
   Spirit, and you will not gratify the desires of the flesh. (ESV)
 
-Someone who has just been "born of God" is an infant in Christ. I mention this because an infant grows into
-maturity, into living in the Spirit the way that God does:
+Someone who has just been "born of God" is an infant in Christ and is counted as a child of God, but an infant. I
+mention this because an infant grows into maturity, into living in the Spirit the way that God does, into thinking
+and behaving as a mature child of God:
 
   I Corinthians 3:1 - But I, brothers, could not address you as spiritual people, but as people of the flesh, as
   infants in Christ. (ESV)
@@ -32696,7 +32697,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 20:50
+Created: 2024-06-26 Wed 21:07
 
 Validate
 
