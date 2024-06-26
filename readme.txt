@@ -776,6 +776,15 @@ those that are evil)." - youtube.com: Dunedin City Baptist Church - Bruce Elder 
 
 Bruce Elder said this literally one day after I was born-again of the Spirit.
 
+Over the course of 2022, I was actually speaking a lot of prophecy. There was a lot of truth in it, and a lot of
+error, but my defense is Jesus and I was getting to know Jesus through being washed in the word, and in obedience
+to Jesus' commandments, and being corrected by the word, but we don't want to throw the baby out with the
+bathwater.
+
+  Revelation of John 19:10 - Then I fell down at his feet to worship him, but he said to me, You must not do that!
+  I am a fellow servant with you and your brothers who hold to the testimony of Jesus. Worship God. For the
+  testimony of Jesus is the spirit of prophecy. (ESV)
+
 I have a more detailed explanation here:
 
 - web.archive.org mullikine.github.io: Astral Projection Part 1 - Death with Jesus // Bodacious Blog
@@ -32245,6 +32254,9 @@ for the rest of my life. That's the plan - to give it my best shot.
 
 Being born-again, I actually had a lot to learn about humility, and service.
 
+Talk
+youtube.com: How to be Humble
+
 Quote from Martin Luther King Jr.:
 
   "Everybody can be great...because anybody can serve. You don't have to have a college degree to serve. You don't
@@ -32986,7 +32998,7 @@ Date: 2024-06-27 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-27 Thu 06:30
+Created: 2024-06-27 Thu 08:59
 
 Validate
 
