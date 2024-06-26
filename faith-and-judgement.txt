@@ -2532,13 +2532,20 @@ Him when they die, they will live.
   Romans 16:26 - but has now been disclosed and through the prophetic writings has been made known to all nations,
   according to the command of the eternal God, to bring about the obedience of faith - (ESV)
 
-Also, faith in Jesus is obedience to Jesus, because we are instructed to hold the faith without partiality:
+Also, faith in Jesus is obedience to Jesus, because we are instructed to hold the faith without partiality -
+that's faithfulness to God regarding seeking to do His will which includes obedience to His commandments:
 
   James 2:1 - My brothers, show no partiality as you hold the faith in our Lord Jesus Christ, the Lord of glory.
   (ESV)
 
-Through faith to Jesus we are justified - that's believing obedience - so it's quite important to bear one
-another's burdens:
+The Apostle Paul says something similar. Law-keeping is a matter of being accountable to God:
+
+  Romans 14:22 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to
+  pass judgment on himself for what he approves. (ESV)
+
+Through faith to Jesus we are justified - that's believing obedience, accountable to God - so it's quite important
+to bear one another's burdens because Jesus, our Master, commanded us to do it. We keep accountable to God with
+what we believe/do in obedience to Him:
 
   Galatians 2:16 - yet we know that a person is not justified by works of the law but through faith in Jesus
   Christ, so we also have believed in Christ Jesus, in order to be justified by faith in Christ and not by works
@@ -3084,6 +3091,55 @@ the Royal Law, that is to love one's neighbour as themself, even owing that to o
   Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
   law. (ESV)
 
+The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives
+good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our
+own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's
+love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves
+like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the Son of God.
+
+We should love others, as we would want to be loved by others. God gives common grace to all people, even the
+evil. We should love in this way, as our Father in Heaven:
+
+  Matthew 5:45 - so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil
+  and on the good, and sends rain on the just and on the unjust. (ESV)
+
+I do not think the Golden Rule is saying that "God is humanity." Neither do I think the Golden Rule is saying that
+God treats us precisely how we treat others.
+
+I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by
+our enemies - love people the way Father God loves us:
+
+  Matthew 7:9-12 - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a
+  fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much
+  more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others
+  would do to you, do also to them, for this is the Law and the Prophets. (ESV)
+
+Also, as far as law-keeping goes, I believe Christians are not prohibited from following other parts of the Mosaic
+Law by faith.
+
+Also, different to the Apostle Paul's conviction, I am persuaded in the Lord Jesus that there are things that I
+should commit to doing for Jesus to be faithful to Him.
+
+Consider downloading N64 ROMS. I don't want to do it any longer. It feels wrong to me. Also, I consider AI fiction
+to be unclean, so I would avoid it.
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+Everyone will give an account of themself to God:
+
+  Romans 14:12 - So then each of us will give an account of himself to God. (ESV)
+
+  Romans 14:14-15 - I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean
+  for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in
+  love. By what you eat, do not destroy the one for whom Christ died. (ESV)
+
+In some cases, I might even admire those that go beyond what law. If a person wanted to go beyond Exodus 20:13 to
+avoid eating meat to spare the lives of animals and make themself accountable to God over that in the hope it
+pleases God then I admire that commitment actually, but I wouldn't let anyone pass judgement on me over it:
+
+  Romans 14:16 - So do not let what you regard as good be spoken of as evil. (ESV)
+
 Christians should both submit to the righteousness of God through faith in Jesus Christ, having the imputed
 righteousness of Christ and they should practice righteousness (as Jesus said, "go and sin no more"), and
 Christians should seek to keep accountability primarily to God in regards to the law because He sees everything,
@@ -3147,29 +3203,6 @@ We must live in the spirit the way God does, not for human passions, but for the
   you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel
   was preached even to those who are dead, that though judged in the flesh the way people are, they might live in
   the spirit the way God does. (ESV)
-
-The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives
-good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our
-own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's
-love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves
-like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the Son of God.
-
-We should love others, as we would want to be loved by others. God gives common grace to all people, even the
-evil. We should love in this way, as our Father in Heaven:
-
-  Matthew 5:45 - so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil
-  and on the good, and sends rain on the just and on the unjust. (ESV)
-
-I do not think the Golden Rule is saying that "God is humanity." Neither do I think the Golden Rule is saying that
-God treats us precisely how we treat others.
-
-I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by
-our enemies - love people the way Father God loves us:
-
-  Matthew 7:9-12 - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a
-  fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much
-  more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others
-  would do to you, do also to them, for this is the Law and the Prophets. (ESV)
 
 Living by the Golden Rule (or better, the Royal Law) still comes after having been forgiven by Jesus:
 
@@ -9201,6 +9234,33 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as
   yourself. (ESV)
 
+
+#                                                 Bible reference
+
+1   Exodus 20:2-3 - I am the LORD your God, who brought you out of the land of Egypt, out of the house of
+slavery. You shall have no other gods before me. (ESV)
+Exodus 20:4-6 - You shall not make for yourself a carved image, or any likeness of anything that is in
+heaven above, or that is in the earth beneath, or that is in the water under the earth. You shall not bow
+2   down to them or serve them, for I the LORD your God am a jealous God, visiting the iniquity of the fathers
+on the children to the third and the fourth generation of those who hate me, but showing steadfast love to
+thousands of those who love me and keep my commandments. (ESV)
+3   Exodus 20:7 - You shall not take the name of the LORD your God in vain, for the LORD will not hold him
+guiltless who takes his name in vain. (ESV)
+Exodus 20:8-11 - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work,
+but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or
+4   your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within
+your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the
+seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)
+5   Exodus 20:12 - Honor your father and your mother, that your days may be long in the land that the LORD your
+God is giving you. (ESV)
+6   Exodus 20:13 - You shall not murder. (ESV)
+7   Exodus 20:14 - You shall not commit adultery. (ESV)
+8   Exodus 20:15 - You shall not steal. (ESV)
+9   Exodus 20:16 - You shall not bear false witness against your neighbor. (ESV)
+10  Exodus 20:17 - You shall not covet your neighbor's house; you shall not covet your neighbor's wife, or his
+male servant, or his female servant, or his ox, or his donkey, or anything that is your neighbor's. (ESV)
+
+
 7.5.2. Having a will to do evil, rather than a will to do God's will
 
   John 8:44 - You are of your father the devil, and your will is to do your father's desires. He was a murderer
@@ -13160,7 +13220,19 @@ because the work of God is to believe on who He has sent - Jesus.
   you cry to me? Tell the people of Israel to go forward. Lift up your staff, and stretch out your hand over the
   sea and divide it, that the people of Israel may go through the sea on dry ground.
 
-17.6.6. Don't underestimate Jesus' saving power
+17.6.6. The work of God is to trust in who He has sent, Jesus. God's work is God working, and us working in
+obedience to God
+
+  John 6:29 - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+
+God worked in this person's life:
+
+  Romans 14:18-21 - Whoever thus serves Christ is acceptable to God and approved by men. So then let us pursue
+  what makes for peace and for mutual upbuilding. Do not, for the sake of food, destroy the work of God.
+  Everything is indeed clean, but it is wrong for anyone to make another stumble by what he eats. It is good not
+  to eat meat or drink wine or do anything that causes your brother to stumble. (ESV)
+
+17.6.7. Don't underestimate Jesus' saving power
 
 Jesus' blood applied to us can sanctify us:
 
@@ -13200,7 +13272,7 @@ story should be taken to see how Good God is, but also taken as a warning agains
   ten cleansed? Where are the nine? Was no one found to return and give praise to God except this foreigner? And
   he said to him, Rise and go your way; your faith has made you well. (ESV)
 
-17.6.7. Justification and redemption are a total gift
+17.6.8. Justification and redemption are a total gift
 
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
   the Prophets bear witness to it- the righteousness of God through faith in Jesus Christ for all who believe. For
@@ -13216,7 +13288,7 @@ because all the good works we do as a consequence of being redeemed are a gift t
 Faith is obedient, so faith alone (without any work on our part) is obedient faith alone and to say "justified by
 working faith" is also true if the work is ascribed to Jesus.
 
-17.6.8. Just believe/obey Jesus to receive more faith and revelation and salvation
+17.6.9. Just believe/obey Jesus to receive more faith and revelation and salvation
 
 The account of Jesus itself when it's read, and Jesus' words, are enough to inspire faith. Therefore, faith comes
 by hearing the word of Christ.
@@ -24598,9 +24670,16 @@ servant, serving others.
 
 Not the best example, but, for example, when someone says you owe them money, and you can see they are blind, it's
 paying them because you're the one submitting to God. It's humbling yourself even to others and following God's
-commandments in truth and reality, with a real faith relationship with God. It's serving others as Jesus has
-served us. It's keeping accountable to God and maintaining faithfulness to God, not keeping others accountable to
-you.
+commandments in truth and reality, with a real faith relationship with God.
+
+It's serving others as Jesus has served us:
+
+  Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+It's keeping accountable to God and maintaining faithfulness to God, not keeping others accountable to you:
+
+  Romans 14:22 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to
+  pass judgment on himself for what he approves. (ESV)
 
 This isn't self-righteousness, but is a self-sacrificial obedience to continue working as a bond-servant of
 Christ, being the light of the world.
@@ -32754,7 +32833,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 21:28
+Created: 2024-06-26 Wed 22:18
 
 Validate
 
