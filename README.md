@@ -1093,7 +1093,7 @@ I do not affirm all religions. But I affirm **[Romans 10:9](https://www.biblegat
 
 Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
 
-From our perspective it may look like things are **still being brought into subjection to Him**:
+From our perspective it may look like things are **still being brought into subjection to Him**. It still looks that way to me:
 
 > **[Ephesians 1:22](https://www.biblegateway.com/passage/?search=Ephesians%201%3A22&version=ESV)** - And he put all things under his feet and gave him as head over all things to the church,
 
@@ -2940,13 +2940,30 @@ God still makes apostles and prophetic people:
 
 > **[Ephesians 4:11-16](https://www.biblegateway.com/passage/?search=Ephesians%204%3A11-16&version=ESV)** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, **to equip the saints** for the **work** of ministry, for **building up the body of Christ**, *until we all attain* to the **unity of the faith and of the knowledge of the Son of God**, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be <ins>children, tossed to and fro by the waves and carried about by every wind of doctrine</ins>, by human cunning, by craftiness in **deceitful** schemes. Rather, **speaking the truth in love**, we are to grow up in every way into him who is the head, into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when each part is working properly, makes the body grow so that it builds itself up in love. (ESV)
 
-I myself, right after being born-again, have had visions of planting churches in the South Pacific.
-I've also had a vision of the morning star arising in the sky, and many other such visions.
+I myself, after being born-again, have had visions of planting churches in the South Pacific. However, to make this more complicated, I've also been going through daily testing and refinement on doctrine, etc. as the Holy Spirit has been teaching me and sanctifying me with the Word.
+
+I've also had a vision of a star rising in a purple sky (like a morning sunrise), and many other such prophetic visions - anyway, my point is the 'prophetic' is a reality, and we believe in a living God, and we believe in the Holy Spirit:
 
 > **[II Peter 1:19](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A19&version=ESV)** - And we have something more sure, the prophetic word, to which you will do well to pay attention as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts, (ESV)
 
+I believe that cessationists are in error. Modern-day apostles, I believe, like branches on a tree, still branch from the original Apostles, and should preach the same Jesus, and the same gospel, in the same Spirit, and any apostle must have Jesus as their cornerstone. I believe Jesus still appoints apostles, and I'm prophetic myself so I have no doubts regarding this. I personally still see all things being placed into subjection under Christ and have no reason to think that Jesus has stopped appointing apostles and prophets as God is growing and guiding His church:
+
+> **[Ephesians 2:20-22](https://www.biblegateway.com/passage/?search=Ephesians%202%3A20-22&version=ESV)** - built on the foundation of the apostles and prophets, Christ Jesus himself being the cornerstone, in whom the whole structure, being joined together, grows into a holy temple in the Lord. In him you also are being built together into a dwelling place for God by the Spirit. (ESV)
+
+I think a good reason Jesus would still be doing this is for sake of the unity of the church, and demonstration of the Spirit and power of God. We need the prophetic in the church:
+
+> **[1 Corinthians 2:4](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A4&version=ESV),5** - and my speech and my message were not in plausible words of wisdom, but in demonstration of the Spirit and of power, that your faith might not rest in the wisdom of men but in the power of God. (ESV)
+
+From our perspective it may look like things are **still being brought into subjection to Him**. It still looks that way to me:
+
+> **[Ephesians 1:22](https://www.biblegateway.com/passage/?search=Ephesians%201%3A22&version=ESV)** - And he put all things under his feet and gave him as head over all things to the church,
+
+> **[Hebrews 2:5-8](https://www.biblegateway.com/passage/?search=Hebrews%202%3A5-8&version=ESV)** - Now it was not to angels that God subjected the world to come, of which we are speaking. It has been testified somewhere, What is man, that you are mindful of him, or the son of man, that you care for him? You made him for a little while lower than the angels; you have crowned him with glory and honor, putting everything in subjection under his feet. Now in putting **everything in subjection to him**, <ins>he left nothing outside his control</ins>. At present, we do not yet see everything in subjection to him.
+
 Anyway, I **know** that God still makes apostles and prophetic people and is still working on the earth.
-Cessationists are quite simply incorrect. However apostolic and prophetic people have the truth revealed to them. These roles are service roles though for helping the body of Christ grow in the knowledge of the Son of God, so there's no bragging, just serving one another, as we have different roles in the body of Christ:
+Cessationists are quite simply incorrect. 
+
+However apostolic and prophetic people have the truth revealed to them. These roles are service roles though for helping the body of Christ grow in the knowledge of the Son of God, so there's no bragging, just serving one another, as we have different roles in the body of Christ:
 
 > **[Ephesians 3:5](https://www.biblegateway.com/passage/?search=Ephesians%203%3A5&version=ESV)** - which was not made known to the sons of men in other generations as it has now been revealed to his holy apostles and prophets by the Spirit. (ESV)
 
@@ -12025,7 +12042,7 @@ Submitting to the righteousness that comes through having faith in Jesus is beli
     
     Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
     
-    From our perspective it may look like things are **still being brought into subjection to Him**:
+    From our perspective it may look like things are **still being brought into subjection to Him**. It still looks that way to me:
     
     > **[John 16:33](https://www.biblegateway.com/passage/?search=John%2016%3A33&version=ESV)** - I have said these things to you, that in me you may have peace.  In the world you will have tribulation.  But take heart; I have overcome the world.  (ESV)
     
@@ -12067,7 +12084,7 @@ Submitting to the righteousness that comes through having faith in Jesus is beli
     
     Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
     
-    From our perspective it may look like things are **still being brought into subjection to Him**:
+    From our perspective it may look like things are **still being brought into subjection to Him**. It still looks that way to me:
     
     > **[Ephesians 1:22](https://www.biblegateway.com/passage/?search=Ephesians%201%3A22&version=ESV)** - And he put all things under his feet and gave him as head over all things to the church,
     
