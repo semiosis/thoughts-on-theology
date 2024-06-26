@@ -32273,6 +32273,63 @@ my sleep. Also, after waking up I felt noticeably freed from the spirit spouse s
 woken up by evil spirits again after that a couple more times this morning from memory, but I just put on some
 praise and worship music.
 
+It's now <2024-06-26 Wed> and a couple of days ago I heard a voice which asked, "What do you think of the Golden
+Rule." That prompted me to do a little study on the Golden Rule and the Royal Law.
+
+When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
+grace through faith and they should also practice their righteousness and a person who has accepted forgiveness
+for their sin by the atonement made in Jesus' blood should certainly endeavour after that to fulfill practically
+the Royal Law, that is to love one's neighbour as themself, even owing that to other people:
+
+  Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. (ESV)
+
+But I continue walking in the light, in trusting obedience to Jesus, and Jesus' blood continues to cleanse me from
+all sin:
+
+  I John 1:7-9 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the truth
+  is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
+  unrighteousness. (ESV)
+
+It is clear that following Jesus helps us to not sin, which means that the destructiveness of sin for us is still
+a reality if we are not following Jesus. We get on top of it by following Jesus and walking by His Spirit:
+
+  Galatians 5:14-16 - For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if
+  you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the
+  Spirit, and you will not gratify the desires of the flesh. (ESV)
+
+  Romans 8:14 - For all who are led by the Spirit of God are sons of God. (ESV)
+
+A person who is mature in Christ has faith in Christ, follows the teachings of Christ and the pattern of His life,
+and is spiritually minded, and thinks with Christ's wisdom, not worldly wisdom, and lives for the will of God:
+
+  Colossians 1:28 - Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present
+  everyone mature in Christ. (ESV)
+
+The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives
+good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our
+own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's
+love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves
+like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the Son of God.
+
+We should love others, as we would want to be loved by others. God gives common grace to all people, even the
+evil. We should love in this way, as our Father in Heaven:
+
+  Matthew 5:45 - so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil
+  and on the good, and sends rain on the just and on the unjust. (ESV)
+
+I do not think the Golden Rule is saying that "God is humanity." Neither do I think the Golden Rule is saying that
+God treats us precisely how we treat others.
+
+I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by
+our enemies - love people the way Father God loves us:
+
+  Matthew 7:9-12 - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a
+  fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much
+  more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others
+  would do to you, do also to them, for this is the Law and the Prophets. (ESV)
+
 72.11. In my helpless state I cried out to God for help, and He made me born-again of the spirit
 
 I was spiritually bankrupt and I knew I needed God's help.
@@ -32697,7 +32754,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 21:07
+Created: 2024-06-26 Wed 21:28
 
 Validate
 
