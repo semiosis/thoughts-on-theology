@@ -1695,7 +1695,7 @@ Also, faith in Jesus is obedience to Jesus, because we are instructed to **hold 
 
 > **[James 2:1](https://www.biblegateway.com/passage/?search=James%202%3A1&version=ESV)** - My brothers, show no partiality **as you hold the faith** in our Lord Jesus Christ, the Lord of glory. (ESV)
 
-The Apostle Paul says something similar. Law-keeping is a matter of being accountable to God:
+The Apostle Paul says something similar. Faith is a matter of being accountable to God, even with respect to law-keeping:
 
 > **Romans 14:22** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
 
@@ -17599,9 +17599,22 @@ We must be a **child of Abraham.** The blessing comes through being counted as s
 
 > **[Genesis 17:4](https://www.biblegateway.com/passage/?search=Genesis%2017%3A4&version=ESV)** - Behold, my covenant is with you, and you shall be the father of a multitude of nations. (ESV)
 
-The sign of circumcision was a seal of righteousness that he had by faith while he was still uncircumcised
-This righteousness by faith was not based on lawkeeping.
-The purpose was to make him the father of all who believe without being circumcised so righteousness can be counted to them as well.
+The sign of circumcision was a seal of righteousness that he had by faith while he was still uncircumcised.
+
+This righteousness by faith was not based on law-keeping, but it was based on **trust** and **faithfulness**.
+
+Also, faith in Jesus is obedience to Jesus, because we are instructed to **hold the faith without partiality** - that's faithfulness to God regarding seeking to do His will which includes obedience to His commandments:
+
+> **[James 2:1](https://www.biblegateway.com/passage/?search=James%202%3A1&version=ESV)** - My brothers, show no partiality **as you hold the faith** in our Lord Jesus Christ, the Lord of glory. (ESV)
+
+The Apostle Paul says something similar. Faith is a matter of being accountable to God, even with respect to law-keeping:
+
+> **Romans 14:22** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
+
+The purpose was to make him the father of all
+who have believing, obeying, trusting,
+faithful **faith** without being circumcised so
+righteousness can be counted to them as well.
 
 > **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
 
