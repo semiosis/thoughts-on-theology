@@ -3135,16 +3135,19 @@ Everyone will give an account of themself to God:
   for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in
   love. By what you eat, do not destroy the one for whom Christ died. (ESV)
 
-In some cases, I might even admire those that go beyond what law. If a person wanted to go beyond Exodus 20:13 to
-avoid eating meat to spare the lives of animals and make themself accountable to God over that in the hope it
-pleases God then I admire that commitment actually, but I wouldn't let anyone pass judgement on me over it:
+In some cases, I might even admire those that go beyond what a law strictly requires, inclusive of what the law
+requires. If a person wanted to go beyond Exodus 20:13 to avoid eating meat to spare the lives of animals and make
+themself accountable to God over that in the hope it pleases God then I admire that commitment actually, but I
+wouldn't let anyone pass judgement on me over eating meat myself:
 
   Romans 14:16 - So do not let what you regard as good be spoken of as evil. (ESV)
 
 Christians should both submit to the righteousness of God through faith in Jesus Christ, having the imputed
-righteousness of Christ and they should practice righteousness (as Jesus said, "go and sin no more"), and
-Christians should seek to keep accountability primarily to God in regards to the law because He sees everything,
-and secondarily to men to love as Jesus loved:
+righteousness of Christ that we believe we have as we are walking with Christ and Christians should practice
+righteousness too (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability
+primarily to God in regards to the law because He sees everything, and secondarily have good conscience with men,
+to love as Jesus loved, and give to Caesar what is Caesar's, but give to God what is God's - and God owns our
+hearts - and we should be prepared to die for Jesus, and remain faithful to Jesus:
 
   Matthew 23:2-7 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
   you-but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
@@ -31951,9 +31954,12 @@ I have lots of evidence of this. Jehovah knows it.
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
 grace through faith and they should also practice their righteousness. Christians should both submit to the
-righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ and they should
-practice righteousness (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability
-primarily to God in regards to the law because He sees everything, and secondarily to men to love as Jesus loved:
+righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ that we believe we
+have as we are walking with Christ and Christians should practice righteousness too (as Jesus said, "go and sin no
+more"), and Christians should seek to keep accountability primarily to God in regards to the law because He sees
+everything, and secondarily have good conscience with men, to love as Jesus loved, and give to Caesar what is
+Caesar's, but give to God what is God's - and God owns our hearts - and we should be prepared to die for Jesus,
+and remain faithful to Jesus:
 
   Matthew 23:2-7 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
   you-but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
@@ -32849,7 +32855,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 22:36
+Created: 2024-06-26 Wed 22:48
 
 Validate
 
