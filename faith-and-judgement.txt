@@ -3123,12 +3123,22 @@ a reality if we are not following Jesus. We get on top of it by following Jesus 
   Spirit, and you will not gratify the desires of the flesh. (ESV)
 
 The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives
-good gifts to His children. A child takes after their parents. We try to imitate Christ's pattern, as Christ is
-the Son of God. We should do to others, as we would want others to do to us, and if we love others and give good
-gifts to others, then we can expect to receive good gifts from Father God. I do not think the Golden Rule is
-saying that "God is people", I think the moral is rather saying, how we would wish Father God to treat us, we
-should be treating other people, and I think this goes a long way in convincing me that Christians are expected to
-abide by this law, and that the law exists whether we choose to abide by it or not:
+good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our
+own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's
+love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves
+like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the Son of God.
+
+We should love others, as we would want to be loved by others. God gives common grace to all people, even the
+evil. We should love in this way, as our Father in Heaven:
+
+  Matthew 5:45 - so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil
+  and on the good, and sends rain on the just and on the unjust. (ESV)
+
+I do not think the Golden Rule is saying that "God is humanity." Neither do I think the Golden Rule is saying that
+God treats us precisely how we treat others.
+
+I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by
+our enemies - love people the way Father God loves us:
 
   Matthew 7:9-12 - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a
   fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much
@@ -32661,7 +32671,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 19:01
+Created: 2024-06-26 Wed 19:22
 
 Validate
 
