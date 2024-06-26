@@ -16992,6 +16992,21 @@ Loving Jesus is the test of whether you love God.
 
 29.3. What is the nature of this love?
 
+Required to satisfy the "Christ's love" criteria I believe are:
+
+- Our first agape love has to be Jesus
+- We love because God loved us first. We ought to love others because we have been loved by God
+- We forgive out of a loving response to God and to others, knowing we have already been forgiven of our debt
+- It must satisfy Christ's law
+- Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
+- Be a servant; consider others more significant than yourself
+- Seek to do not harm to your neighbour
+- Bear one another's burdens without partiality
+- We should endeavour to love not just on occasion, but at all times, continually, as Jesus did, and give our
+all
+
+29.3.1. It's affectionate and treasuring
+
 In a way the love of Jesus is like the love of your children:
 
   Matthew 10:37 - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or
@@ -17007,7 +17022,7 @@ Jesus has to be our Pearl of Great price:
 Song
 youtube.com: Be the Centre - Michael Frye
 
-29.3.1. We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
+29.3.2. We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
 
 Jesus certainly does command us to have emotions for things. For example:
 
@@ -17018,12 +17033,12 @@ Jesus certainly does command us to have emotions for things. For example:
 - we should be earnest
 - we should hope
 
-29.3.2. The person who has Jesus' commandments and keeps them, loves Jesus
+29.3.3. The person who has Jesus' commandments and keeps them, loves Jesus
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
 
-29.3.3. If we love Jesus, then we will keep Jesus' commandments
+29.3.4. If we love Jesus, then we will keep Jesus' commandments
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
 
@@ -32855,7 +32870,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 22:48
+Created: 2024-06-26 Wed 22:56
 
 Validate
 

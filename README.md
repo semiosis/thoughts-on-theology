@@ -11727,6 +11727,21 @@ Loving Jesus is the test of whether you love God.
 
 ## What is the nature of this love?
 
+Required to satisfy the "Christ's love" criteria I believe are:
+
+-   Our first agape love has to be Jesus
+-   We love because God loved us first. We ought to love others because we have been loved by God
+-   We forgive out of a loving response to God and to others, knowing we have already been forgiven of our debt
+-   It must satisfy Christ's law
+-   Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
+-   Be a servant; consider others more significant than yourself
+-   Seek to do not harm to your neighbour
+-   Bear one another's burdens without partiality
+-   We should endeavour to love not just on occasion, but at all times, continually, as Jesus did, and <ins>give our all</ins>
+
+
+### It's affectionate and treasuring
+
 In a way the love of Jesus is like the love of your children:
 
 > **[Matthew 10:37](https://www.biblegateway.com/passage/?search=Matthew%2010%3A37&version=ESV)** - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. (ESV)
