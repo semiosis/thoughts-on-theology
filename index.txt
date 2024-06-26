@@ -423,7 +423,11 @@ That doesn't mean they have come to know Him yet.
 
 While obedience exists in the heart, as belief does, as faith is believing and obedient trust, works are the
 actions we do out of that obedience, that love for Jesus, and out of ongoing believing, obedient faith, out of
-obedience to the Holy Spirit:
+obedience to the Holy Spirit.
+
+And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness, believing
+the word of God, and in obedience we are saved from sinning and try to fulfill the Royal Law, and even using our
+freedom in Christ to do good works that are pleasing to God:
 
   Titus 3:8 - The saying is trustworthy, and I want you to insist on these things, so that those who have believed
   in God may be careful to devote themselves to good works. These things are excellent and profitable for people.
@@ -10951,8 +10955,9 @@ mind.
   I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says
   I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
-And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness, and
-saved from sinning, and even start doing good works pleasing to God.
+And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness,
+believing the word of God, and in obedience we are saved from sinning and try to fulfill the Royal Law, and
+even using our freedom in Christ to do good works that are pleasing to God:
 
   II Peter 1:1-11 - Simeon Peter, a servant and apostle of Jesus Christ, To those who have obtained a faith of
   equal standing with ours by the righteousness of our God and Savior Jesus Christ: May grace and peace be
@@ -32631,7 +32636,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 16:21
+Created: 2024-06-26 Wed 17:28
 
 Validate
 
