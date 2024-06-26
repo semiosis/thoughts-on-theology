@@ -3075,7 +3075,7 @@ Sin no more so that nothing worse happens:
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
 grace through faith and they should also practice their righteousness and a person who has accepted forgiveness
 for their sin by the atonement made in Jesus' blood should certainly endeavour after that to fulfill practically
-the Royal Law, that is to love one's neighbour as themself:
+the Royal Law, that is to love one's neighbour as themself, even owing that to other people:
 
   Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
   law. (ESV)
@@ -17319,7 +17319,7 @@ Most importantly, don't betray Jesus:
   John 6:70-71 - Jesus answered them, Did I not choose you, the Twelve? And yet one of you is a devil. He spoke of
   Judas the son of Simon Iscariot, for he, one of the Twelve, was going to betray him.
 
-Obey the law (to your knowledge or level of commitment) in faith, not by works, making yourself accountable to
+Obey God's law (to your knowledge or level of commitment) in faith, not by works, making yourself accountable to
 God, not men, and accept the righteousness of God through Jesus Christ's atoning sacrifice through having faith in
 Jesus:
 
@@ -17333,6 +17333,19 @@ Jesus:
   regard as good be spoken of as evil. For the kingdom of God is not a matter of eating and drinking but of
   righteousness and peace and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved
   by men. (ESV)
+
+Obey the Royal Law, even owing that to others. We still keep accountability to God for following this:
+
+  Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. (ESV)
+
+If we are servants of Christ then we are acceptable to God. Serving Christ, loving our neighbour as ourselves,
+bearing one another's burdens, trying to do no harm to our neighbour, we should have a good conscience before God
+and men:
+
+  Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+  Romans 13:10 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
 We need to be justified before God, and that is through faith in Jesus Christ.
 
@@ -19650,7 +19663,9 @@ Jesus' commandments us to even love one another, anyone around you, with selfles
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-If we are servants of Christ then we are acceptable to God:
+If we are servants of Christ then we are acceptable to God. Serving Christ, loving our neighbour as ourselves,
+bearing one another's burdens, trying to do no harm to our neighbour, we should have a good conscience before God
+and men:
 
   Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
@@ -32616,7 +32631,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 15:32
+Created: 2024-06-26 Wed 16:21
 
 Validate
 
