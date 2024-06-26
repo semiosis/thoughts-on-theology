@@ -2110,17 +2110,17 @@ Also, different to the Apostle Paul's conviction, I am persuaded in the Lord Jes
 
 Consider downloading N64 ROMS. I don't want to do it any longer. It feels wrong to me. Also, I consider AI fiction to be unclean, so I would avoid it.
 
-> **Romans 14:23** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
 
 Everyone will give an account of themself to God:
 
-> **Romans 14:12** - So then each of us will give an account of himself to God. (ESV)
+> **[Romans 14:12](https://www.biblegateway.com/passage/?search=Romans%2014%3A12&version=ESV)** - So then each of us will give an account of himself to God. (ESV)
 
-> **Romans 14:14-15** - I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in love. By what you eat, do not destroy the one for whom Christ died. (ESV)
+> **[Romans 14:14-15](https://www.biblegateway.com/passage/?search=Romans%2014%3A14-15&version=ESV)** - I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in love. By what you eat, do not destroy the one for whom Christ died. (ESV)
 
 In some cases, I might even admire those that go beyond what law. If a person wanted to go beyond **[Exodus 20:13](https://www.biblegateway.com/passage/?search=Exodus%2020%3A13&version=ESV)** to avoid eating meat to spare the lives of animals and make themself accountable to God over that in the hope it pleases God then I admire that commitment actually, but I wouldn't let anyone pass judgement on me over it:
 
-> **Romans 14:16** - So do not let what you regard as good be spoken of as evil. (ESV)
+> **[Romans 14:16](https://www.biblegateway.com/passage/?search=Romans%2014%3A16&version=ESV)** - So do not let what you regard as good be spoken of as evil. (ESV)
 
 Christians should **both** submit to the righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ and they should practice righteousness (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability primarily to God in regards to the law because He sees everything, and **secondarily** to men to love as Jesus loved:
 
