@@ -2108,6 +2108,10 @@ It is clear that following Jesus helps us to not sin, which means that the destr
 
 > **[Galatians 5:14-16](https://www.biblegateway.com/passage/?search=Galatians%205%3A14-16&version=ESV)** - For **the whole law is fulfilled in one word: You shall love your neighbor as yourself.** But if you bite and devour one another, watch out that you are not consumed by one another. But I say, **walk by the Spirit**, and you will not gratify the desires of the flesh. (ESV)
 
+The Golden Rule, I think explains that **if** our Father is God then God provides good gifts to us. So we should behave like a child of Father God who gives good gifts to His children. A child takes after their parents. We try to imitate Christ's pattern. So we should do to others, as we would want others to do to us, and if we **love** others and give good gifts to others, then we can expect Father God to love us and give good gifts to us. I <ins>do **not** think</ins> the Golden Rule is saying that "God is people". I think the moral is saying, how you would want Father God to treat you, treat other people:
+
+> **Matthew 7:9-12** - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will **your Father** who is in heaven give good things to those who ask him! So **whatever you wish that others would do to you, do also to them**, for this is the Law and the Prophets. (ESV)
+
 Living by the Golden Rule (or better, the Royal Law) still comes after having been forgiven by Jesus:
 
 > **[Matthew 7:12](https://www.biblegateway.com/passage/?search=Matthew%207%3A12&version=ESV)** - So whatever you wish that others would do to you, do also to them, for this is the Law and the Prophets. (ESV)
@@ -22820,6 +22824,8 @@ with an agenda of pressuring me to be deceived into thinking I was not forgiven,
 and pressuring me to be deceived that I needed to pay for my salvation with good works, but I have done all my good works out of obedience, knowing I am born again and forgiven, price paid in full with Jesus' blood.
 
 I have lots of evidence of this. Jehovah knows it.
+
+> In Jesus Christ's name I rebuke the antichrist spirit which continues to attack me and deny the grace, forgiveness and atonement which I have received through faith in Jesus Christ, as if God has not forgiven me especially in regards to the sins of my past particularly before I was born-again of water and the Spirit on [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/). I rebuke that spirit in Jesus Christ's name and in Jehovah's name. Also as I continue walking in the light as Jesus is in the light, even when I sin, the blood of Jesus continues to wash me clean. So in Jesus Christ's name I rebuke any antichrist spirit continuing to bother me, whether in my sleep or through other people.
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by grace through faith and they should also practice their righteousness. Christians should **both** submit to the righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ and they should practice righteousness (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability primarily to God in regards to the law because He sees everything, and **secondarily** to men to love as Jesus loved:
 
