@@ -31789,9 +31789,13 @@ Christians are instructed to love our enemies, to have the love of our Heavenly 
   Matthew 5:43-44 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
   to you, Love your enemies and pray for those who persecute you, (ESV)
 
-I still believe strongly that there was an antichrist spirit meddling in the situation with court in 2022, with an
-agenda of pressuring me to be deceived into thinking I was not forgiven, and pressuring me to be deceived that I
-needed to pay for my salvation. I have lots of evidence of this.
+I still believe strongly that there was an antichrist spirit meddling in the situation with court in 2022,
+diametrically opposed to grace, Christian marriage, forgiveness, mercy, and the truth of Jesus, with an agenda of
+pressuring me to be deceived into thinking I was not forgiven, and pressuring me to be deceived that I needed to
+pay for my salvation with good works, but I have done all my good works out of obedience, knowing I am born again
+and forgiven, price paid in full with Jesus' blood.
+
+I have lots of evidence of this. Jehovah knows it.
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
 grace through faith and they should also practice their righteousness. Christians should both submit to the
@@ -32636,7 +32640,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 17:28
+Created: 2024-06-26 Wed 17:58
 
 Validate
 
