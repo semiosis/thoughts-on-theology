@@ -3073,10 +3073,17 @@ Sin no more so that nothing worse happens:
 4.2.2. Subsequent behaviour - the Golden Rule and the Royal Law
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
-grace through faith and they should also practice their righteousness. Christians should both submit to the
-righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ and they should
-practice righteousness (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability
-primarily to God in regards to the law because He sees everything, and secondarily to men to love as Jesus loved:
+grace through faith and they should also practice their righteousness and a person who has accepted forgiveness
+for their sin by the atonement made in Jesus' blood should certainly endeavour after that to fulfill practically
+the Royal Law, that is to love one's neighbour as themself:
+
+  Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. (ESV)
+
+Christians should both submit to the righteousness of God through faith in Jesus Christ, having the imputed
+righteousness of Christ and they should practice righteousness (as Jesus said, "go and sin no more"), and
+Christians should seek to keep accountability primarily to God in regards to the law because He sees everything,
+and secondarily to men to love as Jesus loved:
 
   Matthew 23:2-7 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
   you-but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
@@ -26066,10 +26073,18 @@ Jesus is our High Priest:
   the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
 
 Jesus condemned sin in the flesh. Now we walk according to the spirit so that the righteous requirement of the law
-might be fulfilled in us - doing no harm to our neighbour.
+might be fulfilled in us - doing no harm to our neighbour:
+
+  Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. (ESV)
 
 It's still really important to put a stop to sin, and show no partiality as we love our neighbour as ourselves,
 doing no harm to our neighbour and bearing one another's burdens!
+
+  James 2:1 - My brothers, show no partiality as you hold the faith in our Lord Jesus Christ, the Lord of glory.
+  (ESV)
+
+  Galatians 6:2 - Bear one another's burdens, and so fulfill the law of Christ.
 
 Grace given through faith alone is not license to sin, but the power of salvation to be corrected, healed and
 brought into obedience to God, and into loving God and your neighbour.
@@ -32601,7 +32616,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 13:30
+Created: 2024-06-26 Wed 15:32
 
 Validate
 
