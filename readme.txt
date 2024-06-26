@@ -2873,11 +2873,11 @@ own sin and the reality of judgement, and acknowledging Jesus' Lordship and deit
 All the thief could do was look to Jesus and cry out for mercy but thankfully that is all he needed.
 
   My thoughts: I still think that the thief obeyed the gospel by submitting to the righteousness of God. He had
-  obeyed the gospel, and was no longer an enemy of the cross of Christ. Had he gone on living in this world, I
-  think he would have continued in obedience to Jesus and even in good works of service to Jesus because he
-  repented from his sin, he acknowledged Jesus was righteous and did not serve the punishment that they deserved,
-  he asked Jesus to remember him in His kingdom, and had the fear of God in his heart which would have caused him
-  to not turn from God.
+  obeyed the gospel, even preached the gospel from his cross, and was no longer an enemy of the cross of Christ. I
+  think if given the opportunity he would have continued on in obedience to Jesus and even in good works of
+  service to Jesus because of his repentant heart. He acknowledged Jesus was righteous and did not deserve the
+  punishment that they deserved, he asked Jesus to remember him in His kingdom, and had the fear of God in his
+  heart which would have caused him to not turn from God.
 
 This was all that was required of him for salvation and the same is true for us.
 
@@ -32601,7 +32601,7 @@ Date: 2024-06-26 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-26 Wed 13:21
+Created: 2024-06-26 Wed 13:30
 
 Validate
 
