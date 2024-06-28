@@ -7332,7 +7332,12 @@ Eternal judgement:
 
 # Faith requires obedience
 
+[youtube.com: C S  Lewis message 2024 -  Faith in action God fights for you, but you must also act @time: 13 min 33 sec](https://youtube.com/watch?v=5I7aZfuxt6s&t=813)
+
+-   **The Breastplate of Righteousness (according to C. S. Lewis):** Protects our hearts against the enemy's attacks. It is a reminder of the righteousness we have through Christ, not because of anything we have done. It is about **living in obedience and integrity, knowing that we are clothed in His righteousness**.
+
 Luke writes that Peter says **the Holy Spirit** goes to those who obey Jesus.
+
 If the book of Acts is finished after Paul went to Galatia, then it is in knowledge of the letter to the Galatians, where Paul says the promised Spirit is received through faith.
 
 > **[Acts 5:32](https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV)** - And we are witnesses to these things, and so is **the Holy Spirit**, whom God has given <ins>to those who obey him</ins>. (ESV)
@@ -22199,6 +22204,63 @@ Jesus will serve His servants who are awake:
 > **[Luke 12:33-37](https://www.biblegateway.com/passage/?search=Luke%2012%3A33-37&version=ESV)** - Sell your possessions, and give to the needy. Provide yourselves with moneybags that do not grow old, with a treasure in the heavens that does not fail, where no thief approaches and no moth destroys. For where your treasure is, there will your heart be also. Stay dressed for action and keep your lamps burning, and be like men who are waiting for their master to come home from the wedding feast, so that they may open the door to him at once when he comes and knocks. Blessed are those servants whom the master finds awake when he comes. Truly, I say to you, he will **dress himself for service** and have them recline at table, and he will come and serve them. (ESV)
 
 > **[Matthew 23:11](https://www.biblegateway.com/passage/?search=Matthew%2023%3A11&version=ESV)** - The greatest among you shall be your servant. (ESV)
+
+
+## Armour of God - CS Lewis notes
+
+[youtube.com: C S  Lewis message 2024 -  Faith in action God fights for you, but you must also act @time: 12 min 35 sec](https://youtube.com/watch?v=5I7aZfuxt6s&t=755)
+
+
+### Belt of Truth
+
+Think of it as the study belt a soldier wears, holding everything in place. The Truth serves as the foundation of our spiritual life,
+anchoring us in a world full of deceptions and falsehoods. It is the word of God that anchors us and sets us free.
+
+
+### Breastplate of Righteousness
+
+Protects our hearts against the enemy's attacks. It is a reminder of the righteousness we have through Christ,
+not because of anything we have done. It is about living in obedience and integrity, knowing that we are clothed in His righteousness.
+
+
+### Shoes of Peace
+
+These are not just ordinary shoes. They symbolise our readiness to share the good news of peace with others.
+In a world torn by conflict and turmoil, we carry the message of reconciliation and hope wherever we go.
+It is the peace that comes with knowing Christ as mentioned in **Philippians 4:7**.
+
+> **Philippians 4:7** - And the peace of God, which surpasses all understanding, will guard your hearts and your minds in Christ Jesus. (ESV)
+
+
+### Shied of Faith
+
+Faith comes in as our shield against the fiery darts of the enemy. It is not just a passive belief but an active trust in God's promises.
+With faith, we can extinguish every arrow of doubt, fear and temptation. We hold our groud, secure in God's love as **Romans 8:38-39** assures us.
+
+> **Romans 8:38-39** - For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things to come, nor powers, nor height nor depth, nor anything else in all creation, will be able to separate us from the love of God in Christ Jesus our Lord. (ESV)
+
+
+### Helmet of salvation
+
+The **Helmet of salvation** is what protects our minds from the enemy's lies and doubts:
+
+-   Reminds us of the certainty we have in Christ
+    -   The assurance of our salvation
+    -   Our hope
+    -   Our eternal inheritance
+
+With this helmet we stand firm in our identity as children of God, redeemed and forgiven.
+
+We cannot forget the **Sword of the Spirit**, which is the word of God.
+This is not just any weapon, but it is our offensive tool in spiritual battles, just as Jesus did in the wilderness.
+We use scripture to demolish strongholds and take every thought captive for Christ as mentioned in 2 Corinthians 10:4-5
+
+> **II Corinthians 10:4-5** - For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, (ESV)
+
+Not by our own strength, but by God's power.
+God equips and enables us to stand firm so in
+the midst of every spiritual battle, let us
+stand strong with the armour He has provided.
 
 
 # Solae

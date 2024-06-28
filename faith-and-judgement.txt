@@ -10622,9 +10622,18 @@ trying to clean myself up in my own private life.
 
 12. Faith requires obedience
 
-Luke writes that Peter says the Holy Spirit goes to those who obey Jesus. If the book of Acts is finished after
-Paul went to Galatia, then it is in knowledge of the letter to the Galatians, where Paul says the promised Spirit
-is received through faith.
+youtube.com: C S Lewis message 2024 - Faith in action God fights for you, but you must also act @time: 13 min 33
+sec
+
+The Breastplate of Righteousness (according to C. S. Lewis)
+Protects our hearts against the enemy's attacks. It is a reminder of the righteousness we have through Christ, not
+because of anything we have done. It is about living in obedience and integrity, knowing that we are clothed in
+His righteousness.
+
+Luke writes that Peter says the Holy Spirit goes to those who obey Jesus.
+
+If the book of Acts is finished after Paul went to Galatia, then it is in knowledge of the letter to the
+Galatians, where Paul says the promised Spirit is received through faith.
 
   Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
   obey him. (ESV)
@@ -30857,6 +30866,64 @@ Jesus will serve His servants who are awake:
 
   Matthew 23:11 - The greatest among you shall be your servant. (ESV)
 
+69.9. Armour of God - CS Lewis notes
+
+youtube.com: C S Lewis message 2024 - Faith in action God fights for you, but you must also act @time: 12 min 35
+sec
+
+69.9.1. Belt of Truth
+
+Think of it as the study belt a soldier wears, holding everything in place. The Truth serves as the foundation of
+our spiritual life, anchoring us in a world full of deceptions and falsehoods. It is the word of God that anchors
+us and sets us free.
+
+69.9.2. Breastplate of Righteousness
+
+Protects our hearts against the enemy's attacks. It is a reminder of the righteousness we have through Christ, not
+because of anything we have done. It is about living in obedience and integrity, knowing that we are clothed in
+His righteousness.
+
+69.9.3. Shoes of Peace
+
+These are not just ordinary shoes. They symbolise our readiness to share the good news of peace with others. In a
+world torn by conflict and turmoil, we carry the message of reconciliation and hope wherever we go. It is the
+peace that comes with knowing Christ as mentioned in Philippians 4:7.
+
+  Philippians 4:7 - And the peace of God, which surpasses all understanding, will guard your hearts and your minds
+  in Christ Jesus. (ESV)
+
+69.9.4. Shied of Faith
+
+Faith comes in as our shield against the fiery darts of the enemy. It is not just a passive belief but an active
+trust in God's promises. With faith, we can extinguish every arrow of doubt, fear and temptation. We hold our
+groud, secure in God's love as Romans 8:38-39 assures us.
+
+  Romans 8:38-39 - For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things
+  to come, nor powers, nor height nor depth, nor anything else in all creation, will be able to separate us from
+  the love of God in Christ Jesus our Lord. (ESV)
+
+69.9.5. Helmet of salvation
+
+The Helmet of salvation is what protects our minds from the enemy's lies and doubts:
+
+- Reminds us of the certainty we have in Christ
+- The assurance of our salvation
+- Our hope
+- Our eternal inheritance
+
+With this helmet we stand firm in our identity as children of God, redeemed and forgiven.
+
+We cannot forget the Sword of the Spirit, which is the word of God. This is not just any weapon, but it is our
+offensive tool in spiritual battles, just as Jesus did in the wilderness. We use scripture to demolish strongholds
+and take every thought captive for Christ as mentioned in 2 Corinthians 10:4-5
+
+  II Corinthians 10:4-5 - For the weapons of our warfare are not of the flesh but have divine power to destroy
+  strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every
+  thought captive to obey Christ, (ESV)
+
+Not by our own strength, but by God's power. God equips and enables us to stand firm so in the midst of every
+spiritual battle, let us stand strong with the armour He has provided.
+
 70. Solae
 
 I believe in all of theses:
@@ -32994,11 +33061,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-06-27 Thu 00:00
+Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-27 Thu 08:59
+Created: 2024-06-28 Fri 12:21
 
 Validate
 
