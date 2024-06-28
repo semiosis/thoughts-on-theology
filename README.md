@@ -169,8 +169,7 @@ Those who keep God's commandments and AND the righteousness of faith / the testi
 
 -   It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret
 
-
-# We 'endeavour' to be justified. We don't justify ourselves, but **in Christ** we endeavour to be justified
+We 'endeavour' to be justified. We don't justify ourselves, but **in Christ** we endeavour to be justified:
 
 > **[Galatians 2:17](https://www.biblegateway.com/passage/?search=Galatians%202%3A17&version=ESV)** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
 
