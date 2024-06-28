@@ -95,6 +95,55 @@ Jesus will manifest to those who keep His commandments:
 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
+Even the Apostle Paul explains that our freedom is for serving one another:
+
+> **[Galatians 5:13](https://www.biblegateway.com/passage/?search=Galatians%205%3A13&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but **through love serve one another.** (ESV)
+
+Our freedom is so that we might live to God:
+
+> **Galatians 2:19** - For through the law I died to the law, so that I might live to God. (ESV)
+
+God is our life. We must love, **obey**, and hold fast to Him. Faith is not without obedience, but we are to obey Jesus Christ:
+
+> **Deuteronomy 30:20** - **loving the LORD your God, obeying his voice and holding fast to him, for <ins>he is your life</ins>** and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them. (ESV)
+
+To get to know Jesus, we **must obey** His commandments:
+
+> **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus, we are found in Him:
+
+> **[John 13:34](https://www.biblegateway.com/passage/?search=John%2013%3A34&version=ESV)** - A new commandment I give to you, that you love one another: just as I have loved you, you also are to love one another. (ESV)
+
+In Christ Jesus seek to follow the pattern of His life to get to know Him, and He gave us commandments to follow to do that. Faith in Christ Jesus is not just a belief in the head but faith is trusting Him, and trusting in Him with all our heart, soul, mind and strength. Anyone who claims to know Jesus but does not do what Jesus says is a liar and they are not in the truth:
+
+> **[Galatians 2:1-5](https://www.biblegateway.com/passage/?search=Galatians%202%3A1-5&version=ESV)** - Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with me. I went up because of a revelation and set before them (though privately before those who seemed influential) the gospel that I proclaim among the Gentiles, in order to make sure I was not running or had not run in vain. But even Titus, who was with me, was not forced to be circumcised, though he was a Greek. Yet because of false brothers secretly brought in—who slipped in to spy out our **freedom that we have in Christ Jesus**, so that they might bring us into slavery— to them we did not yield in submission even for a moment, so that the truth of the gospel might be preserved for you. (ESV)
+
+Yes, Jesus has set us free, but it's to serve God by serving Christ. We are freed in order to love and serve God:
+
+> **[Galatians 5:1](https://www.biblegateway.com/passage/?search=Galatians%205%3A1&version=ESV)** - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery. (ESV)
+
+In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God:
+
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+Bonhoeffer says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
+
+[gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
+
+OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting to know Christ.
+That is the obvious conclusion. I should not be a hypocrite about it.
+Jesus has set me free, and there's no condemnation for those who are in Christ, but we should have a response of love for Jesus, and live to serve Jesus.
+
+The Apostle Paul still recognises that we are supposed to have a heart of obedience to Jesus. And I imagine the others who Paul came into an argument with were also concerned about going on without love. In return for the grace given to us, we are supposed to love Jesus back in obedience to His commandments:
+
+> **[Galatians 2:10](https://www.biblegateway.com/passage/?search=Galatians%202%3A10&version=ESV)** - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
+
+
+# We 'endeavour' to be justified. We don't justify ourselves, but **in Christ** we endeavour to be justified
+
+> **[Galatians 2:17](https://www.biblegateway.com/passage/?search=Galatians%202%3A17&version=ESV)** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
+
 
 # Confessions of faith
 
@@ -1120,7 +1169,7 @@ There is always more chances to believe:
 
 > **[Romans 11:23-24](https://www.biblegateway.com/passage/?search=Romans%2011%3A23-24&version=ESV)** - And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. (ESV)
 
-In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour:
+In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
@@ -7047,7 +7096,7 @@ To get to know Jesus, we **must obey** His commandments:
 
 > **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
-Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus, we are found in Him.
+Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus, we are found in Him:
 
 > **[John 13:34](https://www.biblegateway.com/passage/?search=John%2013%3A34&version=ESV)** - A new commandment I give to you, that you love one another: just as I have loved you, you also are to love one another. (ESV)
 
@@ -7061,7 +7110,7 @@ In Christ Jesus seek to follow the pattern of His life to get to know Him, and H
 
 > **[Galatians 2:11-15](https://www.biblegateway.com/passage/?search=Galatians%202%3A11-15&version=ESV)** - But when Cephas came to Antioch, I opposed him to his face, because he stood condemned. For before certain men came from James, he was eating with the Gentiles; but when they came he drew back and separated himself, fearing the circumcision party. And the rest of the Jews acted hypocritically along with him, so that even Barnabas was led astray by their hypocrisy. But when I saw that their conduct was not in step with the truth of the gospel, I said to Cephas before them all, If you, though a Jew, live like a Gentile and not like a Jew, how can you force the Gentiles to live like Jews? We ourselves are Jews by birth and not Gentile sinners; (ESV)
 
-Yes, Jesus has set us free, but it's to serve God by serving Christ:
+Yes, Jesus has set us free, but it's to serve God by serving Christ. We are freed in order to love and serve God:
 
 > **[Galatians 5:1](https://www.biblegateway.com/passage/?search=Galatians%205%3A1&version=ESV)** - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery. (ESV)
 
