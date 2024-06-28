@@ -9480,6 +9480,8 @@ male servant, or his female servant, or his ox, or his donkey, or anything that 
 
 7.5.11. Pride in self and lack of humility towards God
 
+youtube.com: The Great Sin by C. S. Lewis Doodle {BBC Talk 16, Mere Christianity, Bk. 3, Chapter 8}.
+
   Psalms 36:2 - For he flatters himself in his own eyes that his iniquity cannot be found out and hated. (ESV)
 
   Psalms 10:10-11 - The helpless are crushed, sink down, and fall by his might. He says in his heart, God has
@@ -32452,6 +32454,26 @@ demonic attacks and it doesn't go away when I rebuke it in Jesus' name, and it r
 the attack lasts for 600 days almost every day, then I feel like the challenge of fighting back is just too
 difficult.
 
+Yeah, this morning <2024-06-28 Fri> I had a night swamped with such evil dreams. God knows why. So evil that I
+cannot even mention them. This is the day after writing about how Christians should be have like children of their
+Father, Jehovah:
+
+  The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and
+  gives good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might
+  show our own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with
+  Christ's love, we can really say our Father is God, as a child takes after their parents, and a child of Father
+  God behaves like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the
+  Son of God.
+
+Yeah, I am at my limits to what I can endure. This has been going on every day for nearly 2 years. Any Christians
+out there pray for me please that God will stop allowing the evil spirits to attack me. It's an actual living
+hell. What's worse though is when other so-called Christians, rather than show support, actually shun me and push
+me out of the church like a leper. I have no idea why God is putting me through this hell.
+
+  Psalms 10:1 - Why, O LORD, do you stand afar off? Why do you hide yourself in times of trouble? (ESV)
+
+  Psalms 10:12 - Arise, O LORD; O God, lift up your hand; forget not the afflicted. (ESV)
+
 Also, to "be holy as He is holy" when people deny relationships and marriage, and just heap on heavy burdens,
 asking even more of me, without lifting a finger to help, and then simultaneously I'm attacked with a spirit
 spouse at night, for example, and I'm supposed to just ignore it - well it feels like an impossibility to remain
@@ -33065,7 +33087,7 @@ Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-28 Fri 12:31
+Created: 2024-06-28 Fri 13:26
 
 Validate
 
