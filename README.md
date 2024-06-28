@@ -141,7 +141,13 @@ The Apostle Paul still recognises that we are supposed to have a heart of obedie
 
 Those who teach others to disobey Jesus, calling Jesus' commandments contrary to grace, are not being humble. But Jesus indeed did give us freedom. We can resist people who try to put us under a yoke of slavery, but we don't teach people to disobey Jesus as to do so is to teach pride and lawlessness and against trusting in Jesus, and against obeying Jesus, and against believing Jesus regarding all the warnings about disobedience, and I think it's without the fear of God to teach others to disobey Jesus.
 
-> **James 4:6** - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble. (ESV)
+God gives grace to the humble (not the self-righteous). That is true. But recognising your own sin and calling it sin is humility. And in wanting to turn from it, God may give grace to do so:
+
+> **[James 4:6](https://www.biblegateway.com/passage/?search=James%204%3A6&version=ESV)** - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble. (ESV)
+
+We are supposed to have a response of **repentance from sin**. God's kindness is meant to lead us to repentance from sin. And turning from sin is a loving response to grace given:
+
+> **Romans 2:4** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
 
 > **[Matthew 5:6](https://www.biblegateway.com/passage/?search=Matthew%205%3A6&version=ESV)** - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
@@ -2199,7 +2205,7 @@ God cancelled the record of debt of our sin with the blood of Jesus Christ:
 
 > **[Colossians 2:14](https://www.biblegateway.com/passage/?search=Colossians%202%3A14&version=ESV)** - by canceling the record of debt that stood against us with its legal demands. This he set aside, nailing it to the cross. (ESV)
 
-We are supposed to have a response of **repentance from sin**. God's kindness is meant to lead us to repentance from sin:
+We are supposed to have a response of **repentance from sin**. God's kindness is meant to lead us to repentance from sin. And turning from sin is a loving response to grace given:
 
 > **Romans 2:4** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
 
