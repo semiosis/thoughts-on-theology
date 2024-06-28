@@ -169,9 +169,15 @@ Those who keep God's commandments and AND the righteousness of faith / the testi
 
 -   It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret
 
-We 'endeavour' to be justified. We don't justify ourselves, but **in Christ** we endeavour to be justified:
+It's God who tests the faith, and God who justifies:
+
+> **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
+
+We 'endeavour' to be justified **in Christ**. We want to be found **in Christ**. We don't justify ourselves, and we don't put ourselves in, but we endeavour to be justified by God by being **in Christ**:
 
 > **[Galatians 2:17](https://www.biblegateway.com/passage/?search=Galatians%202%3A17&version=ESV)** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
+
+Surely to be found **in Christ** we would be trusting Him and and trusting in Him and living for Him, and even serving Him.
 
 
 # Confessions of faith
@@ -8569,9 +8575,11 @@ But works of the law is different from works:
     7   itself:--assurance, belief, believe, faith, fidelity.
     8   see GREEK for 3982
 
+It's God who tests the faith, and God who justifies:
+
 > **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
 
-And I do not believe the following verse necessarily is talking about justification, and also my definition of faith includes obedience:
+And I do not believe the following verse necessarily is merely talking about justification but also talking about being saved from falsehood, corruption, demons, sin in our bodies and from the wrath of God, and also my definition of faith includes obedience:
 
 > **[Ephesians 2:8-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-9&version=ESV)** - For by grace you have been saved (sesōsmenoi) through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
@@ -9896,7 +9904,7 @@ Faith in the wrong thing:
 
 -   On the Faithless plane, positive magnitude comes from trust in something else, i.e. money or self
 
-But it's God that tests the faith, and God that justifies.
+It's God who tests the faith, and God who justifies:
 
 > **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
 
