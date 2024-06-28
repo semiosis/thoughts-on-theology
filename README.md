@@ -7029,6 +7029,43 @@ It was inevitable. The Scripture **had** to be fulfilled:
 > **[Acts 1:16](https://www.biblegateway.com/passage/?search=Acts%201%3A16&version=ESV)** - Brothers, **the Scripture had to be fulfilled**, which the Holy Spirit spoke beforehand by the mouth of David concerning Judas, who became a guide to those who arrested Jesus. (ESV)
 
 
+### Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the Galatian error for those who try to use this passage in order to avoid obeying Jesus
+
+Christ Jesus has set us free to serve Christ Jesus. In Christ Jesus we seek to follow the pattern of His life. That's not just a belief in the head but it'swith all our heart, soul, mind and strenth:
+
+> **Galatians 2:1-5** - Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with me. I went up because of a revelation and set before them (though privately before those who seemed influential) the gospel that I proclaim among the Gentiles, in order to make sure I was not running or had not run in vain. But even Titus, who was with me, was not forced to be circumcised, though he was a Greek. Yet because of false brothers secretly brought in—who slipped in to spy out our **freedom that we have in Christ Jesus**, so that they might bring us into slavery— to them we did not yield in submission even for a moment, so that the truth of the gospel might be preserved for you. (ESV)
+
+> **Galatians 2:6-9** - And from those who seemed to be influential (what they were makes no difference to me; God shows no partiality)—those, I say, who seemed influential added nothing to me. On the contrary, when they saw that I had been entrusted with the gospel to the uncircumcised, just as Peter had been entrusted with the gospel to the circumcised (for he who worked through Peter for his apostolic ministry to the circumcised worked also through me for mine to the Gentiles), and when James and Cephas and John, who seemed to be pillars, perceived the grace that was given to me, they gave the right hand of fellowship to Barnabas and me, that we should go to the Gentiles and they to the circumcised. (ESV)
+
+> **Galatians 2:10** - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
+
+> **Galatians 2:11-15** - But when Cephas came to Antioch, I opposed him to his face, because he stood condemned. For before certain men came from James, he was eating with the Gentiles; but when they came he drew back and separated himself, fearing the circumcision party. And the rest of the Jews acted hypocritically along with him, so that even Barnabas was led astray by their hypocrisy. But when I saw that their conduct was not in step with the truth of the gospel, I said to Cephas before them all, If you, though a Jew, live like a Gentile and not like a Jew, how can you force the Gentiles to live like Jews? We ourselves are Jews by birth and not Gentile sinners; (ESV)
+
+Yes, Jesus has set us free, but it's to serve God by serving Christ:
+
+> **Galatians 5:1** - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery. (ESV)
+
+We ***endeavour*** to be justified in Christ - in Christ means abiding in Christ - through faith; trusting, believing, obedient faith:
+
+> **Galatians 2:16-19** - yet we know that a person is not **justified** by works of the law but **through faith (G4102 pistis) in Jesus Christ**, so we also have believed (G4100 **pisteuo**) in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in our endeavor to be **justified in Christ**, we too were found to be sinners, is Christ then a servant of sin? Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law I died to the law, so that I might live to God. (ESV)
+
+Trusting, believing, obedient faith is faith which trusts Jesus Christ and obeys Jesus Christ's commandments. The word 'law' should not be anathema. It it possible to be justified by obedience to Christ's commandments which include Christ's law, because obedience to Jesus is a part of faith and is an intrinsic quality of faith, as is belief.
+
+Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
+
+> **[Romans 4:5](https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV)** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
+
+Paul lives by faith in Jesus Christ:
+
+> **Galatians 2:20** - I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And **the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me.** (ESV)
+
+The Apostle Paul lives by faith in Jesus Christ and that involves trust, belief, obedience, and Paul makes a point about faith being becoming like Jesus Christ, and **seeking** to be found in Christ Jesus. **Obeying Jesus is not contrary to faith in Jesus**:
+
+> **Philippians 3:8-12** - Indeed, I count everything as loss because of the surpassing worth of **knowing Christ Jesus my Lord**. For his sake I have suffered the loss of all things and count them as rubbish, in order that I **may gain Christ and be found in him**, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on **faith** — that I may **know him** and the power of his resurrection, and may share his sufferings, **becoming like him** in his death, that by any means possible I may attain the resurrection from the dead. Not that I have already obtained this or am already perfect, but I press on to **make it my own**, because Christ Jesus has **made me his own.** (ESV)
+
+> **Galatians 2:21** - I do not nullify the grace of God, for if justification were through the law, then Christ died for no purpose. (ESV)
+
+
 ### Didache
 
 The Didache's estimated range of dating is 50-120 A.D, according to [earlychristianwritings.com](https://www.earlychristianwritings.com/text/didache-roberts.html).
@@ -23301,9 +23338,9 @@ Yeah, this morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2
 
 Yeah, I am at my limits to what I can endure. This has been going on every day for nearly 2 years. Any Christians out there pray for me please that God will stop allowing the evil spirits to attack me. It's an actual living hell. What's worse though is when other so-called Christians, rather than show support, actually shun me and push me out of the church like a leper. I have no idea why God is putting me through this hell.
 
-> **Psalms 10:1** - Why, O LORD, do you stand afar off? Why do you hide yourself in times of trouble? (ESV)
+> **[Psalms 10:1](https://www.biblegateway.com/passage/?search=Psalms%2010%3A1&version=ESV)** - Why, O LORD, do you stand afar off? Why do you hide yourself in times of trouble? (ESV)
 
-> **Psalms 10:12** - Arise, O LORD; O God, lift up your hand; forget not the afflicted. (ESV)
+> **[Psalms 10:12](https://www.biblegateway.com/passage/?search=Psalms%2010%3A12&version=ESV)** - Arise, O LORD; O God, lift up your hand; forget not the afflicted. (ESV)
 
 Also, to "be holy as He is holy" when people deny relationships and marriage, and just heap on heavy burdens, asking even more of me, without lifting a finger to help, and then simultaneously I'm attacked with a spirit spouse at night, for example, and I'm supposed to just ignore it - well it feels like an impossibility to remain clean. So a complaint I have to Almighty God Jehovah is that remaining holy in all my conduct during the trial I have faced has been impossibly difficult:
 

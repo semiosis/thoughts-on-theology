@@ -10171,7 +10171,84 @@ It was inevitable. The Scripture had to be fulfilled:
   Acts 1:16 - Brothers, the Scripture had to be fulfilled, which the Holy Spirit spoke beforehand by the mouth of
   David concerning Judas, who became a guide to those who arrested Jesus. (ESV)
 
-11.8.3. Didache
+11.8.3. Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the
+Galatian error for those who try to use this passage in order to avoid obeying Jesus
+
+Christ Jesus has set us free to serve Christ Jesus. In Christ Jesus we seek to follow the pattern of His life.
+That's not just a belief in the head but it'swith all our heart, soul, mind and strenth:
+
+  Galatians 2:1-5 - Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with
+  me. I went up because of a revelation and set before them (though privately before those who seemed influential)
+  the gospel that I proclaim among the Gentiles, in order to make sure I was not running or had not run in vain.
+  But even Titus, who was with me, was not forced to be circumcised, though he was a Greek. Yet because of false
+  brothers secretly brought in-who slipped in to spy out our freedom that we have in Christ Jesus, so that they
+  might bring us into slavery- to them we did not yield in submission even for a moment, so that the truth of the
+  gospel might be preserved for you. (ESV)
+
+  Galatians 2:6-9 - And from those who seemed to be influential (what they were makes no difference to me; God
+  shows no partiality)-those, I say, who seemed influential added nothing to me. On the contrary, when they saw
+  that I had been entrusted with the gospel to the uncircumcised, just as Peter had been entrusted with the gospel
+  to the circumcised (for he who worked through Peter for his apostolic ministry to the circumcised worked also
+  through me for mine to the Gentiles), and when James and Cephas and John, who seemed to be pillars, perceived
+  the grace that was given to me, they gave the right hand of fellowship to Barnabas and me, that we should go to
+  the Gentiles and they to the circumcised. (ESV)
+
+  Galatians 2:10 - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
+
+  Galatians 2:11-15 - But when Cephas came to Antioch, I opposed him to his face, because he stood condemned. For
+  before certain men came from James, he was eating with the Gentiles; but when they came he drew back and
+  separated himself, fearing the circumcision party. And the rest of the Jews acted hypocritically along with him,
+  so that even Barnabas was led astray by their hypocrisy. But when I saw that their conduct was not in step with
+  the truth of the gospel, I said to Cephas before them all, If you, though a Jew, live like a Gentile and not
+  like a Jew, how can you force the Gentiles to live like Jews? We ourselves are Jews by birth and not Gentile
+  sinners; (ESV)
+
+Yes, Jesus has set us free, but it's to serve God by serving Christ:
+
+  Galatians 5:1 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. (ESV)
+
+We endeavour to be justified in Christ - in Christ means abiding in Christ - through faith; trusting, believing,
+obedient faith:
+
+  Galatians 2:16-19 - yet we know that a person is not justified by works of the law but through faith (G4102
+  pistis) in Jesus Christ, so we also have believed (G4100 pisteuo) in Christ Jesus, in order to be justified by
+  faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in
+  our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin?
+  Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law I
+  died to the law, so that I might live to God. (ESV)
+
+Trusting, believing, obedient faith is faith which trusts Jesus Christ and obeys Jesus Christ's commandments. The
+word 'law' should not be anathema. It it possible to be justified by obedience to Christ's commandments which
+include Christ's law, because obedience to Jesus is a part of faith and is an intrinsic quality of faith, as is
+belief.
+
+Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
+
+Paul lives by faith in Jesus Christ:
+
+  Galatians 2:20 - I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And
+  the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. (ESV)
+
+The Apostle Paul lives by faith in Jesus Christ and that involves trust, belief, obedience, and Paul makes a point
+about faith being becoming like Jesus Christ, and seeking to be found in Christ Jesus. Obeying Jesus is not
+contrary to faith in Jesus:
+
+  Philippians 3:8-12 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus
+  my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes
+  through faith in Christ, the righteousness from God that depends on faith - that I may know him and the power of
+  his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may
+  attain the resurrection from the dead. Not that I have already obtained this or am already perfect, but I press
+  on to make it my own, because Christ Jesus has made me his own. (ESV)
+
+  Galatians 2:21 - I do not nullify the grace of God, for if justification were through the law, then Christ died
+  for no purpose. (ESV)
+
+11.8.4. Didache
 
 The Didache's estimated range of dating is 50-120 A.D, according to earlychristianwritings.com.
 
@@ -10186,7 +10263,7 @@ That being said, I think God does justify through faith, and I believe faith wor
 called faith if the work is done in faith. I also think God likely saves through works because it may be their way
 of demonstrating faith to Jesus.
 
-11.8.4. Our point of reference
+11.8.5. Our point of reference
 
 Through faith we are justified, but we should absolutely stop sinning
 
@@ -10307,7 +10384,7 @@ Adhering strictly to the Mosaic law is not needed to be justified by God if we b
   make the promise void. For if the inheritance comes by the law, it no longer comes by promise; but God gave it
   to Abraham by a promise.
 
-11.8.5. Purity of heart
+11.8.6. Purity of heart
 
 The Mosaic law is not really in the same category as the 10 commandments, I believe. The 10 commandments if obeyed
 in truth from the heart would result in a clean heart, I think. So it serves to describe what a pure heart looks
@@ -10324,7 +10401,7 @@ Even belief must be in the heart:
   Romans 10:10- For with the heart one believes and is justified, and with the mouth one confesses and is saved.
   (ESV)
 
-11.8.6. Impurity lies the heart
+11.8.7. Impurity lies the heart
 
   Matthew 15:19 - For out of the heart come evil thoughts, murder, adultery, sexual immorality, theft, false
   witness, slander. (ESV)
@@ -10349,7 +10426,7 @@ thinking too:
   you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not
   about what is in the heart.
 
-11.8.7. Purifying the heart
+11.8.8. Purifying the heart
 
 We are given the Holy Spirit. The Holy Spirit cleanses our hearts by faith. As we obey Jesus, going against the
 resistance, our hearts are being cleansed:
@@ -10380,7 +10457,7 @@ Do what Jesus says and receive eternal life - obey Jesus:
   from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For
   the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
 
-11.8.8. Being a slave to righteousness is possible without adhering to the Mosaic law, by being led by Jesus' Spirit
+11.8.9. Being a slave to righteousness is possible without adhering to the Mosaic law, by being led by Jesus' Spirit
 
   1 Corinthians 1:30-31 - He is the source of your life in Christ Jesus, whom God made our wisdom and our
   righteousness and sanctification and redemption. Therefore, as it is written, Let the one who boasts, boast in
@@ -10432,7 +10509,7 @@ We must live in the spirit the way God does, not for human passions, but for the
   this is why the gospel was preached even to those who are dead, that though judged in the flesh the way
   people are, they might live in the spirit the way God does. (ESV)
 
-11.8.9. We must have attention to Jesus Christ our Lord
+11.8.10. We must have attention to Jesus Christ our Lord
 
 We are saved from our sins, and from our evil practices.
 
@@ -10453,7 +10530,7 @@ Holiness Demanded - Charles Spurgeon Sermon - YouTube
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube
 
-11.8.10. Make the tree good and the fruit good
+11.8.11. Make the tree good and the fruit good
 
 We must simultaneously make the tree good (abide in Jesus) and make the fruit good (be sanctified and glorify God
 and Jesus in our hearts, minds, bodies and actions).
@@ -10476,7 +10553,7 @@ I still think the 10 commandments are special, and following them in truth is re
   requirements: that you abstain from what has been sacrificed to idols, and from blood, and from what has been
   strangled, and from sexual immorality. If you keep yourselves from these, you will do well. Farewell.
 
-11.8.11. Judgement
+11.8.12. Judgement
 
 I certainly affirm that Jesus will return to save those waiting for Him, and I currently am waiting for His
 return.
@@ -33087,7 +33164,7 @@ Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-28 Fri 13:26
+Created: 2024-06-28 Fri 14:44
 
 Validate
 
