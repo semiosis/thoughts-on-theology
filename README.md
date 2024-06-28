@@ -131,7 +131,7 @@ Bonhoeffer says it like this, “Only he who believes is obedient, and only he w
 
 [gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
 
-We should disobey sin:
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
 
 > **[Romans 6:12-13](https://www.biblegateway.com/passage/?search=Romans%206%3A12-13&version=ESV)** - Therefore **do not let sin reign** in your mortal body so that you **obey** its lusts, and **do not go on** presenting the members of your body to sin as instruments of unrighteousness; but <ins>*present yourselves to God as those alive from the dead, and your members as instruments of righteousness to God.*</ins> (NASB)
 
@@ -1362,6 +1362,10 @@ I believe that becoming the righteousness of God is **cooperative** in that we a
 
 > **[II Corinthians 5:21-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21-6&version=ESV):1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
 
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
+
+> **[Romans 6:12-13](https://www.biblegateway.com/passage/?search=Romans%206%3A12-13&version=ESV)** - Therefore **do not let sin reign** in your mortal body so that you **obey** its lusts, and **do not go on** presenting the members of your body to sin as instruments of unrighteousness; but <ins>*present yourselves to God as those alive from the dead, and your members as instruments of righteousness to God.*</ins> (NASB)
+
 
 ### We become obedient to Jesus
 
@@ -1392,6 +1396,10 @@ We love our neighbour the way Jesus commanded:
 Jesus loved us selflessly. We should love one another selflessly:
 
 > **[John 15:13](https://www.biblegateway.com/passage/?search=John%2015%3A13&version=ESV)** - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
+
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
+
+> **[Romans 6:12-13](https://www.biblegateway.com/passage/?search=Romans%206%3A12-13&version=ESV)** - Therefore **do not let sin reign** in your mortal body so that you **obey** its lusts, and **do not go on** presenting the members of your body to sin as instruments of unrighteousness; but <ins>*present yourselves to God as those alive from the dead, and your members as instruments of righteousness to God.*</ins> (NASB)
 
 
 ### There's some bonuses to suffering for Christ's sake and for endurance

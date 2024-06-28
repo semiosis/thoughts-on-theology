@@ -203,7 +203,8 @@ Bonhoeffer says it like this, "Only he who believes is obedient, and only he who
 
 gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary
 
-We should disobey sin:
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
+of righteousness to God. We should be practicing righteousness, practicing love and holiness and truth:
 
   Romans 6:12-13 - Therefore do not let sin reign in your mortal body so that you obey its lusts, and do not go on
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
@@ -2075,6 +2076,13 @@ Living by faith is walking in faith, is following Jesus:
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
 
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
+of righteousness to God. We should be practicing righteousness, practicing love and holiness and truth:
+
+  Romans 6:12-13 - Therefore do not let sin reign in your mortal body so that you obey its lusts, and do not go on
+  presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
+  those alive from the dead, and your members as instruments of righteousness to God. (NASB)
+
 3.14.3. We become obedient to Jesus
 
   John Piper - "Mercy means that our obedience doesn't have to be perfect, it has to be penitent."
@@ -2111,6 +2119,13 @@ We love our neighbour the way Jesus commanded:
 Jesus loved us selflessly. We should love one another selflessly:
 
   John 15:13 - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
+
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
+of righteousness to God. We should be practicing righteousness, practicing love and holiness and truth:
+
+  Romans 6:12-13 - Therefore do not let sin reign in your mortal body so that you obey its lusts, and do not go on
+  presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
+  those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
 3.14.4. There's some bonuses to suffering for Christ's sake and for endurance
 
@@ -33329,7 +33344,7 @@ Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-28 Fri 17:50
+Created: 2024-06-28 Fri 18:03
 
 Validate
 
