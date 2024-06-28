@@ -7031,11 +7031,27 @@ It was inevitable. The Scripture **had** to be fulfilled:
 
 ### Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
+Even the Apostle Paul explains that our freedom is for serving one another:
+
+> **[Galatians 5:13](https://www.biblegateway.com/passage/?search=Galatians%205%3A13&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but **through love serve one another.** (ESV)
+
+Our freedom is so that we might live to God:
+
+> **Galatians 2:19** - For through the law I died to the law, so that I might live to God. (ESV)
+
+God is our life. We must love, **obey**, and hold fast to Him. Faith is not without obedience, but we are to obey Jesus Christ:
+
+> **Deuteronomy 30:20** - **loving the LORD your God, obeying his voice and holding fast to him, for <ins>he is your life</ins>** and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them. (ESV)
+
 To get to know Jesus, we **must obey** His commandments:
 
 > **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
-Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus, we are found in Him. In Christ Jesus seek to follow the pattern of His life to get to know Him, and He gave us commandments to follow to do that. Faith in Christ Jesus is not just a belief in the head but faith is trusting Him, and trusting in Him with all our heart, soul, mind and strength. Anyone who claims to know Jesus but does not do what Jesus says is a liar and they are not in the truth:
+Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus, we are found in Him.
+
+> **[John 13:34](https://www.biblegateway.com/passage/?search=John%2013%3A34&version=ESV)** - A new commandment I give to you, that you love one another: just as I have loved you, you also are to love one another. (ESV)
+
+In Christ Jesus seek to follow the pattern of His life to get to know Him, and He gave us commandments to follow to do that. Faith in Christ Jesus is not just a belief in the head but faith is trusting Him, and trusting in Him with all our heart, soul, mind and strength. Anyone who claims to know Jesus but does not do what Jesus says is a liar and they are not in the truth:
 
 > **[Galatians 2:1-5](https://www.biblegateway.com/passage/?search=Galatians%202%3A1-5&version=ESV)** - Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with me. I went up because of a revelation and set before them (though privately before those who seemed influential) the gospel that I proclaim among the Gentiles, in order to make sure I was not running or had not run in vain. But even Titus, who was with me, was not forced to be circumcised, though he was a Greek. Yet because of false brothers secretly brought in—who slipped in to spy out our **freedom that we have in Christ Jesus**, so that they might bring us into slavery— to them we did not yield in submission even for a moment, so that the truth of the gospel might be preserved for you. (ESV)
 
