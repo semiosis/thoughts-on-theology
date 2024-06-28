@@ -214,6 +214,27 @@ grace given to us, we are supposed to love Jesus back in obedience to His comman
 
   Galatians 2:10 - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
 
+Those who teach others to disobey Jesus, calling Jesus' commandments contrary to grace, are not being humble. But
+Jesus indeed did give us freedom. We can resist people who try to put us under a yoke of slavery, but we don't
+teach people to disobey Jesus as to do so is to teach pride and lawlessness and against trusting in Jesus, and
+against obeying Jesus, and against believing Jesus regarding all the warnings about disobedience, and I think it's
+without the fear of God to teach others to disobey Jesus.
+
+  James 4:6 - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble.
+  (ESV)
+
+  Matthew 5:6 - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
+
+Those who annul and teach others to break the law will be called least in the kingdom. It's not humility to do so.
+
+- It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong
+- It refuses to acknowledge sin
+
+Those who keep God's commandments and AND the righteousness of faith / the testimony of Jesus will be called great
+in the kingdom.
+
+- It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret
+
 1. We 'endeavour' to be justified. We don't justify ourselves, but in Christ we endeavour to be justified
 
   Galatians 2:17 - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ
@@ -24758,7 +24779,8 @@ Quote from Martin Luther King Jr.:
 
   Matthew 5:6 - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
-Those who annul and teach others to break the law will be called least in the kingdom.
+Those who annul and teach others to break the law will be called least in the kingdom. It's not humility to do
+so.
 
 - It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong
 - It refuses to acknowledge sin
@@ -24766,7 +24788,7 @@ Those who annul and teach others to break the law will be called least in the ki
 Those who keep God's commandments and AND the righteousness of faith / the testimony of Jesus will be called
 great in the kingdom.
 
-- This is humility to keep God's commandments by faith (and not works)
+- It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret
 
 There is a self-righteous way of trying to keep the law, and there is a humble way.
 
@@ -33262,7 +33284,7 @@ Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-28 Fri 15:45
+Created: 2024-06-28 Fri 16:20
 
 Validate
 
