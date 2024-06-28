@@ -133,7 +133,7 @@ Bonhoeffer says it like this, “Only he who believes is obedient, and only he w
 
 We should disobey sin:
 
-> **[Romans 6:12](https://www.biblegateway.com/passage/?search=Romans%206%3A12&version=ESV)** - Let not sin therefore reign in your mortal bodies, to make you obey their passions. (ESV)
+> **[Romans 6:12-13](https://www.biblegateway.com/passage/?search=Romans%206%3A12-13&version=ESV)** - Therefore **do not let sin reign** in your mortal body so that you **obey** its lusts, and **do not go on** presenting the members of your body to sin as instruments of unrighteousness; but <ins>*present yourselves to God as those alive from the dead, and your members as instruments of righteousness to God.*</ins> (NASB)
 
 OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting to know Christ, and **disobeying sin**.
 

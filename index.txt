@@ -205,7 +205,9 @@ gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bi
 
 We should disobey sin:
 
-  Romans 6:12 - Let not sin therefore reign in your mortal bodies, to make you obey their passions. (ESV)
+  Romans 6:12-13 - Therefore do not let sin reign in your mortal body so that you obey its lusts, and do not go on
+  presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
+  those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
 OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting
 to know Christ, and disobeying sin.
@@ -33305,7 +33307,7 @@ Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-28 Fri 17:06
+Created: 2024-06-28 Fri 17:15
 
 Validate
 
