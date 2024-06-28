@@ -32582,19 +32582,29 @@ But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant
 
 72.8. The spiritual attack I have received in recent times
 
-The more vocal I become about Jesus and the more I align with the Truth, the more resistance I appear to be
-getting. My sleep has in recent times become highly disrupted as I've been bombarded with demonic dreams. Littered
-amongst those I sometimes also get Bible verses, or dreams of singing worship songs, etc. so I figure the
-spiritual warfare is just a new dimension of spiritual life.
+I'll be listening to music such as this to help maintain the correct perspective against all the lies, liars and
+earthly-minded accusers:
 
-I've been discernibly harassed by demons, even daily, right up until today <2024-06-07 Fri>, and adding to this,
-increasingly daily even 1 week later to today <2024-06-14 Fri>. I began to see this stuff in the spirit especially
-noticeably since the end of 2022. That's been one major motivation for this Bible study, as when I go about my day
-I do not want to be caught off-guard answering people's questions unscripturally (not in accordance with the
-Bible), and I need the full armour of God including the Sword of the Spirit and the Belt of Truth. These days I'm
-being frequently tested, spiritually, on my doctrine and on my obedience, actually. For the unspiritual people out
-there, the testing feels 5 dimensional and explaining 5D situations requires a little bit more explanation. As
-Jesus said:
+Song
+youtube.com: Who You Say I Am - Hillsong Worship
+
+Song
+youtube.com: Jesus Paid It All - Kim Walker-Smith | Worship Circle Hymns
+
+The more vocal I become about Jesus and the more I align with the Truth, the more resistance I appear to be
+getting. My sleep has in recent times become highly disrupted as I've been bombarded with demonic dreams - things
+I can't even mention. Littered amongst those I sometimes also get Bible verses, or dreams of singing worship
+songs, etc. so I figure the spiritual warfare is just a new dimension of spiritual life but I do believe the enemy
+will be defeated.
+
+I've been discernibly harassed by demons, even daily, in my sleep and through other people, right up until today
+<2024-06-07 Fri>, and adding to this, increasingly daily even 1 week later to today <2024-06-14 Fri>. I began to
+see this stuff in the spirit especially noticeably since the end of 2022. That's been one major motivation for
+this Bible study, as when I go about my day I do not want to be caught off-guard answering people's questions
+unscripturally (not in accordance with the Bible), and I need the full armour of God including the Sword of the
+Spirit and the Belt of Truth. These days I'm being frequently tested, spiritually, on my doctrine and on my
+obedience, actually. For the unspiritual people out there, the testing feels '5+ dimensional'(a limited analogy)
+sometimes and explaining 5D situations requires a little bit more explanation/data points. As Jesus said:
 
   John 3:12 - If I have told you earthly things and you do not believe, how can you believe if I tell you heavenly
   things? (ESV)
@@ -33319,7 +33329,7 @@ Date: 2024-06-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-06-28 Fri 17:39
+Created: 2024-06-28 Fri 17:50
 
 Validate
 
