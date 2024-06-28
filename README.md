@@ -131,7 +131,16 @@ Bonhoeffer says it like this, “Only he who believes is obedient, and only he w
 
 [gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
 
-OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting to know Christ.
+We should disobey sin:
+
+> **[Romans 6:12](https://www.biblegateway.com/passage/?search=Romans%206%3A12&version=ESV)** - Let not sin therefore reign in your mortal bodies, to make you obey their passions. (ESV)
+
+OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting to know Christ, and **disobeying sin**.
+
+I believe that if I am disobeying sin and obeying Jesus then I am cooperating with Jesus as He fights for me to overcome the sin and to put the sin to death:
+
+> **[Colossians 3:5](https://www.biblegateway.com/passage/?search=Colossians%203%3A5&version=ESV)** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. (ESV)
+
 That is the obvious conclusion. I should not be a hypocrite about it.
 Jesus has set me free, and there's no condemnation for those who are in Christ, but we should have a response of love for Jesus, and live to serve Jesus.
 
