@@ -147,7 +147,7 @@ God gives grace to the humble (not the self-righteous). That is true. But recogn
 
 We are supposed to have a response of **repentance from sin**. God's kindness is meant to lead us to repentance from sin. And turning from sin is a loving response to grace given:
 
-> **Romans 2:4** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
+> **[Romans 2:4](https://www.biblegateway.com/passage/?search=Romans%202%3A4&version=ESV)** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
 
 > **[Matthew 5:6](https://www.biblegateway.com/passage/?search=Matthew%205%3A6&version=ESV)** - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
@@ -2207,7 +2207,7 @@ God cancelled the record of debt of our sin with the blood of Jesus Christ:
 
 We are supposed to have a response of **repentance from sin**. God's kindness is meant to lead us to repentance from sin. And turning from sin is a loving response to grace given:
 
-> **Romans 2:4** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
+> **[Romans 2:4](https://www.biblegateway.com/passage/?search=Romans%202%3A4&version=ESV)** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
 
 We are supposed to have a response of love for Jesus. God's forgiveness should lead us to love God and want to obey Him:
 
