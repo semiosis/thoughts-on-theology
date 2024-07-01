@@ -19,6 +19,8 @@ I've also added parts of my own testimony. It's my hope that this Bible study he
 > -   [youtube.com: God's Delight in Obedience](https://www.youtube.com/watch?v=tqtl-sXeTmA)
 > -   [youtube.com: His Voice in Yours: How Christ Wins the World](https://www.youtube.com/watch?v=fYJ1oFqSgv4)
 > -   [youtube.com: God is the Gospel](https://www.youtube.com/watch?v=duJhsyAjhNg)
+> -   [youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893)
+>     -   AMEN!!
 > 
 > I agree whole-heartedly with David Mathis also:
 > 
@@ -582,6 +584,8 @@ Belief (in the heart) that Jesus is the Son of God leads to:
 
 ## Being born-again of the Spirit - my experience
 
+-   **[youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893):** "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with the Father and the Son." - AMEN to that, John Piper
+
 I was born-again of the Spirit on [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) where I was given a new body, or it was regenerated - a blue light-body. But for most of my life I have been a nominal Christian. For the 2 years leading up to 2 April 2022, I can tell that God was working in my life. So was I born-again when I first believed as a child, or when I was baptised as a teenager? Not in the same way I was born-again on 2 April 2022. On 2 April 2022 I was truly born-again of the Spirit, and my best explanation as to what had changed was that I had begun to **authentically seek God and to be obedient to Jesus, accountable to God who sees in secret**, and not to man, and that activated a real prayer life, even though I could not yet hear His voice. On the 2 April 2022 I was born-again of water and the Spirit - I was spiritually regenerated. When that happened God had put the fear of Him in my heart so that I would not turn from Him. When I first 'believed' the gospel, this had not happened yet, but I had the testimony. Being born-again of water and the Spirit, I believe is what I experienced on 2 April 2022. But hearing and keeping the gospel of Jesus I believe they will have the event like my 2 April 2022 event happen in their future some time, I assume, or perhaps it is 'entering the Kingdom of God'. I don't know exactly how it works. I'm retroactively trying to figure out what has happened by reading the Scriptures.
 
 As I understand it, if someone is "born of God", they would love Jesus. If someone loves with Christ's love then they are "born of God and know God" and they would love Jesus if presented with Jesus. If someone is "born of the Spirit" then they have been spiritually regenerated. Being born of the Spirit is what I understand is to be "born-again of water and the Spirit".
@@ -604,44 +608,11 @@ We must love Jesus by keeping His commandments:
 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
--   **Quote from Bruce Elder:** "Just because some messages may have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure you test them. Hold onto what is good and dismiss those that are not good (i.e. those that are evil)." - [youtube.com: Dunedin City Baptist Church - Bruce Elder - 3/4/2022 @time: 1 hrs 26 sec](https://youtube.com/watch?v=cn8vXRrf2wo&t=3626)
-
-Bruce Elder said this literally one day after I was born-again of the Spirit.
+A friend said this at church one day after I was born again of the Spirit: "Just because some messages may have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure you test them. Hold onto what is good and dismiss those that are not good (i.e. those that are evil)." I feel that way about my experience of being born-again of the Spirit and then undergoing purification and ongoing repentance and correction.
 
 Over the course of 2022, I was actually speaking a lot of prophecy. There was a lot of truth in it, and a lot of error, but my defense is Jesus and I was getting to know Jesus through being washed in the word, and in obedience to Jesus' commandments, and being corrected by the word, but we don't want to throw the baby out with the bathwater.
 
 > **[Revelation of John 19:10](https://www.biblegateway.com/passage/?search=Revelation%2019%3A10&version=ESV)** - Then I fell down at his feet to worship him, but he said to me, You must not do that! I am a fellow servant with you and your brothers who hold to the testimony of Jesus. Worship God. **For the testimony of Jesus is the spirit of prophecy.** (ESV)
-
-I have a more detailed explanation here:
-
--   [web.archive.org mullikine.github.io: Astral Projection Part 1 - Death with Jesus // Bodacious Blog](https://web.archive.org/web/20220703044913/https://mullikine.github.io/posts/astral-projection/)
-
-Despite some people believing the new birth is not like a pregnancy, it was indeed like a pregnancy from my experience.
-
-> **[John 3:6](https://www.biblegateway.com/passage/?search=John%203%3A6&version=ESV)** - That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. (ESV)
-
-Now I could go into detail about why I repented "after" being born of the Spirit, and I have explained things a bit later in this document.
-But I certainly hold fast to what is good, and allow the Holy Spirit to clean me, as I continue to believe and obey the Holy Spirit.
-
-I received a blue light-body made of blue Spirit light/fire:
-
-> &#x2026; I could feel having a body and see it but the sight I had was unlike regular sight.
-> 
-> When I looked at myself I could see what looked many blue power lines running up my body, glowing and lighting up in blue as waves of some kind of energy moved up and down, pulsating slowly, causing them to glow.
-> 
-> I knew exactly where each part of my physical body was, just as if a person does when they are awake was but when I moved, I seem to have been detaching with another one, which was blue. I thought to myself, “This is my consciousness just trying to retain a sense of self as I am wilfully moving but my body is still asleep.” Perhaps that’s not far from reality.
-> 
-> I could reach in within my own body with my astral hands and ‘see’ where my regular arms lay, but I no vision whatsoever of skin nor flesh, but in a way I could faintly see blackish organs. As I placed my hands below my bones it sent electrical impulses through my body. I could hear electrical vibrations (an electrical sound, like a brrr or a zrrrr) get louder as moved them through my torso and below my rib cage. I could move into my body and feel my organs, and a sore spot under and below my right lung.
-> 
-> I was actually awake and tried to pray aloud but that is when I knew I was in sleep paralysis as I could not make any sounds, nor open my eyes. I sat up a bit where I lay, but just my astral body. And I could see myself. I think I could do this because my body was still very asleep. I prayed to Jesus for forgiveness and for his protection because I was scared and did not know what was going on. This was a very unusual experience. I was experiencing sleep paralysis but when I tried to move I actually could move, but only with my astral body. I came out of my body only by lying up a bit and feeling inside my upper torso but with my astral hands.
-> 
-> There was a sore spot inside in my physical body which I was aware of and when I touched it with my astral hand it felt tender.
-> 
-> I decided I would just lie there, and experience being able to voluntarily (a bit like sonar) send waves of chilling vibrations over my body just by thinking “I want to scan my body”.
-> 
-> I woke up intentionally and it was as if I were already awake but opening my eyes and getting out of bed again, though I could’ve easily slipped back into sleep if I wanted. &#x2026;
-
-To this day, I still have my blue light-body. Though I don't see it with my regular eyes I can still feel it humming!
 
 > **[I Thessalonians 1:4-5](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A4-5&version=ESV)** - For we know, brothers loved by God, that he has chosen you, because our gospel came to you not only in word, but also in power and in the Holy Spirit and with full conviction. You know what kind of men we proved to be among you for your sake. (ESV)
 
@@ -4643,6 +4614,8 @@ This says Father God gives **the Holy Spirit** to His children. Then we should s
 Who receives **the Holy Spirit**? The ones who obey God!
 
 > **[Acts 5:32](https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV)** - And we are witnesses to these things, and so is **the Holy Spirit**, whom God has given <ins>to those who obey him</ins>. (ESV)
+
+-   **[youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893):** "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with the Father and the Son." - AMEN to that, John Piper
 
 The Holy Spirit is received through faith:
 
@@ -12728,6 +12701,8 @@ It's obedience which leads to righteousness, even the righteousness of faith:
 
 # Receiving **the Holy Spirit**
 
+-   **[youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893):** "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with the Father and the Son." - AMEN to that, John Piper
+
 
 ## The Holy Spirit cleanses the heart by faith
 
@@ -17891,7 +17866,50 @@ Jesus Christ is the end of the law to all who believe, but grace isn't an excuse
 
 God's commandments (especially the 10 Commandments; loving God and your neighbour) are still binding on us - written on our heart when we get born-again.
 
-Right after I got [born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) I wrote about the [10 commandments being written on my heart](https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/), and I believe it was the [Holy Spirit inspiring me](https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/).
+Right after I got [born-again of the Spirit](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) I wrote about the [10 commandments being written on my heart](https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/), and I believe it was the [Holy Spirit inspiring me and also letting me loose to write (and also later be corrected)](https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/).
+
+I have a more detailed explanation here:
+
+-   [web.archive.org mullikine.github.io: Astral Projection Part 1 - Death with Jesus // Bodacious Blog](https://web.archive.org/web/20220703044913/https://mullikine.github.io/posts/astral-projection/)
+
+Despite some people believing the new birth is not like a pregnancy, it was indeed like a pregnancy from my experience.
+
+> **[John 3:6](https://www.biblegateway.com/passage/?search=John%203%3A6&version=ESV)** - That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. (ESV)
+
+I really believe that John Piper's explanation should be listened to / read:
+
+-   [youtube.com: How to Seek the Holy Spirit](https://www.youtube.com/watch?v=xqgeT26BAnE)
+
+AMEN to this particular quote too:
+
+-   **[youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893):** "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with the Father and the Son." - AMEN to that, John Piper
+
+Now I could go into detail about why I repented "after" being born of the Spirit, and I have explained things a bit later in this document.
+But I certainly hold fast to what is good, and allow the Holy Spirit to clean me, as I continue to believe and obey the Holy Spirit.
+
+I can't speak to what people's experience might be.
+
+> **[John 3:8](https://www.biblegateway.com/passage/?search=John%203%3A8&version=ESV)** - The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is born of the Spirit. (ESV)
+
+I received a blue light-body made of blue Spirit light/fire:
+
+> &#x2026; I could feel having a body and see it but the sight I had was unlike regular sight.
+> 
+> When I looked at myself I could see what looked many blue power lines running up my body, glowing and lighting up in blue as waves of some kind of energy moved up and down, pulsating slowly, causing them to glow.
+> 
+> I knew exactly where each part of my physical body was, just as if a person does when they are awake was but when I moved, I seem to have been detaching with another one, which was blue. I thought to myself, “This is my consciousness just trying to retain a sense of self as I am wilfully moving but my body is still asleep.” Perhaps that’s not far from reality.
+> 
+> I could reach in within my own body with my astral hands and ‘see’ where my regular arms lay, but I no vision whatsoever of skin nor flesh, but in a way I could faintly see blackish organs. As I placed my hands below my bones it sent electrical impulses through my body. I could hear electrical vibrations (an electrical sound, like a brrr or a zrrrr) get louder as moved them through my torso and below my rib cage. I could move into my body and feel my organs, and a sore spot under and below my right lung.
+> 
+> I was actually awake and tried to pray aloud but that is when I knew I was in sleep paralysis as I could not make any sounds, nor open my eyes. I sat up a bit where I lay, but just my astral body. And I could see myself. I think I could do this because my body was still very asleep. I prayed to Jesus for forgiveness and for his protection because I was scared and did not know what was going on. This was a very unusual experience. I was experiencing sleep paralysis but when I tried to move I actually could move, but only with my astral body. I came out of my body only by lying up a bit and feeling inside my upper torso but with my astral hands.
+> 
+> There was a sore spot inside in my physical body which I was aware of and when I touched it with my astral hand it felt tender.
+> 
+> I decided I would just lie there, and experience being able to voluntarily (a bit like sonar) send waves of chilling vibrations over my body just by thinking “I want to scan my body”.
+> 
+> I woke up intentionally and it was as if I were already awake but opening my eyes and getting out of bed again, though I could’ve easily slipped back into sleep if I wanted. &#x2026;
+
+To this day, I still have my blue light-body. Though I don't see it with my regular eyes I can still feel it humming!
 
 
 ### Even the smallest of laws still come into effect in certain circumstances
