@@ -825,6 +825,10 @@ In order to know God we must love one another in the way that God has loved us:
 
 So we must receive the Holy Spirit.
 
+I learned a lot from John Piper about this today. I really affirm this message:
+
+-   [youtube.com: How to Seek the Holy Spirit](https://www.youtube.com/watch?v=xqgeT26BAnE)
+
 When the following says "they were **baptized in the name of the Lord Jesus**", I'm sure this is baptism in <ins>water</ins>. It's also apparent that a person may receive the Holy Spirit at the time they believed, and the passage also seems to suggest that believing alongside being baptized in water, the person is expected to receive the Holy Spirit:
 
 > **[Acts 19:1-6](https://www.biblegateway.com/passage/?search=Acts%2019%3A1-6&version=ESV)** - And it happened that while Apollos was at Corinth, Paul passed through the inland country and came to Ephesus. There he found some disciples. And he said to them, **Did you receive the Holy Spirit when you believed?** And they said, No, we have not even heard that there is a Holy Spirit. And he said, Into what then were you baptized? They said, Into John's baptism. And Paul said, John baptized with the baptism of repentance, telling the people to believe in the one who was to come after him, that is, Jesus. On hearing this, they were **baptized in the name of the Lord Jesus**. And when Paul had laid his hands on them, the Holy Spirit came on them, and they began speaking in tongues and prophesying. (ESV)

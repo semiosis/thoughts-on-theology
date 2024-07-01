@@ -1251,6 +1251,10 @@ In order to know God we must love one another in the way that God has loved us:
 
 So we must receive the Holy Spirit.
 
+I learned a lot from John Piper about this today. I really affirm this message:
+
+- youtube.com: How to Seek the Holy Spirit
+
 When the following says "they were baptized in the name of the Lord Jesus", I'm sure this is baptism in water.
 It's also apparent that a person may receive the Holy Spirit at the time they believed, and the passage also seems
 to suggest that believing alongside being baptized in water, the person is expected to receive the Holy Spirit:
@@ -33715,7 +33719,7 @@ Date: 2024-07-01 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-01 Mon 16:00
+Created: 2024-07-01 Mon 16:08
 
 Validate
 
