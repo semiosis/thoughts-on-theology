@@ -14829,7 +14829,7 @@ But only the ones who are truly remorseful:
 
 Flock = Jesus' followers. God **wants** to give Jesus' followers the kingdom, but we have to stop the sin:
 
-> **Luke 12:30-32** - For all the nations of the world seek after these things, and your Father knows that you need them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for **it is your Father's good pleasure to give you the kingdom.** (ESV)
+> **[Luke 12:30-32](https://www.biblegateway.com/passage/?search=Luke%2012%3A30-32&version=ESV)** - For all the nations of the world seek after these things, and your Father knows that you need them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for **it is your Father's good pleasure to give you the kingdom.** (ESV)
 
 
 ### We must be a good and faithful servant
@@ -16435,7 +16435,7 @@ But only the ones who are truly remorseful:
 
 Flock = Jesus' followers. God **wants** to give Jesus' followers the kingdom, but we have to stop the sin:
 
-> **Luke 12:30-32** - For all the nations of the world seek after these things, and your Father knows that you need them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for **it is your Father's good pleasure to give you the kingdom.** (ESV)
+> **[Luke 12:30-32](https://www.biblegateway.com/passage/?search=Luke%2012%3A30-32&version=ESV)** - For all the nations of the world seek after these things, and your Father knows that you need them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for **it is your Father's good pleasure to give you the kingdom.** (ESV)
 
 
 ### Faith in Jesus is required - Him paying the price for our sin
