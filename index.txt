@@ -32979,8 +32979,8 @@ thinking like the world thinks, and I've been living for Christ, and I've been l
 I had an out-of-body meeting with the Holy Spirit, and a dream on 3 May 2022 foreshadowing 1 year later on 3 May
 2023 when I ended up pleading guilty in court.
 
-Even though I have been born-again, and I think I've been treated with almost zero, even treated unfairly, I do
-not say I am without sin, and to have pleaded 'not guilty' as I am seeking to be obedient to Jesus, even while
+Even though I have been born-again, and I think I've been treated with almost zero grace, even treated unfairly, I
+do not say I am without sin, and to have pleaded 'not guilty' as I am seeking to be obedient to Jesus, even while
 repenting from certain things which were nothing to do with court, and to not use the year I was born of the
 Spirit to make testimony of Jesus I think would be to dishonour Jesus, as Jesus is my Lord. So for that and also
 to try to do no harm to my neighbour, and also because I am not without sin, even after being washed and
@@ -33106,10 +33106,11 @@ Our first allegiance must be to God:
 
 But the NZ government truly did graciously grant me an unbiased lawyer who graciously was payed for by the
 government, and the time I spent in the asylum did help to humble me and teach me more about loving my neighbour,
-and the Police also did their jobs admirably, and took care of me when I was in a cell, and they also gave me a
-very small (but valuable) amount of time to be heard before having to plead guilty/not guilty. There wasn't
-exactly no grace in the court process but there was very little grace in the court process, which felt mostly
-beyond my control.
+and to admit my own faults with regards to God's law, but the legality as far as NZ law goes of me being sent and
+kept there I'd say is very grey, but the Police also did their jobs admirably, and took care of me when I was in a
+cell, and they also gave me a very small (but valuable) amount of time to be heard before having to plead
+guilty/not guilty. There wasn't exactly no grace in the court process but there was very little grace and an
+almost complete absence of truth in the court process, which felt mostly beyond my control.
 
 But I'm on the other side of it now and feel like I have learned a lot about what it means to love my neighbour.
 
@@ -33206,8 +33207,8 @@ unforgiving servant:
   Father will do to every one of you, if you do not forgive your brother from your heart. (ESV)
 
 I do not say I have done this perfectly, but I record this because I want to explain what obedient faith looks
-like, and to show that I simply meant no harm at all but I was simply born-again and I come against any spirit
-which ties to oppose that fact in Jesus Christ's name, and in Jehovah's name.
+like, as I understand it, and to show that I simply meant no harm at all but I was simply born-again and I come
+against any spirit which ties to oppose that fact in Jesus Christ's name, and in Jehovah's name.
 
 Also, in Jesus Christ's name I come against and rebuke any vindictive spirit or spirit of unforgiveness /
 antichrist / hatred / slander which continues to meddle in my affairs regarding the court process of 2022-2023 at
@@ -33405,6 +33406,19 @@ Jesus went to the cross in the appearance of a criminal, but He committed no cri
 
   John 10:18 - No one takes it from me, but I lay it down of my own accord. I have authority to lay it down, and I
   have authority to take it up again. This charge I have received from my Father. (ESV)
+
+I can't claim perfect innocence:
+
+  I John 1:8-10 - If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our
+  sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. If we say we
+  have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+  Romans 3:4 - By no means! Let God be true though every one were a liar, as it is written, That you may be
+  justified in your words, and prevail when you are judged. (ESV)
+
+  Romans 3:23 - for all have sinned and fall short of the glory of God, (ESV)
+
+What I can do is apply Jesus' instructions for being His disciple, and bear fruit for Jesus:
 
   John 15:1-14 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
   fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
@@ -34294,7 +34308,7 @@ Date: 2024-07-03 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-03 Wed 02:02
+Created: 2024-07-03 Wed 06:12
 
 Validate
 
