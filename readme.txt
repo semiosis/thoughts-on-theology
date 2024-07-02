@@ -883,6 +883,19 @@ AMEN John Piper. Thanks.
   Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact
   the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
+Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's
+not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used
+this analogy. We can sense it (hear it's sound. Me making testimony of being born of the Spirit is me making the
+sound, I guess), but we don't know where it comes form or where it goes:
+
+  John 3:3-8 - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom
+  of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his
+  mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
+  Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of
+  the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes,
+  and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is
+  born of the Spirit. (ESV)
+
 I was born-again 'of the Spirit' on 2 April 2022 where I was given a new body, or it was regenerated - a blue
 light-body. I don't really know what this is. It was something. Most of my life I have not been a very faithful
 Christian. I was a 'nominal' Christian but I didn't really have a lot of faith or knowledge of God. I had not been
@@ -30202,6 +30215,19 @@ Jesus, the Holy Spirit helps us, even before He's inside us:
 Since the Holy Spirit dwells with us even before He is in us, I do understand that the Holy Spirit may seem to be
 more force-like before the Holy Spirit dwells inside and we know Him as a person.
 
+Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's
+not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used
+this analogy. We can sense it (hear it's sound. Me making testimony of being born of the Spirit is me making the
+sound, I guess), but we don't know where it comes form or where it goes:
+
+  John 3:3-8 - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom
+  of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his
+  mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
+  Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of
+  the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes,
+  and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is
+  born of the Spirit. (ESV)
+
 We should aim for Jesus' commandments to become unburdensome. So I would use the analogy of entering a current of
 water (like the Turtle Cruising in Finding Nemo) While in the Holy Spirit, Jesus' commandments should be
 unburdensome, and having the Holy Spirit in us helps us to keep Jesus' commandments even when we face resistance
@@ -33025,10 +33051,19 @@ But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant
   for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 `asah) him a helper (H5828 `ezer) suitable
   (H5048 neged) for him."
 
-72.8. The spiritual attack I have received in recent times
+72.8. The spiritual attack I have received in recent times - my spiritual experiences are not all bad, I'm just "in
+the Spirit" now and I am engaged in spiritual warfare
+
+It makes sense that I've been receiving spiritual attack because I'm at war with satan's kingdom after being born
+of the Spirit:
+
+- youtube.com: Casting Down Strongholds | Derek Prince
 
 I'll be listening to music such as this to help maintain the correct perspective against lies that come from the
 enemy through dreams and through other people:
+
+Radio
+https://www.star.net.nz/
 
 Song
 youtube.com: Who You Say I Am - Hillsong Worship
@@ -33086,6 +33121,10 @@ We must live in the spirit the way God does, not for human passions, but for the
   you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel
   was preached even to those who are dead, that though judged in the flesh the way people are, they might live in
   the spirit the way God does. (ESV)
+
+Research:
+
+- youtube.com: How Demons Gain Entry Into A Person | Derek Prince
 
 72.9. The very reason I found myself in court is for coming to the light, and for exposing darkness, even that of my
 own fault, but that meant doing the right thing even though it would give me a conviction
@@ -33751,11 +33790,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-01 Mon 00:00
+Date: 2024-07-02 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-01 Mon 22:25
+Created: 2024-07-02 Tue 19:14
 
 Validate
 
