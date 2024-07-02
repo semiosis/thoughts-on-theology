@@ -3185,6 +3185,8 @@ God still makes apostles and prophetic people:
 
 I myself, after being born-again, have had visions of planting churches in the South Pacific. However, to make this more complicated, I've also been going through daily testing and refinement on doctrine, etc. as the Holy Spirit has been teaching me and sanctifying me with the Word.
 
+> An apostle, in its literal sense, is an emissary. The word is derived from Ancient Greek ἀπόστολος, literally "one who is sent off", itself derived from the verb ἀποστέλλειν, "to send off".
+
 I've also had a vision of a star rising in a purple sky (like a morning sunrise), and many other such prophetic visions - anyway, my point is the 'prophetic' is a reality, and we believe in a living God, and we believe in the Holy Spirit:
 
 > **[II Peter 1:19](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A19&version=ESV)** - And we have something more sure, the prophetic word, to which you will do well to pay attention as to a lamp shining in a dark place, until the day dawns and the morning star rises in your hearts, (ESV)
@@ -5468,7 +5470,7 @@ God the Father and God the Son are one.
 
 > **[Isaiah 43:10](https://www.biblegateway.com/passage/?search=Isaiah%2043%3A10&version=ESV)** - You are my witnesses, declares the LORD, and my servant whom I have chosen, that you may know and believe me and understand that I am he. **Before me no god was formed, nor shall there be any after me.** (ESV)
 
-To have the Spirit of Christ is to have the Spirit of God:
+To have the Spirit of Christ is to have the Spirit of Jehovah God:
 
 > **[Romans 8:9-10](https://www.biblegateway.com/passage/?search=Romans%208%3A9-10&version=ESV)** - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. But if Christ is in you, although the body is dead because of sin, the Spirit is life because of righteousness. (ESV)
 
@@ -5484,7 +5486,7 @@ We, personally cry "Abba, Father!" We call to Father God.
 
 -   **Sermon:** [The Spirit in Us Cries 'Abba Father': Galatians 4:1-7, Part 5 - YouTube](https://www.youtube.com/watch?v=yENsZ-Fsj4I)
 
-I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknowledge that Jesus Christ has come in the flesh.
+I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknowledge to me in a voice that Jesus Christ has come in the flesh.
 
 > **[I John 4:1-3](https://www.biblegateway.com/passage/?search=1%20John%204%3A1-3&version=ESV)** - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. (ESV)
 
@@ -5557,6 +5559,61 @@ Believing Father God Jehovah, loving Him, obeying His commandments, loving and o
 > **[I John 5:1-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-3&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when **we love God and obey his commandments**. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
 > **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV)** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me.
+
+
+## Seven I AM statements in the Gospel of John
+
+
+### The Bread of Life
+
+> **[John 6:35](https://www.biblegateway.com/passage/?search=John%206%3A35&version=ESV)** - Jesus said to them, I am the bread of life; whoever comes to me shall not hunger, and whoever believes in me shall never thirst. (ESV)
+
+> **[John 6:41](https://www.biblegateway.com/passage/?search=John%206%3A41&version=ESV)** - So the Jews grumbled about him, because he said, I am the bread that came down from heaven. (ESV)
+
+> **[John 6:48](https://www.biblegateway.com/passage/?search=John%206%3A48&version=ESV)** - I am the bread of life. (ESV)
+
+> **[John 6:51](https://www.biblegateway.com/passage/?search=John%206%3A51&version=ESV)** - I am the living bread that came down from heaven. If anyone eats of this bread, he will live forever. And the bread that I will give for the life of the world is my flesh. (ESV)
+
+
+### The Light of the World
+
+> **[John 8:12](https://www.biblegateway.com/passage/?search=John%208%3A12&version=ESV)** - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life. (ESV)
+
+> **[John 9:5](https://www.biblegateway.com/passage/?search=John%209%3A5&version=ESV)** - As long as I am in the world, I am the light of the world. (ESV)
+
+
+### The Door
+
+> **[John 10:7](https://www.biblegateway.com/passage/?search=John%2010%3A7&version=ESV)** - So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. (ESV)
+
+> **[John 10:9](https://www.biblegateway.com/passage/?search=John%2010%3A9&version=ESV)** - I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture. (ESV)
+
+
+### The Good Shepherd
+
+> **[John 10:11](https://www.biblegateway.com/passage/?search=John%2010%3A11&version=ESV)** - I am the good shepherd. The good shepherd lays down his life for the sheep. (ESV)
+
+> **[John 10:14-15](https://www.biblegateway.com/passage/?search=John%2010%3A14-15&version=ESV)** - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know the Father; and I lay down my life for the sheep. (ESV)
+
+
+### The Resurrection and the Life
+
+> **[John 11:25](https://www.biblegateway.com/passage/?search=John%2011%3A25&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, (ESV)
+
+
+### The Way, the Truth and the Life
+
+> **[John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)** - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except through me. (ESV)
+
+
+### The True Vine
+
+> **[John 15:1](https://www.biblegateway.com/passage/?search=John%2015%3A1&version=ESV)** - I am the true vine, and my Father is the vinedresser. (ESV)
+
+> **[John 15:5](https://www.biblegateway.com/passage/?search=John%2015%3A5&version=ESV)** - I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. (ESV)
+
+
+## Jesus
 
 
 ### Jesus has overcome the world
@@ -17506,7 +17563,7 @@ Of course, I believe God doesn't send all His servants to be martyred, but proba
 
 > **[Luke 9:23](https://www.biblegateway.com/passage/?search=Luke%209%3A23&version=ESV)** - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily and follow me.
 
--   **[youtube.com: C.S. Lewis - God is guiding our lives to the best path @time: 17 min 54 sec](https://youtube.com/watch?v=FxQ8XPAqkts&t=1074):** *You will be motivated to follow God's ways with increased passion. Divine love is incomparable and reveals itself in extraordinary ways.  Curiously, the closer you get to God, the more intensely you feel love for Him. We love because He first loved us - \*[[<https://www.biblegateway.com/passage>*?search=1%20John%204%3A19&version=ESV][I John 4:19]]\*.  This indicates that without a true knowledge of God, loving Him can seem like a challenge. Obedience is an authentic expression of this love./
+-   **[youtube.com: C.S. Lewis - God is guiding our lives to the best path @time: 17 min 54 sec](https://youtube.com/watch?v=FxQ8XPAqkts&t=1074):** *You will be motivated to follow God's ways with increased passion. Divine love is incomparable and reveals itself in extraordinary ways.  Curiously, the closer you get to God, the more intensely you feel love for Him. We love because He first loved us* (**[I John 4:19](https://www.biblegateway.com/passage/?search=1%20John%204%3A19&version=ESV)**). *This indicates that without a true knowledge of God, loving Him can seem like a challenge. Obedience is an authentic expression of this love.*
 
 I'm still trying to figure out how Jesus' yoke is easy. I guess that if a person denies self daily, and heart is always gentle and lowly, then Jesus' yoke is easy and burden light:
 
