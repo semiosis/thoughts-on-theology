@@ -4744,6 +4744,9 @@ I myself, after being born-again, have had visions of planting churches in the S
 this more complicated, I've also been going through daily testing and refinement on doctrine, etc. as the Holy
 Spirit has been teaching me and sanctifying me with the Word.
 
+  An apostle, in its literal sense, is an emissary. The word is derived from Ancient Greek ?????????, literally
+  "one who is sent off", itself derived from the verb ???????????, "to send off".
+
 I've also had a vision of a star rising in a purple sky (like a morning sunrise), and many other such prophetic
 visions - anyway, my point is the 'prophetic' is a reality, and we believe in a living God, and we believe in the
 Holy Spirit:
@@ -7956,7 +7959,7 @@ not be destroyed. (ESV)
   Isaiah 43:10 - You are my witnesses, declares the LORD, and my servant whom I have chosen, that you may know and
   believe me and understand that I am he. Before me no god was formed, nor shall there be any after me. (ESV)
 
-To have the Spirit of Christ is to have the Spirit of God:
+To have the Spirit of Christ is to have the Spirit of Jehovah God:
 
   Romans 8:9-10 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in
   you. Anyone who does not have the Spirit of Christ does not belong to him. But if Christ is in you, although the
@@ -7986,8 +7989,8 @@ We, personally cry "Abba, Father!" We call to Father God.
 Sermon
 The Spirit in Us Cries 'Abba Father': Galatians 4:1-7, Part 5 - YouTube
 
-I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknowledge that Jesus Christ has come
-in the flesh.
+I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknowledge to me in a voice that Jesus
+Christ has come in the flesh.
 
   I John 4:1-3 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
   many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that
@@ -8124,7 +8127,61 @@ must be true together, even to have a sound definition of what love is:
   John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
   came not of my own accord, but he sent me.
 
-6.0.1. Jesus has overcome the world
+6.1. Seven I AM statements in the Gospel of John
+
+6.1.1. The Bread of Life
+
+  John 6:35 - Jesus said to them, I am the bread of life; whoever comes to me shall not hunger, and whoever
+  believes in me shall never thirst. (ESV)
+
+  John 6:41 - So the Jews grumbled about him, because he said, I am the bread that came down from heaven. (ESV)
+
+  John 6:48 - I am the bread of life. (ESV)
+
+  John 6:51 - I am the living bread that came down from heaven. If anyone eats of this bread, he will live
+  forever. And the bread that I will give for the life of the world is my flesh. (ESV)
+
+6.1.2. The Light of the World
+
+  John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
+  darkness, but will have the light of life. (ESV)
+
+  John 9:5 - As long as I am in the world, I am the light of the world. (ESV)
+
+6.1.3. The Door
+
+  John 10:7 - So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. (ESV)
+
+  John 10:9 - I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture.
+  (ESV)
+
+6.1.4. The Good Shepherd
+
+  John 10:11 - I am the good shepherd. The good shepherd lays down his life for the sheep. (ESV)
+
+  John 10:14-15 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
+  the Father; and I lay down my life for the sheep. (ESV)
+
+6.1.5. The Resurrection and the Life
+
+  John 11:25 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet
+  shall he live, (ESV)
+
+6.1.6. The Way, the Truth and the Life
+
+  John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
+  through me. (ESV)
+
+6.1.7. The True Vine
+
+  John 15:1 - I am the true vine, and my Father is the vinedresser. (ESV)
+
+  John 15:5 - I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much
+  fruit, for apart from me you can do nothing. (ESV)
+
+6.2. Jesus
+
+6.2.1. Jesus has overcome the world
 
   John 16:33 - I have said these things to you, that in me you may have peace. In the world you will have
   tribulation. But take heart; I have overcome the world. (ESV)
@@ -8150,7 +8207,7 @@ AMEN!!
 Song
 Darlene Zschech - In Jesus' Name | Official Live Video - YouTube
 
-6.0.2. Jesus is the Lamb of God who sits with God on God's throne
+6.2.2. Jesus is the Lamb of God who sits with God on God's throne
 
 Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself.
 
@@ -8172,7 +8229,7 @@ Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself
   Revelation of John 22:3 - No longer will there be anything accursed, but the throne of God and of the Lamb will
   be in it, and his servants will worship him. (ESV)
 
-6.0.3. Follow Jesus for eternal life. Jesus is the Bread of Life
+6.2.3. Follow Jesus for eternal life. Jesus is the Bread of Life
 
   Luke 18:18-22 - And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to
   him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit
@@ -8180,7 +8237,7 @@ Jesus Christ is our God. Forever, He is Father God's revelation to us of Himself
   these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that
   you have and distribute to the poor, and you will have treasure in heaven; and come, follow me.
 
-6.0.4. Believe Jesus and allow His word to abide in you
+6.2.4. Believe Jesus and allow His word to abide in you
 
   John 5:46-47 - If you believed Moses, you would believe me; for he wrote of me. But if you do not believe his
   writings, how will you believe my words? (ESV)
@@ -8223,7 +8280,7 @@ Jesus speaks of what He has seen with His Father:
 
   John 8:38 - I speak of what I have seen with my Father, and you do what you have heard from your father.
 
-6.0.5. We are implored to love Jesus and follow Him
+6.2.5. We are implored to love Jesus and follow Him
 
 We need to love Jesus because He came from God, to show us the Way as the Light of the world.
 
@@ -8243,7 +8300,7 @@ in the truth, which leads to eternal life:
   Hebrews 5:8-9 - Although he was a son, he learned obedience through what he suffered. And being made perfect, he
   became the source of eternal salvation to all who obey him, (ESV)
 
-6.0.6. We must listen to Jesus
+6.2.6. We must listen to Jesus
 
   Luke 9:35 - Then a voice came out of the cloud, saying, "This is My Son, My Chosen One; listen to Him!"
 
@@ -8266,7 +8323,7 @@ Look at Jesus! - YouTube
   Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
   (ESV)
 
-6.0.7. We are implored to honour Jesus
+6.2.7. We are implored to honour Jesus
 
   John 8:48-49 - The Jews answered him, Are we not right in saying that you are a Samaritan and have a demon?
   Jesus answered, I do not have a demon, but I honor my Father, and you dishonor me.
@@ -8277,12 +8334,12 @@ Look at Jesus! - YouTube
   you, whoever hears my word and believes (G4100 pisteuo) him who sent me has eternal life. He does not come into
   judgment, but has passed from death to life.
 
-6.0.8. We are implored to keep Jesus' words
+6.2.8. We are implored to keep Jesus' words
 
   John 8:50-51 - Yet I do not seek my own glory; there is One who seeks it, and he is the judge. Truly, truly, I
   say to you, if anyone keeps my word, he will never see death.
 
-6.0.9. We must receive Jesus. Jesus is God's Only-Begotten Son
+6.2.9. We must receive Jesus. Jesus is God's Only-Begotten Son
 
   John 8:52-59 - The Jews said to him, Now we know that you have a demon! Abraham died, as did the prophets, yet
   you say, If anyone keeps my word, he will never taste death. Are you greater than our father Abraham, who died?
@@ -8293,7 +8350,7 @@ Look at Jesus! - YouTube
   not yet fifty years old, and have you seen Abraham? Jesus said to them, Truly, truly, I say to you, before
   Abraham was, I am. So they picked up stones to throw at him, but Jesus hid himself and went out of the temple.
 
-6.0.10. Even those who have faith in Jesus Christ's name may have the right to be born of God and become children of
+6.2.10. Even those who have faith in Jesus Christ's name may have the right to be born of God and become children of
 God
 
 The worldly people rejected Him. Neither did His own people receive Him.
@@ -8330,7 +8387,7 @@ The worldly people rejected Him. Neither did His own people receive Him.
 
 AMEN!!
 
-6.0.11. We must do the will of God, which is the food and drink which Jesus gives us
+6.2.11. We must do the will of God, which is the food and drink which Jesus gives us
 
   John 6:27 - Do not labor for the food that perishes, but for the food that endures to eternal life, which the
   Son of Man will give to you. For on him God the Father has set his seal. (ESV)
@@ -8371,7 +8428,7 @@ And in obeying Jesus we are performing good works which are works done in faith 
   all who are in the tombs will hear his voice and come out, those who have done good to the resurrection of life,
   and those who have done evil to the resurrection of judgment. (ESV)
 
-6.0.12. Having faith (living in accordance with the truth, and in relationship with God) is asked of us - faith
+6.2.12. Having faith (living in accordance with the truth, and in relationship with God) is asked of us - faith
 continues
 
 What I mean by relationship is:
@@ -8667,7 +8724,7 @@ And doing the will of God is what it means to be led by the Spirit of God:
 
   Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
-6.0.13. We must be wanting to be cleaned of sin
+6.2.13. We must be wanting to be cleaned of sin
 
 We must look upon Jesus and stop sexual immorality and stop idolatry. The stories mentioned here are examples for
 us to follow:
@@ -8729,7 +8786,7 @@ Jesus implies you must obey Him (Jesus) to be part of His family:
 Devotional
 Word for today - Do God's word - March 7th
 
-6.0.14. The obedient children are the ones who are not conformed to the passions of our former ignorance
+6.2.14. The obedient children are the ones who are not conformed to the passions of our former ignorance
 
   I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
   who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
@@ -8742,7 +8799,7 @@ I know I can testify to this fiery trial being a real thing:
   inherited from your forefathers, not with perishable things such as silver or gold, but with the precious blood
   of Christ, like that of a lamb without blemish or spot. (ESV)
 
-6.0.15. The sons of disobedience are the ones who are conformed to sexual immorality, impurity, or covetousness,
+6.2.15. The sons of disobedience are the ones who are conformed to sexual immorality, impurity, or covetousness,
 etc.
 
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
@@ -8750,7 +8807,7 @@ etc.
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
   not associate with them;
 
-6.0.16. If we trust in the name of the Son of God, Jesus Christ, we have eternal life
+6.2.16. If we trust in the name of the Son of God, Jesus Christ, we have eternal life
 
   I John 5:10-13 - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God
   has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And
@@ -8769,7 +8826,7 @@ You must obey Jesus, and that is choosing light and choosing love:
   John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but
   the wrath of God remains on him. (ESV)
 
-6.0.17. Get to know Jesus by believing Him and following His commandments
+6.2.17. Get to know Jesus by believing Him and following His commandments
 
   John 10:14-15 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
   the Father; and I lay down my life for the sheep. (ESV)
@@ -8871,7 +8928,7 @@ God:
   saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen Abraham? Jesus
   said to them, Truly, truly, I say to you, before Abraham was, I am.
 
-6.0.18. Atonement
+6.2.18. Atonement
 
 Jesus' sacrifice is the only atonement for our sin we need. It's comprehensive. It must be received through faith
 in Jesus Christ - and that is not mere belief but obedience:
@@ -8995,7 +9052,7 @@ Follow Jesus through the new and living Way:
   the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment,
   and a fury of fire that will consume the adversaries.
 
-6.0.19. Everyone needs saving
+6.2.19. Everyone needs saving
 
   Romans 3:1-19 - Then what advantage has the Jew? Or what is the value of circumcision? Much in every way. To
   begin with, the Jews were entrusted with the oracles of God. What if some were unfaithful? Does their
@@ -9016,7 +9073,7 @@ Follow Jesus through the new and living Way:
   Romans 3:20 - For by works of the law no human being will be justified in his sight, since through the law comes
   knowledge of sin. (ESV)
 
-6.0.20. Whoever makes an appeal to God, calls upon His name will be saved
+6.2.20. Whoever makes an appeal to God, calls upon His name will be saved
 
 We call upon the Lord to be saved. And everyone needs saving.
 
@@ -9146,19 +9203,19 @@ I definitely believe that "believer's baptism" is the right way to perform bapti
 
 CHRIST IS ENOUGH - HILLSONG LIVE LYRIC VIDEO | GLORIOUS RUINS 2013 - YouTube
 
-6.1. Obedience - A heart of obedience is the start of faith, and belief is the start of continued obedience
+6.3. Obedience - A heart of obedience is the start of faith, and belief is the start of continued obedience
 
-6.1.1. Continued revelation comes from having a heart of obedience towards God
+6.3.1. Continued revelation comes from having a heart of obedience towards God
 
   John 7:17 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am
   speaking on my own authority. (ESV)
 
-6.1.2. God's commanded is for everyone to come to the obedience of having faith in Him through Jesus Christ
+6.3.2. God's commanded is for everyone to come to the obedience of having faith in Him through Jesus Christ
 
   Romans 16:26 - but has now been disclosed and through the prophetic writings has been made known to all nations,
   according to the command of the eternal God, to bring about the obedience of faith - (ESV)
 
-6.1.3. Fear of the Lord
+6.3.3. Fear of the Lord
 
   Isaiah 11:2 - And the Spirit of the Lord shall rest upon him, the Spirit of wisdom and understanding, the Spirit
   of counsel and might, the Spirit of knowledge and the fear of the Lord.
@@ -9203,7 +9260,7 @@ We make it our aim to please him:
   Proverbs 19:23 - The fear of the Lord leads to life, and whoever has it rests satisfied; he will not be visited
   by harm.
 
-6.2. Repentance does involve turning from sin
+6.4. Repentance does involve turning from sin
 
   Luke 24:46-47 - and said to them, Thus it is written, that the Christ should suffer and on the third day rise
   from the dead, and that repentance (G3341 metanoia) and forgiveness (G859 aphesis) of sins should be proclaimed
@@ -9227,7 +9284,7 @@ We make it our aim to please him:
   done in Tyre and Sidon, they would have repented long ago in sackcloth and ashes. But I tell you, it will be
   more bearable on the day of judgment for Tyre and Sidon than for you.
 
-6.2.1. Justification by having faith like Abraham in He who raised Jesus Christ from the dead
+6.4.1. Justification by having faith like Abraham in He who raised Jesus Christ from the dead
 
 Paul the Apostle met James, brother of Jesus:
 
@@ -9359,13 +9416,13 @@ So obeying Jesus Christ is having faith in God:
   will be counted to us who believe (G4100 pisteuo) in him who raised from the dead Jesus our Lord, who was
   delivered up for our trespasses and raised for our justification. (ESV)
 
-6.3. The obedient children are the ones who are not conformed to the passions of our former ignorance
+6.5. The obedient children are the ones who are not conformed to the passions of our former ignorance
 
   I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
   who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
   holy.
 
-6.3.1. Jesus Christ has explained what the faith of Abraham looks like for someone who believes in Him
+6.5.1. Jesus Christ has explained what the faith of Abraham looks like for someone who believes in Him
 
 Repentance from sin, obeying Jesus Christ, making Jesus your Lord and Saviour:
 
@@ -9385,7 +9442,7 @@ Repentance from sin, obeying Jesus Christ, making Jesus your Lord and Saviour:
   Matthew 5:20 - For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will
   never enter the kingdom of heaven. (ESV)
 
-6.4. Get to know Jesus by following His commandments
+6.6. Get to know Jesus by following His commandments
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
   does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
@@ -9424,14 +9481,14 @@ pisteuo is the faith verb.
 So the promise is for all who put their faith in God by obeying Jesus Christ with the faith of Abraham to a
 greater or lesser degree.
 
-6.5. The sons of disobedience are the ones who are conformed to sexual immorality, impurity, or covetousness, etc.
+6.7. The sons of disobedience are the ones who are conformed to sexual immorality, impurity, or covetousness, etc.
 
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
   not associate with them;
 
-6.5.1. All sin is lawlessness
+6.7.1. All sin is lawlessness
 
 If we are led by the spirit then we are not under the Mosaic law. So we should stop sinning as it is described by
 such works of the flesh as listed:
@@ -24935,9 +24992,8 @@ Quote from John Piper
 youtube.com: C.S. Lewis - God is guiding our lives to the best path @time: 17 min 54 sec
 You will be motivated to follow God's ways with increased passion. Divine love is incomparable and reveals itself
 in extraordinary ways. Curiously, the closer you get to God, the more intensely you feel love for Him. We love
-because He first loved us - *[[https://www.biblegateway.com/passage?search=1%20John%204%3A19&version=ESV][I John
-| 19]]*. This indicates that without a true knowledge of God, loving Him can seem like a challenge. Obedience is
-an authentic expression of this love./
+because He first loved us (I John 4:19). This indicates that without a true knowledge of God, loving Him can seem
+like a challenge. Obedience is an authentic expression of this love.
 
 I'm still trying to figure out how Jesus' yoke is easy. I guess that if a person denies self daily, and heart is
 always gentle and lowly, then Jesus' yoke is easy and burden light:
@@ -34163,7 +34219,7 @@ Date: 2024-07-02 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-02 Tue 22:52
+Created: 2024-07-02 Tue 23:31
 
 Validate
 
