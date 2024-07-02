@@ -6633,61 +6633,61 @@ Sinners:
 <tbody>
 <tr>
 <td class="org-left"><b>1</b></td>
-<td class="org-left"><b>Exodus 20:2-3</b> - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&amp;version=ESV">Exodus 20:2-3</a></b> - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>2</b></td>
-<td class="org-left"><b>Exodus 20:4-6</b> - You shall not make for yourself a carved image, or any likeness of anything that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. You shall not bow down to them or serve them, for I the LORD your God am a jealous God, visiting the iniquity of the fathers on the children to the third and the fourth generation of those who hate me, but showing steadfast love to thousands of those who love me and keep my commandments. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A4-6&amp;version=ESV">Exodus 20:4-6</a></b> - You shall not make for yourself a carved image, or any likeness of anything that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. You shall not bow down to them or serve them, for I the LORD your God am a jealous God, visiting the iniquity of the fathers on the children to the third and the fourth generation of those who hate me, but showing steadfast love to thousands of those who love me and keep my commandments. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>3</b></td>
-<td class="org-left"><b>Exodus 20:7</b> - You shall not take the name of the LORD your God in vain, for the LORD will not hold him guiltless who takes his name in vain. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A7&amp;version=ESV">Exodus 20:7</a></b> - You shall not take the name of the LORD your God in vain, for the LORD will not hold him guiltless who takes his name in vain. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>4</b></td>
-<td class="org-left"><b>Exodus 20:8-11</b> - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A8-11&amp;version=ESV">Exodus 20:8-11</a></b> - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>5</b></td>
-<td class="org-left"><b>Exodus 20:12</b> - Honor your father and your mother, that your days may be long in the land that the LORD your God is giving you. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A12&amp;version=ESV">Exodus 20:12</a></b> - Honor your father and your mother, that your days may be long in the land that the LORD your God is giving you. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>6</b></td>
-<td class="org-left"><b>Exodus 20:13</b> - You shall not murder. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A13&amp;version=ESV">Exodus 20:13</a></b> - You shall not murder. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>7</b></td>
-<td class="org-left"><b>Exodus 20:14</b> - You shall not commit adultery. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A14&amp;version=ESV">Exodus 20:14</a></b> - You shall not commit adultery. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>8</b></td>
-<td class="org-left"><b>Exodus 20:15</b> - You shall not steal. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A15&amp;version=ESV">Exodus 20:15</a></b> - You shall not steal. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>9</b></td>
-<td class="org-left"><b>Exodus 20:16</b> - You shall not bear false witness against your neighbor. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A16&amp;version=ESV">Exodus 20:16</a></b> - You shall not bear false witness against your neighbor. (ESV)</td>
 </tr>
 
 
 <tr>
 <td class="org-left"><b>10</b></td>
-<td class="org-left"><b>Exodus 20:17</b> - You shall not covet your neighbor's house; you shall not covet your neighbor's wife, or his male servant, or his female servant, or his ox, or his donkey, or anything that is your neighbor's. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A17&amp;version=ESV">Exodus 20:17</a></b> - You shall not covet your neighbor's house; you shall not covet your neighbor's wife, or his male servant, or his female servant, or his ox, or his donkey, or anything that is your neighbor's. (ESV)</td>
 </tr>
 </tbody>
 </table>
@@ -7277,7 +7277,7 @@ Our freedom is so that we might live to God:
 
 God is our life. We must love, **obey**, and hold fast to Him. Faith is not without obedience, but we are to obey Jesus Christ:
 
-> **Deuteronomy 30:20** - **loving the LORD your God, obeying his voice and holding fast to him, for <ins>he is your life</ins>** and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them. (ESV)
+> **[Deuteronomy 30:20](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A20&version=ESV)** - **loving the LORD your God, obeying his voice and holding fast to him, for <ins>he is your life</ins>** and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them. (ESV)
 
 To get to know Jesus, we **must obey** His commandments:
 
@@ -16173,7 +16173,17 @@ Also, I stress this verse again because if you're obeying God then the Mosaic la
 
 Not that I was or am perfect, but I have been following Jesus so I claim to be on Jesus' side. By the grace of God He made me born-again, washed, regenerated and [filled with the Holy Spirit in 2022](https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/) after I had begun to repent and seek Jesus.
 
-For many years before that I've had what I've felt was unreasonably difficulty with relationships, but it's after I was born-again and actively following Jesus that I was denied my first ever marriage proposal, and it was very obvious to me that what I have been fighting is an antichrist/antirelationship/slander spirit attacking me after I was born-again (only now I could easily see it working through people) and probably long before that, and I feel like the spiritual attack (i.e. spirit spouse, LGBT dreams etc., thrown out of churches) I have received as a fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead of using the [documented fact I was born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the Word of God. I'm not upset with people, but I'm upset that I feel spiritually unclean. I want it to stay in God's court because I feel like I have tried my best to remain faithful to God, and now I need full deliverance and I want to be completely cleaned. I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons.
+For many years before that I've had what I've felt was unreasonably difficulty with relationships, but it's after I was born-again and actively following Jesus that I was denied my first ever marriage proposal, and it was very obvious to me that what I have been fighting is an antichrist/antirelationship/slander spirit attacking me after I was born-again (only now I could easily see it working through people) and probably long before that, and I feel like the spiritual attack (i.e. spirit spouse, LGBT dreams etc., thrown out of churches) I have received as a fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead of using the [documented fact I was born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the Word of God. 
+
+The way I chose was based on truth and joy and being at peace. And the fact of the matter is that while I had faith I had joy and peace and could just focus on being productive and working, and when the fruit of the spirit is gone what is left but sadness and depression and filling the void with the wrong stuff. I personally do not think that having love for someone is mutually exclusive from being led by the Spirit, nor from serving Jesus, but that Jesus must be number 1.
+
+> **Galatians 5:16** - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
+
+> **Genesis 2:18** - Then the LORD God said, It is not good that the man should be alone; I will make him a helper fit for him. (ESV)
+
+Then the devil probably said, "It is not good that man should be allowed to marry the person God made for him, because then he wont feel the need to have any of my false sinful substitutes."
+
+I'm not upset with people, but I'm upset that I feel broken and as if I am in a world of lies as a result of following Jesus, and like I had to kill the marriage proposal to put Jesus first, and I'm grieved. I feel like Abraham if he was to actually kill Isaac on the Altar, and God didn't intervene. I want it to stay in God's court because I feel like I have tried my best to remain faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole. I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons.
 
 > **[Romans 4:7-8](https://www.biblegateway.com/passage/?search=Romans%204%3A7-8&version=ESV)** - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; <ins>blessed is the man against whom the Lord will not count his sin.</ins> (ESV)
 
