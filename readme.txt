@@ -2021,6 +2021,18 @@ Keeping means, not only having them but also keeping, obeying them:
   will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does
   not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
+Jesus comes to dwell in our hearts through faith, His spirit in our inner being, as we are rooted and grounded in
+love:
+
+  Ephesians 3:14-21 - For this reason I bow my knees before the Father, from whom every family in heaven and on
+  earth is named, that according to the riches of his glory he may grant you to be strengthened with power through
+  his Spirit in your inner being, so that Christ may dwell in your hearts through faith-that you, being rooted and
+  grounded in love, may have strength to comprehend with all the saints what is the breadth and length and height
+  and depth, and to know the love of Christ that surpasses knowledge, that you may be filled with all the fullness
+  of God. Now to him who is able to do far more abundantly than all that we ask or think, according to the power
+  at work within us, to him be glory in the church and in Christ Jesus throughout all generations, forever and
+  ever. Amen. (ESV)
+
   I John 5:3 - For this is the love of God, that we keep his commandments. And his commandments are not
   burdensome. (ESV)
 
@@ -10073,6 +10085,18 @@ Jesus will manifest to those who keep His commandments:
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+Jesus comes to dwell in our hearts through faith, His spirit in our inner being, as we are rooted and grounded in
+love:
+
+  Ephesians 3:14-21 - For this reason I bow my knees before the Father, from whom every family in heaven and on
+  earth is named, that according to the riches of his glory he may grant you to be strengthened with power through
+  his Spirit in your inner being, so that Christ may dwell in your hearts through faith-that you, being rooted and
+  grounded in love, may have strength to comprehend with all the saints what is the breadth and length and height
+  and depth, and to know the love of Christ that surpasses knowledge, that you may be filled with all the fullness
+  of God. Now to him who is able to do far more abundantly than all that we ask or think, according to the power
+  at work within us, to him be glory in the church and in Christ Jesus throughout all generations, forever and
+  ever. Amen. (ESV)
 
 The followers of Paul the Apostle live by (walk by) faith; those are the righteous ones. It's a lifestyle:
 
@@ -31839,6 +31863,20 @@ Our hope of salvation which we have in Jesus Christ.
 
 69.7. Prayer
 
+An example of a prayer - short and sweet:
+
+  Genesis 24:12 - And he said, O LORD, God of my master Abraham, please grant me success today and show steadfast
+  love to my master Abraham. (ESV)
+
+Another example:
+
+  Daniel 2:20-23 - Daniel answered and said: Blessed be the name of God forever and ever, to whom belong wisdom
+  and might. He changes times and seasons; he removes kings and sets up kings; he gives wisdom to the wise and
+  knowledge to those who have understanding; he reveals deep and hidden things; he knows what is in the darkness,
+  and the light dwells with him. To you, O God of my fathers, I give thanks and praise, for you have given me
+  wisdom and might, and have now made known to me what we asked of you, for you have made known to us the king's
+  matter. (ESV)
+
   Ephesians 6:18 - praying at all times in the Spirit, with all prayer and supplication. To that end keep alert
   with all perseverance, making supplication for all the saints, (ESV)
 
@@ -34125,7 +34163,7 @@ Date: 2024-07-02 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-02 Tue 22:31
+Created: 2024-07-02 Tue 22:52
 
 Validate
 

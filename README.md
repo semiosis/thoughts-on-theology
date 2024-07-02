@@ -1321,6 +1321,10 @@ Keeping means, not only <ins>having</ins> them but also **keeping**, **obeying**
 
 > **[John 14:21-24](https://www.biblegateway.com/passage/?search=John%2014%3A21-24&version=ESV)** - Whoever **has my commandments and keeps them**, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
+Jesus comes to dwell in our hearts through faith, His spirit in our inner being, as we are rooted and grounded in love:
+
+> **[Ephesians 3:14-21](https://www.biblegateway.com/passage/?search=Ephesians%203%3A14-21&version=ESV)** - For this reason I bow my knees before the Father, from whom every family in heaven and on earth is named, that according to the riches of his glory he may grant you to be strengthened with power through his Spirit in your inner being, so that Christ may dwell in your hearts through faith—that you, being rooted and grounded in love, may have strength to comprehend with all the saints what is the breadth and length and height and depth, and to **know the love of Christ that surpasses knowledge**, that you may be filled with all the fullness of God. Now to him who is able to do far more abundantly than all that we ask or think, according to the power at work within us, to him be glory in the church and in Christ Jesus throughout all generations, forever and ever. Amen. (ESV)
+
 > **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
 > **[John 8:55](https://www.biblegateway.com/passage/?search=John%208%3A55&version=ESV)** - But you have not known him. I know him. If I were to say that I do not know him, I would be a liar like you, but I do know him and I keep his word. (ESV)
@@ -6897,6 +6901,10 @@ I think, that means that if a person **loves** (is obedient to) and has faith in
 Jesus will manifest to those who keep His commandments:
 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+Jesus comes to dwell in our hearts through faith, His spirit in our inner being, as we are rooted and grounded in love:
+
+> **[Ephesians 3:14-21](https://www.biblegateway.com/passage/?search=Ephesians%203%3A14-21&version=ESV)** - For this reason I bow my knees before the Father, from whom every family in heaven and on earth is named, that according to the riches of his glory he may grant you to be strengthened with power through his Spirit in your inner being, so that Christ may dwell in your hearts through faith—that you, being rooted and grounded in love, may have strength to comprehend with all the saints what is the breadth and length and height and depth, and to **know the love of Christ that surpasses knowledge**, that you may be filled with all the fullness of God. Now to him who is able to do far more abundantly than all that we ask or think, according to the power at work within us, to him be glory in the church and in Christ Jesus throughout all generations, forever and ever. Amen. (ESV)
 
 The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are the righteous ones. It's a lifestyle:
 
@@ -22853,6 +22861,14 @@ Our hope of salvation which we have in Jesus Christ.
 
 
 ## Prayer
+
+An example of a prayer - short and sweet:
+
+> **[Genesis 24:12](https://www.biblegateway.com/passage/?search=Genesis%2024%3A12&version=ESV)** - And he said, O LORD, God of my master Abraham, please grant me success today and show steadfast love to my master Abraham. (ESV)
+
+Another example:
+
+> **Daniel 2:20-23** - Daniel answered and said: Blessed be the name of God forever and ever, to whom belong wisdom and might. He changes times and seasons; he removes kings and sets up kings; he gives wisdom to the wise and knowledge to those who have understanding; he reveals deep and hidden things; he knows what is in the darkness, and the light dwells with him. To you, O God of my fathers, I give thanks and praise, for you have given me wisdom and might, and have now made known to me what we asked of you, for you have made known to us the king's matter. (ESV)
 
 > **[Ephesians 6:18](https://www.biblegateway.com/passage/?search=Ephesians%206%3A18&version=ESV)** - praying at all times in the Spirit, with all prayer and supplication. To that end keep alert with all perseverance, making supplication for all the saints, (ESV)
 
