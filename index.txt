@@ -857,7 +857,7 @@ Belief (in the heart) that Jesus is the Son of God leads to:
 Song
 youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}
 
-3.1. Being born-again of the Spirit - my experience
+3.1. Being born-again of the Spirit
 
 youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec
 "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the
@@ -866,9 +866,11 @@ the Father and the Son."
 
 AMEN to that, John Piper.
 
+3.1.1. Any spiritual experience should be in the character of the Holy Spirit
+
 youtube.com: How to Preach with Supernatural Power @time: 8 min 16 sec
 He does not mean that something spiritual is religious or mystical or other-worldly. That's what most people think
-about spiritual... Well, no it not. Instead spirtual for Paul meant originating by the Holy Spirit and having the
+about spiritual... Well, no it's not. Instead spiritual for Paul meant originating by the Holy Spirit and having the
 quality of the Holy Spirit, formed by the character of the Holy Spirit. It is supernatural, wrought, shaped by the
 Holy Spirit... The problem with the 'mind of the flesh is not that it fails to be religious, or that it fails to be
 mystical or that it fails to be other-worldly. In fact, the mind of the flesh may be intensely religious. The mind
@@ -883,10 +885,12 @@ AMEN John Piper. Thanks.
   Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact
   the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
+3.1.2. My testimony of being born-again of the Spirit
+
 Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's
 not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used
-this analogy. We can sense it (hear it's sound. Me making testimony of being born of the Spirit is me making the
-sound, I guess), but we don't know where it comes form or where it goes:
+this analogy. We can sense it (hear it's sound, such as making testimony of being born of the Spirit), but we
+don't know where it comes form or where it goes:
 
   John 3:3-8 - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom
   of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his
@@ -897,22 +901,23 @@ sound, I guess), but we don't know where it comes form or where it goes:
   born of the Spirit. (ESV)
 
 I was born-again 'of the Spirit' on 2 April 2022 where I was given a new body, or it was regenerated - a blue
-light-body. I don't really know what this is. It was something. Most of my life I have not been a very faithful
-Christian. I was a 'nominal' Christian but I didn't really have a lot of faith or knowledge of God. I had not been
-seeking out Jesus. For the 2 years leading up to 2 April 2022, I can tell now in retrospect that God was working
-in my life. So when was I born-again? Was it when I first believed as a child, or when I was baptised as a
-teenager? Not in the same way I was born-again on 2 April 2022. On 2 April 2022 I was truly born-again of the
-Spirit, and my best explanation as to what had changed was that I had begun to authentically seek God and to be
-obedient to Jesus, accountable to God who sees in secret, and not to man, and that activated a real prayer life,
-and I had asked God to give me His Holy Spirit. Even though I could not yet hear His voice, I was praying and
-seeking and beginning to repent. On the 2 April 2022 I was born-again the Spirit - I was spiritually regenerated -
-whatever it was that happened which I described. When that happened God had put the fear of Him in my heart so
-that I would not turn from Him. When I first 'believed' the gospel, this had not happened yet, but I had the
-testimony I guess. This event, what I experienced on 2 April 2022 I consider to me being born of 'water and the
-Spirit'. But hearing and keeping the gospel of Jesus, and asking God to receive the Holy Spirit, or seeking God I
-guess they will have some events, probably different to my 2 April 2022 event something similar happen then or in
-their future some time, I assume, or perhaps it is 'entering the Kingdom of God'. I don't know exactly how it
-works. I'm retroactively trying to figure things out by reading the Scriptures.
+light-body. I don't really know what this is. It was something like a singularity event and my perception of the
+world is now spiritual. Most of my life I have not been a very faithful Christian. I was a 'nominal' Christian but
+I didn't really have a lot of faith or knowledge of God. I had not been seeking out Jesus. For the 2 years leading
+up to 2 April 2022, I can tell now in retrospect that God was working in my life. So when was I born-again? Was it
+when I first believed as a child, or when I was baptised as a teenager? Not in the same way I was born-again on 2
+April 2022. On 2 April 2022 I was truly born-again of the Spirit, and my best explanation as to what had changed
+was that I had begun to authentically seek God and to be obedient to Jesus, accountable to God who sees in secret,
+and not to man, and that activated a real prayer life, and I had asked God to give me His Holy Spirit. Even though
+I could not yet hear His voice, I was praying and seeking and beginning to repent. On the 2 April 2022 I was
+born-again the Spirit - I was spiritually regenerated - whatever it was that happened which I described. When that
+happened God had put the fear of Him in my heart so that I would not turn from Him. When I first 'believed' the
+gospel, this had not happened yet, but I had the testimony I guess. This event, what I experienced on 2 April 2022
+I consider to me being born of 'water and the Spirit'. But hearing and keeping the gospel of Jesus, and asking God
+to receive the Holy Spirit, or seeking God I guess they will have some events, probably different to my 2 April
+2022 event something similar happen then or in their future some time, I assume, or perhaps it is 'entering the
+Kingdom of God'. I don't know exactly how it works. I'm retroactively trying to figure things out by reading the
+Scriptures.
 
 As I understand it, if someone is "born of God", they would love Jesus. If someone loves with Christ's love then
 they are "born of God and know God" and they would love Jesus if presented with Jesus. If someone is "born of the
@@ -937,8 +942,8 @@ to suggest that believing alongside being baptized in water, the person is expec
   and they began speaking in tongues and prophesying. (ESV)
 
 Also, a person may not have been "Born of the Spirit" (whatever it was that happened to me on 2 April 2022) when
-they believed. But rather, I think they are "born of God", that is if they do in truth believe that Jesus is the
-Christ:
+they intially believed. But rather, I think they are "born of God", that is if they do in truth believe that Jesus
+is the Christ:
 
   I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. (ESV)
@@ -951,11 +956,12 @@ We must love Jesus by keeping His commandments:
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
 
-A friend said this at church one day after I was born again of the Spirit: "Just because some messages may have
-been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure you
-test them. Hold onto what is good and dismiss those that are not good (i.e. those that are evil)." I feel that way
-about my experience of being born-again of the Spirit and then undergoing purification and ongoing repentance and
-correction.
+A friend said this at church the very day after I was born again of the Spirit, " Just because some messages may
+have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure
+you test them. Hold onto what is good and dismiss those that are not good (i.e. those that are evil). "
+
+I feel that way about my experience of being born-again of the Spirit and then undergoing purification and ongoing
+repentance and correction.
 
 Over the course of 2022, I was actually speaking a lot of prophecy. There was a lot of truth in it, and a lot of
 error, but my defense is Jesus and I was getting to know Jesus through being washed in the word, and in obedience
@@ -14212,17 +14218,242 @@ Likewise, we should have compassion:
 
   Lk 10:33 - But a Samaritan, as he journeyed, came to where he was, and when he saw him, he had compassion. (ESV)
 
-18.10. Deliverance/exorcism
+18.10. Deliverance
 
-Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7} - YouTube
+Conditions:
 
-- Typically, one person casts out the demon from another person.
+ 1. Be humble
+ 2. Be honest
+ 3. Confess faith in Christ
+ 4. Confess any known sin
+ 5. Repent of all sin
+ 6. Break with all occult, curses and secret societies
+ 7. Forgive others
+ 8. Expel - breathe out
 
-18.10.1. Demons are not rare
+  Proverbs 28:13 - Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them
+  will obtain mercy. (ESV)
+
+18.10.1. Why some people are not delivered
+
+For not meeting the conditions. It's not so much a test of your spiritual power. It's a test of whether or not
+you've met the conditions. When performing deliverance on others, don't focus on yourself. Focus on those people
+meeting the conditions. You may feel yourself a little midget, but you're representing a victorious Christ.
+
+ 1. Lack of repentance - There is no guarantee to anybody who is not willing to repent.
+ 2. Lack of desperation - Deliverance is for the desperate. Summed up in one word 'passivity.' And many times
+you've got to do something to prod the person who wants to be delivered. Christ has given us authority over
+human spirits but not over the human will. You cannot will for the other person. The person has to will for
+them self. I'm desperate.
+ 3. Wrong motives. We are not delivered in order to get off the hook. We're delivered to serve the LORD. James 4:3
+- You ask and do not receive, because you ask wrongly, to spend it on your passions. (ESV) youtube.com: How To
+Expel The Enemy | Basics Of Deliverance Pt. 2 | Derek Prince @time: 27 min 14 sec People who come to get off
+the hook do not qualify for deliverance.
+ 4. Self-centeredness. Desire for attention. Some people don't get delivered because they wouldn't be the center
+of attention anymore. Some of the chronic cases of deliverance never want to get delivered because they're
+poor, neglected, rejected people. This is the only time they get the center of the stage. One thing you're
+notice about all people who are focused by demons is that in some way or other they are self-centered. In
+fact, self-centeredness is an invitation to demon attention. Sometimes you just have to let the person go and
+say, "Listen, you've had enough. You can do it for yourself and if you don't do it for yourself, nobody else
+is going to do it for you."
+- We can do this for ourself.
+ 5. Failure to break with the occult. That includes getting rid of occult objects. Anything that savours a
+supersition is demonic. Moses said if you bring an accursed thing into your house you become accursed like it.
+Most Christians need to go through their homes and clean out a lot of rubbish. I make it a principle, I don't
+want to keep in my house anything that dishonours Jesus Christ or honours satan.
+- Deuteronomy 7:26 - And you shall not bring an abominable thing into your house and become devoted to
+destruction like it. You shall utterly detest and abhor it, for it is devoted to destruction. (ESV)
+ 6. Failure to sever evil soulish relationships. Sometimes you have to break some relationships; if they're evil,
+if they're binding, if they're gooey - a kind of sloppy sentimentality that isn't honest.
+- I rebuke in Jesus Christ's name that anti-relationship spirit which has been attacking my relationships
+which were everything to do with love and honesty and truth, and nothing to do with dishonest sloppy
+sentimentality.
+ 7. Under a curse. Will not be delivered or healed until the curse is broken.
+- Any curses against me shall be broken in Jesus Christ's name.
+ 8. Failure to confess a specific sin. Abortion has to be confessed as murder.
+ 9. Not "separated" by water baptism
+- People who are not water baptised (in Derek Princes' opinion) do not qualify to stay free.
+10. Part of a larger battle requiring corporate action. Some people are satan's battlefield (this is definitely
+me), and satan will not let them go because of what they are themselves but because of what they stand for.
+There are people for who the whole body has to take responsibility. I need prayer to break these chains.
+
+18.10.2. How to keep your deliverance
+
+ 1. Make Jesus Lord in every area of my life. An unclean spirit in a dream last night <2024-07-02 Tue> said Jesus
+wasn't my Lord. I rebuke it in Jesus Christ's name. - youtube.com: Chris Tomlin - I Will Follow With Lyrics
+ 2. Garment of Praise. Isaiah 61:3 - To grant those who mourn in Zion, Giving them a garland instead of ashes, The
+oil of gladness instead of mourning, The mantle of praise instead of a spirit of fainting. So they will be
+called oaks of righteousness, The planting of the LORD, that He may be glorified. (NASB)
+ 3. Put on the full Armour of God
+ 4. Live by God's Word. Matthew 4:4 - But he answered, It is written, Man shall not live by bread alone, but by
+every word that comes from the mouth of God. (ESV)
+ 5. Submit to God and resist satan. James 4:7 - Submit yourselves therefore to God. Resist the devil, and he will
+flee from you. (ESV)
+ 6. Right fellowship. Our fellowship is an acid test of where we are at in our spiritual life
+ 7. Come under discipline. I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as
+iniquity and idolatry. Because you have rejected the word of the LORD, he has also rejected you from being
+king. (ESV) Rebellion is as witchcraft. Most Christians indulge their moods and their whims and their fancies.
+We are not free to do that. It's just as dangerous to do that as it is to indulge your sexual impulses. You
+are not free to do it.
+ 8. Make Jesus central. When satan is cast out, we need to fill the vacuum with Jesus. Focus on Jesus. John
+|  31-32 - Now is the judgment of this world; now will the ruler of this world be cast out. And I, when I am
+lifted up from the earth, will draw all people to myself. (ESV)
+
+18.10.3. Prayer by Derek Prince
+
+youtube.com: How To Expel The Enemy | Basics Of Deliverance Pt. 2 | Derek Prince @time: 48 min 48 sec
+I'm going to lead you in a prayer in which you're going to have the opportunity to humble yourself, to come to
+Jesus and to affirm that you've met the conditions. I'll put in your mouth the words. You'll renounce the occult
+and every kind of contact with satanic power. You'll forgive every other person who ever harmed you or wronged
+you. You'll release yourself from every curse and you'll have to do that in faith without the understanding. And
+then you'll present yourself as a candidate for deliverance. And when you've said the prayer and met all the
+conditions. The last thing you'll say is Amen. And when you've said Amen, don't do any more praying. It's very
+religious to pray. Sounds good, but as long as you are praying, you're keeping the demons inside. They can't get
+out past your prayer. Don't speak in tongues. Speaking in tongues is wonderful, but it has the same effect, it
+keeps the demons inside. It's like when the ambulance or the police car goes down the road with its sirens blaring
+and its lights flashing. Everything else gets off to the side and lets it go past. That's how demons get out. Make
+way for them. Release them. Let them go out. Faith without works is dead. So don't stand there passive when you've
+said the prayer, waiting for something to happen. Do one very simple thing. Begin to breathe out. Expel. And
+you'll find if you have a problem, in a short while it will be more than mere human breath that is coming out.
+That's what you're after. Now when that happens, you might become undignified. You might not act in a very
+religious way. If you decide to be dignified and religious, you'll lose what you prayed for. It's your option. I
+suggest you turn loose and get it out. I've told people the devil is no gentleman. He comes in uninvited and he
+usually has to be kicked out. Kick him out with everything you've got. Don't spare him. Hate him. Listen, it's no
+sin to hate the devil. It's a sin not to hate the devil. To be passive and indifferent is sinful.
+
+|  Now we are praying to Jesus the deliverer.
+|  And I would like you to say these words;
+|  They're all taken out of the Bible
+|  and what I have taught.
+| 
+|      Lord Jesus Christ...
+|      I believe that you are the Son of God
+|      and the only way to God.
+|      That You died on the cross for my sins,
+|       and rose again from the dead.
+|       I come to You now for mercy
+|       and for forgiveness.
+|       I believe You do forgive me
+|       and receive me as Your child.
+|       And because You receive me...
+|       I receive myself as a child of God.
+|       And now Lord, You know the
+|       special problem that I have.
+|       The demonic influences that torment me.
+|       Lord, I want to meet Your conditions
+|       and receive Your deliverance.
+|       First of all,
+|       I forgive every other person
+|       who ever harmed me or wronged me.
+|       I forgive them all now.
+|       Pause for a moment and quietly
+|       name the persons you need to forgive.
+|       We're going on. Lord,
+|       I have forgiven all these persons.
+|       I have laid down all bitterness...
+|       all resentment, all hatred...
+|       and all rebellion.
+|       And I believe You've forgiven me.
+|       I thank You for it.
+|       I also renounce
+|       every contact with Satan...
+|       with occult powers,
+|       with secret societies...
+|       with anything in Satan's territory.
+|       I repent of being on that territory...
+|       and I turn my back on it now.
+|       Also Lord, if there's
+|       a curse over my life...
+|       I thank You that on the cross...
+|       You were made a curse...
+|       that I might be
+|       redeemed from the curse...
+|       and receive the blessing.
+|       And I claim that now.
+|       Release from the curse
+|       and entering into the blessing.
+|       And now Lord, I want to come against...
+|       any evil spirit in me...
+|       that occupies any
+|       area of my personality.
+|       I want to tell You I hate them.
+|       They are my enemies.
+|       I will not make peace with them.
+|       I will not compromise with them.
+|       They will have no more place in me.
+|       I turn against them now...
+|       and in the authority
+|       of Your name, Jesus...
+|       I command them to leave me.
+|       I expel them right now
+|       in the name of Jesus.
+|       Amen.
+|  
+|   No more praying. I'll do the final
+|   prayer, you do the letting go.
+|   Begin to expel right now in faith.
+|  
+|       Now Lord, as your servant and
+|       representative, under the authority
+|       of the local leadership I take dominion
+|       in Jesus' name over every evil spirit
+|       that has been renounced and I
+|       command them to go in Jesus' name.
+|       Release these people
+|       and go from them now
+|       in the mighty, all-prevailing
+|       name of Jesus Christ.
+|       I affirm that Jesus Christ
+|       is Lord over this gathering.
+|       That He has defeated Satan. That He
+|       holds the keys of death and of Hades.
+|       That all authority has been given
+|       unto Him in heaven and in earth.
+|       Satan, you are subject to us through the
+|       name of Jesus. You have to obey us.
+|       You have to go from these people.
+|       You have no options.
+|       The Bible says you must leave,
+|       and leave you must, Satan.
+|       In the name of Jesus. Amen.
+|  
+|   Now just get a full deliverance.
+|   Release yourself from everything.
+|   Once the anointing is here
+100: you can get rid of everything
+101: and it's much more difficult
+102: to do it when the anointing lifts.
+103: That's right,
+104: don't bother about other people.
+105: Don't hold onto your dignity,
+106: it'll come back in a few moments.
+107: That's right. Thank You, Lord.
+108: Thank You, Father.
+109: Thank You, Lord Jesus.
+110: Praise Your holy name.
+111: Praise Your name, Lord.
+
+18.11. Deliverance/exorcism
+
+Typically, one person casts out the demon from another person. But we can also perform the exorcism on ourself.
+But we should have the following conditions met.
+
+Conditions:
+
+ 1. Be humble
+ 2. Be honest
+ 3. Confess faith in Christ
+ 4. Confess any known sin
+ 5. Repent of all sin
+ 6. Break with all occult, curses and secret societies
+ 7. Forgive others
+ 8. Expel - breathe out
+
+18.11.1. Demons are not rare
 
   Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
 
-18.10.2. Demons consider a persons' body their home
+18.11.2. Demons consider a persons' body their home
 
 - Sinful thoughts/behaviour attracts demons.
 
@@ -14232,7 +14463,7 @@ Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7} - Yo
   and they enter and dwell there, and the last state of that person is worse than the first. So also will it be
   with this evil generation. (ESV)
 
-18.10.3. Renounce the ungodliness
+18.11.3. Renounce the ungodliness
 
   Titus 2:11-14 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
   ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
@@ -14240,14 +14471,14 @@ Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7} - Yo
   himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
   are zealous for good works. (ESV)
 
-18.10.4. This demon came out within the hour
+18.11.4. This demon came out within the hour
 
 It's often not instantaneous.
 
   Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
   spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
 
-18.10.5. This demon was resistant
+18.11.5. This demon was resistant
 
 After already commanding the unclean spirit to come out of the man, the unclean spirit resisted and then Jesus
 asked the demon its name.
@@ -14271,7 +14502,7 @@ the demon its name.
   spirits came out, and entered the pigs, and the herd, numbering about two thousand, rushed down the steep bank
   into the sea and were drowned in the sea. (ESV)
 
-18.10.6. All believers can cast out demons
+18.11.6. All believers can cast out demons
 
   Mark 16:17 - And these signs will accompany those who believe: in my name they will cast out demons; they will
   speak in new tongues; (ESV)
@@ -14279,7 +14510,7 @@ the demon its name.
   Luke 10:19 - Behold, I have given you authority to tread on serpents and scorpions, and over all the power of
   the enemy, and nothing shall hurt you. (ESV)
 
-18.10.7. We must be spiritually-minded, not earthly-minded
+18.11.7. We must be spiritually-minded, not earthly-minded
 
   I Corinthians 2:14 - The natural person does not accept the things of the Spirit of God, for they are folly to
   him, and he is not able to understand them because they are spiritually discerned. (ESV)
@@ -14289,7 +14520,105 @@ the demon its name.
 
   James 2:26 - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
-18.11. Faith requires obedience - i.e. acting in faith / living by faith
+18.11.8. Exorcism prayer by Derek Prince
+
+- youtube.com: Spiritual Warfare on Earth - Derek Prince @time: 1 hrs 32 min 40 sec
+
+|  You are going to affirm your faith in Christ.
+|  He is the High Priest of your confession.
+| 
+|  Say this: "Lord Jesus Christ, I believe You
+|  are the Son of God and the only way to God,
+|  that You died on the cross for my sins and
+|  rose again that I might be forgiven and
+|  receive eternal life."
+| 
+|   Now we're going to deal with humbling
+|   ourselves.
+|  
+|   "I renounce all pride and religious self-
+|   righteousness, and any dignity that does not
+|   come from You. I have no claim on Your mercy
+|   except that You died in my place."
+|  
+|   Now we come to confessing sin.
+|  
+|   "I confess all my sins before You, and hold
+|   nothing back. Especially I confess: ..."
+|  
+|   And now name any particular sins that which
+|   the Holy Spirit has convicted you.
+|  
+|   Now we're going to continue with repentance.
+|  
+|   "I repent of all my sins. I turn away from
+|   them and I turn to You LORD, for mercy and
+|   forgiveness."
+|  
+|   Now we're going to deal with forgiving other people.
+|  
+|   "By a decision of my will I freely forgive all
+|   who have ever harmed me or wronged me. I lay
+|   down all bitterness, all resentment and all
+|   hatred. Specifically I forgive: ..."
+|  
+|   And now say [under your breath] the names of
+|   people you really need to forgive. The longer
+|   you make this list, the better prospect you
+|   have of deliverance. Specifically say, "I forgive...".
+|   It's not difficult to forgive the person far
+|   from you, but the people close to you can be
+|   difficult.
+|  
+|   Then we deal with the occult.
+|  
+|   "I sever all contact I have had with the
+|   occult or with all false religion,
+|   particularly:"
+|  
+|   Now you need to name the things and if you
+|   have been in freemasonry or family, specially
+|   name freemasonry.
+|  
+|   "I commit myself to get rid of all objects
+|   associated with the occult or false religion."
+|  
+|   Now we're going to deal with any curses that may be over your life.
+|  
+|   "Lord Jesus I thank You that on the cross You
+|   were made a curse that I might be redeemed
+|   from every curse and inherit God's blessing.
+|   On that basis I ask You to release me and set
+|   me free to receive the deliverance I need,
+|   now."
+|  
+|   "I take my stand with You Lord against all
+|   satan's demons. I submit to You, Lord, and I
+|   resist the devil. AMEN!!"
+|  
+|   Now we come to the point where you expel.
+|  
+|   "Now I speak to any demons that have control over me."
+|  
+|   Now you speak to them directly.
+|  
+|   "I command you to go from me now in the name
+|   of Jesus. I expel you. Come out in the name of
+|   Jesus."
+|  
+|   Let them go.
+|  
+|   Derek Prince said, "Every evil spirit that is
+|   in these people I command you to go from them
+|   now."
+|  
+|   Now expel it. Exhale, cough it out.
+
+18.11.9. Prayer by Isaiah Saldivar
+
+Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7} - YouTube
+
+18.12. Faith requires obedience - i.e. acting in faith / living by faith
 
   Luke 8:21 - But He answered and said to them, "My mother and My brothers are these who hear the word of God and
   do it."
@@ -14395,7 +14724,7 @@ fruitful we should supply to our faith those qualities:
 |   acknowledgement:--(ac-)knowledge(-ing, - ment).
 |   see GREEK for 1921
 
-18.11.1. Work/Love/Walking-By-Faith
+18.12.1. Work/Love/Walking-By-Faith
 
   II John 1:5-6 - And now I ask you, dear lady-not as though I were writing you a new commandment, but the one we
   have had from the beginning-that we love one another. And this is love, that we walk according to his
@@ -14453,7 +14782,7 @@ Jesus' commandments are consistent with the rest of God's commandments:
 
   John 15:12 - This is my commandment, that you love one another as I have loved you. (ESV)
 
-18.11.2. Fear-of-God
+18.12.2. Fear-of-God
 
   Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
   as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
@@ -14488,7 +14817,7 @@ But the work of God is to believe in whom He has sent. So even believing in Jesu
   John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
   is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
 
-18.11.3. Faith vector illustration
+18.12.3. Faith vector illustration
 
 Deeds, love, faith, service and perseverance are not mutually exclusive. They're all important to God and overlap:
 
@@ -27302,6 +27631,8 @@ Sin attracts demons:
   and they enter and dwell there, and the last state of that person is worse than the first. So also will it be
   with this evil generation. (ESV)
 
+youtube.com: How To Expel The Enemy | Basics Of Deliverance Pt. 2 | Derek Prince @time: 15 min 33 sec
+
 It's spiritual, so I think it may actually welcome demons into a person's life to endorse sinful things.
 
   Deuteronomy 7:26 - And you shall not bring an abominable thing into your house and become devoted to destruction
@@ -33794,7 +34125,7 @@ Date: 2024-07-02 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-02 Tue 19:14
+Created: 2024-07-02 Tue 21:30
 
 Validate
 
