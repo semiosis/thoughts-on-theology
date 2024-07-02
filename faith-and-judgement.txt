@@ -878,6 +878,12 @@ youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}
 
 3.1. Being born-again of the Spirit
 
+Quote from John Piper
+The most profound change in the universe is when a human being passes from death to life - from spiritual deadness
+to spiritual aliveness and this text is about how to help that change happen.
+
+AMEN!
+
 youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec
 "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the
 Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with
@@ -898,6 +904,8 @@ hardened againsnt the beauty of God, the worth of God, the authority of God. It'
 welcome and love and delight in and enjoy God.
 
 AMEN John Piper. Thanks.
+
+youtube.com: C. S. Lewis 2024 - Characteristics of the Holy Spirit's personality
 
   Romans 8:6-9 - To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For
   the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot.
@@ -27851,6 +27859,9 @@ The law doesn't save:
 
 57.3. The freedom Christ gives us involves obeying Christ
 
+Sermon
+youtube.com: Christian Submission - John Piper
+
 Obeying Jesus, even Jesus' commandments, is actually freedom. To disobey Jesus is to submit to slavery.
 
   Galatians 5:1 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
@@ -27872,6 +27883,15 @@ justified, but by faith in Jesus Christ we seek to be justified:
 
   Ephesians 5:24 - Now as the church submits to Christ, so also wives should submit in everything to their
   husbands. (ESV)
+
+Quote from John Piper
+Submission does not mean agreeing with everything your husband says. Now you can see that right here in verse one
+she is a Christian [and] he is not a Christian. That is about as significant a disagreement as you can have they
+don't come any more significant there isn't any bigger issue in the world than whether Jesus is Lord and they
+don't agree on it. Peter calls this wife to submission assuming she will not submit to her husband's ideas about
+the most important thing in the world, God. So there's lesson number one. Submission does not mean agreeing with
+everything your husband thinks. Number two, submission does not mean leaving your mind or your will at the wedding
+altar; It's not the inability to think for yourself as a woman or to will for yourself.
 
   Romans 8:21 - that the creation itself will be set free from its bondage to decay and obtain the freedom of the
   glory of the children of God. (ESV)
@@ -34308,7 +34328,7 @@ Date: 2024-07-03 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-03 Wed 06:12
+Created: 2024-07-03 Wed 09:19
 
 Validate
 

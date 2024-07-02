@@ -590,6 +590,10 @@ Belief (in the heart) that Jesus is the Son of God leads to:
 
 ## Being born-again of the Spirit
 
+-   **Quote from John Piper:** The most profound change in the universe is when a human being passes from death to life - from spiritual deadness to spiritual aliveness and this text is about how to help that change happen.
+
+AMEN!
+
 -   **[youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893):** "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with the Father and the Son."
 
 AMEN to that, John Piper.
@@ -600,6 +604,8 @@ AMEN to that, John Piper.
 -   **[youtube.com: How to Preach with Supernatural Power @time: 8 min 16 sec](https://youtube.com/watch?v=xyJpROFrfc4&t=496):** He does not mean that something spiritual is religious or mystical or other-worldly. That's what most people think about spiritual&#x2026; Well, no it's not. Instead spiritual for Paul meant originating by the Holy Spirit and having the quality of the Holy Spirit, formed by the character of the Holy Spirit. It is supernatural, wrought, shaped by the Holy Spirit&#x2026; The problem with the 'mind of the flesh is not that it fails to be religious, or that it fails to be mystical or that it fails to be other-worldly. In fact, the mind of the flesh may be intensely religious. The mind of the flesh may be very mystical, very other-worldly. The problem with the mind of the flesh is that it's hardened againsnt the beauty of God, the worth of God, the authority of God. It's hard against God. It's unable to welcome and love and delight in and enjoy God.
 
 AMEN John Piper. Thanks.
+
+[youtube.com: C. S. Lewis 2024 - Characteristics of the Holy Spirit's personality](https://www.youtube.com/watch?v=4nAoOBkccNw)
 
 > **[Romans 8:6-9](https://www.biblegateway.com/passage/?search=Romans%208%3A6-9&version=ESV)** - To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
@@ -19664,6 +19670,8 @@ The law doesn't save:
 
 ## The freedom Christ gives us involves obeying Christ
 
+-   **Sermon:** [youtube.com: Christian Submission - John Piper](https://www.youtube.com/watch?v=cSAgkr47Oz0)
+
 Obeying Jesus, even Jesus' commandments, is actually freedom. To disobey Jesus is to submit to slavery.
 
 > **[Galatians 5:1](https://www.biblegateway.com/passage/?search=Galatians%205%3A1&version=ESV)** - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery. (ESV)
@@ -19675,6 +19683,8 @@ This really says it all. We die to the law of Moses but live to God. By the work
 > **[Galatians 2:16-19](https://www.biblegateway.com/passage/?search=Galatians%202%3A16-19&version=ESV)** - yet we know that a person is not justified by works of the law but through faith in Jesus Christ, so we also have believed in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law **I died to the law, so that I might live to God.** (ESV)
 
 > **[Ephesians 5:24](https://www.biblegateway.com/passage/?search=Ephesians%205%3A24&version=ESV)** - Now as the church submits to Christ, so also wives should submit in everything to their husbands. (ESV)
+
+-   **[Quote from John Piper](https://www.youtube.com/watch?v=cSAgkr47Oz0):** Submission does not mean agreeing with everything your husband says. Now you can see that right here in verse one she is a Christian [and] he is not a Christian. That is about as significant a disagreement as you can have they don't come any more significant there isn't any bigger issue in the world than whether Jesus is Lord and they don't agree on it. Peter calls this wife to submission assuming she will not submit to her husband's ideas about the most important thing in the world, God. So there's lesson number one. Submission does not mean agreeing with everything your husband thinks. Number two, submission does not mean leaving your mind or your will at the wedding altar; It's not the inability to think for yourself as a woman or to will for yourself.
 
 > **[Romans 8:21](https://www.biblegateway.com/passage/?search=Romans%208%3A21&version=ESV)** - that the creation itself will be set free from its bondage to decay and obtain the freedom of the glory of the children of God. (ESV)
 
