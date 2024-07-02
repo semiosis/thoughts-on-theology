@@ -1872,7 +1872,7 @@ Also, faith in Jesus is obedience to Jesus, because we are instructed to **hold 
 
 The Apostle Paul says something similar. Faith is a matter of being accountable to God, even with respect to law-keeping:
 
-> **Romans 14:22** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
+> **[Romans 14:22](https://www.biblegateway.com/passage/?search=Romans%2014%3A22&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
 
 Through faith to Jesus we are justified - that's believing obedience, accountable to God - so it's quite important to bear one another's burdens because Jesus, our Master, commanded us to do it. We keep accountable to God with what we believe/do in obedience to Him:
 
@@ -4617,7 +4617,7 @@ This is considered being saved by faith and not by works.
 We must now consider ourselves dead to sin and alive to God in Christ Jesus.
 We must now present ourselves as obedient slaves to righteousness - yes, practicing personal righteousness in accordance with Jesus Christ's commandments.
 
-> **Romans 6** - What shall we say then? Are we to continue in sin that grace may abound? By no means! How can we who died to sin still live in it? Do you not know that **all of us who have been baptized into Christ Jesus were baptized into his death?** We were buried therefore with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, we too might walk in newness of life. For **if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his**. We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe that we will also live with him. We know that Christ being raised from the dead will never die again; death no longer has dominion over him. For the death he died he died to sin, once for all, but the life he lives he lives to God. So **you also must consider yourselves dead to sin and alive to God in Christ Jesus.** Let not sin therefore reign in your mortal bodies, to make you obey their passions. Do not present your members to sin as instruments for unrighteousness, but present yourselves to God as those who have been brought from death to life, and your members to God as instruments for righteousness. For sin will have no dominion over you, since you are not under law but under grace. What then? Are we to sin because we are not under law but under grace? By no means! Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient **from the heart** to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. I am speaking in human terms, because of your natural limitations. For just as you once presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading to sanctification. When you were slaves of sin, you were free in regard to righteousness. But what fruit were you getting at that time from the things of which you are now ashamed? The end of those things is death. But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but **the free gift of God is eternal life in Christ Jesus our Lord.** (ESV)
+> **[Romans 6](https://www.biblegateway.com/passage/?search=Romans%206&version=ESV)** - What shall we say then? Are we to continue in sin that grace may abound? By no means! How can we who died to sin still live in it? Do you not know that **all of us who have been baptized into Christ Jesus were baptized into his death?** We were buried therefore with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, we too might walk in newness of life. For **if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his**. We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe that we will also live with him. We know that Christ being raised from the dead will never die again; death no longer has dominion over him. For the death he died he died to sin, once for all, but the life he lives he lives to God. So **you also must consider yourselves dead to sin and alive to God in Christ Jesus.** Let not sin therefore reign in your mortal bodies, to make you obey their passions. Do not present your members to sin as instruments for unrighteousness, but present yourselves to God as those who have been brought from death to life, and your members to God as instruments for righteousness. For sin will have no dominion over you, since you are not under law but under grace. What then? Are we to sin because we are not under law but under grace? By no means! Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient **from the heart** to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. I am speaking in human terms, because of your natural limitations. For just as you once presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading to sanctification. When you were slaves of sin, you were free in regard to righteousness. But what fruit were you getting at that time from the things of which you are now ashamed? The end of those things is death. But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but **the free gift of God is eternal life in Christ Jesus our Lord.** (ESV)
 
 Therefore, to be in Christ Jesus our Lord, God puts us in and we then have a change of mindset, presenting ourselves as obedient slaves to Jesus Christ. Is that considered a bad thing to be a slave to righteousness? No, it's considered as being in Christ Jesus.
 
@@ -7279,7 +7279,7 @@ Even the Apostle Paul explains that our freedom is for serving one another:
 
 Our freedom is so that we might live to God:
 
-> **Galatians 2:19** - For through the law I died to the law, so that I might live to God. (ESV)
+> **[Galatians 2:19](https://www.biblegateway.com/passage/?search=Galatians%202%3A19&version=ESV)** - For through the law I died to the law, so that I might live to God. (ESV)
 
 God is our life. We must love, **obey**, and hold fast to Him. Faith is not without obedience, but we are to obey Jesus Christ:
 
@@ -7388,6 +7388,8 @@ Those who are in the faith <ins>can't do anything against the truth</ins>.
 I think the Apostle here understands that we must test ourselves to see if we are in the faith, and encourage others to test themselves.
 But interestingly, he says, "not that we may appear to have met the test", and "though we may seem to have failed", as if it may **appear** and **seem** as
 though others have failed, but that we should **test ourselves**.
+
+-   **Sermon:** [youtube.com: Lord, Savior, and Treasure: The Complex Beauty of Jesus Christ @time: 2 min 44 sec](https://youtube.com/watch?v=vQsES0G8blk&t=164)
 
 Though there may seem to be **apparent** paradoxes, and **apparent** contradictions in the Scripture, I think they either resolve or we rest in God, not relying on our own understanding. But I confidently affirm God is True, though I don't understand everything, and I affirm that my spiritual eyesight is getting cleaned up by the Spirit, through faith, and by the washing of the word, and I have confidence that Jesus Christ is in me:
 
@@ -8868,7 +8870,7 @@ Before accepting God's forgiveness yourself, submitting to the righteousness of 
 
 The "Our Father" prayer applies to those who are actually children of God, but it's a good :
 
-> **Matthew 6:8-15** - Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and **forgive us our debts, as we also have forgiven our debtors**. And lead us not into temptation, but deliver us from evil. For **if you forgive others their trespasses, your heavenly Father will also forgive you**, but **if you do not forgive others their trespasses, neither will your Father forgive your trespasses**. (ESV)
+> **[Matthew 6:8-15](https://www.biblegateway.com/passage/?search=Matthew%206%3A8-15&version=ESV)** - Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and **forgive us our debts, as we also have forgiven our debtors**. And lead us not into temptation, but deliver us from evil. For **if you forgive others their trespasses, your heavenly Father will also forgive you**, but **if you do not forgive others their trespasses, neither will your Father forgive your trespasses**. (ESV)
 
 You will never be able to return enough stolen goods to God to ever be justified. Nor would you ever be able to forgive enough other people to attain that justification. <ins>We ultimately need God's forgiveness through faith in Jesus</ins>, and so we need to come to realise our spiritual bankruptcy before God and cry out to Him to forgive us.
 
@@ -13037,7 +13039,7 @@ We must be thinking as a person of Heaven.
 
 > **[Philippians 3:18-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV)** - For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. Their end is destruction, their god is their belly, and they glory in their shame, with minds set on earthly things. But **our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself.** (ESV)
 
-> **Galatians 15:16-18** - Only let us hold true to what we have attained. Brothers, **join in imitating me, and keep your eyes on those who walk according to the example you have in us.** For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
+> **[Galatians 15:16-18](https://www.biblegateway.com/passage/?search=Galatians%2015%3A16-18&version=ESV)** - Only let us hold true to what we have attained. Brothers, **join in imitating me, and keep your eyes on those who walk according to the example you have in us.** For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
 
 
 ## Pray for others to come into Jesus' Kingdom
@@ -16209,9 +16211,9 @@ For many years before that I've had what I've felt was unreasonably difficulty w
 
 The way I chose was based on truth and joy and being at peace. And the fact of the matter is that while I had faith I had joy and peace and could just focus on being productive and working, and when the fruit of the spirit is gone what is left but sadness and depression and filling the void with the wrong stuff. I personally do not think that having love for someone is mutually exclusive from being led by the Spirit, nor from serving Jesus, but that Jesus must be number 1.
 
-> **Galatians 5:16** - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
+> **[Galatians 5:16](https://www.biblegateway.com/passage/?search=Galatians%205%3A16&version=ESV)** - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
 
-> **Genesis 2:18** - Then the LORD God said, It is not good that the man should be alone; I will make him a helper fit for him. (ESV)
+> **[Genesis 2:18](https://www.biblegateway.com/passage/?search=Genesis%202%3A18&version=ESV)** - Then the LORD God said, It is not good that the man should be alone; I will make him a helper fit for him. (ESV)
 
 Then the devil probably said, "It is not good that man should be allowed to marry the person God made for him, because then he wont feel the need to have any of my false sinful substitutes."
 
@@ -16565,9 +16567,9 @@ I believe there is something to [the amount of] law compliance which alludes to 
 
 > **[Matthew 5:14-20](https://www.biblegateway.com/passage/?search=Matthew%205%3A14-20&version=ESV)** - You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven. Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to fulfill them. For truly, I say to you, until heaven and earth pass away, not an iota, not a dot, will pass from the Law until all is accomplished. Therefore **whoever relaxes** one of the least of these commandments and teaches others to do the same **will be called least** in the kingdom of heaven, but **whoever does them and teaches them will be called great** in the kingdom of heaven. For I tell you, <ins>unless your righteousness exceeds that of the scribes and Pharisees, you will never enter the kingdom of heaven</ins>. (ESV)
 
-> **Romans 13:14** - But put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires. (ESV)
+> **[Romans 13:14](https://www.biblegateway.com/passage/?search=Romans%2013%3A14&version=ESV)** - But put on the Lord Jesus Christ, and make no provision for the flesh, to gratify its desires. (ESV)
 
-> **Romans 8:6-7** - To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. (ESV)
+> **[Romans 8:6-7](https://www.biblegateway.com/passage/?search=Romans%208%3A6-7&version=ESV)** - To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. (ESV)
 
 I guess where a person is positioned may have a lot to do also with what laws person disagrees with and teaches others to disagree with, or conversely <ins>practices and teaches others to comply with</ins>, and noone who practices sexual immorality, etc. will inherit the kingdom:
 
@@ -18203,11 +18205,11 @@ It's humbling yourself even to others and following God's commandments in truth 
 
 It's serving others as Jesus has served us:
 
-> **Romans 14:18** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+> **[Romans 14:18](https://www.biblegateway.com/passage/?search=Romans%2014%3A18&version=ESV)** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
 It's keeping accountable to God and maintaining faithfulness to God, not keeping others accountable to you:
 
-> **Romans 14:22** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
+> **[Romans 14:22](https://www.biblegateway.com/passage/?search=Romans%2014%3A22&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
 
 This isn't self-righteousness, but is a self-sacrificial obedience to continue working as a bond-servant of Christ, being the light of the world.
 
@@ -18476,7 +18478,7 @@ Also, faith in Jesus is obedience to Jesus, because we are instructed to **hold 
 
 The Apostle Paul says something similar. Faith is a matter of being accountable to God, even with respect to law-keeping:
 
-> **Romans 14:22** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
+> **[Romans 14:22](https://www.biblegateway.com/passage/?search=Romans%2014%3A22&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
 
 The purpose was to make him the father of all
 who have believing, obeying, trusting,
@@ -22064,7 +22066,7 @@ Since the Holy Spirit dwells **with** us even before He is **in** us, I do under
 
 Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used this analogy. We can sense it (hear it's sound. Me making testimony of being born of the Spirit is me making the sound, I guess), but we don't know where it comes form or where it goes:
 
-> **John 3:3-8** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes, and you hear its sound, but **you do not know where it comes from or where it goes.** So it is with everyone who is **born of the Spirit.** (ESV)
+> **[John 3:3-8](https://www.biblegateway.com/passage/?search=John%203%3A3-8&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes, and you hear its sound, but **you do not know where it comes from or where it goes.** So it is with everyone who is **born of the Spirit.** (ESV)
 
 We should aim for Jesus' commandments to become unburdensome. So I would use the analogy of [entering a current of water (like the Turtle Cruising in Finding Nemo)](https://www.youtube.com/watch?v=U6go9eFUIIU) While **in** the Holy Spirit, Jesus' commandments should be unburdensome, and having the Holy Spirit **in us** helps us to keep Jesus' commandments even when we face resistance from the world:
 
@@ -22967,7 +22969,7 @@ An example of a prayer - short and sweet:
 
 Another example:
 
-> **Daniel 2:20-23** - Daniel answered and said: Blessed be the name of God forever and ever, to whom belong wisdom and might. He changes times and seasons; he removes kings and sets up kings; he gives wisdom to the wise and knowledge to those who have understanding; he reveals deep and hidden things; he knows what is in the darkness, and the light dwells with him. To you, O God of my fathers, I give thanks and praise, for you have given me wisdom and might, and have now made known to me what we asked of you, for you have made known to us the king's matter. (ESV)
+> **[Daniel 2:20-23](https://www.biblegateway.com/passage/?search=Daniel%202%3A20-23&version=ESV)** - Daniel answered and said: Blessed be the name of God forever and ever, to whom belong wisdom and might. He changes times and seasons; he removes kings and sets up kings; he gives wisdom to the wise and knowledge to those who have understanding; he reveals deep and hidden things; he knows what is in the darkness, and the light dwells with him. To you, O God of my fathers, I give thanks and praise, for you have given me wisdom and might, and have now made known to me what we asked of you, for you have made known to us the king's matter. (ESV)
 
 > **[Ephesians 6:18](https://www.biblegateway.com/passage/?search=Ephesians%206%3A18&version=ESV)** - praying at all times in the Spirit, with all prayer and supplication. To that end keep alert with all perseverance, making supplication for all the saints, (ESV)
 
@@ -23535,7 +23537,7 @@ Before I was born-again, I had begun speaking out against evil and I had begun r
 
 Love is:
 
-> **I Corinthians 13:4-8** - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, **hopes all things, endures all things. Love never ends.** As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
+> **[I Corinthians 13:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A4-8&version=ESV)** - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, **hopes all things, endures all things. Love never ends.** As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
 
 Required to satisfy the "Christ's love" criteria I believe are:
 
@@ -24123,7 +24125,7 @@ I'm definitely taking this stuff to God's court and asking for grace to be sanct
 
 > **[James 4:6](https://www.biblegateway.com/passage/?search=James%204%3A6&version=ESV)** - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble. (ESV)
 
-> **II Corinthians 9:8** - And God is able to make all grace abound to you, so that having all sufficiency in all things at all times, you may abound in every good work. (ESV)
+> **[II Corinthians 9:8](https://www.biblegateway.com/passage/?search=2%20Corinthians%209%3A8&version=ESV)** - And God is able to make all grace abound to you, so that having all sufficiency in all things at all times, you may abound in every good work. (ESV)
 
 I actually feel spiritually damaged/injured by what I've had to endure regarding a spirit spouse - I simply don't understand why that thing has been allowed to touch me for 1.5 years and push lewd dreams into my head. This daily bombardment of demonic dreams, and visions is very demoralizing.
 
