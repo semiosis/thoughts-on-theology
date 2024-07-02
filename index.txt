@@ -10733,6 +10733,9 @@ others to test themselves. But interestingly, he says, "not that we may appear t
 we may seem to have failed", as if it may appear and seem as though others have failed, but that we should test
 ourselves.
 
+Sermon
+youtube.com: Lord, Savior, and Treasure: The Complex Beauty of Jesus Christ @time: 2 min 44 sec
+
 Though there may seem to be apparent paradoxes, and apparent contradictions in the Scripture, I think they either
 resolve or we rest in God, not relying on our own understanding. But I confidently affirm God is True, though I
 don't understand everything, and I affirm that my spiritual eyesight is getting cleaned up by the Spirit, through
@@ -34291,7 +34294,7 @@ Date: 2024-07-03 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-03 Wed 01:30
+Created: 2024-07-03 Wed 01:35
 
 Validate
 
