@@ -231,6 +231,21 @@ of righteousness to God. We should be practicing righteousness, practicing love 
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
   those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
+We need to receive the Holy Spirit:
+
+youtube.com: Accept the Holy Spirit - Derek Prince Sermon @time: 9 min 47 sec
+I don't believe you can be saved without meeting Jesus. I don't mean that you mean that you meet him visibly as
+the disciples did but I don't believe there's any way into the true church of Jesus Christ except Jesus. He said,
+"I am the door. By me, if any man enter in, he shall be saved." So I believe this is a pattern for the new birth
+for every person. We have to meet Jesus. Not just believe a Doctrine or join a church, but have a personal
+encounter with the resurrected Christ and receive from him the in breathed Breath of God which is the Holy Spirit
+and become a new creation. We pass from death to life. I remember when I met Jesus face to face, not visibly, but
+face to face in an army barracks room in the British Army in World War II. I didn't have any doctrinal knowledge
+of Salvation. I couldn't say I was born again. I didn't know what you had to do to be saved, but believe me I was
+saved. Later on I got the doctrine. But I'd met Jesus and I just want to tell you dear friends that you cannot
+meet Jesus and stay the same. You can join a church and remain unchanged. You can believe all sorts of things with
+your head and remain unchanged, but when you meet the resurrected Christ it's transforming and it's permanent.
+
 OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting
 to know Christ, and disobeying sin.
 
@@ -1118,6 +1133,10 @@ born of God i.e. truly believing in Jesus
 People are able to repent from sin before coming to believe in Jesus but it's much easier and inevitable after
 coming to believe in Jesus.
 
+Sermon :: youtube.com: Killing Lust with the Cross of Christ
+Step 1: The sin is cancelled by the blood of Christ. We're Justified before God, and then Step 2: We purge that
+sin from our lives; Can't ever get that backwards. Sin canceled, then sin purged.
+
 God's spirit really helps us to stop sinning. Actively believing in Jesus should produce the fruit of putting a
 stop to sin:
 
@@ -1279,6 +1298,10 @@ So we must receive the Holy Spirit.
 I learned a lot from John Piper about this today. I really affirm this message:
 
 - youtube.com: How to Seek the Holy Spirit
+
+I also really affirm Derek Prince here:
+
+- youtube.com: Accept the Holy Spirit - Derek Prince Sermon
 
 When the following says "they were baptized in the name of the Lord Jesus", I'm sure this is baptism in water.
 It's also apparent that a person may receive the Holy Spirit at the time they believed, and the passage also seems
@@ -5493,6 +5516,20 @@ sent Him.
 
 I believe that a person does not have any security of eternal salvation unless they have in their heart obedient,
 believing faith in Jesus Christ, and even then there is often a race and a journey to receive it.
+
+alpinebible.com: Rescued Along The Roman Road - Alpine Bible
+"Whoever" means that any person can be saved, no matter who that person is. No matter how terrible a person and
+his circumstances may be, that person can be saved. You may be enslaved by the most terrible spirit of sin and
+evil imaginable-God will still save you.
+
+biblehub.com 10-9.htm: Romans 10:9 Interlinear: that if thou mayest confess with thy mouth the Lord Jesus, and
+mayest believe in thy heart that God did raise him out of the dead, thou shalt be saved,
+
+|  4982 [e]
+|  sothese
+|  ??????  .
+|  you will be saved
+|  V-FIP-2S
 
 The knowledge of the truth is for those who abide in Jesus' word and follow Him:
 
@@ -13615,6 +13652,8 @@ Heresies/delusions:
 - Not willing to submit to the righteousness of God which is once again, to accept the propitiation for our
 sins.
 - We must know that God loved us and sent his Son to be the propitiation for our sins.
+- John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs
+in by another way, that man is a thief and a robber. (ESV)
 - Trusting on their own works to appease God's wrath.
 - Not believing Jesus has done the finished work for their justification
 
@@ -13682,6 +13721,25 @@ obey Him penitently):
   them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out
   of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of
   the Father's hand. (ESV)
+
+We need to accept that God loved us first, and that we need forgiveness from God, that Jesus is our Lord and God,
+and King, and the propitiation for our sins. We need to accept forgiveness and pass forward forgiveness, and pass
+forward love and forgiveness freely as we have received love and forgiveness.
+
+The ones who do not submit to the righteousness of God, but do not accept the love of God and do not accept that
+we needed God's forgiveness, and do not accept Jesus, and would prefer to be their own god - those people are like
+thieves. They want to be their own god. Maybe they want to walk on water, and have spiritual experiences, but are
+content stealing from God:
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+God loved us first. We must accept that:
+
+  I John 4:10-11 - In this is love, not that we have loved God but that he loved us and sent his Son to be the
+  propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. (ESV)
+
+  I John 4:19 - We love because he first loved us. (ESV)
 
 The ones who love Jesus, keep His teachings:
 
@@ -23084,7 +23142,24 @@ This qualifies:
   Luke 18:13 - But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his
   breast, saying, God, be merciful to me, a sinner! (ESV)
 
-51.2.2. I was learning Christ before I was born-again
+51.2.2. We should not be thieves and robbers
+
+livingproof.co: John 10:10 | What Did Jesus Mean by "Abundant Life"? - Abundant Life
+
+  John 10:10 - The thief comes only to steal and kill and destroy. I came that they may have life and have it
+  abundantly. (ESV)
+
+  John 10:1,4,7-9 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by
+  another way, that man is a thief and a robber. When he has brought out all his own, he goes before them, and the
+  sheep follow him, for they know his voice. So Jesus again said to them, Truly, truly, I say to you, I am the
+  door of the sheep. All who came before me are thieves and robbers, but the sheep did not listen to them. I am
+  the door. If anyone enters by me, he will be saved and will go in and out and find pasture. (ESV)
+
+  John 8:44 - You are of your father the devil, and your will is to do your father's desires. He was a murderer
+  from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he
+  speaks out of his own character, for he is a liar and the father of lies. (ESV)
+
+51.2.3. I was learning Christ before I was born-again
 
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are in
 Him:
@@ -23132,7 +23207,7 @@ God who can see me, even when others can't.
 
 But the yoke of the Lord Jesus has been extremely difficult.
 
-51.2.3. Holiness - J.C. Ryle
+51.2.4. Holiness - J.C. Ryle
 
   Holiness:
 
@@ -23159,7 +23234,7 @@ But the yoke of the Lord Jesus has been extremely difficult.
     o follow after spiritual-mindedness. He will endeavor to set his affections entirely on things above and to
       hold things on earth with a very loose hand.
 
-51.2.4. Gay 'marriage' should not be held in equal standing to God's design
+51.2.5. Gay 'marriage' should not be held in equal standing to God's design
 
   Isaiah 6:20 - Woe to those who call evil good, and good evil; Who substitute darkness for light and light for
   darkness; Who substitute bitter for sweet and sweet for bitter!
@@ -34324,11 +34399,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-03 Wed 00:00
+Date: 2024-07-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-03 Wed 09:19
+Created: 2024-07-04 Thu 09:47
 
 Validate
 

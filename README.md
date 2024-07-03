@@ -143,6 +143,10 @@ We should disobey sin, and present ourselves to God as those alive from the dead
 
 > **[Romans 6:12-13](https://www.biblegateway.com/passage/?search=Romans%206%3A12-13&version=ESV)** - Therefore **do not let sin reign** in your mortal body so that you **obey** its lusts, and **do not go on** presenting the members of your body to sin as instruments of unrighteousness; but <ins>*present yourselves to God as those alive from the dead, and your members as instruments of righteousness to God.*</ins> (NASB)
 
+We need to receive the Holy Spirit:
+
+-   **[youtube.com: Accept the Holy Spirit - Derek Prince Sermon @time: 9 min 47 sec](https://youtube.com/watch?v=3LUuKplbfPg&t=587):** I don't believe you can be saved without meeting Jesus. I don't mean that you mean that you meet him visibly as the disciples did but I don't believe there's any way into the true church of Jesus Christ except Jesus. He said, "I am the door. By me, if any man enter in, he shall be saved." So I believe this is a pattern for the new birth for every person. We have to meet Jesus. Not just believe a Doctrine or join a church, but have a personal encounter with the resurrected Christ and receive from him the in breathed Breath of God which is the Holy Spirit and become a new creation. We pass from death to life. I remember when I met Jesus face to face, not visibly, but face to face in an army barracks room in the British Army in World War II. I didn't have any doctrinal knowledge of Salvation. I couldn't say I was born again. I didn't know what you had to do to be saved, but believe me I was saved. Later on I got the doctrine. But I'd met Jesus and I just want to tell you dear friends that you cannot meet Jesus and stay the same. You can join a church and remain unchanged. You can believe all sorts of things with your head and remain unchanged, but when you meet the resurrected Christ it's transforming and it's permanent.
+
 OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting to know Christ, and **disobeying sin**.
 
 I believe that if I am disobeying sin and obeying Jesus then I am cooperating with Jesus as He fights for me to overcome the sin and to put the sin to death:
@@ -730,6 +734,8 @@ The initial seal of the Holy Spirit comes with hearing the gospel and believing 
 
 People are able to repent from sin before coming to believe in Jesus but it's much easier and inevitable after coming to believe in Jesus.
 
+-   **Sermon :: [youtube.com: Killing Lust with the Cross of Christ](https://www.youtube.com/watch?v=DcdCsEAI2kw):** **Step 1:** The sin is cancelled by the blood of Christ. We're Justified before God, and then **Step 2:** We purge that sin from our lives; Can't ever get that backwards. Sin <ins>canceled</ins>, *then* sin <ins>purged</ins>.
+
 God's spirit really helps us to stop sinning. Actively believing in Jesus should produce the fruit of putting a stop to sin:
 
 > **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
@@ -831,6 +837,10 @@ So we must receive the Holy Spirit.
 I learned a lot from John Piper about this today. I really affirm this message:
 
 -   [youtube.com: How to Seek the Holy Spirit](https://www.youtube.com/watch?v=xqgeT26BAnE)
+
+I also really affirm Derek Prince here:
+
+-   [youtube.com: Accept the Holy Spirit - Derek Prince Sermon](https://www.youtube.com/watch?v=3LUuKplbfPg)
 
 When the following says "they were **baptized in the name of the Lord Jesus**", I'm sure this is baptism in <ins>water</ins>. It's also apparent that a person may receive the Holy Spirit at the time they believed, and the passage also seems to suggest that believing alongside being baptized in water, the person is expected to receive the Holy Spirit:
 
@@ -3845,6 +3855,16 @@ If a person has an obedient and believing heart - a heart of faith - towards Jes
 > **[Romans 10:9](https://www.biblegateway.com/passage/?search=Romans%2010%3A9&version=ESV)** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
 
 I believe that a person does not have any <ins>security</ins> of eternal salvation unless they have in their heart <ins>obedient, believing faith</ins> in Jesus Christ, and even then there is often a race and a journey to receive it.
+
+-   **[alpinebible.com: Rescued Along The Roman Road - Alpine Bible](https://www.alpinebible.com/2017/06/rescued-along-the-roman-road/):** “Whoever” means that any person can be saved, no matter who that person is. No matter how terrible a person and his circumstances may be, that person can be saved. You may be enslaved by the most terrible spirit of sin and evil imaginable—God will still save you.
+
+[biblehub.com 10-9.htm: Romans 10:9 Interlinear: that if thou mayest confess with thy mouth the Lord Jesus, and mayest believe in thy heart that God did raise him out of the dead, thou shalt be saved,](https://biblehub.com/interlinear/romans/10-9.htm)
+
+    1  4982 [e]
+    2  sōthēsē
+    3  σωθήσῃ  .
+    4  you will be saved
+    5  V-FIP-2S
 
 The knowledge of the truth is for those who abide in Jesus' word and follow Him:
 
@@ -9309,6 +9329,7 @@ Heresies/delusions:
     -   Not willing to accept that Jesus Christ is the propitiation for our sins.
     -   Not willing to submit to the righteousness of God which is once again, to accept the propitiation for our sins.
         -   We must know that God loved us and sent his Son to be the propitiation for our sins.
+        -   **John 10:1** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
     -   Trusting on their own works to appease God's wrath.
     -   Not believing Jesus has done the finished work for their justification
 
@@ -9361,6 +9382,18 @@ The true believers follow Jesus. They are Jesus' sheep, and they keep His teachi
 -   Jesus knows them
 
 > **[John 10:26-29](https://www.biblegateway.com/passage/?search=John%2010%3A26-29&version=ESV)** - but you do not believe because you are not part of my flock. My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of the Father's hand. (ESV)
+
+We need to accept that God loved us first, and that we need forgiveness from God, that Jesus is our Lord and God, and King, and the propitiation for our sins. We need to accept forgiveness and pass forward forgiveness, and pass forward love and forgiveness freely as we have received love and forgiveness.
+
+The ones who do not submit to the righteousness of God, but do not accept the love of God and do not accept that we needed God's forgiveness, and do not accept Jesus, and would prefer to be their own god - those people are like thieves. They want to be their own god. Maybe they want to walk on water, and have spiritual experiences, but are content stealing from God:
+
+> **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+
+God loved us first. We must accept that:
+
+> **[I John 4:10-11](https://www.biblegateway.com/passage/?search=1%20John%204%3A10-11&version=ESV)** - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. (ESV)
+
+> **[I John 4:19](https://www.biblegateway.com/passage/?search=1%20John%204%3A19&version=ESV)** - We love <ins>because he first loved us.</ins> (ESV)
 
 The ones who love Jesus, keep His teachings:
 
@@ -16236,6 +16269,17 @@ Trusting Him means having faith in Him, obeying, believing in God and having the
 This qualifies:
 
 > **[Luke 18:13](https://www.biblegateway.com/passage/?search=Luke%2018%3A13&version=ESV)** - But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful to me, a sinner! (ESV)
+
+
+### We should not be thieves and robbers
+
+[livingproof.co: John 10:10 | What Did Jesus Mean by "Abundant Life"? - Abundant Life](https://livingproof.co/john-1010-what-did-jesus-mean-by-abundant-life/)
+
+> **[John 10:10](https://www.biblegateway.com/passage/?search=John%2010%3A10&version=ESV)** - The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly. (ESV)
+
+> **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV),4,7-9** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. When he has brought out all his own, he goes before them, and the sheep follow him, for they know his voice. So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. All who came before me are thieves and robbers, but the sheep did not listen to them. I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture. (ESV)
+
+> **[John 8:44](https://www.biblegateway.com/passage/?search=John%208%3A44&version=ESV)** - You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
 
 ### I was learning Christ before I was born-again
