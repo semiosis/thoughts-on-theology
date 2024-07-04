@@ -4,9 +4,10 @@ This document has been a work in progress. I have been born-again and have done 
 and be corrected by the word of God, and I'm happy with what I have written here. I'm trying to speak the truth in
 mercy. This document shows my current understanding at the time of writing. I'm not judging people. This is just a
 Bible study. I have just wanted to read the Bible for myself to understand and apply the Scriptures, come into
-agreement with God's Truth and share my understanding it with others for accountability purposes. I don't presume
-to be always right. I've also added parts of my own testimony. It's my hope that this Bible study helps other
-people to come to the obedience of faith in God through Jesus Christ.
+agreement with God's Truth and share my understanding it with others for accountability purposes, and also affirm
+truth as I am renewed in mind by it. I don't presume to be always right. I've also added parts of my own
+testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in God through
+Jesus Christ.
 
   Psalms 119:105 - Your word is a lamp to my feet and a light to my path. (ESV)
 
@@ -34430,7 +34431,7 @@ Date: 2024-07-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-04 Thu 12:49
+Created: 2024-07-04 Thu 13:29
 
 Validate
 
