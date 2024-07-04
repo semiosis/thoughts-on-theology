@@ -2249,6 +2249,7 @@ Jesus' act of obedience leads to:
 - justification
 - life
 - I believe that the life of Jesus helps us to stop sinning
+- youtube.com: The Effort Needed to Fight Sin: Living Out Identity in Christ, Part 2
 - Even though we are born of the Spirit, we still live the rest of the time on earth in obedience to Jesus
 to get to know Jesus and become like Him in His death
 
@@ -4908,6 +4909,12 @@ After believing in Him we must go ahead in the teaching of Christ:
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  Romans 6:17-19 - But thanks be to God, that you who were once slaves of sin have become obedient from the heart
+  to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves
+  of righteousness. I am speaking in human terms, because of your natural limitations. For just as you once
+  presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your
+  members as slaves to righteousness leading to sanctification. (ESV)
 
 Jesus' disciples (who had made Jesus their Lord) heard his words and were developing their belief for a while:
 
@@ -33405,6 +33412,16 @@ Our debt was cancelled:
   aside, nailing it to the cross. He disarmed the rulers and authorities and put them to open shame, by triumphing
   over them in him. (ESV)
 
+Therefore, since I am a new creation, brought from death to life, I must live out the new identity. I'm currently
+fighting this battle:
+
+  Romans 6:12-14 - Let not sin therefore reign in your mortal bodies, to make you obey their passions. Do not
+  present your members to sin as instruments for unrighteousness, but present yourselves to God as those who have
+  been brought from death to life, and your members to God as instruments for righteousness. For sin will have no
+  dominion over you, since you are not under law but under grace. (ESV)
+
+youtube.com: The Effort Needed to Fight Sin: Living Out Identity in Christ, Part 2
+
 We love in the knowledge we have already been loved first when God sent Jesus Christ to pay for our sin with His
 blood. I was born-again of the Spirit and regenerated on 2 April 2022.
 
@@ -33421,6 +33438,16 @@ As far as my court situation goes, it happened after I was born-again and regene
 cancelled. I want to be clear about this because I don't want to mislead anyone. I strongly believe that I was hit
 by an antichrist spirit trying to make it appear as though I needed to work for my salvation - this happened after
 I was born of the Spirit! Madness! I had just been born-again!
+
+I've also been hit with other things, like being pounded and barraged with LGBT dreams, and lewd antichrist dreams
+and visions, interactions with people who just don't want to submit to the righteousness of God (not believing
+they need to accept Jesus as Saviour, not believing they need to accept forgiveness from God, or the Lordship of
+Jesus, not wanting to obey God) and also people telling me that following Jesus' commandments is wrong, and also
+literally having antichrist thoughts pushed into my head as I am sleeping. There's no denying I've been attacked
+by antichrist spirits and I noticed it after I was born-again of the Spirit - and I don't want a bar of it.
+
+While the following verse seems relevant, I still believe the real adversary I have faced is not the other people
+in my court situation but the influence of unclean spirits:
 
   Matthew 5:25-26 - Come to terms quickly with your accuser while you are going with him to court, lest your
   accuser hand you over to the judge, and the judge to the guard, and you be put in prison. Truly, I say to you,
@@ -34403,7 +34430,7 @@ Date: 2024-07-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-04 Thu 09:47
+Created: 2024-07-04 Thu 12:49
 
 Validate
 
