@@ -20891,10 +20891,29 @@ We must do good, and behave like the children of God, or we will not enter the K
   I John 3:7 - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
   righteous. (ESV)
 
+We need to perform our salvation in obedience to God:
+
+  Philippians 2:12 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much
+  more in my absence, work out (katergazomai) your own salvation with fear and trembling, (ESV)
+
+Sermon
+youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty
+
+  James 2:26 - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
+
 40. Entering and inheriting the kingdom
 
-It's received as an inheritance by being found in Christ, we don't work for it, but we do need repentance from
-sin.
+It's received as an inheritance by being found in Christ. We believe we have it while we are found in Christ, and
+continue working it out, and we do need repentance from sin to inherit it. Also, God is not dead. The inheritance
+we receive goes to Christ and those found in Him who are practicing righteousness, presenting themselves to Christ
+as alive from the dead.
+
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
+of righteousness to God. We should be practicing righteousness, practicing love and holiness and truth:
+
+  Romans 6:12-13 - Therefore do not let sin reign in your mortal body so that you obey its lusts, and do not go on
+  presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
+  those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
 Talk
 youtube.com: How Do We Inherit the Kingdom? Galatians 5:19-21, Part 2
@@ -20915,19 +20934,65 @@ youtube.com: How Do We Inherit the Kingdom? Galatians 5:19-21, Part 2
   your offspring be named. This means that it is not the children of the flesh who are the children of God, but
   the children of the promise are counted as offspring. (ESV)
 
+The Apostle Paul is with Jesus:
+
   Galatians 5:19-21 - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry,
   sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies,
   and things like these. I warn you, as I warned you before, that those who do such things will not inherit the
   kingdom of God. (ESV)
 
-There's so much stuff to do to enter the kingdom... I feel entirely unworthy.
+We must:
+
+- Trust Father God, even for His promise for the one who puts their faith in Jesus. We believe, and trust and
+obey Jesus:
+- love our enemies
+- do good, and lend, expecting nothing in return
+- Believe Jesus and practice His commandments
+
+  Luke 6:35 - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be
+  great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and
+we are not the ones to shrink back and to stop obeying but to remain obedient.
+
+We're always seeking God's commendation. The righteous live by their faith in Jesus - in belief to His promises
+and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We live to
+serve Jesus, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're
+still living by our faith in God and in Jesus His Son. I just want to continue to live faithfully to Jesus for the
+rest of my life. That's the plan - to really be transformed by the gospel and live in the truth of God's word.
+I'll give it my best shot:
+
+  I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
+  as he is so also are we in this world. (ESV)
+
+It certainly appears that we're not supposed to simply do some righteous thing and then lean on that. Rather we're
+supposed to 'live by' our faith, - keep going, and not shrink back:
+
+  Ezekiel 33:13 - Though I say to the righteous that he shall surely live, yet if he trusts in his righteousness
+  and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he
+  shall die. (ESV)
+
+This is in line with what is written in Hebrews:
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+And is in line with what Jesus has said:
+
+  Luke 9:62 - Jesus said to him, No one who puts his hand to the plow and looks back is fit for the kingdom of
+  God. (ESV)
+
+There's so much stuff to do in obedience to enter the kingdom... I feel entirely unworthy.
 
 Firstly, it has been by grace because I asked God to save me, even when I was very much stuck in sin. And I still
-feel as though I am approaching it and haven't quite entered it (just being honest here).
+feel as though I am approaching it and haven't quite entered it (just being honest here), but I'm not turning back
+from the plow.
 
 Those who hunger and thirst for righteousness will be satisfied.
 
-Please God, give me the righteousness required to enter the kingdom.
+Please God, give me the righteousness required to enter the kingdom, and help me to receive it as I live by faith
+in Jesus, trusting, believing and obeying Him.
 
   Matthew 5:10 - Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of
   heaven. (ESV)
@@ -20939,6 +21004,36 @@ Please God, give me the righteousness required to enter the kingdom.
   for a rich person to enter the kingdom of God. When the disciples heard this, they were greatly astonished,
   saying, Who then can be saved? But Jesus looked at them and said, With man this is impossible, but with God all
   things are possible. (ESV)
+
+It helps to clarify what we mean by inheriting the kingdom of God:
+
+  Romans 14:17 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and
+  joy in the Holy Spirit. (ESV)
+
+Of course we cannot inherit righteousness, peace and joy without putting to death what is earthly in us.
+
+Put to death the earthly in us:
+
+- sexual immorality,
+- impurity,
+- passion,
+- evil desire,
+- covetousness, lying,
+- slander,
+- anger,
+- obscene talk
+
+We must forgive one another:
+
+  Colossians 3:5-13 - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil
+  desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these you too
+  once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander,
+  and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its
+  practices and have put on the new self, which is being renewed in knowledge after the image of its creator. Here
+  there is not Greek and Jew, circumcised and uncircumcised, barbarian, Scythian, slave, free; but Christ is all,
+  and in all. Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility, meekness, and
+  patience, bearing with one another and, if one has a complaint against another, forgiving each other; as the
+  Lord has forgiven you, so you also must forgive. (ESV)
 
 40.1. Jesus explains how we can go about seeking the Kingdom of God and His righteousness - this is obedience (the
 type of faith we must have), not works!
@@ -21038,6 +21133,29 @@ through the Red Sea were being led by the Spirit - they were not working for God
   forgive your trespasses. (ESV)
 
   Matthew 6:12 - and forgive us our debts, as we also have forgiven our debtors. (ESV)
+
+Put to death the earthly in us:
+
+- sexual immorality,
+- impurity,
+- passion,
+- evil desire,
+- covetousness, lying,
+- slander,
+- anger,
+- obscene talk
+
+We must forgive one another:
+
+  Colossians 3:5-13 - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil
+  desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these you too
+  once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander,
+  and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its
+  practices and have put on the new self, which is being renewed in knowledge after the image of its creator. Here
+  there is not Greek and Jew, circumcised and uncircumcised, barbarian, Scythian, slave, free; but Christ is all,
+  and in all. Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility, meekness, and
+  patience, bearing with one another and, if one has a complaint against another, forgiving each other; as the
+  Lord has forgiven you, so you also must forgive. (ESV)
 
 40.2. Entering the kingdom
 
@@ -21320,11 +21438,25 @@ But only the ones who are truly remorseful:
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
   thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God. (ESV)
 
+The sexually immoral, impure, the covetous, the idolaters, have no inheritance in the kingdom of God - so much for
+'imputed' righteousness alone. We need to be transformed by the gospel:
+
+  Ephesians 5:5 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous
+  (that is, an idolater), has no inheritance in the kingdom of Christ and God. (ESV)
+
 Flock = Jesus' followers. God wants to give Jesus' followers the kingdom, but we have to stop the sin:
 
   Luke 12:30-32 - For all the nations of the world seek after these things, and your Father knows that you need
   them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for it is your
   Father's good pleasure to give you the kingdom. (ESV)
+
+We want to walk in a worthy manner, bearing fruit in good work:
+
+  Colossians 1:10-14 - so as to walk in a manner worthy of the Lord, fully pleasing to him, bearing fruit in every
+  good work and increasing in the knowledge of God. May you be strengthened with all power, according to his
+  glorious might, for all endurance and patience with joy, giving thanks to the Father, who has qualified you to
+  share in the inheritance of the saints in light. He has delivered us from the domain of darkness and transferred
+  us to the kingdom of his beloved Son, in whom we have redemption, the forgiveness of sins. (ESV)
 
 40.4.4. We must be a good and faithful servant
 
@@ -23235,11 +23367,17 @@ following Jesus, and like I had to kill the marriage proposal to put Jesus first
 Abraham if he was to actually kill Isaac on the Altar, and God didn't intervene.
 
 I want it to stay in God's court (until I am sanctified) because I feel like I have tried my best to remain
-faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole. I've been
-getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have
-often found myself being tested throughout the day and I've been using the Bible to fight back and defend against
-it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and
-for ultimate deliverance from these demons.
+faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole.
+
+  II Timothy 2:21-22 - Therefore, if anyone cleanses himself from what is dishonorable, he will be a vessel for
+  honorable use, set apart as holy, useful to the master of the house, ready for every good work. So flee youthful
+  passions and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure
+  heart. (ESV)
+
+I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year,
+and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend
+against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be
+sanctified and for ultimate deliverance from these demons.
 
   Romans 4:7-8 - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the
   man against whom the Lord will not count his sin. (ESV)
@@ -26537,8 +26675,8 @@ The promises go to Christ:
   Galatians 3:16 - Now the promises were made to Abraham and to his offspring. It does not say, And to offsprings,
   referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
 
-If you belong to Christ by faith then you are one in spirit with Christ and Abraham's offspring, and heirs
-according to the promise.
+We belong to Christ by faith. If you belong to Christ by faith then you are one in spirit with Christ and
+Abraham's offspring, and heirs according to the promise:
 
   Galatians 3:29 - And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
@@ -33816,11 +33954,24 @@ I still hope for the personal acknowledgement from God that I have acted faithfu
 
 We're always seeking God's commendation - the righteous live by their faith in Jesus - in belief to His promises
 and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We live to
-serve Jesus, believing we are justified by our faith in Him. I just want to continue to live faithfully to Jesus
-for the rest of my life. That's the plan - to give it my best shot.
+serve Jesus, believing we are justified by our faith in Him, and not relying on our own righteousness. I just want
+to continue to live faithfully to Jesus for the rest of my life. That's the plan - to give it my best shot.
 
   I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
   as he is so also are we in this world. (ESV)
+
+It certainly appears that we're not supposed to simply do some righteous thing and then lean on that. Rather we're
+supposed to 'live by' our faith, - keep going, and not shrink back:
+
+  Ezekiel 33:13 - Though I say to the righteous that he shall surely live, yet if he trusts in his righteousness
+  and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he
+  shall die. (ESV)
+
+This is in line with what is written in Hebrews:
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
 
 72.7.1. Humility
 
@@ -34590,11 +34741,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-04 Thu 00:00
+Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-04 Thu 23:03
+Created: 2024-07-05 Fri 09:52
 
 Validate
 

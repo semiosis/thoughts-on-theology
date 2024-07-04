@@ -14605,7 +14605,7 @@ The peace Jesus brings is peace in Christ:
 
 Christian persecution happens for obeying Jesus' commandments, through being a servant of Jesus, for being found in Jesus:
 
-> **[Matthew 5:10](https://www.biblegateway.com/passage/?search=Matthew%205%3A10&version=ESV)** - Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of heaven. (ESV)
+> **[Matthew 5:10](https://www.biblegateway.com/passage/?search=Matthew%205%3A10&version=ESV)** - Blessed are those who are persecuted for righteousness' sake, for **theirs** is the kingdom of heaven. (ESV)
 
 Christian persecution is not for suffering as an evildoer:
 
@@ -14670,16 +14670,28 @@ We must do good, and behave like the children of God, or we will not enter the K
 
 > **[I John 3:7](https://www.biblegateway.com/passage/?search=1%20John%203%3A7&version=ESV)** - Little children, **let no one deceive you**. Whoever practices righteousness is righteous, as he is righteous. (ESV)
 
+We need to perform our salvation in obedience to God:
+
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+
+-   **Sermon:** [youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty](https://www.youtube.com/watch?v=g1L9ZyBF2Z8)
+
+> **[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)** - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
+
 
 # Entering and inheriting the kingdom
 
-It's received as an inheritance by being found **in Christ**, we don't work for it, but we do need repentance from sin.
+It's received as an inheritance by being found **in Christ**. We believe we have it while we are found **in Christ**, and continue working it out, and we do need repentance from sin to inherit it. Also, God is not dead. The inheritance we receive goes to Christ and those found in Him who are practicing righteousness, presenting themselves to Christ as alive from the dead.
+
+We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
+
+> **[Romans 6:12-13](https://www.biblegateway.com/passage/?search=Romans%206%3A12-13&version=ESV)** - Therefore **do not let sin reign** in your mortal body so that you **obey** its lusts, and **do not go on** presenting the members of your body to sin as instruments of unrighteousness; but <ins>*present yourselves to God as those alive from the dead, and your members as instruments of righteousness to God.*</ins> (NASB)
 
 -   **Talk:** [youtube.com: How Do We Inherit the Kingdom? Galatians 5:19-21, Part 2](https://www.youtube.com/watch?v=b8oMgvvwsGg)
 
 > **[Galatians 3:18](https://www.biblegateway.com/passage/?search=Galatians%203%3A18&version=ESV)** - For if the inheritance comes by the law, it no longer comes by promise; but God gave it to Abraham by a promise. (ESV)
 
-> **[Galatians 3:29](https://www.biblegateway.com/passage/?search=Galatians%203%3A29&version=ESV)** - And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:29](https://www.biblegateway.com/passage/?search=Galatians%203%3A29&version=ESV)** - And **if you are Christ's**, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 > **[Romans 4:13](https://www.biblegateway.com/passage/?search=Romans%204%3A13&version=ESV)** - For the promise to Abraham and his offspring that he would be heir of the world did not come through the law but through the righteousness of faith. (ESV)
 
@@ -14687,21 +14699,71 @@ It's received as an inheritance by being found **in Christ**, we don't work for 
 
 > **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and not all are children of Abraham because they are his offspring, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring. (ESV)
 
-> **[Galatians 5:19-21](https://www.biblegateway.com/passage/?search=Galatians%205%3A19-21&version=ESV)** - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. (ESV)
+The Apostle Paul is with Jesus:
 
-There's so much stuff to do to enter the kingdom&#x2026; I feel entirely unworthy.
+> **[Galatians 5:19-21](https://www.biblegateway.com/passage/?search=Galatians%205%3A19-21&version=ESV)** - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, *as I warned you before,* that **those who do such things will not inherit the kingdom of God.** (ESV)
 
-Firstly, it has been by grace because I asked God to save me, even when I was very much stuck in sin. And I still <ins>feel</ins> as though I am approaching it and haven't quite entered it (just being honest here).
+We must:
+
+-   Trust Father God, even for His promise for the one who puts their faith in Jesus. We believe, and trust and obey Jesus:
+    -   love our enemies
+    -   do good, and lend, expecting nothing in return
+    -   Believe Jesus and practice His commandments
+
+> **[Luke 6:35](https://www.biblegateway.com/passage/?search=Luke%206%3A35&version=ESV)** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and we are not the ones to shrink back and to stop obeying but to remain obedient.
+
+We're always seeking God's commendation. The righteous **live by** their faith in Jesus - in belief to His promises and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We **live to serve Jesus**, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're still living by our faith in God and in Jesus His Son. I just want to continue to live faithfully to Jesus for the rest of my life. That's the plan - to really be transformed by the gospel and live in the truth of God's word. I'll give it my best shot:
+
+> **[I John 4:17](https://www.biblegateway.com/passage/?search=1%20John%204%3A17&version=ESV)** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
+
+It certainly appears that we're not supposed to simply do some righteous thing and then lean on that. Rather we're supposed to 'live by' our faith, &#x2013; keep going, and not shrink back:
+
+> **[Ezekiel 33:13](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A13&version=ESV)** - Though **I say to the righteous that he shall surely live**, *yet* <ins>if he trusts in his righteousness and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he shall die.</ins> (ESV)
+
+This is in line with what is written in Hebrews:
+
+> **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
+
+And is in line with what Jesus has said:
+
+> **[Luke 9:62](https://www.biblegateway.com/passage/?search=Luke%209%3A62&version=ESV)** - Jesus said to him, No one who puts his hand to the plow and looks back is fit for the kingdom of God. (ESV)
+
+There's so much stuff to do in obedience to enter the kingdom&#x2026; I feel entirely unworthy.
+
+Firstly, it has been by grace because I asked God to save me, even when I was very much stuck in sin. And I still <ins>feel</ins> as though I am approaching it and haven't quite entered it (just being honest here), but I'm not turning back from the plow.
 
 Those who hunger and thirst for righteousness will be satisfied.
 
-Please God, give me the righteousness required to enter the kingdom.
+Please God, give me the righteousness required to enter the kingdom, and help me to receive it as I live by faith in Jesus, trusting, believing and obeying Him.
 
-> **[Matthew 5:10](https://www.biblegateway.com/passage/?search=Matthew%205%3A10&version=ESV)** - Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of heaven. (ESV)
+> **[Matthew 5:10](https://www.biblegateway.com/passage/?search=Matthew%205%3A10&version=ESV)** - Blessed are those who are persecuted for righteousness' sake, for **theirs** is the kingdom of heaven. (ESV)
 
 > **[Matthew 5:3-9](https://www.biblegateway.com/passage/?search=Matthew%205%3A3-9&version=ESV)** - Blessed are the poor in spirit, for theirs is the kingdom of heaven.
 
 > **[Matthew 19:23-26](https://www.biblegateway.com/passage/?search=Matthew%2019%3A23-26&version=ESV)** - And Jesus said to his disciples, Truly, I say to you, only with difficulty will a rich person enter the kingdom of heaven. Again I tell you, it is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. When the disciples heard this, they were greatly astonished, saying, Who then can be saved? But Jesus looked at them and said, With man this is impossible, but with God all things are possible. (ESV)
+
+It helps to clarify what we mean by inheriting the kingdom of God:
+
+> **[Romans 14:17](https://www.biblegateway.com/passage/?search=Romans%2014%3A17&version=ESV)** - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in the Holy Spirit. (ESV)
+
+Of course we cannot inherit righteousness, peace and joy without putting to death what is earthly in us.
+
+Put to death the earthly in us:
+
+-   sexual immorality,
+-   impurity,
+-   passion,
+-   evil desire,
+-   covetousness, lying,
+-   slander,
+-   anger,
+-   obscene talk
+
+We **must** forgive one another:
+
+> **[Colossians 3:5-13](https://www.biblegateway.com/passage/?search=Colossians%203%3A5-13&version=ESV)** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator. Here there is not Greek and Jew, circumcised and uncircumcised, barbarian, Scythian, slave, free; but Christ is all, and in all. Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility, meekness, and patience, bearing with one another and, if one has a complaint against another, **forgiving each other**; as the Lord has forgiven you, so **you also must forgive.** (ESV)
 
 
 ## Jesus explains how we can go about seeking the Kingdom of God and His righteousness - this is obedience (the type of faith we must have), not works!
@@ -14770,6 +14832,21 @@ If you have trusting faith in God then you will walk according to the will of Go
 > **[Matthew 6:8-15](https://www.biblegateway.com/passage/?search=Matthew%206%3A8-15&version=ESV)** - Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and **forgive us our debts, as we also have forgiven our debtors**. And lead us not into temptation, but deliver us from evil. For **if you forgive others their trespasses, your heavenly Father will also forgive you**, but **if you do not forgive others their trespasses, neither will your Father forgive your trespasses**. (ESV)
 
 > **[Matthew 6:12](https://www.biblegateway.com/passage/?search=Matthew%206%3A12&version=ESV)** - and forgive us our debts, as we also have forgiven our debtors. (ESV)
+
+Put to death the earthly in us:
+
+-   sexual immorality,
+-   impurity,
+-   passion,
+-   evil desire,
+-   covetousness, lying,
+-   slander,
+-   anger,
+-   obscene talk
+
+We **must** forgive one another:
+
+> **[Colossians 3:5-13](https://www.biblegateway.com/passage/?search=Colossians%203%3A5-13&version=ESV)** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator. Here there is not Greek and Jew, circumcised and uncircumcised, barbarian, Scythian, slave, free; but Christ is all, and in all. Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility, meekness, and patience, bearing with one another and, if one has a complaint against another, **forgiving each other**; as the Lord has forgiven you, so **you also must forgive.** (ESV)
 
 
 ## Entering the kingdom
@@ -14991,9 +15068,17 @@ But only the ones who are truly remorseful:
 
 > **[I Corinthians 6:9-10](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A9-10&version=ESV)** - Do you not know that <ins>the unrighteous will not inherit the kingdom of God?</ins> Do not be deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God. (ESV)
 
+The sexually immoral, impure, the covetous, the idolaters, have **no inheritance** in the kingdom of God - so much for 'imputed' righteousness alone. We need to be transformed by the gospel:
+
+> **[Ephesians 5:5](https://www.biblegateway.com/passage/?search=Ephesians%205%3A5&version=ESV)** - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has **no inheritance in the kingdom of Christ and God.** (ESV)
+
 Flock = Jesus' followers. God **wants** to give Jesus' followers the kingdom, but we have to stop the sin:
 
 > **[Luke 12:30-32](https://www.biblegateway.com/passage/?search=Luke%2012%3A30-32&version=ESV)** - For all the nations of the world seek after these things, and your Father knows that you need them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for **it is your Father's good pleasure to give you the kingdom.** (ESV)
+
+We want to walk in a worthy manner, **bearing fruit in good work**:
+
+> **[Colossians 1:10-14](https://www.biblegateway.com/passage/?search=Colossians%201%3A10-14&version=ESV)** - so as to **walk in a manner worthy** of the Lord, <ins>fully pleasing to him</ins>, **bearing fruit in every good work** and increasing in the knowledge of God. May you be strengthened with all power, according to his glorious might, for all endurance and patience with joy, giving thanks to the Father, who has qualified you to share in the inheritance of the saints in light. He has delivered us from the domain of darkness and transferred us to the kingdom of his beloved Son, in whom we have redemption, the forgiveness of sins. (ESV)
 
 
 ### We must be a good and faithful servant
@@ -16356,7 +16441,11 @@ Then the devil probably said, "It is not good that man should be allowed to marr
 
 I'm not upset with people, but I'm upset that I feel broken and as if I am in a world of lies as a result of following Jesus, and like I had to kill the marriage proposal to put Jesus first, and I'm grieved. I feel like Abraham if he was to actually kill Isaac on the Altar, and God didn't intervene.
 
-I want it to stay in God's court (until I am sanctified) because I feel like I have tried my best to remain faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole. I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons.
+I want it to stay in God's court (until I am sanctified) because I feel like I have tried my best to remain faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole.
+
+> **[II Timothy 2:21-22](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A21-22&version=ESV)** - Therefore, if anyone cleanses himself from what is dishonorable, he will be a vessel for honorable use, set apart as holy, useful to the master of the house, ready for every good work. So flee youthful passions and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure heart. (ESV)
+
+I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons.
 
 > **[Romans 4:7-8](https://www.biblegateway.com/passage/?search=Romans%204%3A7-8&version=ESV)** - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; <ins>blessed is the man against whom the Lord will not count his sin.</ins> (ESV)
 
@@ -18406,7 +18495,7 @@ In Jesus Christ we have redemption, the forgiveness of sins, and are transferred
 
 It's the Kingdom of Christ and God:
 
-> **[Ephesians 5:5](https://www.biblegateway.com/passage/?search=Ephesians%205%3A5&version=ESV)** - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. (ESV)
+> **[Ephesians 5:5](https://www.biblegateway.com/passage/?search=Ephesians%205%3A5&version=ESV)** - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has **no inheritance in the kingdom of Christ and God.** (ESV)
 
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
@@ -18665,9 +18754,9 @@ The promises go to Christ:
 
 > **[Galatians 3:16](https://www.biblegateway.com/passage/?search=Galatians%203%3A16&version=ESV)** - Now the promises were made to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
 
-If you belong to Christ by faith then you are one in spirit with Christ and Abraham's offspring, and heirs according to the promise.
+We belong to Christ by faith. **If you belong to Christ by faith then you are one in spirit with Christ** and Abraham's offspring, and heirs according to the promise:
 
-> **[Galatians 3:29](https://www.biblegateway.com/passage/?search=Galatians%203%3A29&version=ESV)** - And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:29](https://www.biblegateway.com/passage/?search=Galatians%203%3A29&version=ESV)** - And **if you are Christ's**, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 A new creation lives for Christ:
 
@@ -19315,7 +19404,7 @@ We should be able to see the transformation described in the sermon of the mount
 
 ### 
 
-> **[Matthew 5:10](https://www.biblegateway.com/passage/?search=Matthew%205%3A10&version=ESV)** - Blessed are those who are persecuted for righteousness' sake, for theirs is the kingdom of heaven. (ESV)
+> **[Matthew 5:10](https://www.biblegateway.com/passage/?search=Matthew%205%3A10&version=ESV)** - Blessed are those who are persecuted for righteousness' sake, for **theirs** is the kingdom of heaven. (ESV)
 
 -   **<ins>Condition:</ins> It's those who have been persecuted for the sake of righteousness:** <ins>Promise:</ins> The Kingdom of Heaven will be theirs.
 
@@ -24202,9 +24291,17 @@ I still hope for the personal acknowledgement from God that I have acted faithfu
 
 > **[Matthew 25:21](https://www.biblegateway.com/passage/?search=Matthew%2025%3A21&version=ESV)** - His master said to him, Well done, good and faithful servant. You have been faithful over a little; I will set you over much. Enter into the joy of your master. (ESV)
 
-We're always seeking God's commendation - the righteous **live by** their faith in Jesus - in belief to His promises and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We live to serve Jesus, believing we are justified by our faith in Him. I just want to continue to live faithfully to Jesus for the rest of my life. That's the plan - to give it my best shot.
+We're always seeking God's commendation - the righteous **live by** their faith in Jesus - in belief to His promises and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We **live to serve Jesus**, believing we are justified by our faith in Him, and not relying on our own righteousness. I just want to continue to live faithfully to Jesus for the rest of my life. That's the plan - to give it my best shot.
 
 > **[I John 4:17](https://www.biblegateway.com/passage/?search=1%20John%204%3A17&version=ESV)** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
+
+It certainly appears that we're not supposed to simply do some righteous thing and then lean on that. Rather we're supposed to 'live by' our faith, &#x2013; keep going, and not shrink back:
+
+> **Ezekiel 33:13** - Though **I say to the righteous that he shall surely live**, *yet* <ins>if he trusts in his righteousness and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he shall die.</ins> (ESV)
+
+This is in line with what is written in Hebrews:
+
+> **Hebrews 10:37-39** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
 
 
 ### Humility
