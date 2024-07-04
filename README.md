@@ -12200,9 +12200,19 @@ I think it's possible but you have to expect to receive it:
 
 AMEN!!
 
-**True** faith (does a person actually believe) is enough to be spared from death.
+**True** faith (does a person actually believe) is enough, but that means that **no distrust** would cause the person to unwaver. I still think that trust itself elicits obedience. Since God commanded us to place our faith in Him, then to have faith itself is to have begun to obey God.
+
+The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver. Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
+
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 However, I still think that inheriting the Kingdom and inheriting eternal life involves being obedient to Jesus which leads to true knowledge.
+
+There is still obedience required. Obedience is intrinsic to faith. Obedience leads to knowledge of Jesus:
+
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus was saying to those Jews who had believed Him, “If you **continue in My word**, then you are truly disciples of Mine; and **you will know the truth**, and the truth will make you free.” (NASB)
+
+> **[John 17:8](https://www.biblegateway.com/passage/?search=John%2017%3A8&version=ESV)** - For I have given them the words that you gave me, and they have received them and have **come to know in truth that I came from you**; <ins>and</ins> they have believed that you sent me.
 
 
 ### fear of God
@@ -14760,6 +14770,8 @@ Put to death the earthly in us:
 -   slander,
 -   anger,
 -   obscene talk
+
+-   **Interesting fact:** [Te reo Māori](https://www.reomaori.co.nz/) doesn't have any filthy words. Every language has capacity to express anger, disgust or outrage. [Te reo Māori](https://www.reomaori.co.nz/) is no different. There are no single words that equate to English equivalents in terms of obscenity of insult. As Alan pointed out, words for body parts, copulation etc are just words — quite neutral.
 
 We **must** forgive one another:
 
