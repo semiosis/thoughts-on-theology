@@ -157,6 +157,10 @@ I believe that if I am disobeying sin and obeying Jesus then I am cooperating wi
 That is the obvious conclusion. I should not be a hypocrite about it.
 Jesus has set me free, and there's no condemnation for those who are in Christ, but we should have a response of love for Jesus, and live to serve Jesus.
 
+-   **[desiringgod.org: The High Cost of Sexual Sin | Desiring God](https://www.desiringgod.org/interviews/the-high-cost-of-sexual-sin):** I'm trying to explode the doctrine that the battle for obedience is optional because only faith is necessary for salvation. This is very tricky the way words are used here. The battle for obedience is **absolutely necessary** for salvation because it **is** the fight of faith. The **battle for obedience is absolutely necessary for getting to heaven** because **it is** the battle against unbelief. **It is** the fight of faith. There are **not** <ins>two battles</ins>: one to get yourself saved by a single act of faith, and the other to collect rewards by work. There is only **one battle** - it's the one that gets you started, it's the one that gets you there, and it's the fight of faith not works! Faith is what severs the root of covetousness,  misplaced shame, anxiety, lust, envy, and six more before we are done this year. There is one warfare, and it is the warfare of faith.
+
+AMEN!! If only someone had told me this first. Repentance from sin is **absolutely necessary** for salvation. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully sinning. Committing sin against our own bodies is very, very unwise.
+
 The Apostle Paul still recognises that we are supposed to have a heart of obedience to Jesus. And I imagine the others who Paul came into an argument with were also concerned about going on without love. In return for the grace given to us, we are supposed to love Jesus back in obedience to His commandments:
 
 > **[Galatians 2:10](https://www.biblegateway.com/passage/?search=Galatians%202%3A10&version=ESV)** - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
@@ -8177,6 +8181,8 @@ We are being prepared to be presented to Jesus:
 
 > **[I Peter 1:13](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV)** - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ. (ESV)
 
+-   **Devotional:** [star.net.nz: -gods-word-renews-2024<sub>07</sub><sub>04</sub>](https://www.star.net.nz/the-word-for-today/-gods-word-renews-2024_07_04)
+
 
 ## Be qualified regarding the faith - renewed in mind, not opposing the truth
 
@@ -15540,6 +15546,78 @@ Do not even seek them out:
 > **[I John 3:8](https://www.biblegateway.com/passage/?search=1%20John%203%3A8&version=ESV)** - Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. (ESV)
 
 > **[John 8:36](https://www.biblegateway.com/passage/?search=John%208%3A36&version=ESV)** - So if the Son sets you free, you will be free indeed. (ESV)
+
+
+## Put sin to death
+
+I think it's really important to 'stop
+sinning', and particularly against your own
+body, especially after being placed into
+Christ.
+
+It's important to no longer will to do the
+sin, and to will for the sin to stop, and to
+cooperate with Jesus in putting a stop to it.
+
+This is a strong warning:
+
+> **Hebrews 12:15-17** - See to it that no one fails to obtain the grace of God; that **no root of bitterness springs up** and causes trouble, and **by it many become defiled**; that **no one is sexually immoral** or **unholy** like Esau, who sold his birthright for a single meal. For you know that afterward, **when he desired to inherit the blessing, he was rejected**, for **he found no chance to repent, though he sought it with tears.** (ESV)
+
+[youtube.com: Has My Sexual Sin Made Me Unsavable?](https://www.youtube.com/watch?v=BkKKWO0qSvw)
+
+    1  Dear Heavenly Father, Jehovah God,
+    2  please God help me to:
+    3  - stop bitterness and unforgiveness
+    4  - stop all sexual immorality
+    5  - stop all unholiness
+    6  In Jesus Christ's name I ask,
+    7  AMEN!!
+
+I read this somewhere:
+
+    1  The key to overcoming repetitive sins is to read God's word everyday and then
+    2  praying and surrendering yourself to Christ. Ask God to lead you away from
+    3  temptation and to deliver you from evil. Remain vigilant on what your eye sees
+    4  and what you ears hear. God bless.
+
+
+### We want to be transformed
+
+My biggest problems exist inside of me, not outside:
+
+-   **[youtube.com: War of Words: Getting to the Heart for God's Sake @time: 27 min 21 sec](https://youtube.com/watch?v=pnAMp_mAYI8&t=1641):** when you are able to convince yourself that your deepest greatest problems in life exist outside of you not inside of you you quit being a seeker after the transforming grace of the Lord Jesus Christ
+
+-   **Sermon :: [youtube.com: Killing Lust with the Cross of Christ](https://www.youtube.com/watch?v=DcdCsEAI2kw):** **Step 1:** The sin is cancelled by the blood of Christ. We're Justified before God, and then **Step 2:** We purge that sin from our lives; Can't ever get that backwards. Sin <ins>canceled</ins>, *then* sin <ins>purged</ins>.
+
+
+### Quote from John Piper
+
+> There's a whole cloud of witnesses that finished the race.
+> They have lined up along the race course of your life and they are shouting to you from chapter 11,
+> "You're not helpless. By faith you can do this. You could be killed. You can
+> walk out of lust and out of pornography.  By faith you can do this. That great
+> cloud of witnesses did not become Esaus. And that great cloud ends with Jesus
+> in verse 2 of chapter 12."
+
+Faith chapter:
+
+-   Hebrews 11-12:2
+
+
+### Also, my thoughts
+
+I like to think that there are actually lots of people cheering me on during my race who have already finished the race.
+I hope to finish it.
+I really hope to finish it.
+
+> Dear Heavenly Father, Jehovah God,
+> Please, LORD Jesus, let me finish the race.
+> Do not abandon me Jesus, please.
+> Please let me put all the sin to death.
+> I want it to die.
+> I do not want to be killed by it.
+> In Jesus Christ's name I pray,
+> AMEN!
 
 
 ## Those that are younger, be subject to the elders

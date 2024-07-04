@@ -260,6 +260,20 @@ That is the obvious conclusion. I should not be a hypocrite about it. Jesus has 
 condemnation for those who are in Christ, but we should have a response of love for Jesus, and live to serve
 Jesus.
 
+desiringgod.org: The High Cost of Sexual Sin | Desiring God
+I'm trying to explode the doctrine that the battle for obedience is optional because only faith is necessary for
+salvation. This is very tricky the way words are used here. The battle for obedience is absolutely necessary for
+salvation because it is the fight of faith. The battle for obedience is absolutely necessary for getting to heaven
+because it is the battle against unbelief. It is the fight of faith. There are not two battles: one to get
+yourself saved by a single act of faith, and the other to collect rewards by work. There is only one battle - it's
+the one that gets you started, it's the one that gets you there, and it's the fight of faith not works! Faith is
+what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
+year. There is one warfare, and it is the warfare of faith.
+
+AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation. After
+receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully sinning. Committing sin
+against our own bodies is very, very unwise.
+
 The Apostle Paul still recognises that we are supposed to have a heart of obedience to Jesus. And I imagine the
 others who Paul came into an argument with were also concerned about going on without love. In return for the
 grace given to us, we are supposed to love Jesus back in obedience to His commandments:
@@ -11944,6 +11958,9 @@ We are being prepared to be presented to Jesus:
   I Peter 1:13 - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the
   grace that will be brought to you at the revelation of Jesus Christ. (ESV)
 
+Devotional
+star.net.nz: -gods-word-renews-2024[07][04]
+
 16.5. Be qualified regarding the faith - renewed in mind, not opposing the truth
 
   II Timothy 3:8 - Just as Jannes and Jambres opposed Moses, so these men also oppose the truth, men corrupted in
@@ -22126,14 +22143,78 @@ Do not even seek them out:
 
   John 8:36 - So if the Son sets you free, you will be free indeed. (ESV)
 
-46.4. Those that are younger, be subject to the elders
+46.4. Put sin to death
+
+I think it's really important to 'stop sinning', and particularly against your own body, especially after being
+placed into Christ.
+
+It's important to no longer will to do the sin, and to will for the sin to stop, and to cooperate with Jesus in
+putting a stop to it.
+
+This is a strong warning:
+
+  Hebrews 12:15-17 - See to it that no one fails to obtain the grace of God; that no root of bitterness springs up
+  and causes trouble, and by it many become defiled; that no one is sexually immoral or unholy like Esau, who sold
+  his birthright for a single meal. For you know that afterward, when he desired to inherit the blessing, he was
+  rejected, for he found no chance to repent, though he sought it with tears. (ESV)
+
+youtube.com: Has My Sexual Sin Made Me Unsavable?
+
+|  Dear Heavenly Father, Jehovah God,
+|  please God help me to:
+|  - stop bitterness and unforgiveness
+|  - stop all sexual immorality
+|  - stop all unholiness
+|  In Jesus Christ's name I ask,
+|  AMEN!!
+
+I read this somewhere:
+
+|  The key to overcoming repetitive sins is to read God's word everyday and then
+|  praying and surrendering yourself to Christ. Ask God to lead you away from
+|  temptation and to deliver you from evil. Remain vigilant on what your eye sees
+|  and what you ears hear. God bless.
+
+46.4.1. We want to be transformed
+
+My biggest problems exist inside of me, not outside:
+
+youtube.com: War of Words: Getting to the Heart for God's Sake @time: 27 min 21 sec
+when you are able to convince yourself that your deepest greatest problems in life exist outside of you not inside
+of you you quit being a seeker after the transforming grace of the Lord Jesus Christ
+
+Sermon :: youtube.com: Killing Lust with the Cross of Christ
+Step 1: The sin is cancelled by the blood of Christ. We're Justified before God, and then Step 2: We purge that
+sin from our lives; Can't ever get that backwards. Sin canceled, then sin purged.
+
+46.4.2. Quote from John Piper
+
+  There's a whole cloud of witnesses that finished the race. They have lined up along the race course of your life
+  and they are shouting to you from chapter 11, "You're not helpless. By faith you can do this. You could be
+  killed. You can walk out of lust and out of pornography. By faith you can do this. That great cloud of witnesses
+  did not become Esaus. And that great cloud ends with Jesus in verse 2 of chapter 12."
+
+Faith chapter:
+
+- Hebrews 11-12:2
+
+46.4.3. Also, my thoughts
+
+I like to think that there are actually lots of people cheering me on during my race who have already finished the
+race. I hope to finish it. I really hope to finish it.
+
+  Dear Heavenly Father, Jehovah God, Please, LORD Jesus, let me finish the race. Do not abandon me Jesus, please.
+  Please let me put all the sin to death. I want it to die. I do not want to be killed by it. In Jesus Christ's
+  name I pray, AMEN!
+
+46.5. Those that are younger, be subject to the elders
 
   I Peter 5:5 - Likewise, you who are younger, be subject to the elders. Clothe yourselves, all of you, with
   humility toward one another, for God opposes the proud but gives grace to the humble.
 
 God's grace goes to the humble.
 
-46.5. It's more important to obey God if an elder is teaching falsehood
+46.6. It's more important to obey God if an elder is teaching falsehood
 
   Acts 5:29 - But Peter and the apostles answered, We must obey God rather than men.
 
@@ -22143,7 +22224,7 @@ God's grace goes to the humble.
   Ephesians 5:23 - For the husband is the head of the wife even as Christ is the head of the church, his body, and
   is himself its Savior.
 
-46.5.1. Obedience to Christ is also necessary for salvation
+46.6.1. Obedience to Christ is also necessary for salvation
 
   Hebrews 5:8-10 - Although he was a son, he learned obedience through what he suffered. And being made perfect,
   he became the source of eternal salvation to all who obey him, being designated by God a high priest after the
@@ -34431,7 +34512,7 @@ Date: 2024-07-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-04 Thu 13:29
+Created: 2024-07-04 Thu 17:01
 
 Validate
 
