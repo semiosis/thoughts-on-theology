@@ -14760,6 +14760,8 @@ It helps to clarify what we mean by inheriting the kingdom of God:
 
 Of course we cannot inherit righteousness, peace and joy without putting to death what is earthly in us.
 
+-   **Interesting fact:** [Te reo Māori](https://www.reomaori.co.nz/) doesn't have any filthy words. Every language has capacity to express anger, disgust or outrage. [Te reo Māori](https://www.reomaori.co.nz/) is no different. There are no single words that equate to English equivalents in terms of obscenity of insult. As Alan pointed out, words for body parts, copulation etc are just words — quite neutral.
+
 Put to death the earthly in us:
 
 -   sexual immorality,
@@ -14770,8 +14772,6 @@ Put to death the earthly in us:
 -   slander,
 -   anger,
 -   obscene talk
-
--   **Interesting fact:** [Te reo Māori](https://www.reomaori.co.nz/) doesn't have any filthy words. Every language has capacity to express anger, disgust or outrage. [Te reo Māori](https://www.reomaori.co.nz/) is no different. There are no single words that equate to English equivalents in terms of obscenity of insult. As Alan pointed out, words for body parts, copulation etc are just words — quite neutral.
 
 We **must** forgive one another:
 
@@ -19824,9 +19824,23 @@ on the topic of sexual morality, body markings, etc.
 
 ## It is necessary sometimes to judge others, but do it properly
 
-> **[John 7:24](https://www.biblegateway.com/passage/?search=John%207%3A24&version=ESV)** - Do not judge by appearances, but judge with right judgment.
+We should certainly avoid judging others. But we keep our own selves accountable to God, not try to keep others accountable to God. Judge for our own sake. We don't judge who we deem to be our brother/neighbour:
 
-> **[Matthew 7:1](https://www.biblegateway.com/passage/?search=Matthew%207%3A1&version=ESV)** - Judge not, that you be not judged.  For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you.
+> **[James 4:11-12](https://www.biblegateway.com/passage/?search=James%204%3A11-12&version=ESV)** - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
+
+But Jesus is the ultimate judge and judges His servants:
+
+> **[II Chronicles 6:22-23](https://www.biblegateway.com/passage/?search=2%20Chronicles%206%3A22-23&version=ESV)** - If a man sins against his neighbor and is made to take an oath and comes and swears his oath before your altar in this house, then hear from heaven and act and judge your servants, repaying the guilty by bringing his conduct on his own head, and vindicating the righteous by rewarding him according to his righteousness. (ESV)
+
+Right judgement takes into consideration the weightier matters of the law: justice and mercy and faithfulness:
+
+> **[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
+
+> **[John 7:23-24](https://www.biblegateway.com/passage/?search=John%207%3A23-24&version=ESV)** - If on the Sabbath a man receives circumcision, so that the law of Moses may not be broken, are you angry with me because on the Sabbath I made a man's whole body well? Do not judge by appearances, but judge with right judgment. (ESV)
+
+Judging others with the law also makes yourself accountable to the law in the way you measured it:
+
+> **[Matthew 7:1](https://www.biblegateway.com/passage/?search=Matthew%207%3A1&version=ESV)** - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you.
 
 I don't hold others accountable to the same standard that I hold myself to.
 
