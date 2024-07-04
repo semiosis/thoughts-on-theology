@@ -9279,7 +9279,10 @@ the sacrament maybe is not strictly required to be saved (as far as I understand
 
 To be baptised is an act of obedience.
 
-I definitely believe that "believer's baptism" is the right way to perform baptism. Baptism does save.
+I definitely believe that "believer's baptism" is the right way to perform baptism.
+
+Baptism does save, but I believe it must be coupled with belief, and also trust, and I think that obedience
+comes from trust:
 
   Romans 6:3-4 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into
   his death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised
@@ -9291,6 +9294,19 @@ I definitely believe that "believer's baptism" is the right way to perform bapti
   days of Noah, while the ark was being prepared, in which a few, that is, eight persons, were brought safely
   through water. Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but
   as an appeal to God for a good conscience, through the resurrection of Jesus Christ,
+
+Doubt is very contrary to faith, even contrary to obedient faith. Ask in obedient faith without any doubting:
+
+  James 1:6-7 - But let him ask in faith, with no doubting, for the one who doubts is like a wave of the sea
+  that is driven and tossed by the wind. For that person must not suppose that he will receive anything from
+  the Lord; (ESV)
+
+Abraham had trust. Abraham had obedience. I believe that trust is very important to have for faith to be
+counted as righteousness:
+
+  Romans 4:20-22 - No distrust made him waver concerning the promise of God, but he grew strong in his faith
+  as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith
+  was counted to him as righteousness. (ESV)
 
   I Corinthians 6:14 - And God raised the Lord and will also raise us up by his power. (ESV)
 
@@ -20578,6 +20594,9 @@ Doubt is very contrary to faith, even contrary to obedient faith. Ask in obedien
   is driven and tossed by the wind. For that person must not suppose that he will receive anything from the Lord;
   (ESV)
 
+Abraham had trust. Abraham had obedience. I believe that trust is very important to have for faith to be counted
+as righteousness:
+
   Romans 4:20-22 - No distrust made him waver concerning the promise of God, but he grew strong in his faith as he
   gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was
   counted to him as righteousness. (ESV)
@@ -28238,17 +28257,21 @@ This is really interesting.
   Romans 6:8-9 - Now if we have died with Christ, we believe that we will also live with him. We know that Christ
   being raised from the dead will never die again; death no longer has dominion over him.
 
+Jesus as a life-giving spirit proclaimed to the spirits in prison:
+
   John 5:25 - Truly, truly, I say to you, an hour is coming and now is, when the dead will hear the voice of the
   Son of God, and those who hear will live. (ESV)
 
-Jesus as a life-giving spirit proclaimed to the spirits in prison.
+  I Peter 4:6 - For this is why the gospel was preached even to those who are dead, that though judged in the
+  flesh the way people are, they might live in the spirit the way God does. (ESV)
 
 Baptism is an appeal to God for a good conscience - It's an appeal to God but not strictly required to be saved.
 It is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
 I definitely believe that "believer's baptism" is the right way to perform baptism.
 
-Baptism does save, but I believe it must be coupled with belief:
+Baptism does save, but I believe it must be coupled with belief, and also trust, and I think that obedience comes
+from trust:
 
   I Peter 3:18-21 - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring
   us to God, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the
@@ -34571,7 +34594,7 @@ Date: 2024-07-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-04 Thu 18:18
+Created: 2024-07-04 Thu 23:03
 
 Validate
 
