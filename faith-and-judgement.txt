@@ -256,9 +256,11 @@ overcome the sin and to put the sin to death:
   Colossians 3:5 - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil
   desire, and covetousness, which is idolatry. (ESV)
 
-That is the obvious conclusion. I should not be a hypocrite about it. Jesus has set me free, and there's no
-condemnation for those who are in Christ, but we should have a response of love for Jesus, and live to serve
-Jesus.
+That is the obvious conclusion. I should not be a hypocrite about it.
+
+Jesus has set me free, and there's no condemnation for those who are in Christ, but we should have a response of
+love for Jesus, and live to serve Jesus, and it's very, very important to embrace sanctification, and to put a
+stop to willful sin.
 
 desiringgod.org: The High Cost of Sexual Sin | Desiring God
 I'm trying to explode the doctrine that the battle for obedience is optional because only faith is necessary for
@@ -270,9 +272,12 @@ the one that gets you started, it's the one that gets you there, and it's the fi
 what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
 year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation. After
-receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully sinning. Committing sin
-against our own bodies is very, very unwise.
+AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation. I do
+believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully
+sinning. Committing sin against our own bodies is very, very unwise.
+
+  Romans 8:13 - For if you live according to the flesh you will die, but if by the Spirit you put to death the
+  deeds of the body, you will live. (ESV)
 
 The Apostle Paul still recognises that we are supposed to have a heart of obedience to Jesus. And I imagine the
 others who Paul came into an argument with were also concerned about going on without love. In return for the
@@ -23246,12 +23251,36 @@ This is what I want for myself (I'm concerned about living the Christian life no
 sacrifice' for God, and allowing God to sanctify my mind and body, not 'exchanging the grace of God for a single
 meal'):
 
-Hebrews 12:16 - that no one is sexually immoral or unholy like Esau, who sold his birthright for a single meal.
-(ESV)
+  Hebrews 12:16-17 - that no one is sexually immoral or unholy like Esau, who sold his birthright for a single
+  meal. For you know that afterward, when he desired to inherit the blessing, he was rejected, for he found no
+  chance to repent, though he sought it with tears. (ESV)
 
-I hold no grudges. Forgiving everyone is a key to deliverance, according to Derek Prince.
+Jesus has set me free, and there's no condemnation for those who are in Christ, but we should have a response of
+love for Jesus, and live to serve Jesus, and it's very, very important to embrace sanctification, and to put a
+stop to willful sin.
 
-If the spirit spouse stuff is actually sin in the body, then I'm this serious at this point with my reasoning:
+desiringgod.org: The High Cost of Sexual Sin | Desiring God
+I'm trying to explode the doctrine that the battle for obedience is optional because only faith is necessary for
+salvation. This is very tricky the way words are used here. The battle for obedience is absolutely necessary for
+salvation because it is the fight of faith. The battle for obedience is absolutely necessary for getting to heaven
+because it is the battle against unbelief. It is the fight of faith. There are not two battles: one to get
+yourself saved by a single act of faith, and the other to collect rewards by work. There is only one battle - it's
+the one that gets you started, it's the one that gets you there, and it's the fight of faith not works! Faith is
+what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
+year. There is one warfare, and it is the warfare of faith.
+
+AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation. I do
+believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully
+sinning. Committing sin against our own bodies is very, very unwise.
+
+  Romans 8:13 - For if you live according to the flesh you will die, but if by the Spirit you put to death the
+  deeds of the body, you will live. (ESV)
+
+I still hold no grudges, but still going through sanctification, which I guess may be a life-long process.
+Forgiving everyone is a key to deliverance, according to Derek Prince.
+
+If the spirit spouse stuff is actually related to leftover sin in the body/mind/soul-realm, then I'm this serious
+at this point with my reasoning, because I'm serious about sanctification, and I'm serious about living:
 
   I Corinthians 5:5 - you are to deliver this man to Satan for the destruction of the flesh, so that his spirit
   may be saved in the day of the Lord. (ESV)
@@ -34542,7 +34571,7 @@ Date: 2024-07-04 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-04 Thu 17:56
+Created: 2024-07-04 Thu 18:18
 
 Validate
 
