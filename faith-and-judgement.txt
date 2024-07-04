@@ -10568,7 +10568,7 @@ Names have power. Jesus' name is above every other name:
 
 11.8. Faith, Law, Works
 
-We must live under law of God:
+We must live by law of God:
 
   Proverbs 28:9 - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
@@ -10597,8 +10597,8 @@ We must love (not just any way you believe it's defined) but in the same way tha
 
   I John 4:19 - We love because he first loved us. (ESV)
 
-11.8.2. Christians are not under the Mosaic law because we are under Christ's law, but we don't despise the Torah,
-nor annul it, nor teach others to annul it
+11.8.2. Christians are not under the Mosaic law because we are under grace as we are under Christ's law, but we
+don't despise the Torah, nor annul it, nor teach others to annul it
 
 I enjoyed this video, but I still am of the opinion that following the full Mosaic law is not necessary, (but not
 prohibited, so long as it is pursued by faith and submits to God's righteousness):
@@ -10988,7 +10988,8 @@ and leads to righteousness:
  1. If a person is led by the Spirit then the Lord Jesus is in control of their life, which means that person
 obeys Jesus' commandments:
 
-Faith is the action word. We must be followers of Jesus Christ, not putting ourselves back under the law.
+Faith is the action word. We must be followers of Jesus Christ, not putting ourselves back under the law of
+Moses to seek justification through it.
 
 Faith receives and continues to receive the supply of the Spirit and we are led by the Spirit:
 
@@ -20973,12 +20974,21 @@ obey Jesus:
 We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and
 we are not the ones to shrink back and to stop obeying but to remain obedient.
 
-We're always seeking God's commendation. The righteous live by their faith in Jesus - in belief to His promises
-and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We live to
-serve Jesus, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're
-still living by our faith in God and in Jesus His Son. I just want to continue to live faithfully to Jesus for the
-rest of my life. That's the plan - to really be transformed by the gospel and live in the truth of God's word.
-I'll give it my best shot:
+We're always seeking God's commendation:
+
+  Galatians 1:10 - For am I now seeking the approval of man, or of God? Or am I trying to please man? If I were
+  still trying to please man, I would not be a servant of Christ. (ESV)
+
+The righteous live by their faith in Jesus - in belief to His promises and in obedience to His commandments all of
+our life as Christians - hoping for God's commendation.
+
+  Galatians 1:10 - For am I now seeking the approval of man, or of God? Or am I trying to please man? If I were
+  still trying to please man, I would not be a servant of Christ. (ESV)
+
+We live to serve Jesus, believing we are justified by our faith in Him, and not relying on our own righteousness,
+but we're still living by our faith in God and in Jesus His Son. I just want to continue to live faithfully to
+Jesus for the rest of my life. That's the plan - to really be transformed by the gospel and live in the truth of
+God's word. I'll give it my best shot:
 
   I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
   as he is so also are we in this world. (ESV)
@@ -34000,10 +34010,18 @@ I still hope for the personal acknowledgement from God that I have acted faithfu
   Matthew 25:21 - His master said to him, Well done, good and faithful servant. You have been faithful over a
   little; I will set you over much. Enter into the joy of your master. (ESV)
 
-We're always seeking God's commendation - the righteous live by their faith in Jesus - in belief to His promises
-and in obedience to His commandments all of our life as Christians - hoping for God's commendation. We live to
-serve Jesus, believing we are justified by our faith in Him, and not relying on our own righteousness. I just want
-to continue to live faithfully to Jesus for the rest of my life. That's the plan - to give it my best shot.
+We're always seeking God's commendation:
+
+  Galatians 1:10 - For am I now seeking the approval of man, or of God? Or am I trying to please man? If I were
+  still trying to please man, I would not be a servant of Christ. (ESV)
+
+The righteous live by their faith in Jesus - in belief to His promises and in obedience to His commandments all of
+our life as Christians - hoping for God's commendation.
+
+We live to serve Jesus, believing we are justified by our faith in Him, and not relying on our own righteousness,
+but we're still living by our faith in God and in Jesus His Son. I just want to continue to live faithfully to
+Jesus for the rest of my life. That's the plan - to really be transformed by the gospel and live in the truth of
+God's word. I'll give it my best shot:
 
   I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
   as he is so also are we in this world. (ESV)
@@ -34793,7 +34811,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 10:57
+Created: 2024-07-05 Fri 11:30
 
 Validate
 
