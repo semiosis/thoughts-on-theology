@@ -2618,6 +2618,8 @@ The original Apostles were instructed to feed Jesus' sheep with the living bread
 
 ## Even the Old Testament makes a person wise for salvation through faith in Christ Jesus:
 
+[desiringgod.org: How to Get Wisdom: Become a Fool | Desiring God](https://www.desiringgod.org/messages/how-to-get-wisdom)
+
 Trust and believe:
 
 > **[Isaiah 53:7-8](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A7-8&version=ESV)** - He was oppressed, and he was afflicted, yet he opened not his mouth; like a lamb that is led to the slaughter, and like a sheep that before its shearers is silent, so he opened not his mouth. By oppression and judgment he was taken away; and as for his generation, who considered that he was cut off out of the land of the living, stricken for the transgression of my people? (ESV)
@@ -16338,7 +16340,9 @@ The way I chose was based on truth and joy and being at peace. And the fact of t
 
 Then the devil probably said, "It is not good that man should be allowed to marry the person God made for him, because then he wont feel the need to have any of my false sinful substitutes."
 
-I'm not upset with people, but I'm upset that I feel broken and as if I am in a world of lies as a result of following Jesus, and like I had to kill the marriage proposal to put Jesus first, and I'm grieved. I feel like Abraham if he was to actually kill Isaac on the Altar, and God didn't intervene. I want it to stay in God's court because I feel like I have tried my best to remain faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole. I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons.
+I'm not upset with people, but I'm upset that I feel broken and as if I am in a world of lies as a result of following Jesus, and like I had to kill the marriage proposal to put Jesus first, and I'm grieved. I feel like Abraham if he was to actually kill Isaac on the Altar, and God didn't intervene.
+
+I want it to stay in God's court (until I am sanctified) because I feel like I have tried my best to remain faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole. I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year, and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons.
 
 > **[Romans 4:7-8](https://www.biblegateway.com/passage/?search=Romans%204%3A7-8&version=ESV)** - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; <ins>blessed is the man against whom the Lord will not count his sin.</ins> (ESV)
 
@@ -16351,6 +16355,22 @@ Trusting Him means having faith in Him, obeying, believing in God and having the
 This qualifies:
 
 > **[Luke 18:13](https://www.biblegateway.com/passage/?search=Luke%2018%3A13&version=ESV)** - But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful to me, a sinner! (ESV)
+
+The most important thing in my opinion is that everyone involved comes out healed, delivered, sanctified and wise to salvation, and freed from sin and saved from death, so the key I think is to choose forgiveness and bear our cross. I'm prepared and committed to doing that:
+
+> **[Ecclesiastes 7:2](https://www.biblegateway.com/passage/?search=Ecclesiastes%207%3A2&version=ESV)** - It is better to go to the house of mourning than to go to the house of feasting, for this is the end of all mankind, and the living will lay it to heart. (ESV)
+
+This is what I want for myself (I'm concerned about living the Christian life now which involves being a 'living sacrifice' for God, and allowing God to sanctify my mind and body, not 'exchanging the grace of God for a single meal'):
+
+**Hebrews 12:16** - that no one is sexually immoral or unholy like Esau, who sold his birthright for a single meal. (ESV)
+
+I hold no grudges. Forgiving everyone is a key to deliverance, according to Derek Prince.
+
+If the spirit spouse stuff is actually sin in the body, then I'm this serious at this point with my reasoning:
+
+> **[I Corinthians 5:5](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A5&version=ESV)** - you are to deliver this man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
+
+> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
 
 
 ### We should not be thieves and robbers
