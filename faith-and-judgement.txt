@@ -552,6 +552,19 @@ And brought into doing the will of God:
   speak of anything except what Christ has accomplished through me to bring the Gentiles to obedience-by word and
   deed,
 
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
+
+Loving God is not actually first working for God. Yeah, I agree with John Piper.
+
+The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that
+when we love God then keeping His commandments is unburdensome.
+
+I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
+love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
+just want to obey God now!"
+
 We have confidence when we keep His commandments, believing in the name of God's Son Jesus Christ and loving one
 another and our heart doesn't condemn us:
 
@@ -586,6 +599,14 @@ correctly, having joy in being able to live out the great commandments in actual
 believe with our whole heart, soul, mind and strength and to love our neighbour as ourselves, and as we abide in
 Jesus Christ, focused on Jesus as our Pearl of Great Price, obeying God in word and deed, passing-forward Christ's
 love to others, the blood of Jesus cleanses us from all sin:
+
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
+
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
 
   II Corinthians 3:17 - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
 
@@ -10748,6 +10769,22 @@ It was inevitable. The Scripture had to be fulfilled:
 11.8.3. Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the
 Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
+
+Loving God is not actually first working for God. Yeah, I agree with John Piper.
+
+The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that
+when we love God then keeping His commandments is unburdensome.
+
+I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
+love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
+just want to obey God now!"
+
+  I John 5:2-3 - By this we know that we love the children of God, when we love God and obey his commandments. For
+  this is the love of God, that we keep his commandments. And his commandments are not burdensome.
+
 Even the Apostle Paul explains that our freedom is for serving one another:
 
   Galatians 5:13 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
@@ -18347,6 +18384,14 @@ youtube.com: Be the Centre - Michael Frye
 
 29.3.2. We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
 
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
+
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
+
 Jesus certainly does command us to have emotions for things. For example:
 
 - we should fear God
@@ -18883,7 +18928,18 @@ The knowledge of Jesus Christ our God and Saviour comes through His words and ob
   break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and
   where thieves do not break in and steal. For where your treasure is, there your heart will be also.
 
-Loving God is obedience to God.
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
+
+Loving God is not actually first working for God. Yeah, I agree with John Piper.
+
+The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that
+when we love God then keeping His commandments is unburdensome.
+
+I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
+love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
+just want to obey God now!"
 
   I John 5:2-3 - By this we know that we love the children of God, when we love God and obey his commandments. For
   this is the love of God, that we keep his commandments. And his commandments are not burdensome.
@@ -34190,6 +34246,14 @@ now in good conscience with God and a bachelor.
   I Timothy 1:19 - holding faith and a good conscience. By rejecting this, some have made shipwreck of their
   faith, (ESV)
 
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
+
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
+
 I have absolutely no unforgiveness or grudge with anyone involved regarding what has happened with the marriage
 proposal and I just want God to completely deliver me from the evil.
 
@@ -34999,7 +35063,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 15:19
+Created: 2024-07-05 Fri 16:13
 
 Validate
 

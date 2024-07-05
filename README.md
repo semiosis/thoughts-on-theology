@@ -382,6 +382,14 @@ And brought into doing the will of God:
 
 > **[Romans 15:17-18](https://www.biblegateway.com/passage/?search=Romans%2015%3A17-18&version=ESV)** - In Christ Jesus, then, I have reason to be proud of my work for God. For I will not venture to speak of anything except what Christ has accomplished through me to bring the Gentiles to **obedience—by word and deed,**
 
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+
+Loving God is not actually **first** working for God. Yeah, I agree with John Piper.
+
+The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
+
+I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I just want to obey God now!"
+
 We have confidence when we keep His commandments, believing in the name of God's Son Jesus Christ and loving one another and our heart doesn't condemn us:
 
 > **[I John 3:21-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A21-24&version=ESV)** - Beloved, if our heart does not condemn us, **we have confidence before God**; and <ins>whatever we ask we receive from him</ins>, **because we keep his commandments and do what pleases him**. And this is his commandment, that we **believe in the name of his Son Jesus Christ and love one another**, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
@@ -397,6 +405,10 @@ In Christ Jesus there is freedom from things which were bad for us, including se
 > **[Galatians 5:1-6](https://www.biblegateway.com/passage/?search=Galatians%205%3A1-6&version=ESV)** - **For freedom Christ has set us free**; stand firm therefore, and do not submit again to a yoke of slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed from Christ, you who would be justified by the law; you have fallen away from grace. For **through the Spirit, by faith**, we ourselves eagerly <ins>wait for the hope of righteousness.</ins> For **in Christ Jesus** neither circumcision nor uncircumcision counts for anything, but **only faith working through love**. (ESV)
 
 We are freed from, for example, making the worries of the world our first thought in the day such as thinking always in terms of "will I have enough money, for example", to instead, with the Holy Spirit in us, thinking correctly, having joy in being able to live out the great commandments in actuality, to be able to love God, I believe with our **whole** heart, soul, mind and strength and to love our neighbour as ourselves, and as we abide in Jesus Christ, focused on Jesus as our Pearl of Great Price, obeying God in word and deed, passing-forward Christ's love to others, the blood of Jesus cleanses us from all sin:
+
+> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
 > **[II Corinthians 3:17](https://www.biblegateway.com/passage/?search=2%20Corinthians%203%3A17&version=ESV)** - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
 
@@ -7381,6 +7393,16 @@ It was inevitable. The Scripture **had** to be fulfilled:
 
 ### Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+
+Loving God is not actually **first** working for God. Yeah, I agree with John Piper.
+
+The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
+
+I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I just want to obey God now!"
+
+> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
+
 Even the Apostle Paul explains that our freedom is for serving one another:
 
 > **[Galatians 5:13](https://www.biblegateway.com/passage/?search=Galatians%205%3A13&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but **through love serve one another.** (ESV)
@@ -9327,7 +9349,7 @@ Believing Father God Jehovah, loving Him, obeying His commandments, loving and o
 
 > **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV)** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me.
 
-> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome.
+> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
 Faith doesn't exist without obedience. Obedience doesn't exist without faith. The obedient will love Jesus, obeying Jesus, having faith in Jesus.
 
@@ -12549,7 +12571,7 @@ ONLY **working faith** counts for anything. Even Paul agrees. However, it says '
 
 Loving God is obeying His commandments.
 
-> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome.
+> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
 
 # We must love God
@@ -12621,6 +12643,10 @@ Jesus has to be our Pearl of Great price:
 
 
 ### We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
+
+> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
 Jesus certainly does command us to have emotions for things. For example:
 
@@ -12970,9 +12996,15 @@ The knowledge of Jesus Christ our God and Saviour comes through His words and ob
 
 > **[Matthew 6:19-21](https://www.biblegateway.com/passage/?search=Matthew%206%3A19-21&version=ESV)** - Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also.
 
-***Loving God is obedience to God.***
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome.
+Loving God is not actually **first** working for God. Yeah, I agree with John Piper.
+
+The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
+
+I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I just want to obey God now!"
+
+> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
 AMEN!!
 
@@ -13494,7 +13526,7 @@ Turning.
 
 ## Loving God is obedience to God
 
-> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome.
+> **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
 
 ## The law
@@ -24424,6 +24456,10 @@ I wont allow myself to be buried in condemnation by other people or by the enemy
 Now I'm saying that it's all in God's hands, and I've made an effort to have Jesus as the number one most important person in my life, and I feel like I have a good conscience with God, and I have been acting in truth (I have peace, and joy, and the fruit of the Holy Spirit with my decisions and I wouldn't change much. I'd still have made the proposal. It wasn't a mistake) and trying to conform to God's truth and also, trying to walk with faith in Jesus Christ, and fully with God, to my best endeavor, but God is the justifier. And I am as far as I can tell now in good conscience with God and a bachelor.
 
 > **[I Timothy 1:19](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A19&version=ESV)** - holding faith and a good conscience. By rejecting this, some have made shipwreck of their faith, (ESV)
+
+> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
 I have absolutely no unforgiveness or grudge with anyone involved regarding what has happened with the marriage proposal and I just want God to completely deliver me from the evil.
 
