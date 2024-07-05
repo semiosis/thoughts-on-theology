@@ -2419,7 +2419,47 @@ If you hear Jesus' words which came from God and trust God then you have eternal
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-3.15. Disobedience is sin
+3.15. Treasuring anything else more than God is sin
+
+  Luke 10:27-28 - And he answered, You shall love the Lord your God with all your heart and with all your soul and
+  with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have
+  answered correctly; do this, and you will live. (ESV)
+
+  John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
+  came not of my own accord, but he sent me. (ESV)
+
+youtube.com: Love Jesus More Than You Love Anything
+
+  Philippians 3:8 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my
+  Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ (ESV)
+
+3.15.1. We absolutely cling to Jesus as well
+
+Even regards to the rapture, ultimately we leave this world behind. The present form of it will pass away. I
+believe that if a person has faith for it they will experience this:
+
+  I Corinthians 7:25-31 - Now concerning the betrothed, I have no command from the Lord, but I give my judgment as
+  one who by the Lord's mercy is trustworthy. I think that in view of the present distress it is good for a person
+  to remain as he is. Are you bound to a wife? Do not seek to be free. Are you free from a wife? Do not seek a
+  wife. But if you do marry, you have not sinned, and if a betrothed woman marries, she has not sinned. Yet those
+  who marry will have worldly troubles, and I would spare you that. This is what I mean, brothers: the appointed
+  time has grown very short. From now on, let those who have wives live as though they had none, and those who
+  mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who
+  buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For
+  the present form of this world is passing away. (ESV)
+
+  Luke 20:33-36 - In the resurrection, therefore, whose wife will the woman be? For the seven had her as wife. And
+  Jesus said to them, The sons of this age (G165 aion) marry (G1060 gameo) and are given in marriage (G1061
+  gamisko), but those who are considered worthy to attain to that age (G165 aion) and to the resurrection (G386
+  anastasis) from the dead neither marry nor are given in marriage, for they cannot die anymore, because they are
+  equal to angels and are sons of God, being sons of the resurrection.
+
+This is the best explanation I have found for this:
+
+youtube.com: Strive to let everything bodily die within you, and you will rise before the general resurrection
+
+3.16. Disobedience towards God is sin
 
 Sermon
 God is very happy about obedience, and listening to His word. Disobedience is sin, and disobedience is rejecting
@@ -2451,7 +2491,7 @@ God's commandments through Jesus is within the Law of God:
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law. (ESV)
 
-3.16. God makes us born-again, so we can love Him, obediently
+3.17. God makes us born-again, so we can love Him, obediently
 
   John 3:7 - Do not marvel that I said to you, You must be born again. (ESV)
 
@@ -2809,7 +2849,7 @@ simultaneously, because people misconstrue Jesus' words to their own destruction
   find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves.
   You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles?
 
-3.16.1. The Christian life is both gift and duty
+3.17.1. The Christian life is both gift and duty
 
 Fighting sin is both a gift from God and a duty we act.
 
@@ -2876,7 +2916,7 @@ It seems like we're saved (delivered) from (among other things):
 - [petty] disputing
 - sin that leads to death
 
-3.16.2. God working in us
+3.17.2. God working in us
 
 God loved us first. We must accept that:
 
@@ -2976,7 +3016,7 @@ without partiality.
 
 Also I conclude that obeying Jesus Christ is having faith in Him.
 
-3.16.3. God acts for those who wait for Him
+3.17.3. God acts for those who wait for Him
 
 God wants to be our strength. AMEN!!
 
@@ -3014,7 +3054,7 @@ youtube.com: Everlasting God
   Psalms 82:3-4 - Give justice to the weak and the fatherless; maintain the right of the afflicted and the
   destitute. Rescue the weak and the needy; deliver them from the hand of the wicked. (ESV)
 
-3.16.4. The free gift is God - God is the Gospel
+3.17.4. The free gift is God - God is the Gospel
 
 We get out of the way everything that is an obstacle to enjoying God when we are forgiven. AMEN:
 
@@ -3023,7 +3063,7 @@ We get out of the way everything that is an obstacle to enjoying God when we are
 
   Colossians 1:14 - in whom we have redemption, the forgiveness of sins. (ESV)
 
-3.16.5. God the justifier of the one who has faith in Jesus - the righteousness of God apart from the law is
+3.17.5. God the justifier of the one who has faith in Jesus - the righteousness of God apart from the law is
 received by faith
 
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
@@ -3034,7 +3074,7 @@ received by faith
   over former sins. It was to show his righteousness at the present time, so that he might be just and the
   justifier of the one who has faith in Jesus. (ESV)
 
-3.16.6. The point of justification - we rejoice in the hope of the glory of God, and we are transformed
+3.17.6. The point of justification - we rejoice in the hope of the glory of God, and we are transformed
 
 Sermon
 John Piper: God is the Gospel - YouTube @time: 40 min 42 sec
@@ -3056,7 +3096,7 @@ Not only are we able to behold the glory of God, but we are transformed!
   II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
   into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
-3.16.7. Why do we want to live righteously? To honour Christ
+3.17.7. Why do we want to live righteously? To honour Christ
 
 We want to honour/exalt/magnify Christ in our lives, to trust Him, honour Him, believe His promises, and even
 faithfully wait/hold to those promises, and even want others to see the light of the gospel of the glory of Christ
@@ -3079,7 +3119,7 @@ And have communion with God:
   Revelation of John 3:4 - Yet you have still a few names in Sardis, people who have not soiled their garments,
   and they will walk with me in white, for they are worthy. (ESV)
 
-3.16.8. Under the right conditions, I don't see a problem with 'working' for God
+3.17.8. Under the right conditions, I don't see a problem with 'working' for God
 
 The motivation has to be right. We do work for God to honour God, and as a response to Him loving us first, and as
 a response of love for Him forgiving us first, and giving us the gift of eternal life.
@@ -3223,7 +3263,7 @@ The faith Paul talks about is faith towards God. The faith towards God believes 
 Song
 Hillsong+Delirious? - History Maker - YouTube
 
-3.17. Eternal security for those who follow Jesus
+3.18. Eternal security for those who follow Jesus
 
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube @time: 25 min 13 sec
@@ -3278,7 +3318,7 @@ And following Jesus' commandments we will love one another:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.18. Some indicators to know for SURE you are saved
+3.19. Some indicators to know for SURE you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube @time: 12
@@ -3362,7 +3402,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   various trials, so that the tested genuineness of your faith-more precious than gold that perishes though it is
   tested by fire-may be found to result in praise and glory and honor at the revelation of Jesus Christ. (ESV)
 
-3.19. Indicators that we are of the truth
+3.20. Indicators that we are of the truth
 
 A strong indicator that we are of the truth is that against every condemnation, we know God is greater than our
 heart and knows everything
@@ -35131,7 +35171,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 17:55
+Created: 2024-07-05 Fri 18:30
 
 Validate
 
