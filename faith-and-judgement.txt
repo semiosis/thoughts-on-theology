@@ -370,8 +370,13 @@ AMEN!!
 
 If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls
 us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). Led by the
-Spirit = following Jesus. That's not working but it is walking and it is being obedient to Jesus. The Israelites
-through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+Spirit = following Jesus.
+
+  John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
+  serves me, the Father will honor him. (ESV)
+
+That's not working but it is walking and it is being obedient to Jesus. The Israelites through the Red Sea were
+being led by the Spirit - they were not working for God as they walked in obedience:
 
   Galatians 5:16-18 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
   desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
@@ -2744,8 +2749,13 @@ rather than 'work' in any way that is not in obedience to the gospel:
 
 If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls
 us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). Led by the
-Spirit = following Jesus. That's not working but it is walking and it is being obedient to Jesus. The Israelites
-through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+Spirit = following Jesus.
+
+  John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
+  serves me, the Father will honor him. (ESV)
+
+That's not working but it is walking and it is being obedient to Jesus. The Israelites through the Red Sea were
+being led by the Spirit - they were not working for God as they walked in obedience:
 
   Galatians 5:16-18 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
   desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
@@ -3401,6 +3411,9 @@ youtube.com: The Trademarks of Witchcraft - Derek Prince
 Practicing witchcraft, for example, is definitely not loving your neighbour as yourself.
 
 4.2. Walk by the Spirit = Obey Jesus = Led by the Spirit
+
+  John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
+  serves me, the Father will honor him. (ESV)
 
 4.2.1. God loved us first, and forgave us first
 
@@ -5617,8 +5630,13 @@ Jesus Christ is the Lord referred to:
 
 If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls
 us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). Led by the
-Spirit = following Jesus. That's not working but it is walking and it is being obedient to Jesus. The Israelites
-through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+Spirit = following Jesus.
+
+  John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
+  serves me, the Father will honor him. (ESV)
+
+That's not working but it is walking and it is being obedient to Jesus. The Israelites through the Red Sea were
+being led by the Spirit - they were not working for God as they walked in obedience:
 
   Galatians 5:16-18 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
   desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
@@ -21172,8 +21190,13 @@ and men:
 
 If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls
 us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). Led by the
-Spirit = following Jesus. That's not working but it is walking and it is being obedient to Jesus. The Israelites
-through the Red Sea were being led by the Spirit - they were not working for God as they walked in obedience:
+Spirit = following Jesus.
+
+  John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
+  serves me, the Father will honor him. (ESV)
+
+That's not working but it is walking and it is being obedient to Jesus. The Israelites through the Red Sea were
+being led by the Spirit - they were not working for God as they walked in obedience:
 
   Galatians 5:16-18 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
   desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
@@ -34833,7 +34856,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 11:57
+Created: 2024-07-05 Fri 12:35
 
 Validate
 
