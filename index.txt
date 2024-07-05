@@ -309,7 +309,8 @@ sin. And turning from sin is a loving response to grace given:
 
   Matthew 5:6 - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
-Those who annul and teach others to break the law will be called least in the kingdom. It's not humility to do so.
+Those who annul and teach others to break the law will be 'called' least in the kingdom. It's not humility to do
+so.
 
 - It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong
 - It refuses to acknowledge sin
@@ -569,11 +570,18 @@ love and value other people with that same treasuring love, but God wants Him to
 think we have to make God our number one love.
 
 As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
-It's saying that when we love God then keeping His commandments is unburdensome.
+It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping
+the commandments of God and struggling with sin then we should make Him our number one love heart's desire and
+treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's
+true.
 
 I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
-love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
-just want to obey God now!"
+love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and
+it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"
+
+  John 16:27-28 - for the Father himself loves you, because you have loved me and have believed that I came from
+  God. I came from the Father and have come into the world, and now I am leaving the world and going to the
+  Father. (ESV)
 
 We have confidence when we keep His commandments, believing in the name of God's Son Jesus Christ and loving one
 another and our heart doesn't condemn us:
@@ -609,14 +617,6 @@ correctly, having joy in being able to live out the great commandments in actual
 believe with our whole heart, soul, mind and strength and to love our neighbour as ourselves, and as we abide in
 Jesus Christ, focused on Jesus as our Pearl of Great Price, obeying God in word and deed, passing-forward Christ's
 love to others, the blood of Jesus cleanses us from all sin:
-
-  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
-  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
-  up your face to God. (ESV)
-
-God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
-as ourselves
-youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
 
   II Corinthians 3:17 - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
 
@@ -7114,9 +7114,12 @@ with Christ's love to the end for the sake of truth:
   many false prophets will arise and lead many astray. And because lawlessness will be increased, the love of many
   will grow cold. But the one who endures to the end will be saved. (ESV)
 
-We don't want to cultivate the opposite hate, depression, fear and anxiety, being inconsiderate, abusiveness,
-unwholesomeness, faithlessness, abrasiveness and quick-temperedness by punishing people who are prompted by the
-Holy Spirit to act:
+We don't want to cultivate what is opposite to the fruit of the Spirit; things such as hate, depression, fear and
+anxiety, being inconsiderate, abusiveness, unwholesomeness, faithlessness, abrasiveness and quick-temperedness by
+punishing people who are prompted by the Holy Spirit to act.
+
+But if we are afraid we should seek to have a genuine affection for God, loving Him with our whole heart, and seek
+to obey Jesus and build one another up in love, and that should cast out fear:
 
   I John 4:18 - There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and
   whoever fears has not been perfected in love. (ESV)
@@ -10796,11 +10799,14 @@ love and value other people with that same treasuring love, but God wants Him to
 think we have to make God our number one love.
 
 As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
-It's saying that when we love God then keeping His commandments is unburdensome.
+It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping
+the commandments of God and struggling with sin then we should make Him our number one love heart's desire and
+treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's
+true.
 
 I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
-love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
-just want to obey God now!"
+love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and
+it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"
 
   I John 5:2-3 - By this we know that we love the children of God, when we love God and obey his commandments. For
   this is the love of God, that we keep his commandments. And his commandments are not burdensome.
@@ -18961,11 +18967,14 @@ love and value other people with that same treasuring love, but God wants Him to
 think we have to make God our number one love.
 
 As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
-It's saying that when we love God then keeping His commandments is unburdensome.
+It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping
+the commandments of God and struggling with sin then we should make Him our number one love heart's desire and
+treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's
+true.
 
 I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
-love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
-just want to obey God now!"
+love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and
+it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"
 
   I John 5:2-3 - By this we know that we love the children of God, when we love God and obey his commandments. For
   this is the love of God, that we keep his commandments. And his commandments are not burdensome.
@@ -26349,8 +26358,8 @@ Quote from Martin Luther King Jr.:
 
   Matthew 5:6 - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
 
-Those who annul and teach others to break the law will be called least in the kingdom. It's not humility to do
-so.
+Those who annul and teach others to break the law will be 'called' least in the kingdom. It's not humility to
+do so.
 
 - It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong
 - It refuses to acknowledge sin
@@ -35089,7 +35098,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 16:52
+Created: 2024-07-05 Fri 17:37
 
 Validate
 
