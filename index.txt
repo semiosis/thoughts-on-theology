@@ -1,15 +1,19 @@
 Thoughts on Faith and Judgement
 
 This document has been a work in progress. I have been born-again and have done my own Bible study to be taught
-and be corrected by the word of God, and I'm happy with what I have written here. I'm trying to speak the truth in
-mercy. This document shows my current understanding at the time of writing. I'm not judging people. This is just a
-Bible study. I have just wanted to read the Bible for myself to understand and apply the Scriptures, come into
-agreement with God's Truth and share my understanding it with others for accountability purposes, and also affirm
-truth as I am renewed in mind by it. I don't presume to be always right. I've also added parts of my own
-testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in God through
-Jesus Christ.
+and be corrected by the word of God, and I'm feeling confident with what I have written here, if I have said
+anything in error I pray that it would be corrected. I'm trying to speak the truth in mercy. This document shows
+my current understanding at the time of writing. I'm not judging people. This is just a Bible study. I have just
+wanted to read the Bible for myself to understand and apply the Scriptures, come into agreement with God's Truth
+and share my understanding it with others for accountability purposes, and also affirm truth as I am renewed in
+mind by it. I don't presume to be always right. I've also added parts of my own testimony. It's my hope that this
+Bible study helps other people to come to the obedience of faith in God through Jesus Christ.
 
   Psalms 119:105 - Your word is a lamp to my feet and a light to my path. (ESV)
+
+  Job 42:7 - After the LORD had spoken these words to Job, the LORD said to Eliphaz the Temanite: My anger burns
+  against you and against your two friends, for you have not spoken of me what is right, as my servant Job has.
+  (ESV)
 
   I agree whole heartedly with Keith Green here:
 
@@ -2169,7 +2173,8 @@ I believe that becoming the righteousness of God is cooperative in that we allow
 and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking in faith, and
 behaving as one of God's children is how we receive and walk into the kingdom which is given to us and that
 walking (living, katergazomai) in a childlike faith in Jesus is how we have the righteousness that is by faith.
-Living by faith is walking in faith, is following Jesus:
+Living by faith is walking in faith, is following Jesus. I really wish there was not a chapter break between these
+two verses because it's revealing to to read them side by side:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
@@ -2700,6 +2705,9 @@ We need to perform our salvation in obedience to God:
 
 Sermon
 youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty
+
+Sermon
+youtube.com: Be Who You Are: Living Out Identity in Christ, Part 1
 
 Jesus first made Paul His own, now Paul wants to press on to perfection/completion:
 
@@ -4844,10 +4852,25 @@ Holy Spirit:
 
 I believe that cessationists are in error. Modern-day apostles, I believe, like branches on a tree, still branch
 from the original Apostles, and should preach the same Jesus, and the same gospel, in the same Spirit, and any
-apostle must have Jesus as their cornerstone. I believe Jesus still appoints apostles, and I'm prophetic myself so
-I have no doubts regarding this. I personally still see all things being placed into subjection under Christ and
-have no reason to think that Jesus has stopped appointing apostles and prophets as God is growing and guiding His
-church:
+apostle must have Jesus as their cornerstone:
+
+  Matthew 7:14-20 - For the gate is narrow and the way is hard that leads to life, and those who find it are few.
+  Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will
+  recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles? So, every healthy
+  tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor can a
+  diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the fire.
+  Thus you will recognize them by their fruits. (ESV)
+
+We have the opportunity to receive correction from God and make the tree good and its fruit good:
+
+  Matthew 12:33-35 - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the
+  tree is known by its fruit. You brood of vipers! How can you speak good, when you are evil? For out of the
+  abundance of the heart the mouth speaks. The good person out of his good treasure brings forth good, and the
+  evil person out of his evil treasure brings forth evil. (ESV)
+
+I believe Jesus still appoints apostles, and I'm prophetic myself so I have no doubts regarding this. I personally
+still see all things being placed into subjection under Christ and have no reason to think that Jesus has stopped
+appointing apostles and prophets as God is growing and guiding His church:
 
   Ephesians 2:20-22 - built on the foundation of the apostles and prophets, Christ Jesus himself being the
   cornerstone, in whom the whole structure, being joined together, grows into a holy temple in the Lord. In him
@@ -4919,6 +4942,9 @@ I agree whole heartedly with this guy:
 - Are All Christians Disciples? (Lordship Salvation)
 
 I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian.
+
+  II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
+  into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
 Jesus said to these believers that if they abide in His word (and I believe that means keep His word, even in
 obedience), they are His disciples - so a person can be a believer before they are a disciple. But we're supposed
@@ -11936,6 +11962,11 @@ submit and follow Jesus' commandments
   was a son, he learned obedience through what he suffered. And being made perfect, he became the source of
   eternal salvation to all who obey him, being designated by God a high priest after the order of Melchizedek.
 
+ 2. Become what we are by identity - put to death the old leaven
+
+After being born-again and placed into Christ, we must put to death the old leaven. We consider ourselves dead
+to sin and alive from the dead.
+
 I believe that after being born-again of the spirit, I had (with very little knowledge of Jesus' commandments)
 had to learn Jesus' commandments and apply them, and I believe the Holy Spirit taught me to obey Jesus as I
 read Jesus' sayings and was subsequently tested on those sayings. For example, if I read that we must give to
@@ -11946,6 +11977,29 @@ Spirit, and taught by the Holy Spirit. And this is an ongoing process. I say thi
 how I have come to know how faith in Jesus, following Jesus, works practically, that it is more than mere
 intellectual belief to be led by the Spirit, but it is also obedience, and a process of sanctification, and
 walking in the light which involves walking in love characteristic of Christ's love.
+
+Sermon
+youtube.com: Be Who You Are: Living Out Identity in Christ, Part 1
+
+Those who have been united with Christ really are in reality an 'unleavened' lump, and we attack the old
+leaven to get it out. We have been made new with union in Christ, and then we must then become in experience
+what we are in reality. The old leaven lingers, so we attack the remaining leaven:
+
+  I Corinthians 5:6-7 - Your boasting is not good. Do you not know that a little leaven leavens the whole
+  lump? Cleanse out the old leaven that you may be a new lump, as you really are unleavened. For Christ, our
+  Passover lamb, has been sacrificed. (ESV)
+
+We must consider ourselves dead to sin and alive to God:
+
+  Romans 6:2,11 - By no means! How can we who died to sin still live in it? So you also must consider
+  yourselves dead to sin and alive to God in Christ Jesus. (ESV)
+
+Because we have died and our life is hidden with Christ in God we should put to death what is earthly in us.
+We are really unleavened so we should cleanse out the old leaven:
+
+  Colossians 3:3-5 - For you have died, and your life is hidden with Christ in God. When Christ who is your
+  life appears, then you also will appear with him in glory. Put to death therefore what is earthly in you:
+  sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. (ESV)
 
 II John 1:1-11 highlights:
 
@@ -12819,7 +12873,9 @@ Jesus:
   II Corinthians 5:21 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. (ESV)
 
-We are healed by His wounds - a lot of Christians try to suppress the "We are healed" bit:
+We are healed by His wounds - a lot of Christians try to suppress the "We are healed" bit. We should also notice
+that healing comes with stopping sinning. Jesus bore our sins in His body on the tree so that we might stop
+sinning and live righteous lives in holiness and doing good:
 
   I Peter 2:24 - He himself bore our sins in his body on the tree, that we might die to sin and live to
   righteousness. By his wounds you have been healed. (ESV)
@@ -12827,7 +12883,8 @@ We are healed by His wounds - a lot of Christians try to suppress the "We are he
 I think we should always be seeking the glory of our Jesus Christ, not seeking our own glory. Personally, my
 motivations for writing this Bible Study document, and for 'good works' etc. is simply because:
 
-- I am remorseful for the sin which I've had in my life
+- I am remorseful for the sin which I've had in my life and want to be healed so that I no longer serve sin, but
+instead I live to righteousness (being obedient to God)
 - I want to serve God, and I want to live in the truth
 - I have a lot of joy in showing people that Jesus Christ is real
 - I want to love Jesus. It seems to me like it's the reason for living
@@ -12877,7 +12934,9 @@ Jesus:
   II Corinthians 5:21 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. (ESV)
 
-We are healed by His wounds - a lot of Christians try to suppress the "We are healed" bit:
+We are healed by His wounds - a lot of Christians try to suppress the "We are healed" bit. We should also notice
+that healing comes with stopping sinning. Jesus bore our sins in His body on the tree so that we might stop
+sinning and live righteous lives in holiness and doing good:
 
   I Peter 2:24 - He himself bore our sins in his body on the tree, that we might die to sin and live to
   righteousness. By his wounds you have been healed. (ESV)
@@ -34940,7 +34999,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 14:22
+Created: 2024-07-05 Fri 15:19
 
 Validate
 
