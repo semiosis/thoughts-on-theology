@@ -7252,7 +7252,7 @@ Names have power. Jesus' name is above every other name:
 
 ## Faith, Law, Works
 
-We must live by law of God:
+We must live by and within the law of God:
 
 > **[Proverbs 28:9](https://www.biblegateway.com/passage/?search=Proverbs%2028%3A9&version=ESV)** - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
@@ -7260,11 +7260,21 @@ Christians are under the law of Christ, which is within the law of God:
 
 > **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but <ins>under the law of Christ</ins>) that I might win those outside the law.
 
-A result of abiding by the law of God is that people will love God and one another. On the other hand, not abiding in the law of God will result in people's love growing cold:
+A result of abiding by the law of God and our accountability to God for the law of Christ is that people will love God and one another. On the other hand, as a result of obeying impurity and obeying lawlessness, and as a result of not abiding by the law of God, people's love grows cold, and the willful sinning of obeying impurity and lawlessness leads to an eventual death:
 
 > 
 > 
 > **[Matthew 24:12](https://www.biblegateway.com/passage/?search=Matthew%2024%3A12&version=ESV)** - And because lawlessness will be increased, the love of many will grow cold. (ESV)
+
+Even though we are under grace, we must still obey God for the hope of righteousness, and we must not obey impurity, and we must not obey lawlessness. We must obey God, and certainly we must turn from our sin and practice righteousness and we rely on God to help us do that:
+
+> **[Romans 6:14-19](https://www.biblegateway.com/passage/?search=Romans%206%3A14-19&version=ESV)** - For sin will have no dominion over you, since you are *not under law but under grace*. What then? Are we to sin because we are not under law but under grace? By no means! Do you not know that if you present yourselves to anyone as obedient slaves, **you are slaves of the one whom you obey**, either of sin, which leads to death, or of **obedience, which leads to righteousness?** But thanks be to God, that you who **were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed,** and, having been set free from sin, have become **slaves of righteousness.** I am speaking in human terms, because of your natural limitations. For just as you <ins>once presented your members as slaves to impurity and to lawlessness leading to more lawlessness,</ins> so now present your members as slaves to righteousness leading to sanctification. (ESV)
+
+> **[I Peter 5:10](https://www.biblegateway.com/passage/?search=1%20Peter%205%3A10&version=ESV)** - And after you have suffered a little while, the God of all grace, who has called you to his eternal glory in Christ, will himself restore, confirm, strengthen, and establish you. (ESV)
+
+By obedience to God we work out our salvation:
+
+> **[Galatians 5:5](https://www.biblegateway.com/passage/?search=Galatians%205%3A5&version=ESV)** - For through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. (ESV)
 
 
 ### Love is defined by Jesus
