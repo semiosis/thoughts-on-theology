@@ -3972,6 +3972,8 @@ in living testimony we should teach others to walk the way of righteousness:
 
   John 6:33 - For the bread of God is he who comes down from heaven and gives life to the world.
 
+Repentance leads to the knowledge of the truth, and ceasing to do the devil's will:
+
   II Timothy 2:24-26 - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach,
   patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading
   to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do
@@ -11408,6 +11410,23 @@ than fill my mind with other people's doctrines and religion, we should obey God
 Also endeavor to also do lots of service as that is what Jesus' Kingdom is all about.
 
 14. Repentance from sin
+
+Repentance leads to the knowledge of the truth, and ceasing to do the devil's will:
+
+  II Timothy 2:24-26 - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach,
+  patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading
+  to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do
+  his will. (ESV)
+
+We must cease to do the devil's will:
+
+  Hebrews 10:26-31 - For if we go on sinning deliberately after receiving the knowledge of the truth, there no
+  longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume
+  the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three
+  witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God,
+  and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? For
+  we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a
+  fearful thing to fall into the hands of the living God. (ESV)
 
 14.1. Parable of the prodigal son - God's joy over a sinner that repents from sin
 
@@ -28029,6 +28048,15 @@ brought into obedience to God, and into loving God and your neighbour.
   Matthew 12:33 - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the
   tree is known by its fruit.
 
+Repentance leads to the knowledge of the truth, and ceasing to do the devil's will:
+
+  II Timothy 2:24-26 - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach,
+  patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading
+  to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do
+  his will. (ESV)
+
+We must cease to do the devil's will:
+
   Hebrews 10:26-31 - For if we go on sinning deliberately after receiving the knowledge of the truth, there no
   longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume
   the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three
@@ -34856,7 +34884,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 12:35
+Created: 2024-07-05 Fri 12:54
 
 Validate
 

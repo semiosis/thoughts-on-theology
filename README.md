@@ -2626,7 +2626,9 @@ The original Apostles were instructed to feed Jesus' sheep with the living bread
 
 > **[John 6:33](https://www.biblegateway.com/passage/?search=John%206%3A33&version=ESV)** - For the bread of God is he who comes down from heaven and gives life to the world.
 
-> **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do his will. (ESV)
+Repentance leads to the knowledge of the truth, and ceasing to do the devil's will:
+
+> **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them **repentance leading to a knowledge of the truth,** and **they may escape from the snare of the devil**, after being **captured by him to do his will.** (ESV)
 
 
 ## Even the Old Testament makes a person wise for salvation through faith in Christ Jesus:
@@ -7810,6 +7812,14 @@ Also endeavor to also do lots of service as that is what Jesus' Kingdom is all a
 
 # Repentance from sin
 
+Repentance leads to the knowledge of the truth, and ceasing to do the devil's will:
+
+> **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them **repentance leading to a knowledge of the truth,** and **they may escape from the snare of the devil**, after being **captured by him to do his will.** (ESV)
+
+We must cease to do the devil's will:
+
+> **[Hebrews 10:26-31](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-31&version=ESV)** - For **if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment**, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has **outraged the Spirit of grace?** For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall into the hands of the living God. (ESV)
+
 
 ## Parable of the prodigal son - God's joy over a sinner that repents from sin
 
@@ -12741,7 +12751,7 @@ Being washed, we ought to wash one another's feet:
 
 Correct others with gentleness:
 
-> **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do his will. (ESV)
+> **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them **repentance leading to a knowledge of the truth,** and **they may escape from the snare of the devil**, after being **captured by him to do his will.** (ESV)
 
 
 ## Entering into life / the Kingdom of Heaven
@@ -19758,7 +19768,13 @@ Grace given through faith alone is not license to sin, but the power of salvatio
 
 > **[Matthew 12:33](https://www.biblegateway.com/passage/?search=Matthew%2012%3A33&version=ESV)** - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the tree is known by its fruit.
 
-> **[Hebrews 10:26-31](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-31&version=ESV)** - For if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall into the hands of the living God. (ESV)
+Repentance leads to the knowledge of the truth, and ceasing to do the devil's will:
+
+> **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them **repentance leading to a knowledge of the truth,** and **they may escape from the snare of the devil**, after being **captured by him to do his will.** (ESV)
+
+We must cease to do the devil's will:
+
+> **[Hebrews 10:26-31](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-31&version=ESV)** - For **if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment**, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has **outraged the Spirit of grace?** For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall into the hands of the living God. (ESV)
 
 The big forgiveness, and that we must stop sinning to be provided an entrance into the eternal kingdom of our Lord and Saviour Jesus Christ:
 
