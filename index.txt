@@ -3840,10 +3840,43 @@ Priorities:
   Matthew 6:24 - No one can serve two masters, for either he will hate the one and love the other, or he will be
   devoted to the one and despise the other. You cannot serve God and money. (ESV)
 
-You cannot make money master over you. We must accept Jesus as Master over us. In order to follow Jesus, sometimes
-You will have to drop money because there are many people you around you who need you to lighten their burdens!
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
 
-OBEDIENCE!
+God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
+as ourselves
+youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
+
+You cannot make money master over you. We must accept Jesus as Master over us. But not just that. We have to want
+God, treasure God and love God. And that means loving Him, treasure Him, love Him in trust and in belief and
+obedience. In order to follow Jesus, sometimes You will have to drop money because there are many people you
+around you who need you to lighten their burdens. But we have to root the love of it out our own hearts and love
+God with our whole heart, and trust God who is our life!
+
+  Luke 12:23 - For life is more than food, and the body more than clothing. (ESV)
+
+youtube.com: JESUS | Full Album | Jesus Image @time: 21 min 58 sec
+God You're still good and I thank You for what we do have. We may not have all that we've been asking for but we
+thank You that we have everything that we need because we have You, Jesus!
+
+AMEN!!
+
+  Deuteronomy 30:6 - And the LORD your God will circumcise your heart and the heart of your offspring, so that you
+  will love the LORD your God with all your heart and with all your soul, that you may live. (ESV)??
+
+  I John 2:15-17 - Do not love the world nor the things in the world. If anyone loves the world, the love of the
+  Father is not in him. For all that is in the world, the lust of the flesh and the lust of the eyes and the
+  boastful pride of life, is not from the Father, but is from the world. The world is passing away, and also its
+  lusts; but the one who does the will of God lives forever.??
+
+  John 14:15-21 - If you love me, you will keep my commandments. And I will ask the Father, and he will give you
+  another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it
+  neither sees him nor knows him. You know him, for he dwells with you and will be in you. I will not leave you as
+  orphans; I will come to you. Yet a little while and the world will see me no more, but you will see me. Because
+  I live, you also will live. In that day you will know that I am in my Father, and you in me, and I in you.
+  Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my
+  Father, and I will love him and manifest myself to him. (ESV)??
 
 Sermon
 Seven Reasons We Must Pursue Supreme Satisfaction in God - YouTube
@@ -35098,7 +35131,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 17:37
+Created: 2024-07-05 Fri 17:55
 
 Validate
 

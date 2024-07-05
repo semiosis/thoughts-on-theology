@@ -2530,9 +2530,23 @@ Priorities:
 
 > **[Matthew 6:24](https://www.biblegateway.com/passage/?search=Matthew%206%3A24&version=ESV)** - No one can serve two masters, for either he will hate the one and love the other, or he will be devoted to the one and despise the other. You cannot serve God and money. (ESV)
 
-You cannot make money master over you. We must accept Jesus as Master over us. In order to follow Jesus, sometimes You will **have to** drop money because there are many people you around you who need you to lighten their burdens!
+> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
-OBEDIENCE!
+-   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+
+You cannot make money master over you. We must accept Jesus as Master over us. But not just that. We have to want God, treasure God and love God. And that means loving Him, treasure Him, love Him in trust and in belief and obedience. In order to follow Jesus, sometimes You will **have to** drop money because there are many people you around you who need you to lighten their burdens. But we have to root the love of it out our own hearts and love God with our whole heart, and trust God who is our life!
+
+> **[Luke 12:23](https://www.biblegateway.com/passage/?search=Luke%2012%3A23&version=ESV)** - For life is more than food, and the body more than clothing. (ESV)
+
+-   **[youtube.com: JESUS | Full Album | Jesus Image @time: 21 min 58 sec](https://youtube.com/watch?v=XcR-wbN3vIc&t=1318):** God You're still good and I thank You for what we do have. We may not have all that we've been asking for but we thank You that we have everything that we need because we have You, Jesus!
+
+AMEN!!
+
+> **[Deuteronomy 30:6](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A6&version=ESV)** - And **the LORD your God will circumcise your heart** and the heart of your offspring, so that you will **love the LORD your God** <ins>with all your heart and with all your soul</ins>, **that you may live**. (ESV)􀀁􆸐
+
+> **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love the world nor the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world, the lust of the flesh and the lust of the eyes and the boastful pride of life, is not from the Father, but is from the world. The world is passing away, and also its lusts; but the one who does the will of God lives forever.􀀢􂌺
+
+> **[John 14:15-21](https://www.biblegateway.com/passage/?search=John%2014%3A15-21&version=ESV)** - If you love me, you will keep my commandments. And I will ask the Father, and he will give you another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for <ins>he dwells with you</ins> and <ins>will be **in** you</ins>. I will not leave you as orphans; I will come to you. Yet a little while and the world will see me no more, but you will see me. Because I live, you also will live. In that day you will know that I am in my Father, and you in me, and I in you. Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)􀀑􋯞
 
 -   **Sermon:** [Seven Reasons We Must Pursue Supreme Satisfaction in God - YouTube](https://www.youtube.com/watch?v=aUPSZBm1OjY)
 
