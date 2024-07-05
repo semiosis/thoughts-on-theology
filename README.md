@@ -382,11 +382,13 @@ And brought into doing the will of God:
 
 > **[Romans 15:17-18](https://www.biblegateway.com/passage/?search=Romans%2015%3A17-18&version=ESV)** - In Christ Jesus, then, I have reason to be proud of my work for God. For I will not venture to speak of anything except what Christ has accomplished through me to bring the Gentiles to **obedience—by word and deed,**
 
+> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+
 -   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-Loving God is not actually **first** working for God. Yeah, I agree with John Piper.
+Yeah, I agree with John Piper. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise, and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
 
-The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
+As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
 
 I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I just want to obey God now!"
 
@@ -7393,11 +7395,13 @@ It was inevitable. The Scripture **had** to be fulfilled:
 
 ### Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
+> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+
 -   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-Loving God is not actually **first** working for God. Yeah, I agree with John Piper.
+Yeah, I agree with John Piper. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise, and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
 
-The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
+As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
 
 I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I just want to obey God now!"
 
@@ -12998,9 +13002,9 @@ The knowledge of Jesus Christ our God and Saviour comes through His words and ob
 
 -   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-Loving God is not actually **first** working for God. Yeah, I agree with John Piper.
+Yeah, I agree with John Piper. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise, and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
 
-The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
+As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome.
 
 I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I just want to obey God now!"
 

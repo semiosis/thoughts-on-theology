@@ -552,14 +552,24 @@ And brought into doing the will of God:
   speak of anything except what Christ has accomplished through me to bring the Gentiles to obedience-by word and
   deed,
 
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
+
 God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
 as ourselves
 youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
 
-Loving God is not actually first working for God. Yeah, I agree with John Piper.
+Yeah, I agree with John Piper. Loving God is not actually first working for God. But it is to truly desire God,
+and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise, and to honour God,
+and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus
+says that if we love Him then we will keep His commandments. We want to keep His commandments so I believe we
+should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also
+love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I
+think we have to make God our number one love.
 
-The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that
-when we love God then keeping His commandments is unburdensome.
+As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
+It's saying that when we love God then keeping His commandments is unburdensome.
 
 I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
 love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
@@ -10769,14 +10779,24 @@ It was inevitable. The Scripture had to be fulfilled:
 11.8.3. Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the
 Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
+
 God wants us to love Him, treasure Him, value Him with all our heart, and love and value and treasure one another
 as ourselves
 youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
 
-Loving God is not actually first working for God. Yeah, I agree with John Piper.
+Yeah, I agree with John Piper. Loving God is not actually first working for God. But it is to truly desire God,
+and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise, and to honour God,
+and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus
+says that if we love Him then we will keep His commandments. We want to keep His commandments so I believe we
+should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also
+love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I
+think we have to make God our number one love.
 
-The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that
-when we love God then keeping His commandments is unburdensome.
+As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
+It's saying that when we love God then keeping His commandments is unburdensome.
 
 I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
 love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
@@ -18932,10 +18952,16 @@ God wants us to love Him, treasure Him, value Him with all our heart, and love a
 as ourselves
 youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec
 
-Loving God is not actually first working for God. Yeah, I agree with John Piper.
+Yeah, I agree with John Piper. Loving God is not actually first working for God. But it is to truly desire God,
+and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise, and to honour God,
+and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus
+says that if we love Him then we will keep His commandments. We want to keep His commandments so I believe we
+should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also
+love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I
+think we have to make God our number one love.
 
-The following isn't saying that God's commandments are universally unburdensome to all people. It's saying that
-when we love God then keeping His commandments is unburdensome.
+As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
+It's saying that when we love God then keeping His commandments is unburdensome.
 
 I feel like I could still say, "Loving God is obedience to God," but I would rather rephrase it as, "God in His
 love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life. I
@@ -35063,7 +35089,7 @@ Date: 2024-07-05 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-05 Fri 16:13
+Created: 2024-07-05 Fri 16:52
 
 Validate
 
