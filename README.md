@@ -15092,6 +15092,31 @@ The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are 
 > **[Galatians 3:11](https://www.biblegateway.com/passage/?search=Galatians%203%3A11&version=ESV)** - Now it is evident that no one is justified before God by the law, for The righteous shall **live by** faith. (ESV)
 
 
+### Accept the free gift which is by grace and not of our own merit
+
+In believing in Jesus, we are guaranteed an inheritance in heaven:
+
+> **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV),14** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
+
+The inheritance is in heaven:
+
+> **[I Peter 1:4](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A4&version=ESV)** - to obtain an inheritance which is imperishable and undefiled and will not fade away, reserved in heaven for you, (ESV)
+
+We work for the Lord while believing in Jesus:
+
+> **[Colossians 3:23-25](https://www.biblegateway.com/passage/?search=Colossians%203%3A23-25&version=ESV)** - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid back for the wrong he has done, and there is no partiality. (ESV)
+
+So once again, we are actually instructed to work for God, but it's not wrong under the right conditions.
+
+All the Apostle Paul is saying here, I think is that in "working for God" doesn't imply you have accepted a gift. But, yes, you **can** accept the gift (believe in Jesus) and under that condition work for God:
+
+> **[Romans 4:4](https://www.biblegateway.com/passage/?search=Romans%204%3A4&version=ESV)** - Now to the one who works, his wages are not counted as a gift but as his due. (ESV)
+
+We still really do need to accept the free gift! Actually, it's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God:
+
+> **[Romans 4:5-8](https://www.biblegateway.com/passage/?search=Romans%204%3A5-8&version=ESV)** - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not count his sin. (ESV)
+
+
 ### Love God - treasure God, believe in God, obey God, trust in God. Keep His commandments and hold faith in His promises
 
 > **[James 2:1-9](https://www.biblegateway.com/passage/?search=James%202%3A1-9&version=ESV)** - My brothers, show no partiality as you hold the faith in our Lord Jesus Christ, the Lord of glory. For if a man wearing a gold ring and fine clothing comes into your assembly, and a poor man in shabby clothing also comes in, and if you pay attention to the one who wears the fine clothing and say, You sit here in a good place, while you say to the poor man, You stand over there, or, Sit down at my feet, have you not then made distinctions among yourselves and become judges with evil thoughts? Listen, my beloved brothers, has not **God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him?** But you have dishonored the poor man. Are not the rich the ones who oppress you, and the ones who drag you into court? Are they not the ones who blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as transgressors. (ESV)
@@ -16945,6 +16970,52 @@ Even the animals went into the ark two by two, <ins>male with their female</ins>
 Noah still had a wife, a believing wife, I assume.
 
 > **[Matthew 24:38](https://www.biblegateway.com/passage/?search=Matthew%2024%3A38&version=ESV)** - For as in those days before the flood they were eating and drinking, marrying and giving in marriage, until the day that Noah entered the ark,
+
+God has to be the lover of our soul.
+
+-   **[Quote by Tim Keller](https://www.youtube.com/watch?v=VcuE9ewrwVw):** If it's not God who's meaning is the source of your meaning, who's affirmation is the source of your self-worth, and who's power is the source of security, you're in bed with something spiritually, something you've given yourself to in realms so deep and so profound that God here is saying, "you are every bit spiritually beholden to it as you are physically beholden. You are every bit spiritually laid out as spread out as vulnerable to it spiritually as you are physically when you're having sex with someone. You're doing the very same thing spiritually that you do in bed with someone physically.
+
+
+### The spiritual marriage belongs to Christ
+
+> **[II Corinthians 11:2-4](https://www.biblegateway.com/passage/?search=2%20Corinthians%2011%3A2-4&version=ESV)** - I feel a divine jealousy for you, for I betrothed you to one husband, to present you as a pure virgin to Christ. But I am afraid that as the serpent deceived Eve by his cunning, your thoughts will be led astray from a sincere and pure devotion to Christ. For if someone comes and proclaims another Jesus than the one we proclaimed, or if you receive a different spirit from the one you received, or if you accept a different gospel from the one you accepted, you put up with it readily enough. (ESV)
+
+I had considered that marriage should be laser
+precision close so that nothing is able to
+cause disunity, but that's actually what God
+wants us to be like with Him first and foremost.
+
+Marriage should be holy, it should be in the Lord and we are espoused to Christ.
+
+This was a good sermon on the topic I watched today:
+
+-   **Sermon:** [youtube.com: How Sin Makes Us Addicts - Timothy Keller](https://www.youtube.com/watch?v=VcuE9ewrwVw)
+
+> **[Joshua 22:5](https://www.biblegateway.com/passage/?search=Joshua%2022%3A5&version=ESV)** - Only be very careful to observe the commandment and the law that Moses the servant of the LORD commanded you, to love the LORD your God, and to walk in all his ways and to keep his commandments and to **cling to him** and to serve him with all your heart and with all your soul. (ESV)
+
+In all honesty, I think it's valuable that a Christian marriage couple should still seek to cling to each other. It should be very, very close, so that no lawless spirits try to break the unity. Only God can lawfully separate a marriage partner:
+
+> **[Matthew 19:5-6](https://www.biblegateway.com/passage/?search=Matthew%2019%3A5-6&version=ESV)** - and said, Therefore a man shall leave his father and his mother and hold fast to his wife, and they shall become one flesh? So they are no longer two but one flesh. What therefore God has joined together, let not man separate. (ESV)
+
+Like getting all the air bubbles out of bubble wrap before getting married. It's a precision thing, I think. But the most important thing is it's in the Lord.
+
+> **[I Corinthians 7:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A14&version=ESV)** - For the unbelieving husband is made holy because of his wife, and the unbelieving wife is made holy because of her husband. Otherwise your children would be unclean, but as it is, they are holy. (ESV)
+
+-   **[youtube.com: Building the ULTIMATE Vintage City Street DIORAMA](https://www.youtube.com/watch?v=Vz8X_Ndnwl4):** Someone commented, "I’m still watching but I am taking a second to tell you that I think that your idea about using the spray glue to attach the windows is genius! You’re right, no fingerprints, no glue smudges, just gorgeous!"
+
+
+## Marriage is still good but so is singleness
+
+> **[I Corinthians 7:37-40](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A37-40&version=ESV)** - But whoever is firmly established in his heart, being under no necessity but having his desire under control, and has determined this in his heart, to keep her as his betrothed, he will do well. So then **he who marries his betrothed does well, and he who refrains from marriage will do even better.** A wife is bound to her husband as long as he lives. But if her husband dies, she is free to be married to whom she wishes, only in the Lord. Yet in my judgment she is happier if she remains as she is. And I think that I too have the Spirit of God. (ESV)
+
+
+## Spiritual attraction: God must be our spiritual spouse and if it's not God, then it's something else
+
+-   **Sermon:** [youtube.com: How Sin Makes Us Addicts - Timothy Keller](https://www.youtube.com/watch?v=VcuE9ewrwVw)
+
+> **[Jeremiah 2:1-8](https://www.biblegateway.com/passage/?search=Jeremiah%202%3A1-8&version=ESV)** - The word of the LORD came to me, saying, Go and proclaim in the hearing of Jerusalem, Thus says the LORD, I remember the devotion of your youth, your love as a bride, how you followed me in the wilderness, in a land not sown. Israel was holy to the LORD, the firstfruits of his harvest. All who ate of it incurred guilt; disaster came upon them, declares the LORD. Hear the word of the LORD, O house of Jacob, and all the clans of the house of Israel. Thus says the LORD: What wrong did your fathers find in me that they went far from me, and went after worthlessness, and became worthless? They did not say, Where is the LORD who brought us up from the land of Egypt, who led us in the wilderness, in a land of deserts and pits, in a land of drought and deep darkness, in a land that none passes through, where no man dwells? And I brought you into a plentiful land to enjoy its fruits and its good things. But when you came in, you defiled my land and made my heritage an abomination. The priests did not say, Where is the LORD? Those who handle the law did not know me; the shepherds transgressed against me; the prophets prophesied by Baal and went after things that do not profit. (ESV)
+
+> **[Jeremiah 2:23-32](https://www.biblegateway.com/passage/?search=Jeremiah%202%3A23-32&version=ESV)** - How can you say, I am not unclean, I have not gone after the Baals? Look at your way in the valley; know what you have done— a restless young camel running here and there, a wild donkey used to the wilderness, in her heat sniffing the wind! Who can restrain her lust? None who seek her need weary themselves; in her month they will find her. Keep your feet from going unshod and your throat from thirst. But you said, It is hopeless, for I have loved foreigners, and after them I will go. As a thief is shamed when caught, so the house of Israel shall be shamed: they, their kings, their officials, their priests, and their prophets, who say to a tree, You are my father, and to a stone, You gave me birth. For they have turned their back to me, and not their face. But in the time of their trouble they say, Arise and save us! But where are your gods that you made for yourself? Let them arise, if they can save you, in your time of trouble; for as many as your cities are your gods, O Judah. Why do you contend with me? You have all transgressed against me, declares the LORD. In vain have I struck your children; they took no correction; your own sword devoured your prophets like a ravening lion. And you, O generation, behold the word of the LORD. Have I been a wilderness to Israel, or a land of thick darkness? Why then do my people say, We are free, we will come no more to you? Can a virgin forget her ornaments, or a bride her attire? Yet my people have forgotten me days without number. (ESV)
 
 
 ## Covenant marriage is great, but for the Gentiles who turn to God, it's not essentially required to burden them beyond abstaining from sexual immorality

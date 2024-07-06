@@ -24390,7 +24390,99 @@ Noah still had a wife, a believing wife, I assume.
   Matthew 24:38 - For as in those days before the flood they were eating and drinking, marrying and giving in
   marriage, until the day that Noah entered the ark,
 
-51.5. Covenant marriage is great, but for the Gentiles who turn to God, it's not essentially required to burden them
+God has to be the lover of our soul.
+
+Quote by Tim Keller
+If it's not God who's meaning is the source of your meaning, who's affirmation is the source of your self-worth,
+and who's power is the source of security, you're in bed with something spiritually, something you've given
+yourself to in realms so deep and so profound that God here is saying, "you are every bit spiritually beholden to
+it as you are physically beholden. You are every bit spiritually laid out as spread out as vulnerable to it
+spiritually as you are physically when you're having sex with someone. You're doing the very same thing
+spiritually that you do in bed with someone physically.
+
+51.4.1. The spiritual marriage belongs to Christ
+
+  II Corinthians 11:2-4 - I feel a divine jealousy for you, for I betrothed you to one husband, to present you as
+  a pure virgin to Christ. But I am afraid that as the serpent deceived Eve by his cunning, your thoughts will be
+  led astray from a sincere and pure devotion to Christ. For if someone comes and proclaims another Jesus than the
+  one we proclaimed, or if you receive a different spirit from the one you received, or if you accept a different
+  gospel from the one you accepted, you put up with it readily enough. (ESV)
+
+I had considered that marriage should be laser precision close so that nothing is able to cause disunity, but
+that's actually what God wants us to be like with Him first and foremost.
+
+Marriage should be holy, it should be in the Lord and we are espoused to Christ.
+
+This was a good sermon on the topic I watched today:
+
+Sermon
+youtube.com: How Sin Makes Us Addicts - Timothy Keller
+
+  Joshua 22:5 - Only be very careful to observe the commandment and the law that Moses the servant of the LORD
+  commanded you, to love the LORD your God, and to walk in all his ways and to keep his commandments and to cling
+  to him and to serve him with all your heart and with all your soul. (ESV)
+
+In all honesty, I think it's valuable that a Christian marriage couple should still seek to cling to each other.
+It should be very, very close, so that no lawless spirits try to break the unity. Only God can lawfully separate a
+marriage partner:
+
+  Matthew 19:5-6 - and said, Therefore a man shall leave his father and his mother and hold fast to his wife, and
+  they shall become one flesh? So they are no longer two but one flesh. What therefore God has joined together,
+  let not man separate. (ESV)
+
+Like getting all the air bubbles out of bubble wrap before getting married. It's a precision thing, I think. But
+the most important thing is it's in the Lord.
+
+  I Corinthians 7:14 - For the unbelieving husband is made holy because of his wife, and the unbelieving wife is
+  made holy because of her husband. Otherwise your children would be unclean, but as it is, they are holy. (ESV)
+
+youtube.com: Building the ULTIMATE Vintage City Street DIORAMA
+Someone commented, "I'm still watching but I am taking a second to tell you that I think that your idea about
+using the spray glue to attach the windows is genius! You're right, no fingerprints, no glue smudges, just
+gorgeous!"
+
+51.5. Marriage is still good but so is singleness
+
+  I Corinthians 7:37-40 - But whoever is firmly established in his heart, being under no necessity but having his
+  desire under control, and has determined this in his heart, to keep her as his betrothed, he will do well. So
+  then he who marries his betrothed does well, and he who refrains from marriage will do even better. A wife is
+  bound to her husband as long as he lives. But if her husband dies, she is free to be married to whom she wishes,
+  only in the Lord. Yet in my judgment she is happier if she remains as she is. And I think that I too have the
+  Spirit of God. (ESV)
+
+51.6. Spiritual attraction: God must be our spiritual spouse and if it's not God, then it's something else
+
+Sermon
+youtube.com: How Sin Makes Us Addicts - Timothy Keller
+
+  Jeremiah 2:1-8 - The word of the LORD came to me, saying, Go and proclaim in the hearing of Jerusalem, Thus says
+  the LORD, I remember the devotion of your youth, your love as a bride, how you followed me in the wilderness, in
+  a land not sown. Israel was holy to the LORD, the firstfruits of his harvest. All who ate of it incurred guilt;
+  disaster came upon them, declares the LORD. Hear the word of the LORD, O house of Jacob, and all the clans of
+  the house of Israel. Thus says the LORD: What wrong did your fathers find in me that they went far from me, and
+  went after worthlessness, and became worthless? They did not say, Where is the LORD who brought us up from the
+  land of Egypt, who led us in the wilderness, in a land of deserts and pits, in a land of drought and deep
+  darkness, in a land that none passes through, where no man dwells? And I brought you into a plentiful land to
+  enjoy its fruits and its good things. But when you came in, you defiled my land and made my heritage an
+  abomination. The priests did not say, Where is the LORD? Those who handle the law did not know me; the shepherds
+  transgressed against me; the prophets prophesied by Baal and went after things that do not profit. (ESV)
+
+  Jeremiah 2:23-32 - How can you say, I am not unclean, I have not gone after the Baals? Look at your way in the
+  valley; know what you have done- a restless young camel running here and there, a wild donkey used to the
+  wilderness, in her heat sniffing the wind! Who can restrain her lust? None who seek her need weary themselves;
+  in her month they will find her. Keep your feet from going unshod and your throat from thirst. But you said, It
+  is hopeless, for I have loved foreigners, and after them I will go. As a thief is shamed when caught, so the
+  house of Israel shall be shamed: they, their kings, their officials, their priests, and their prophets, who say
+  to a tree, You are my father, and to a stone, You gave me birth. For they have turned their back to me, and not
+  their face. But in the time of their trouble they say, Arise and save us! But where are your gods that you made
+  for yourself? Let them arise, if they can save you, in your time of trouble; for as many as your cities are your
+  gods, O Judah. Why do you contend with me? You have all transgressed against me, declares the LORD. In vain have
+  I struck your children; they took no correction; your own sword devoured your prophets like a ravening lion. And
+  you, O generation, behold the word of the LORD. Have I been a wilderness to Israel, or a land of thick darkness?
+  Why then do my people say, We are free, we will come no more to you? Can a virgin forget her ornaments, or a
+  bride her attire? Yet my people have forgotten me days without number. (ESV)
+
+51.7. Covenant marriage is great, but for the Gentiles who turn to God, it's not essentially required to burden them
 beyond abstaining from sexual immorality
 
   Malachi 2:14 - But you say, Why does he not? Because the LORD was witness between you and the wife of your
@@ -24400,9 +24492,9 @@ beyond abstaining from sexual immorality
   should write to them to abstain from the things polluted by idols, and from sexual immorality, and from what has
   been strangled, and from blood.
 
-51.6. Marriage in the next age
+51.8. Marriage in the next age
 
-51.6.1. Incorruptible love to make it into heaven, but not lust
+51.8.1. Incorruptible love to make it into heaven, but not lust
 
   Ephesians 6:24 - Grace be with all those who love our Lord Jesus Christ with incorruptible love.
 
@@ -24416,7 +24508,7 @@ beyond abstaining from sexual immorality
   to us His precious and magnificent promises, so that by them you may become partakers of the divine nature,
   having escaped the corruption that is in the world by lust. (NASB)
 
-51.6.2. No-one marrys (verb) or is given in marriage (verb)
+51.8.2. No-one marrys (verb) or is given in marriage (verb)
 
   Luke 20:33-36 - In the resurrection, therefore, whose wife will the woman be? For the seven had her as wife. And
   Jesus said to them, The sons of this age (G165 aion) marry (G1060 gameo) and are given in marriage (G1061
@@ -24428,7 +24520,7 @@ This is the best explanation I have found for this:
 
 youtube.com: Strive to let everything bodily die within you, and you will rise before the general resurrection
 
-51.6.3. In heaven, people are like angels - imperishable
+51.8.3. In heaven, people are like angels - imperishable
 
   Mark 12:25 - For when they rise from the dead, they neither marry nor are given in marriage, but are like angels
   in heaven. (ESV)
@@ -24452,7 +24544,7 @@ Even our bodies will be imperishable:
   I Corinthians 15:52 - in a moment, in the twinkling of an eye, at the last trumpet; for the trumpet will sound,
   and the dead will be raised imperishable, and we will be changed. (ESV)
 
-51.6.4. Jesus is incorruptible
+51.8.4. Jesus is incorruptible
 
   Hebrews 1:3 - And He is the radiance of His glory and the exact representation of His nature (G5287 hupostasis),
   and upholds all things by the word of His power. When He had made purification of sins, He sat down at the right
@@ -24471,7 +24563,7 @@ Even our bodies will be imperishable:
 |   see GREEK for 5259
 |   see GREEK for 2476
 
-51.6.5. We are married to Christ
+51.8.5. We are married to Christ
 
   Revelation of John 21:9 - Then came one of the seven angels who had the seven bowls full of the seven last
   plagues and spoke to me, saying, Come, I will show you the Bride, the wife of the Lamb.
@@ -24496,7 +24588,7 @@ Even our bodies will be imperishable:
   has no power, but they will be priests of God and of Christ, and they will reign with him for a thousand years.
   (ESV)
 
-51.6.6. We must present ourselves as virgins to Christ. We must be being sanctified
+51.8.6. We must present ourselves as virgins to Christ. We must be being sanctified
 
   Matthew 25:1-13 - Then the kingdom of heaven will be like ten virgins who took their lamps and went to meet the
   bridegroom. Five of them were foolish, and five were wise. For when the foolish took their lamps, they took no
@@ -24509,7 +24601,7 @@ Even our bodies will be imperishable:
   saying, Lord, lord, open to us. But he answered, Truly, I say to you, I do not know you. Watch therefore, for
   you know neither the day nor the hour.
 
-51.7. Bride of Christ
+51.9. Bride of Christ
 
   Revelation of John 21:9 - Then came one of the seven angels who had the seven bowls full of the seven last
   plagues and spoke to me, saying, Come, I will show you the Bride, the wife of the Lamb.
@@ -24569,7 +24661,7 @@ Jesus reinforces that idea:
   Revelation of John 22:17 - The Spirit and the Bride say, Come. And let the one who hears say, Come. And let the
   one who is thirsty come; let the one who desires take the water of life without price. (ESV)
 
-51.8. I do not endorse gay marriage - I consider it to be sin - grave sin, actually
+51.10. I do not endorse gay marriage - I consider it to be sin - grave sin, actually
 
 I personally do not endorse gay marriage. When I have in the past, I repent of that.
 
@@ -24598,7 +24690,7 @@ reality:
   because she was taken out of Man. Therefore a man shall leave his father and his mother and hold fast to his
   wife, and they shall become one flesh. (ESV)
 
-51.9. God's law is still used. It's part of the gospel, and can certainly be used to judge the sinners, including
+51.11. God's law is still used. It's part of the gospel, and can certainly be used to judge the sinners, including
 those who are unrepentant from sexual immorality
 
   1 Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
@@ -24607,7 +24699,7 @@ those who are unrepentant from sexual immorality
   practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
   accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
-51.10. God's law is good. His precepts are good. I don't identify with any of this LGBT stuff
+51.12. God's law is good. His precepts are good. I don't identify with any of this LGBT stuff
 
   Hebrews 13:4 - Let marriage be held in honor among all, and let the marriage bed be undefiled, for God will
   judge the sexually immoral and adulterous. (ESV)
@@ -24660,14 +24752,14 @@ But yeah, I still think that actually following God's precepts out of love for G
 
 I have not forsaken your precepts - AMEN!!
 
-51.11. Can gay 'marriage' exist anywhere in the Kingdom of God? It's certainly not generally endorsed, nor should it
+51.13. Can gay 'marriage' exist anywhere in the Kingdom of God? It's certainly not generally endorsed, nor should it
 be normalised or made equal with marriage
 
 I don't know if gay marriage can exist anywhere in the Kingdom of God.
 
 I don't think it should be generally endorsed, especially by Christians.
 
-51.11.1. God still does not endorse practicing homosexuality, nor lust
+51.13.1. God still does not endorse practicing homosexuality, nor lust
 
   1 Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
   is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy
@@ -24675,7 +24767,7 @@ I don't think it should be generally endorsed, especially by Christians.
   practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
   accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
-51.11.2. The most weighty matters of the law are justice, mercy, faithfulness, and service
+51.13.2. The most weighty matters of the law are justice, mercy, faithfulness, and service
 
 Justice, mercy and faithfulness are essential for entering the Kingdom of God. Repentance and holiness are very
 important for entering the Kingdom of God too. Greed and self-indulgence will stop a person from entering the
@@ -24690,14 +24782,14 @@ Kingdom of God:
 When applying the law, justice and mercy and faithfulness are the weightier matters of the law. However, the
 remainder of the law is not supposed to be neglected either.
 
-51.11.3. Even though the law came later, practicing homosexuality has always been sinful
+51.13.3. Even though the law came later, practicing homosexuality has always been sinful
 
   Genesis 13:13 - Now the men of Sodom were wicked, great sinners against the Lord.
 
   Genesis 18:20 - Then the Lord said, Because the outcry against Sodom and Gomorrah is great and their sin is very
   grave,
 
-51.11.4. Sexual immorality, sensuality, etc. will really stop people from inheriting the kingdom of God
+51.13.4. Sexual immorality, sensuality, etc. will really stop people from inheriting the kingdom of God
 
 This is not an exhaustive list:
 
@@ -24718,7 +24810,7 @@ Flock = Jesus' followers. God wants to give Jesus' followers the kingdom, but we
   them. Instead, seek his kingdom, and these things will be added to you. Fear not, little flock, for it is your
   Father's good pleasure to give you the kingdom. (ESV)
 
-51.11.5. Faith in Jesus is required - Him paying the price for our sin
+51.13.5. Faith in Jesus is required - Him paying the price for our sin
 
 I think endorsing LGBT, etc. leads the world progressively closer to the abyss.
 
@@ -24815,7 +24907,7 @@ Also, I think eternal life is for those who:
 - a) receive forgiveness from Jesus,
 - b) obey Jesus and become a bondservant of God.
 
-51.11.6. Sanctification (turning from sin, etc.) is essential for inheriting the kingdom and eternal life
+51.13.6. Sanctification (turning from sin, etc.) is essential for inheriting the kingdom and eternal life
 
   Romans 6:22 - But now that you have been set free from sin and have become slaves of God, the fruit you get
   leads to sanctification and its end, eternal life.
@@ -24861,7 +24953,7 @@ Repentance is essential for eternal life.
 Sermon
 Preparing to Meet God - YouTube
 
-51.11.7. Practicing homosexuality is very sinful and so locking it in with a covenant is very self-destructive
+51.13.7. Practicing homosexuality is very sinful and so locking it in with a covenant is very self-destructive
 
 But justice, mercy and faithfulness are the weightier matters of the law. What I mean to say is that without the
 sinners themselves showing justice, mercy and faithfulness, gay 'marriage' would be totally unjustifiable.
@@ -24876,7 +24968,7 @@ God, please have mercy. I repent from all sexual immorality, and from endorsing 
   standing before him. Jesus stood up and said to her, Woman, where are they? Has no one condemned you? She said,
   No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more.]] (ESV)
 
-51.11.8. Without following Jesus Christ's commandments, gay 'marriage' would never be justifiable
+51.13.8. Without following Jesus Christ's commandments, gay 'marriage' would never be justifiable
 
   Galatians 5:18 - But if you are led by the Spirit, you are not under the law.
 
@@ -24890,7 +24982,7 @@ But we have to speak and act as those who are to be judged under the law of libe
 Without acknowledging the truth, and without acknowledging that God's law and design is good, gay 'marriage' would
 be totally unjustifiable.
 
-51.11.9. The slave to sin doesn't remain in God's house forever
+51.13.9. The slave to sin doesn't remain in God's house forever
 
   John 8:34-35 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The
   slave does not remain in the house forever; the son remains forever.
@@ -24942,7 +25034,7 @@ and the truth.
 
 Prideful sin definitely doesn't make the cut.
 
-51.11.10. The everlasting covenant if one is in the everlasting covenant, should incite a person's shame for their
+51.13.10. The everlasting covenant if one is in the everlasting covenant, should incite a person's shame for their
 past sin - not their pride
 
   Ezekiel 16:58-63 - You bear the penalty of your lewdness and your abominations, declares the Lord. For thus says
@@ -24954,7 +25046,7 @@ past sin - not their pride
   open your mouth again because of your shame, when I atone for you for all that you have done, declares the Lord
   God.
 
-51.11.11. The abyss is a thing. And our security is faith in Christ
+51.13.11. The abyss is a thing. And our security is faith in Christ
 
   Romans 10:6-13 - But the righteousness based on faith says, Do not say in your heart, Who will ascend into
   heaven? (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from
@@ -24975,7 +25067,7 @@ We want God's will to be done on earth, as it is done in heaven. We also want to
   John 7:17 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am
   speaking on my own authority. (ESV)
 
-51.11.12. Grace even for the evildoer
+51.13.12. Grace even for the evildoer
 
 The Revelation of John is for Jesus' servants. I'm going to claim this.
 
@@ -25104,7 +25196,7 @@ impurity
   know God's decree that those who practice such things deserve to die, they not only do them but give
   approval to those who practice them. (ESV)
 
-51.11.13. We have to walk the straight and narrow to reign with Christ
+51.13.13. We have to walk the straight and narrow to reign with Christ
 
   II Timothy 2:11-13 - The saying is trustworthy, for: If we have died with him, we will also live with him; if we
   endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains
@@ -35687,7 +35779,7 @@ Date: 2024-07-07 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-07 Sun 04:44
+Created: 2024-07-07 Sun 05:27
 
 Validate
 
