@@ -677,6 +677,11 @@ be loved by my Father, and I will love him and manifest myself to him. (ESV)
 - John 16:27 - for the Father himself loves you, because you have loved me and have believed that I came
 from God. (ESV)
 - In whatever we do, we should be serving the Lord Jesus Christ
+- I Corinthians 10:31 - So, whether you eat or drink, or whatever you do, do all to the glory of God. (ESV)
+- Colossians 3:17 - And whatever you do, in word or deed, do everything in the name of the Lord Jesus,
+giving thanks to God the Father through him. (ESV)
+- I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+- Romans 12:9 - Let love be genuine. Abhor what is evil; hold fast to what is good. (ESV)
 
   Proverbs 3:5-6 - Trust in the LORD with all your heart, and do not lean on your own understanding. In all your
   ways acknowledge him, and he will make straight your paths. (ESV)
@@ -34465,6 +34470,8 @@ myself on purpose in order that I would be able to sleep, and I felt immediately
 
 I actually don't think it was a delusion though. I actually think it's the truth.
 
+  Romans 12:9 - Let love be genuine. Abhor what is evil; hold fast to what is good. (ESV)
+
   I Corinthians 13:4-8 - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It
   does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but
   rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love
@@ -35838,7 +35845,7 @@ Date: 2024-07-07 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-07 Sun 06:29
+Created: 2024-07-07 Sun 10:14
 
 Validate
 
