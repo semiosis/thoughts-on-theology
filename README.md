@@ -6861,6 +6861,25 @@ The righteousness in the actual doing of the law above is still upheld but there
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A7&amp;version=ESV">Exodus 20:7</a></b> - You shall not take the name of the LORD your God in vain, for the LORD will not hold him guiltless who takes his name in vain. (ESV)</td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=James%205%3A12&amp;version=ESV">James 5:12</a></b> - But above all, my brothers, do not swear, either by heaven or by earth or by any other oath, but let your yes be yes and your no be no, so that you may not fall under condemnation. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
+
+
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<tbody>
+<tr>
+<td class="org-left">#</td>
+<td class="org-left">Bible reference</td>
+<td class="org-left">&#xa0;</td>
+</tr>
 
 
 <tr>
@@ -6888,6 +6907,25 @@ The righteousness in the actual doing of the law above is still upheld but there
 <td class="org-left"><b>7</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A14&amp;version=ESV">Exodus 20:14</a></b> - You shall not commit adultery. (ESV)</td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Proverbs%206%3A32&amp;version=ESV">Proverbs 6:32</a></b> - He who commits adultery lacks sense; he who does it destroys himself. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Romans%207%3A2-3&amp;version=ESV">Romans 7:2-3</a></b> - Thus a married woman is bound by law to her husband while he lives, but if her husband dies she is released from the law of marriage. Accordingly, she will be called an adulteress if she lives with another man while her husband is alive. But if her husband dies, she is free from that law, and if she marries another man she is not an adulteress. (ESV)</td>
+</tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
+
+
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<tbody>
+<tr>
+<td class="org-left">#</td>
+<td class="org-left">Bible reference</td>
+<td class="org-left">&#xa0;</td>
 </tr>
 
 
@@ -16287,6 +16325,10 @@ Saints keep the commandments of God:
 
 > **[Revelation of John 14:12](https://www.biblegateway.com/passage/?search=Revelation%2014%3A12&version=ESV)** - Here is a call for the endurance of the saints, those who keep the commandments of God and their faith in Jesus.
 
+-   **Video:** [youtube.com: Called to Be Saints | Charles Spurgeon | Devotional | Morning & Evening: Daily Readings](https://www.youtube.com/watch?v=E6gazvPBXF0)
+
+-   **Quote by Charles Spurgeon:** All are "saints" whom God has called by His grace and sanctified by His Spirit;
+
 Jesus goes to those who hear His voice to bring them into His flock:
 
 > **[John 10:16](https://www.biblegateway.com/passage/?search=John%2010%3A16&version=ESV)** - And I have other sheep that are not of this fold. I must bring them also, and they will listen to my voice. So there will be one flock, one shepherd. (ESV)
@@ -17919,9 +17961,13 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
 > **[II John 1:5-6](https://www.biblegateway.com/passage/?search=2%20John%201%3A5-6&version=ESV)** - And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we have had from the beginning—that <ins>we love one another</ins>. And **this is love**, that <ins>we walk according to his commandments</ins>; this is the commandment, just as you have heard from the beginning, so that you should walk in it. (ESV)
 
 
-## Saint - an imitator of Jesus - keeps the commandments of God AND has faith in Jesus
+## Saint - an imitator of Jesus - keeps the commandments of God <ins>and</ins> has faith in Jesus
 
 > **[John 15:10](https://www.biblegateway.com/passage/?search=John%2015%3A10&version=ESV)** - **If you keep my commandments, you will abide in my love,** just as I have kept **my Father's commandments and abide in his love.** (ESV)
+
+-   **Video:** [youtube.com: Called to Be Saints | Charles Spurgeon | Devotional | Morning & Evening: Daily Readings](https://www.youtube.com/watch?v=E6gazvPBXF0)
+
+-   **Quote by Charles Spurgeon:** All are "saints" whom God has called by His grace and sanctified by His Spirit;
 
 > **[Ephesians 1:1](https://www.biblegateway.com/passage/?search=Ephesians%201%3A1&version=ESV)** - Paul, an apostle of Christ Jesus by the will of God, To the saints who are in Ephesus, and are faithful in Christ Jesus:
 
@@ -24937,17 +24983,41 @@ I'm definitely taking this stuff to God's court and asking for grace to be sanct
 
 I actually feel spiritually damaged/injured by what I've had to endure regarding a spirit spouse - I simply don't understand why that thing has been allowed to touch me for 1.5 years and push lewd dreams into my head. This daily bombardment of demonic dreams, and visions is very demoralizing.
 
+-   **[youtube.com: Called to Be Saints | Charles Spurgeon | Devotional | Morning & Evening: Daily Readings](https://www.youtube.com/watch?v=E6gazvPBXF0):** All are "saints" whom God has called by His grace and sanctified by His Spirit; but we are apt to look upon the apostles in the New Testament as extraordinary beings, scarcely subject to the same weaknesses and temptations as ourselves. Yet in so doing, we are forgetful of this truth that the nearer a man lives to God <ins>the more intensely  he has to mourn over his own evil heart.</ins> **the more also does the evil of the flesh provoke and harass him day by day.**
+
 With regards to the spirit spouse, it makes me feel very gross and it makes me feel [Psalm 22:1](https://www.biblegateway.com/passage/?search=Psalms%2022%3A1&version=ESV) forsaken by God - no joke.
 
-I have literally no idea why Father God waited such a long time in the first place to draw me to Jesus.
+God does give me encouragements from time to time though:
+
+> **[Hebrews 13:5](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A5&version=ESV)** - Keep your life free from love of money, and be content with what you have, for he has said, I will never leave you nor forsake you. (ESV)
+
+But I am still required to live by faith, and so much of what I hope for is unseen and I don't have total assurance, but I have a conviction about it:
+
+> **[Hebrews 11:1](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A1&version=ESV)** - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
+
+> **[I Corinthians 13:12](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A12&version=ESV)** - For now we see in a mirror dimly, but then face to face. Now I know in part; then I shall know fully, even as I have been fully known. (ESV)
+
+I have literally no idea why Father God waited such a long time in the first place to draw me to Jesus:
+
+> **[Isaiah 55:8-9](https://www.biblegateway.com/passage/?search=Isaiah%2055%3A8-9&version=ESV)** - For my thoughts are not your thoughts, neither are your ways my ways, declares the LORD. For as the heavens are higher than the earth, so are my ways higher than your ways and my thoughts than your thoughts. (ESV)
+
+God draws us to Jesus who brings us to God:
+
+> **[John 6:44](https://www.biblegateway.com/passage/?search=John%206%3A44&version=ESV)** - No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. (ESV)
+
+> **[II Corinthians 5:18-19](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A18-19&version=ESV)** - All this is from God, who through Christ reconciled us to himself and gave us the ministry of reconciliation; that is, in Christ God was reconciling the world to himself, not counting their trespasses against them, and entrusting to us the message of reconciliation. (ESV)
 
 I want to hear from God clearly, but I feel like being delivered from being attacked by demons would be really good.
 
 > **[Psalms 22:1](https://www.biblegateway.com/passage/?search=Psalms%2022%3A1&version=ESV)** - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my groaning? (ESV)
 
+> **[Psalms 6:1-4](https://www.biblegateway.com/passage/?search=Psalms%206%3A1-4&version=ESV)** - O LORD, rebuke me not in your anger, nor discipline me in your wrath. To the choirmaster: with stringed instruments; according to The Sheminith. A Psalm of David. Be gracious to me, O LORD, for I am languishing; heal me, O LORD, for my bones are troubled. My soul also is greatly troubled. But you, O LORD—how long? Turn, O LORD, deliver my life; save me for the sake of your steadfast love. (ESV)
+
 I was in that happy place shortly after being born-again even though my theology wasn't great, but then God has put me through this trial.
 
 > **[I Timothy 6:12](https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A12&version=ESV)** - Fight the good fight of the faith. Take hold of the eternal life to which you were called and about which you made the good confession in the presence of many witnesses. (ESV)
+
+> **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that through many tribulations we must enter the kingdom of God. (ESV)
 
 I claim to be an obedient child of God - trusting in Jesus and responsive to the love of God, and I claim to love and follow the law of God in my mind, and I actually try very hard to not be conformed to sinful lusts - and I though I was quite successful in doing in advance of my trial, but it's just so difficult to live properly now because of such intense persecution in this world - physical and spiritual, inside and outside of church, so I'm complaining to God and saying it has been far too difficult:
 

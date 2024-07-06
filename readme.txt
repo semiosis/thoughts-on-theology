@@ -10142,92 +10142,98 @@ Perfect compliance to the law is no longer the basis of our justification but we
   law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 
-#                 Bible reference                                                
+#                   Bible reference                                                
 
-Exodus 20:2-3 - I am the LORD your God, who  I John 4:19 - We love because he first loved us. (ESV) I John
-brought you out of the land of Egypt, out    4:10-11 - In this is love, not that we have loved God but that
-1   of the house of slavery. You shall have no   he loved us and sent his Son to be the propitiation for our
-other gods before me. (ESV)                  sins. Beloved, if God so loved us, we also ought to love one
-another. (ESV)
-Exodus 20:4-6 - You shall not make for       Acts 17:29 - Being then God's offspring, we ought not to think
-yourself a carved image, or any likeness of  that the divine being is like gold or silver or stone, an image
-anything that is in heaven above, or that    formed by the art and imagination of man. (ESV) Romans 1:23 -
-is in the earth beneath, or that is in the   and exchanged the glory of the immortal God for images
-water under the earth. You shall not bow     resembling mortal man and birds and animals and reptiles. (ESV)
-2   down to them or serve them, for I the LORD   Psalms 97:7 - All worshipers of images are put to shame, who
-your God am a jealous God, visiting the      make their boast in worthless idols; worship him, all you gods!
-iniquity of the fathers on the children to   (ESV) Revelation of John 16:2 - So the first angel went and
-the third and the fourth generation of       poured out his bowl on the earth, and harmful and painful sores
-those who hate me, but showing steadfast     came upon the people who bore the mark of the beast and
-love to thousands of those who love me and   worshiped its image. (ESV)
-keep my commandments. (ESV)
-Exodus 20:7 - You shall not take the name    James 5:12 - But above all, my brothers, do not swear, either
-3   of the LORD your God in vain, for the LORD   by heaven or by earth or by any other oath, but let your yes be
-will not hold him guiltless who takes his    yes and your no be no, so that you may not fall under
-name in vain. (ESV)                          condemnation. (ESV)
-Exodus 20:8-11 - Remember the Sabbath day,
-to keep it holy. Six days you shall labor,
-and do all your work, but the seventh day
-is a Sabbath to the LORD your God. On it     Genesis 2:3 - So God blessed the seventh day and made it holy,
-you shall not do any work, you, or your      because on it God rested from all his work that he had done in
-son, or your daughter, your male servant,    creation. (ESV) Luke 23:56 - Then they returned and prepared
-4   or your female servant, or your livestock,   spices and ointments. On the Sabbath they rested according to
-or the sojourner who is within your gates.   the commandment. (ESV) Mark 2:27-28 - And he said to them, The
-For in six days the LORD made heaven and     Sabbath was made for man, not man for the Sabbath. So the Son
-earth, the sea, and all that is in them,     of Man is lord even of the Sabbath. (ESV)
-and rested the seventh day. Therefore the
-LORD blessed the Sabbath day and made it
-holy. (ESV)
-We should follow God's commandments to love him and so that
-Exodus 20:12 - Honor your father and your    things go well with us. Ephesians 6:1-3 - Children, obey your
-5   mother, that your days may be long in the    parents in the Lord, for this is right. Honor your father and
-land that the LORD your God is giving you.   mother (this is the first commandment with a promise), that it
-(ESV)                                        may go well with you and that you may live long in the land.
+Exodus 20:2-3 - I am the LORD your God, who        I John 4:19 - We love because he first loved us. (ESV) I
+brought you out of the land of Egypt, out of the   John 4:10-11 - In this is love, not that we have loved God
+1  house of slavery. You shall have no other gods     but that he loved us and sent his Son to be the
+before me. (ESV)                                   propitiation for our sins. Beloved, if God so loved us, we
+also ought to love one another. (ESV)
+Acts 17:29 - Being then God's offspring, we ought not to
+Exodus 20:4-6 - You shall not make for yourself a  think that the divine being is like gold or silver or
+carved image, or any likeness of anything that is  stone, an image formed by the art and imagination of man.
+in heaven above, or that is in the earth beneath,  (ESV) Romans 1:23 - and exchanged the glory of the
+or that is in the water under the earth. You       immortal God for images resembling mortal man and birds
+2  shall not bow down to them or serve them, for I    and animals and reptiles. (ESV) Psalms 97:7 - All
+the LORD your God am a jealous God, visiting the   worshipers of images are put to shame, who make their
+iniquity of the fathers on the children to the     boast in worthless idols; worship him, all you gods! (ESV)
+third and the fourth generation of those who hate  Revelation of John 16:2 - So the first angel went and
+me, but showing steadfast love to thousands of     poured out his bowl on the earth, and harmful and painful
+those who love me and keep my commandments. (ESV)  sores came upon the people who bore the mark of the beast
+and worshiped its image. (ESV)
+Exodus 20:7 - You shall not take the name of the   James 5:12 - But above all, my brothers, do not swear,
+3  LORD your God in vain, for the LORD will not hold  either by heaven or by earth or by any other oath, but let
+him guiltless who takes his name in vain. (ESV)    your yes be yes and your no be no, so that you may not
+fall under condemnation. (ESV)
+
+
+
+#  Bible reference                                           
+Exodus 20:8-11 - Remember the Sabbath day, to keep it    Genesis 2:3 - So God blessed the seventh day and
+holy. Six days you shall labor, and do all your work,    made it holy, because on it God rested from all his
+but the seventh day is a Sabbath to the LORD your God.   work that he had done in creation. (ESV) Luke 23:56
+On it you shall not do any work, you, or your son, or    - Then they returned and prepared spices and
+4  your daughter, your male servant, or your female         ointments. On the Sabbath they rested according to
+servant, or your livestock, or the sojourner who is      the commandment. (ESV) Mark 2:27-28 - And he said to
+within your gates. For in six days the LORD made heaven  them, The Sabbath was made for man, not man for the
+and earth, the sea, and all that is in them, and rested  Sabbath. So the Son of Man is lord even of the
+the seventh day. Therefore the LORD blessed the Sabbath  Sabbath. (ESV)
+day and made it holy. (ESV)
+We should follow God's commandments to love him and
+so that things go well with us. Ephesians 6:1-3 -
+Exodus 20:12 - Honor your father and your mother, that   Children, obey your parents in the Lord, for this is
+5  your days may be long in the land that the LORD your     right. Honor your father and mother (this is the
+God is giving you. (ESV)                                 first commandment with a promise), that it may go
+well with you and that you may live long in the
+land. (ESV)
+I John 3:15 - Everyone who hates his brother is a
+murderer, and you know that no murderer has eternal
+life abiding in him. (ESV) Romans 13:9 - The
+6  Exodus 20:13 - You shall not murder. (ESV)               commandments, You shall not commit adultery, You
+shall not murder, You shall not steal, You shall not
+covet, and any other commandment, are summed up in
+this word: You shall love your neighbor as yourself.
 (ESV)
-I John 3:15 - Everyone who hates his brother is a murderer, and
-you know that no murderer has eternal life abiding in him.
-6   Exodus 20:13 - You shall not murder. (ESV)   (ESV) Romans 13:9 - The commandments, You shall not commit
-adultery, You shall not murder, You shall not steal, You shall
-not covet, and any other commandment, are summed up in this
-word: You shall love your neighbor as yourself. (ESV)
-Proverbs 6:32 - He who commits adultery lacks sense; he who
-does it destroys himself. (ESV) Romans 7:2-3 - Thus a married
-woman is bound by law to her husband while he lives, but if her
-7   Exodus 20:14 - You shall not commit          husband dies she is released from the law of marriage.
-adultery. (ESV)                              Accordingly, she will be called an adulteress if she lives with
-another man while her husband is alive. But if her husband
-dies, she is free from that law, and if she marries another man
-she is not an adulteress. (ESV)
-Ephesians 4:28 - Let the thief no longer steal, but rather let
-8   Exodus 20:15 - You shall not steal. (ESV)    him labor, doing honest work with his own hands, so that he may
-have something to share with anyone in need. (ESV)
-I Timothy 1:8-11 - Now we know that the law is good, if one
-uses it lawfully, understanding this, that the law is not laid
-down for the just but for the lawless and disobedient, for the
-Exodus 20:16 - You shall not bear false      ungodly and sinners, for the unholy and profane, for those who
-9   witness against your neighbor. (ESV)         strike their fathers and mothers, for murderers, the sexually
-immoral, men who practice homosexuality, enslavers, liars,
-perjurers, and whatever else is contrary to sound doctrine, in
-accordance with the glorious gospel of the blessed God with
-which I have been entrusted. (ESV)
+Proverbs 6:32 - He who commits adultery lacks sense;
+he who does it destroys himself. (ESV) Romans 7:2-3
+- Thus a married woman is bound by law to her
+husband while he lives, but if her husband dies she
+7  Exodus 20:14 - You shall not commit adultery. (ESV)      is released from the law of marriage. Accordingly,
+she will be called an adulteress if she lives with
+another man while her husband is alive. But if her
+husband dies, she is free from that law, and if she
+marries another man she is not an adulteress. (ESV)
+
+
+
+#   Bible reference                         
+Exodus 20:15 - You shall not steal.    Ephesians 4:28 - Let the thief no longer steal, but rather let him
+8   (ESV)                                  labor, doing honest work with his own hands, so that he may have
+something to share with anyone in need. (ESV)
+I Timothy 1:8-11 - Now we know that the law is good, if one uses it
+lawfully, understanding this, that the law is not laid down for the
+Exodus 20:16 - You shall not bear      just but for the lawless and disobedient, for the ungodly and
+9   false witness against your neighbor.   sinners, for the unholy and profane, for those who strike their
+(ESV)                                  fathers and mothers, for murderers, the sexually immoral, men who
+practice homosexuality, enslavers, liars, perjurers, and whatever
+else is contrary to sound doctrine, in accordance with the glorious
+gospel of the blessed God with which I have been entrusted. (ESV)
 Ephesians 5:3 - But sexual immorality and all impurity or
-covetousness must not even be named among you, as is proper
-among saints. (ESV) Luke 12:15 - And he said to them, Take
-care, and be on your guard against all covetousness, for one's
-life does not consist in the abundance of his possessions.
-(ESV) Romans 13:9 - The commandments, You shall not commit
-Exodus 20:17 - You shall not covet your      adultery, You shall not murder, You shall not steal, You shall
-neighbor's house; you shall not covet your   not covet, and any other commandment, are summed up in this
-10  neighbor's wife, or his male servant, or     word: You shall love your neighbor as yourself. (ESV)
-his female servant, or his ox, or his        Colossians 3:5 - Put to death therefore what is earthly in you:
-donkey, or anything that is your             sexual immorality, impurity, passion, evil desire, and
-neighbor's. (ESV)                            covetousness, which is idolatry. (ESV) Romans 7:7-8 - What then
-shall we say? That the law is sin? By no means! Yet if it had
-not been for the law, I would not have known sin. I would not
-have known what it is to covet if the law had not said, You
-shall not covet. But sin, seizing an opportunity through the
-commandment, produced in me all kinds of covetousness. Apart
-from the law, sin lies dead. (ESV)
+covetousness must not even be named among you, as is proper among
+saints. (ESV) Luke 12:15 - And he said to them, Take care, and be on
+your guard against all covetousness, for one's life does not consist
+in the abundance of his possessions. (ESV) Romans 13:9 - The
+Exodus 20:17 - You shall not covet     commandments, You shall not commit adultery, You shall not murder,
+your neighbor's house; you shall not   You shall not steal, You shall not covet, and any other commandment,
+10  covet your neighbor's wife, or his     are summed up in this word: You shall love your neighbor as yourself.
+male servant, or his female servant,   (ESV) Colossians 3:5 - Put to death therefore what is earthly in you:
+or his ox, or his donkey, or anything  sexual immorality, impurity, passion, evil desire, and covetousness,
+that is your neighbor's. (ESV)         which is idolatry. (ESV) Romans 7:7-8 - What then shall we say? That
+the law is sin? By no means! Yet if it had not been for the law, I
+would not have known sin. I would not have known what it is to covet
+if the law had not said, You shall not covet. But sin, seizing an
+opportunity through the commandment, produced in me all kinds of
+covetousness. Apart from the law, sin lies dead. (ESV)
 
 
 Quote from a friend
@@ -23378,6 +23384,12 @@ Saints keep the commandments of God:
   Revelation of John 14:12 - Here is a call for the endurance of the saints, those who keep the commandments of
   God and their faith in Jesus.
 
+Video
+youtube.com: Called to Be Saints | Charles Spurgeon | Devotional | Morning & Evening: Daily Readings
+
+Quote by Charles Spurgeon
+All are "saints" whom God has called by His grace and sanctified by His Spirit;
+
 Jesus goes to those who hear His voice to bring them into His flock:
 
   John 10:16 - And I have other sheep that are not of this fold. I must bring them also, and they will listen to
@@ -25766,10 +25778,16 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
   commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it.
   (ESV)
 
-54.9. Saint - an imitator of Jesus - keeps the commandments of God AND has faith in Jesus
+54.9. Saint - an imitator of Jesus - keeps the commandments of God and has faith in Jesus
 
   John 15:10 - If you keep my commandments, you will abide in my love, just as I have kept my Father's
   commandments and abide in his love. (ESV)
+
+Video
+youtube.com: Called to Be Saints | Charles Spurgeon | Devotional | Morning & Evening: Daily Readings
+
+Quote by Charles Spurgeon
+All are "saints" whom God has called by His grace and sanctified by His Spirit;
 
   Ephesians 1:1 - Paul, an apostle of Christ Jesus by the will of God, To the saints who are in Ephesus, and are
   faithful in Christ Jesus:
@@ -35185,10 +35203,43 @@ I actually feel spiritually damaged/injured by what I've had to endure regarding
 understand why that thing has been allowed to touch me for 1.5 years and push lewd dreams into my head. This daily
 bombardment of demonic dreams, and visions is very demoralizing.
 
+youtube.com: Called to Be Saints | Charles Spurgeon | Devotional | Morning & Evening: Daily Readings
+All are "saints" whom God has called by His grace and sanctified by His Spirit; but we are apt to look upon the
+apostles in the New Testament as extraordinary beings, scarcely subject to the same weaknesses and temptations as
+ourselves. Yet in so doing, we are forgetful of this truth that the nearer a man lives to God the more intensely
+he has to mourn over his own evil heart. the more also does the evil of the flesh provoke and harass him day by
+day.
+
 With regards to the spirit spouse, it makes me feel very gross and it makes me feel Psalm 22:1 forsaken by God -
 no joke.
 
-I have literally no idea why Father God waited such a long time in the first place to draw me to Jesus.
+God does give me encouragements from time to time though:
+
+  Hebrews 13:5 - Keep your life free from love of money, and be content with what you have, for he has said, I
+  will never leave you nor forsake you. (ESV)
+
+But I am still required to live by faith, and so much of what I hope for is unseen and I don't have total
+assurance, but I have a conviction about it:
+
+  Hebrews 11:1 - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
+
+  I Corinthians 13:12 - For now we see in a mirror dimly, but then face to face. Now I know in part; then I shall
+  know fully, even as I have been fully known. (ESV)
+
+I have literally no idea why Father God waited such a long time in the first place to draw me to Jesus:
+
+  Isaiah 55:8-9 - For my thoughts are not your thoughts, neither are your ways my ways, declares the LORD. For as
+  the heavens are higher than the earth, so are my ways higher than your ways and my thoughts than your thoughts.
+  (ESV)
+
+God draws us to Jesus who brings us to God:
+
+  John 6:44 - No one can come to me unless the Father who sent me draws him. And I will raise him up on the last
+  day. (ESV)
+
+  II Corinthians 5:18-19 - All this is from God, who through Christ reconciled us to himself and gave us the
+  ministry of reconciliation; that is, in Christ God was reconciling the world to himself, not counting their
+  trespasses against them, and entrusting to us the message of reconciliation. (ESV)
 
 I want to hear from God clearly, but I feel like being delivered from being attacked by demons would be really
 good.
@@ -35196,11 +35247,19 @@ good.
   Psalms 22:1 - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my
   groaning? (ESV)
 
+  Psalms 6:1-4 - O LORD, rebuke me not in your anger, nor discipline me in your wrath. To the choirmaster: with
+  stringed instruments; according to The Sheminith. A Psalm of David. Be gracious to me, O LORD, for I am
+  languishing; heal me, O LORD, for my bones are troubled. My soul also is greatly troubled. But you, O LORD-how
+  long? Turn, O LORD, deliver my life; save me for the sake of your steadfast love. (ESV)
+
 I was in that happy place shortly after being born-again even though my theology wasn't great, but then God has
 put me through this trial.
 
   I Timothy 6:12 - Fight the good fight of the faith. Take hold of the eternal life to which you were called and
   about which you made the good confession in the presence of many witnesses. (ESV)
+
+  Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
+  that through many tribulations we must enter the kingdom of God. (ESV)
 
 I claim to be an obedient child of God - trusting in Jesus and responsive to the love of God, and I claim to love
 and follow the law of God in my mind, and I actually try very hard to not be conformed to sinful lusts - and I
@@ -35779,7 +35838,7 @@ Date: 2024-07-07 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-07 Sun 05:27
+Created: 2024-07-07 Sun 06:29
 
 Validate
 
