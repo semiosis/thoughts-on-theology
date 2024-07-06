@@ -5566,6 +5566,13 @@ God's blessing):
   as the sand that is on the seashore. And your offspring shall possess the gate of his enemies, and in your
   offspring shall all the nations of the earth be blessed, because you have obeyed my voice.
 
+oneplace.com why-the-believer-doubts-part-1-1-1172653.html: Why the Believer Doubts, Part 1 {#1} - Listen to Grace
+to You with John MacArthur, Jul 1, 2024
+John MacArthur - "Assurance is not necessarily always going to be the believer's experience. Assurance is a gift
+to an obedient deliever, and when there is disobedience in your life as a believer, or when there is sin in your
+life, or when you have sort of loosened up your intimacy and relationship with the LORD, doubt will begin to
+grow."
+
 Therefore, we should believe with an obedient heart, and obey to receive God's assurance.
 
 I believe that every one of Jesus' sheep have a believing, obedient heart, and Jesus knows who they are and no-one
@@ -8287,8 +8294,9 @@ not be destroyed. (ESV)
   They said to him therefore, Where is your Father? Jesus answered, You know neither me nor my Father. If you knew
   me, you would know my Father also. (ESV)
 
-  I Corinthians 10:9 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
-  (ESV)
+  I Corinthians 10:9-11 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
+  nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
+  example, but they were written down for our instruction, on whom the end of the ages has come. (ESV)
 
   I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know him
   who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
@@ -9993,6 +10001,10 @@ they have no excuse for their sin. Whoever hates me hates my Father also.
 obedience the many will be made righteous.
 - Breaking God's law? Sure.
 - Breaking the Mosaic Law is sin for Jews and disobedient people.
+- Christians still 'do' the law in faith but don't rely on perfectly doing it for their justification,
+and don't rely on perfect compliance to it for their justification. We still rely on faith in Jesus
+for our justification. But the law outlaws a lot of sinful practices which are still very damaging
+to us
 - 3. An evil heart or mind which is hostile to God
 - 4. Evil deeds. Absolutely How is that defined though?
 - I would say it's breaking the Great Commandments
@@ -10071,7 +10083,7 @@ Sinners:
 - envy, strife, deceit, maliciousness. They are gossips, slanderers, haters of God, insolent, haughty,
 boastful, inventors of evil, disobedient to parents, foolish, faithless, heartless, ruthless.
 
-7.5.1. Transgressing the 10 commandments
+7.5.1. Transgressing the 10 Commandments
 
   James 2:11 - For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery
   but do murder, you have become a transgressor of the law. (ESV)
@@ -10080,32 +10092,147 @@ boastful, inventors of evil, disobedient to parents, foolish, faithless, heartle
   shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as
   yourself. (ESV)
 
+Even as born-again Christians, keeping the 10 Commandments is very important. Just because we may be justified by
+faith in Jesus Christ doesn't mean that followers of Jesus obey unrighteousness. Followers of Jesus still obey
+righteousness:
 
-#                                                 Bible reference
+  Romans 1:29-2:13 - They were filled with all manner of unrighteousness, evil, covetousness, malice. They are
+  full of envy, murder, strife, deceit, maliciousness. They are gossips, slanderers, haters of God, insolent,
+  haughty, boastful, inventors of evil, disobedient to parents, foolish, faithless, heartless, ruthless. Though
+  they know God's decree that those who practice such things deserve to die, they not only do them but give
+  approval to those who practice them. Therefore you have no excuse, O man, every one of you who judges. For in
+  passing judgment on another you condemn yourself, because you, the judge, practice the very same things. We know
+  that the judgment of God rightly falls on those who do such things. Do you suppose, O man-you who judge those
+  who do such things and yet do them yourself-that you will escape the judgment of God? Or do you presume on the
+  riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to
+  repentance? But because of your hard and impenitent heart you are storing up wrath for yourself on the day of
+  wrath when God's righteous judgment will be revealed. He will render to each one according to his works: to
+  those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for
+  those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury.
+  There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek,
+  but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no
+  partiality. For all who have sinned without the law will also perish without the law, and all who have sinned
+  under the law will be judged by the law. For it is not the hearers of the law who are righteous before God, but
+  the doers of the law who will be justified. (ESV)
 
-1   Exodus 20:2-3 - I am the LORD your God, who brought you out of the land of Egypt, out of the house of
-slavery. You shall have no other gods before me. (ESV)
-Exodus 20:4-6 - You shall not make for yourself a carved image, or any likeness of anything that is in
-heaven above, or that is in the earth beneath, or that is in the water under the earth. You shall not bow
-2   down to them or serve them, for I the LORD your God am a jealous God, visiting the iniquity of the fathers
-on the children to the third and the fourth generation of those who hate me, but showing steadfast love to
-thousands of those who love me and keep my commandments. (ESV)
-3   Exodus 20:7 - You shall not take the name of the LORD your God in vain, for the LORD will not hold him
-guiltless who takes his name in vain. (ESV)
-Exodus 20:8-11 - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work,
-but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or
-4   your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within
-your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the
-seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)
-5   Exodus 20:12 - Honor your father and your mother, that your days may be long in the land that the LORD your
-God is giving you. (ESV)
-6   Exodus 20:13 - You shall not murder. (ESV)
-7   Exodus 20:14 - You shall not commit adultery. (ESV)
-8   Exodus 20:15 - You shall not steal. (ESV)
-9   Exodus 20:16 - You shall not bear false witness against your neighbor. (ESV)
-10  Exodus 20:17 - You shall not covet your neighbor's house; you shall not covet your neighbor's wife, or his
-male servant, or his female servant, or his ox, or his donkey, or anything that is your neighbor's. (ESV)
+I Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law is
+not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and
+profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice
+homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with
+the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
+The righteousness in the actual doing of the law above is still upheld but there is now the righteousness that is
+by faith in Jesus Christ. In other words, keeping the commandments of God and following Jesus are not mutually
+exclusive. And the law still describes what good behaviour looks like and what bad behaviour looks like. But
+through the redemption that is in Christ Jesus, as we follow and place our faith in Jesus, obeying Jesus to repent
+from sin and to do good and to pass forward love and forgiveness, etc., we can be justified by our faith in Jesus.
+As we go on living, we keep our obedient believing faith in Jesus, and no longer want to rebel against God's law.
+Perfect compliance to the law is no longer the basis of our justification but we seek to not break the law:
+
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
+  the Prophets bear witness to it- the righteousness of God through faith in Jesus Christ for all who believe. For
+  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
+  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
+  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
+  over former sins. It was to show his righteousness at the present time, so that he might be just and the
+  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
+  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
+  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
+  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
+  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+
+
+#                 Bible reference                                                
+
+Exodus 20:2-3 - I am the LORD your God, who  I John 4:19 - We love because he first loved us. (ESV) I John
+brought you out of the land of Egypt, out    4:10-11 - In this is love, not that we have loved God but that
+1   of the house of slavery. You shall have no   he loved us and sent his Son to be the propitiation for our
+other gods before me. (ESV)                  sins. Beloved, if God so loved us, we also ought to love one
+another. (ESV)
+Exodus 20:4-6 - You shall not make for       Acts 17:29 - Being then God's offspring, we ought not to think
+yourself a carved image, or any likeness of  that the divine being is like gold or silver or stone, an image
+anything that is in heaven above, or that    formed by the art and imagination of man. (ESV) Romans 1:23 -
+is in the earth beneath, or that is in the   and exchanged the glory of the immortal God for images
+water under the earth. You shall not bow     resembling mortal man and birds and animals and reptiles. (ESV)
+2   down to them or serve them, for I the LORD   Psalms 97:7 - All worshipers of images are put to shame, who
+your God am a jealous God, visiting the      make their boast in worthless idols; worship him, all you gods!
+iniquity of the fathers on the children to   (ESV) Revelation of John 16:2 - So the first angel went and
+the third and the fourth generation of       poured out his bowl on the earth, and harmful and painful sores
+those who hate me, but showing steadfast     came upon the people who bore the mark of the beast and
+love to thousands of those who love me and   worshiped its image. (ESV)
+keep my commandments. (ESV)
+Exodus 20:7 - You shall not take the name    James 5:12 - But above all, my brothers, do not swear, either
+3   of the LORD your God in vain, for the LORD   by heaven or by earth or by any other oath, but let your yes be
+will not hold him guiltless who takes his    yes and your no be no, so that you may not fall under
+name in vain. (ESV)                          condemnation. (ESV)
+Exodus 20:8-11 - Remember the Sabbath day,
+to keep it holy. Six days you shall labor,
+and do all your work, but the seventh day
+is a Sabbath to the LORD your God. On it     Genesis 2:3 - So God blessed the seventh day and made it holy,
+you shall not do any work, you, or your      because on it God rested from all his work that he had done in
+son, or your daughter, your male servant,    creation. (ESV) Luke 23:56 - Then they returned and prepared
+4   or your female servant, or your livestock,   spices and ointments. On the Sabbath they rested according to
+or the sojourner who is within your gates.   the commandment. (ESV) Mark 2:27-28 - And he said to them, The
+For in six days the LORD made heaven and     Sabbath was made for man, not man for the Sabbath. So the Son
+earth, the sea, and all that is in them,     of Man is lord even of the Sabbath. (ESV)
+and rested the seventh day. Therefore the
+LORD blessed the Sabbath day and made it
+holy. (ESV)
+We should follow God's commandments to love him and so that
+Exodus 20:12 - Honor your father and your    things go well with us. Ephesians 6:1-3 - Children, obey your
+5   mother, that your days may be long in the    parents in the Lord, for this is right. Honor your father and
+land that the LORD your God is giving you.   mother (this is the first commandment with a promise), that it
+(ESV)                                        may go well with you and that you may live long in the land.
+(ESV)
+I John 3:15 - Everyone who hates his brother is a murderer, and
+you know that no murderer has eternal life abiding in him.
+6   Exodus 20:13 - You shall not murder. (ESV)   (ESV) Romans 13:9 - The commandments, You shall not commit
+adultery, You shall not murder, You shall not steal, You shall
+not covet, and any other commandment, are summed up in this
+word: You shall love your neighbor as yourself. (ESV)
+Proverbs 6:32 - He who commits adultery lacks sense; he who
+does it destroys himself. (ESV) Romans 7:2-3 - Thus a married
+woman is bound by law to her husband while he lives, but if her
+7   Exodus 20:14 - You shall not commit          husband dies she is released from the law of marriage.
+adultery. (ESV)                              Accordingly, she will be called an adulteress if she lives with
+another man while her husband is alive. But if her husband
+dies, she is free from that law, and if she marries another man
+she is not an adulteress. (ESV)
+Ephesians 4:28 - Let the thief no longer steal, but rather let
+8   Exodus 20:15 - You shall not steal. (ESV)    him labor, doing honest work with his own hands, so that he may
+have something to share with anyone in need. (ESV)
+I Timothy 1:8-11 - Now we know that the law is good, if one
+uses it lawfully, understanding this, that the law is not laid
+down for the just but for the lawless and disobedient, for the
+Exodus 20:16 - You shall not bear false      ungodly and sinners, for the unholy and profane, for those who
+9   witness against your neighbor. (ESV)         strike their fathers and mothers, for murderers, the sexually
+immoral, men who practice homosexuality, enslavers, liars,
+perjurers, and whatever else is contrary to sound doctrine, in
+accordance with the glorious gospel of the blessed God with
+which I have been entrusted. (ESV)
+Ephesians 5:3 - But sexual immorality and all impurity or
+covetousness must not even be named among you, as is proper
+among saints. (ESV) Luke 12:15 - And he said to them, Take
+care, and be on your guard against all covetousness, for one's
+life does not consist in the abundance of his possessions.
+(ESV) Romans 13:9 - The commandments, You shall not commit
+Exodus 20:17 - You shall not covet your      adultery, You shall not murder, You shall not steal, You shall
+neighbor's house; you shall not covet your   not covet, and any other commandment, are summed up in this
+10  neighbor's wife, or his male servant, or     word: You shall love your neighbor as yourself. (ESV)
+his female servant, or his ox, or his        Colossians 3:5 - Put to death therefore what is earthly in you:
+donkey, or anything that is your             sexual immorality, impurity, passion, evil desire, and
+neighbor's. (ESV)                            covetousness, which is idolatry. (ESV) Romans 7:7-8 - What then
+shall we say? That the law is sin? By no means! Yet if it had
+not been for the law, I would not have known sin. I would not
+have known what it is to covet if the law had not said, You
+shall not covet. But sin, seizing an opportunity through the
+commandment, produced in me all kinds of covetousness. Apart
+from the law, sin lies dead. (ESV)
+
+
+Quote from a friend
+"God's will is going to be done. If we don't resist it then it will be a blessing to us and if we resist it then
+it will be a curse to us."
 
 7.5.2. Having a will to do evil, rather than a will to do God's will
 
@@ -16843,7 +16970,56 @@ We must forgive our family in Christ:
   Colossians 3:13 - bearing with one another and, if one has a complaint against another, forgiving each other; as
   the Lord has forgiven you, so you also must forgive. (ESV)
 
-21.2. The law of the Spirit of life vs law of sin and death
+21.2. Doing the law and doing faith in Jesus are compatible. And with faith in Jesus we still seek to do the law but
+our justification comes by our faith in Jesus not by law-keeping
+
+  I Corinthians 7:19 - For neither circumcision counts for anything nor uncircumcision, but keeping the
+  commandments of God. (ESV)
+
+Even as born-again Christians, keeping the 10 Commandments is very important. Just because we may be justified by
+faith in Jesus Christ doesn't mean that followers of Jesus obey unrighteousness. Followers of Jesus still obey
+righteousness:
+
+  Romans 1:29-2:13 - They were filled with all manner of unrighteousness, evil, covetousness, malice. They are
+  full of envy, murder, strife, deceit, maliciousness. They are gossips, slanderers, haters of God, insolent,
+  haughty, boastful, inventors of evil, disobedient to parents, foolish, faithless, heartless, ruthless. Though
+  they know God's decree that those who practice such things deserve to die, they not only do them but give
+  approval to those who practice them. Therefore you have no excuse, O man, every one of you who judges. For in
+  passing judgment on another you condemn yourself, because you, the judge, practice the very same things. We know
+  that the judgment of God rightly falls on those who do such things. Do you suppose, O man-you who judge those
+  who do such things and yet do them yourself-that you will escape the judgment of God? Or do you presume on the
+  riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to
+  repentance? But because of your hard and impenitent heart you are storing up wrath for yourself on the day of
+  wrath when God's righteous judgment will be revealed. He will render to each one according to his works: to
+  those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for
+  those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury.
+  There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek,
+  but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no
+  partiality. For all who have sinned without the law will also perish without the law, and all who have sinned
+  under the law will be judged by the law. For it is not the hearers of the law who are righteous before God, but
+  the doers of the law who will be justified. (ESV)
+
+The righteousness in the actual doing of the law above is still upheld but there is now the righteousness that is
+by faith in Jesus Christ. In other words, keeping the commandments of God and following Jesus are not mutually
+exclusive. And the law still describes what good behaviour looks like and what bad behaviour looks like. But
+through the redemption that is in Christ Jesus, as we follow and place our faith in Jesus, obeying Jesus to repent
+from sin and to do good and to pass forward love and forgiveness, etc., we can be justified by our faith in Jesus.
+As we go on living, we keep our obedient believing faith in Jesus, and no longer want to rebel against God's law.
+Perfect compliance to the law is no longer the basis of our justification but we seek to not break the law:
+
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
+  the Prophets bear witness to it- the righteousness of God through faith in Jesus Christ for all who believe. For
+  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
+  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
+  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
+  over former sins. It was to show his righteousness at the present time, so that he might be just and the
+  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
+  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
+  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
+  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
+  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+
+21.3. The law of the Spirit of life vs law of sin and death
 
 Paul seems to refer to the Mosaic law as the ministry of death, and Paul refers to the ministry of the Spirit of
 Christ as giving life:
@@ -17130,7 +17306,7 @@ This is submitting to the righteousness of God:
   Romans 10:10- For with the heart one believes and is justified, and with the mouth one confesses and is saved.
   (ESV)
 
-21.3. The Torah
+21.4. The Torah
 
 The Torah is the compilation of the first five books of the Hebrew Bible, namely the books of Genesis, Exodus,
 Leviticus, Numbers and Deuteronomy. The Torah is known as the Pentateuch or the Five Books of Moses by Christians.
@@ -21566,7 +21742,52 @@ The followers of Paul the Apostle live by (walk by) faith; those are the righteo
   Galatians 3:11 - Now it is evident that no one is justified before God by the law, for The righteous shall live
   by faith. (ESV)
 
-40.1.1. Love your enemies
+40.1.1. Love God - treasure God, believe in God, obey God, trust in God. Keep His commandments and hold faith in His
+promises
+
+  James 2:1-9 - My brothers, show no partiality as you hold the faith in our Lord Jesus Christ, the Lord of glory.
+  For if a man wearing a gold ring and fine clothing comes into your assembly, and a poor man in shabby clothing
+  also comes in, and if you pay attention to the one who wears the fine clothing and say, You sit here in a good
+  place, while you say to the poor man, You stand over there, or, Sit down at my feet, have you not then made
+  distinctions among yourselves and become judges with evil thoughts? Listen, my beloved brothers, has not God
+  chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to
+  those who love him? But you have dishonored the poor man. Are not the rich the ones who oppress you, and the
+  ones who drag you into court? Are they not the ones who blaspheme the honorable name by which you were called?
+  If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you
+  are doing well. But if you show partiality, you are committing sin and are convicted by the law as
+  transgressors. (ESV)
+
+40.1.2. Remain faithful to God and keep trusting Him. We need trust in Jesus as we go through the trial
+
+We must remain faithful to God:
+
+  James 2:21-23 - Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You
+  see that faith was active along with his works, and faith was completed by his works; and the Scripture was
+  fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend
+  of God. (ESV)
+
+We must not short-sightedly exchange our invaluable inheritance for immediate relief as Esau did, and do our best
+to not allow bitterness to damage us going through the trial:
+
+  Hebrews 12:15-17 - See to it that no one fails to obtain the grace of God; that no root of bitterness springs up
+  and causes trouble, and by it many become defiled; that no one is sexually immoral or unholy like Esau, who sold
+  his birthright for a single meal. For you know that afterward, when he desired to inherit the blessing, he was
+  rejected, for he found no chance to repent, though he sought it with tears. (ESV)
+
+Trust in God and His promises:
+
+  Romans 4:20-22 - No distrust made him waver concerning the promise of God, but he grew strong in his faith as he
+  gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was
+  counted to him as righteousness. (ESV)
+
+oneplace.com why-the-believer-doubts-part-1-1-1172653.html: Why the Believer Doubts, Part 1 {#1} - Listen to Grace
+to You with John MacArthur, Jul 1, 2024
+
+Be assured in the heart of the promises of God:
+
+  Hebrews 11:1 - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
+
+40.1.3. Love your enemies
 
 We must be like children of God to enter the Kingdom. Children of God are like their Father. So we must love our
 enemies:
@@ -21577,7 +21798,7 @@ enemies:
   collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even
   the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
-40.1.2. Practice your righteousness for God's commendation
+40.1.4. Practice your righteousness for God's commendation
 
 We must absolutely be faithful to God who sees in secret. Having an awareness and a faith in God is very important
 for behaving as children of God:
@@ -21589,11 +21810,11 @@ for behaving as children of God:
   left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in
   secret will reward you. (ESV)
 
-40.1.3. Will for God's will to be done
+40.1.5. Will for God's will to be done
 
   Matthew 6:10 - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
 
-40.1.4. Do the will of God
+40.1.6. Do the will of God
 
 We want to be children of God, so we must act like children of God:
 
@@ -21606,7 +21827,7 @@ We don't want to be children of the devil:
   from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he
   speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
-40.1.5. Forgive everyone
+40.1.7. Forgive everyone
 
 I believe we need to be serving Christ to be led by the Spirit, and that means forgiving everyone is important.
 Jesus commanded us to love one another as He loved us.
@@ -33980,8 +34201,9 @@ Nor does it make sense to challenge someone in court who you want to marry becau
 - a) that would be illogical because having love for them I do not want want to hurt them, and
 - b) we are supposed to love our wives as Christ loves His church - self-sacrificially
 
-  I Corinthians 10:9 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
-  (ESV)
+  I Corinthians 10:9-11 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
+  nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
+  example, but they were written down for our instruction, on whom the end of the ages has come. (ESV)
 
 Nor does it make senses to pit old concerns of my pre-born-again life such as "a conviction might make it harder
 to get a job" up against the needs of the person I want to marry.
@@ -33997,6 +34219,77 @@ and with a different charge, Christ's law still applies:
   James 2:8-9 - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as
   yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as
   transgressors. (ESV)
+
+The judiciary system is right to execute impartial justice:
+
+  Deuteronomy 16:17-20 - Every man shall give as he is able, according to the blessing of the LORD your God that
+  he has given you. You shall appoint judges and officers in all your towns that the LORD your God is giving you,
+  according to your tribes, and they shall judge the people with righteous judgment. You shall not pervert
+  justice. You shall not show partiality, and you shall not accept a bribe, for a bribe blinds the eyes of the
+  wise and subverts the cause of the righteous. Justice, and only justice, you shall follow, that you may live and
+  inherit the land that the LORD your God is giving you. (ESV)
+
+  II Chronicles 19:5-7 - He appointed judges in the land in all the fortified cities of Judah, city by city, and
+  said to the judges, Consider what you do, for you judge not for man but for the LORD. He is with you in giving
+  judgment. Now then, let the fear of the LORD be upon you. Be careful what you do, for there is no injustice with
+  the LORD our God, or partiality or taking bribes. (ESV)
+
+In my situation I obviously needed to hold faith in Jesus:
+
+  Romans 3:19-22 - Now we know that whatever the law says it speaks to those who are under the law, so that every
+  mouth may be stopped, and the whole world may be held accountable to God. For by works of the law no human being
+  will be justified in his sight, since through the law comes knowledge of sin. But now the righteousness of God
+  has been manifested apart from the law, although the Law and the Prophets bear witness to it- the righteousness
+  of God through faith in Jesus Christ for all who believe. For there is no distinction: (ESV)
+
+And it means pleading guilty:
+
+  Romans 3:4 - By no means! Let God be true though every one were a liar, as it is written, That you may be
+  justified in your words, and prevail when you are judged. (ESV)
+
+  Romans 3:23 - for all have sinned and fall short of the glory of God, (ESV)
+
+Only Jesus was without sin:
+
+  Hebrews 4:15 - For we do not have a high priest who is unable to sympathize with our weaknesses, but one who in
+  every respect has been tempted as we are, yet without sin. (ESV)
+
+  I John 1:10 - If we say we have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+  I John 1:8-10 - If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our
+  sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. If we say we
+  have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+However graceless I thought the situation was, pleading not guilty from my perspective would have been:
+
+- not loving my neighbour,
+- not trusting God,
+- not putting God first before a girl I like,
+- and putting Christ to the test by saying I have not done anything wrong
+
+We must not put Christ tot he test:
+
+  I Corinthians 10:9-11 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
+  nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
+  example, but they were written down for our instruction, on whom the end of the ages has come. (ESV)
+
+We must remain faithful to God:
+
+  James 2:21-23 - Was not Abraham our father justified by works when he offered up his son Isaac on the altar? You
+  see that faith was active along with his works, and faith was completed by his works; and the Scripture was
+  fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend
+  of God. (ESV)
+
+We must not short-sightedly exchange our invaluable inheritance for immediate relief as Esau did, and do our best
+to not allow bitterness to damage us going through the trial:
+
+  Hebrews 12:15-17 - See to it that no one fails to obtain the grace of God; that no root of bitterness springs up
+  and causes trouble, and by it many become defiled; that no one is sexually immoral or unholy like Esau, who sold
+  his birthright for a single meal. For you know that afterward, when he desired to inherit the blessing, he was
+  rejected, for he found no chance to repent, though he sought it with tears. (ESV)
+
+  Mark 8:35-36 - For whoever would save his life will lose it, but whoever loses his life for my sake and the
+  gospel's will save it. For what does it profit a man to gain the whole world and forfeit his life? (ESV)
 
 Despite being born of water and the Spirit, we must commit to offering our entire life as a living sacrifice for
 God, to sow our own life for Jesus' sake:
@@ -35360,7 +35653,7 @@ Date: 2024-07-06 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-06 Sat 20:06
+Created: 2024-07-07 Sun 04:21
 
 Validate
 
