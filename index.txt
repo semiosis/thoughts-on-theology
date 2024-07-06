@@ -1102,9 +1102,9 @@ bathwater.
 
 As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge
 amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and
-I've had to fight against a spirit which denis my sins were atoned for and tries to get me to do good works for
+I've had to fight against a spirit which denies my sins were atoned for and tries to get me to do good works for
 justification. I still do good works out of obedience but I resist the spirit pressuring me to work for
-justification (it is a very vindictive, Christ-denying spirit):
+justification (it is a very vindictive, Christ-denying spirit, and it is incredibly persistent):
 
   Galatians 4:29 - But just as at that time he who was born according to the flesh persecuted him who was born
   according to the Spirit, so also it is now. (ESV)
@@ -12904,9 +12904,9 @@ We are slaves to Christ Jesus:
 
 As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge
 amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and
-I've had to fight against a spirit which denis my sins were atoned for and tries to get me to do good works for
+I've had to fight against a spirit which denies my sins were atoned for and tries to get me to do good works for
 justification. I still do good works out of obedience but I resist the spirit pressuring me to work for
-justification (it is a very vindictive, Christ-denying spirit):
+justification (it is a very vindictive, Christ-denying spirit, and it is incredibly persistent):
 
   Galatians 4:29 - But just as at that time he who was born according to the flesh persecuted him who was born
   according to the Spirit, so also it is now. (ESV)
@@ -35360,7 +35360,7 @@ Date: 2024-07-06 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-06 Sat 19:44
+Created: 2024-07-06 Sat 20:06
 
 Validate
 

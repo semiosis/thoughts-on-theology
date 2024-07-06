@@ -692,7 +692,7 @@ Over the course of 2022, I was actually speaking a lot of prophecy. There was a 
 
 > **[I Corinthians 6:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A19&version=ESV)** - Or do you not know that your body is a temple of the Holy Spirit within you, whom you have from God? You are not your own, (ESV)
 
-As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and I've had to fight against a spirit which denis my sins were atoned for and tries to get me to do good works for <ins>justification</ins>. I still do good works out of obedience but I resist the spirit pressuring me to work for justification (it is a very vindictive, Christ-denying spirit):
+As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and I've had to fight against a spirit which denies my sins were atoned for and tries to get me to do good works for <ins>justification</ins>. I still do good works out of obedience but I resist the spirit pressuring me to work for justification (it is a very vindictive, Christ-denying spirit, and it is incredibly persistent):
 
 > **[Galatians 4:29](https://www.biblegateway.com/passage/?search=Galatians%204%3A29&version=ESV)** - But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
 
@@ -8766,7 +8766,7 @@ We are slaves to Christ Jesus:
 
 > **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
 
-As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and I've had to fight against a spirit which denis my sins were atoned for and tries to get me to do good works for <ins>justification</ins>. I still do good works out of obedience but I resist the spirit pressuring me to work for justification (it is a very vindictive, Christ-denying spirit):
+As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and I've had to fight against a spirit which denies my sins were atoned for and tries to get me to do good works for <ins>justification</ins>. I still do good works out of obedience but I resist the spirit pressuring me to work for justification (it is a very vindictive, Christ-denying spirit, and it is incredibly persistent):
 
 > **[Galatians 4:29](https://www.biblegateway.com/passage/?search=Galatians%204%3A29&version=ESV)** - But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
 
