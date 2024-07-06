@@ -35649,11 +35649,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-06 Sat 00:00
+Date: 2024-07-07 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-07 Sun 04:21
+Created: 2024-07-07 Sun 04:26
 
 Validate
 
