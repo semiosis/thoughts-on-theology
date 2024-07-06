@@ -368,7 +368,7 @@ I believe we are set free from sin and from being condemned by / under the Mosai
 
 > **[Romans 8:1-2](https://www.biblegateway.com/passage/?search=Romans%208%3A1-2&version=ESV)** - There is therefore now no condemnation for those <ins>who are in Christ Jesus.</ins> For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
 
 > **[Galatians 4:8](https://www.biblegateway.com/passage/?search=Galatians%204%3A8&version=ESV)** - Formerly, when you did not know God, you were enslaved to those that by nature are not gods. (ESV)
 
@@ -476,6 +476,8 @@ Someone who has just put their faith in Jesus for the first time and is believin
 The Jesus which the Apostles proclaimed is the same Jesus we need to proclaim in Church - so Jesus' teachings should be taught right along with the gospel and along with all that the prophets have spoken which relate to Jesus:
 
 > **[II Corinthians 11:4](https://www.biblegateway.com/passage/?search=2%20Corinthians%2011%3A4&version=ESV)** - For if someone comes and proclaims another Jesus than the one we proclaimed, or if you receive a different spirit from the one you received, or if you accept a different gospel from the one you accepted, you put up with it readily enough. (ESV)
+
+[youtube.com: You Cannot Obey God Without God](https://www.youtube.com/watch?v=mqlCjq60ogg&t=203s)
 
 It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
 
@@ -620,6 +622,10 @@ Belief (in the heart) that Jesus is the Son of God leads to:
 
 ## Being born-again of the Spirit
 
+People were being born of the Spirit for quite some time before Jesus was born of the virgin Mary:
+
+> **[Galatians 4:28-31](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-31&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But **just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now.** But what does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
+
 -   **Quote from John Piper:** The most profound change in the universe is when a human being passes from death to life - from spiritual deadness to spiritual aliveness and this text is about how to help that change happen.
 
 AMEN!
@@ -645,6 +651,10 @@ AMEN John Piper. Thanks.
 Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used this analogy. We can sense it (hear it's sound, such as making testimony of being born of the Spirit), but we don't know where it comes form or where it goes:
 
 > **[John 3:3-8](https://www.biblegateway.com/passage/?search=John%203%3A3-8&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes, and you hear its sound, but **you do not know where it comes from or where it goes.** So it is with everyone who is **born of the Spirit.** (ESV)
+
+People were being born of the Spirit for quite some time before Jesus was born of the virgin Mary:
+
+> **[Galatians 4:28-31](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-31&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But **just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now.** But what does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
 
 I was born-again 'of the Spirit' on [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) where I was given a new body, or it was regenerated - a blue light-body. I don't really know what this is. It was something like a singularity event and my perception of the world is now spiritual. Most of my life I have not been a very faithful Christian. I was a 'nominal' Christian but I didn't really have a lot of faith or knowledge of God. I had not been seeking out Jesus. For the 2 years leading up to 2 April 2022, I can tell now in retrospect that God was working in my life. So when was I born-again? Was it when I first believed as a child, or when I was baptised as a teenager? Not in the same way I was born-again on 2 April 2022. On 2 April 2022 I was truly born-again of the Spirit, and my best explanation as to what had changed was that I had begun to **authentically seek God and to be obedient to Jesus, accountable to God who sees in secret**, and not to man, and that activated a real prayer life, and I had asked God to give me His Holy Spirit. Even though I could not yet hear His voice, I was praying and seeking and beginning to repent. On the 2 April 2022 I was born-again the Spirit - I was spiritually regenerated - whatever it was that happened which I described. When that happened God had put the fear of Him in my heart so that I would not turn from Him. When I first 'believed' the gospel, this had not happened yet, but I had the testimony I guess. This event, what I experienced on 2 April 2022 I consider to me being born of 'water and the Spirit'. But hearing and keeping the gospel of Jesus, and asking God to receive the Holy Spirit, or seeking God I guess they will have some events, probably different to my 2 April 2022 event something similar happen then or in their future some time, I assume, or perhaps it is 'entering the Kingdom of God'. I don't know exactly how it works. I'm retroactively trying to figure things out by reading the Scriptures.
 
@@ -681,6 +691,10 @@ Over the course of 2022, I was actually speaking a lot of prophecy. There was a 
 > **[Romans 8:9](https://www.biblegateway.com/passage/?search=Romans%208%3A9&version=ESV)** - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
 > **[I Corinthians 6:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A19&version=ESV)** - Or do you not know that your body is a temple of the Holy Spirit within you, whom you have from God? You are not your own, (ESV)
+
+As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and I've had to fight against a spirit which denis my sins were atoned for and tries to get me to do good works for <ins>justification</ins>. I still do good works out of obedience but I resist the spirit pressuring me to work for justification (it is a very vindictive, Christ-denying spirit):
+
+> **[Galatians 4:29](https://www.biblegateway.com/passage/?search=Galatians%204%3A29&version=ESV)** - But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
 
 
 ## Experiential heart belief through obedience
@@ -2557,6 +2571,10 @@ Priorities:
 > **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
 -   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+
+We should be able to live while having confidence that Jesus is all we need. The fear of not having enough money should not be stopping us from obeying God and treasuring God above all things and loving one another as God has instructed.
+
+> **[Hebrews 13:5-6](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A5-6&version=ESV)** - Keep your life free from love of money, and be content with what you have, for he has said, I will never leave you nor forsake you. So we can confidently say, The Lord is my helper; I will not fear; what can man do to me? (ESV)
 
 You cannot make money master over you. We must accept Jesus as Master over us. But not just that. We have to want God, treasure God and love God. And that means loving Him, treasure Him, love Him in trust and in belief and obedience. In order to follow Jesus, sometimes You will **have to** drop money because there are many people you around you who need you to lighten their burdens. But we have to root the love of it out our own hearts and love God with our whole heart, and trust God who is our life!
 
@@ -4697,7 +4715,7 @@ See:
 
 -   <https://rickhowerton.wordpress.com/2015/05/06/you-are-my-disciple-if-the-five-ifs-of-a-disciple/>
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
 
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
@@ -6507,6 +6525,8 @@ We must believe on Him (God) who raised Jesus from the dead, with the faith that
 If a person lives their life as a living sacrifice to honour and serve Jesus Christ, which is honouring and having faith in God, then all of that is analogous to Abraham's works of faith.
 
 > **[Romans 12:1-2](https://www.biblegateway.com/passage/?search=Romans%2012%3A1-2&version=ESV)** - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+> **[Hebrews 13:15-16](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A15-16&version=ESV)** - Through him then let us continually offer up a sacrifice of praise to God, that is, the fruit of lips that acknowledge his name. Do not neglect to do good and to share what you have, for such sacrifices are pleasing to God. (ESV)
 
 We must trust God in hope against hope, and not weaken in faith, and trust God's promise, and honour Jesus Christ with our lives - that is what I believe.
 
@@ -8727,7 +8747,27 @@ We are slaves to Christ Jesus:
 
 > **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+As a result of being born of the Spirit and subsequent obedience to Jesus' commandments has resulted in a huge amount of worldly resistance, and also I've had to fight against a spirit of justification by law compliance, and I've had to fight against a spirit which denis my sins were atoned for and tries to get me to do good works for <ins>justification</ins>. I still do good works out of obedience but I resist the spirit pressuring me to work for justification (it is a very vindictive, Christ-denying spirit):
+
+> **[Galatians 4:29](https://www.biblegateway.com/passage/?search=Galatians%204%3A29&version=ESV)** - But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
+
+> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+
+Connecting **[Romans 6:22](https://www.biblegateway.com/passage/?search=Romans%206%3A22&version=ESV)** to **Hebrews 13:12**, the result of being enslaved to God, obeying God and Christian suffering, results in our sanctification.
+
+Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's encouraged. I think we bear His reproach in order to be sanctified and then call Jerusalem our home:
+
+> **[Hebrews 13:12-14](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12-14&version=ESV)** - So **Jesus also suffered outside the gate in order to sanctify the people through his own blood. Therefore let us go to him outside the camp and bear the reproach he endured.** For here we have no lasting city, but we seek the city that is to come. (ESV)
+
+So to be a slave of righteousness serving Jesus results in sanctification and also calling the Jerusalem above our mother and our home:
+
+> **[Galatians 4:25-26](https://www.biblegateway.com/passage/?search=Galatians%204%3A25-26&version=ESV)** - Now Hagar is Mount Sinai in Arabia; she corresponds to the present Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our mother. (ESV)
+
+> **[Galatians 4:27](https://www.biblegateway.com/passage/?search=Galatians%204%3A27&version=ESV)** - For it is written, Rejoice, O barren one who does not bear; break forth and cry aloud, you who are not in labor! For the children of the desolate one will be more than those of the one who has a husband. (ESV)
+
+We are not children of the slave woman but we are children of the free woman:
+
+> **[Galatians 4:28-31](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-31&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But **just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now.** But what does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
 
 -   **Bible study:** [You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 - YouTube @time: 2 min 6 sec](https://youtube.com/watch?v=mUnh98bcLek&t=126)
 
@@ -8994,7 +9034,7 @@ We don't justify ourselves. The lawyer here was desiring to justify himself. God
 
 > **[Romans 8:2](https://www.biblegateway.com/passage/?search=Romans%208%3A2&version=ESV)** - For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, resulting in sanctification, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
+> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
 
 So this morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-05-12 Sun&gt; </span></span> I got a picture of John Piper in my mind with this Bible verse, and so I googled it and found this tweet a few days ago. Also, this morning I had two other dreams:
 
@@ -10271,6 +10311,16 @@ Then Jesus asked the demon its name.
 
 
 ### Exorcism prayer by Derek Prince
+
+Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's encouraged. I think we bear His reproach in order to be sanctified and then call Jerusalem our home:
+
+> **[Hebrews 13:12-14](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12-14&version=ESV)** - So **Jesus also suffered outside the gate in order to sanctify the people through his own blood. Therefore let us go to him outside the camp and bear the reproach he endured.** For here we have no lasting city, but we seek the city that is to come. (ESV)
+
+> **[Galatians 4:25-26](https://www.biblegateway.com/passage/?search=Galatians%204%3A25-26&version=ESV)** - Now Hagar is Mount Sinai in Arabia; she corresponds to the present Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our mother. (ESV)
+
+> **[Galatians 4:27](https://www.biblegateway.com/passage/?search=Galatians%204%3A27&version=ESV)** - For it is written, Rejoice, O barren one who does not bear; break forth and cry aloud, you who are not in labor! For the children of the desolate one will be more than those of the one who has a husband. (ESV)
+
+> **[Galatians 4:28-31](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-31&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But **just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now.** But what does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
 
 -   [youtube.com: Spiritual Warfare on Earth - Derek Prince @time: 1 hrs 32 min 40 sec](https://youtube.com/watch?v=x0rUaQneH9E&t=5560)
 
@@ -12478,6 +12528,10 @@ Sometimes a person's work is all burned up but they are **still saved**.
 
 1.  Salvation is through grace alone, but through sanctification by the Spirit and faith in the truth, which is cooperative
 
+    Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's encouraged. I think we bear His reproach in order to be sanctified and then call Jerusalem our home:
+    
+    > **[Hebrews 13:12-14](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12-14&version=ESV)** - So **Jesus also suffered outside the gate in order to sanctify the people through his own blood. Therefore let us go to him outside the camp and bear the reproach he endured.** For here we have no lasting city, but we seek the city that is to come. (ESV)
+    
     > **[II Thessalonians 2:10-13](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A10-13&version=ESV)** - and with all the deception of wickedness for those who perish, because they did not receive the love of the truth so as to be saved. For this reason God will send upon them a deluding influence so that they will believe what is false, in order that they all may be judged who did not believe the truth, but took pleasure in wickedness. But we should always give thanks to God for you, brethren beloved by the Lord, because God has chosen you from the beginning for <ins>salvation through sanctification by the Spirit and faith in the truth</ins>.
     
     The Spirit sanctifies as we have faith in the truth.
@@ -16945,6 +16999,8 @@ However, endorsing gay marriage is not merely breaking commandment, but also it 
 
 ## God's law is good. His precepts are good. I don't identify with any of this LGBT stuff
 
+> **[Hebrews 13:4](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A4&version=ESV)** - Let marriage be held in honor among all, and let the marriage bed be undefiled, for God will judge the sexually immoral and adulterous. (ESV)
+
 But God is love, not a graceless machine:
 
 > **[I John 3:21](https://www.biblegateway.com/passage/?search=1%20John%203%3A21&version=ESV)** - Beloved, if our heart does not condemn us, we have confidence before God; (ESV)
@@ -17252,6 +17308,10 @@ Here's the grace. I choose to interpret this in this way, and I claim it because
 
 2.  Born of water and the spirit
 
+    People were being born of the Spirit for quite some time before Jesus was born of the virgin Mary:
+    
+    > **[Galatians 4:28-31](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-31&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But **just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now.** But what does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
+    
     > **[John 3:5](https://www.biblegateway.com/passage/?search=John%203%3A5&version=ESV)** - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
     
     > **[Ezekiel 36:24-27](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A24-27&version=ESV)** - I will take you from the nations and gather you from all the countries and bring you into your own land. I will sprinkle clean water on you, and you shall be clean from all your uncleannesses, and from all your idols I will cleanse you. And I will give you a new heart, and a new spirit I will put within you. And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my Spirit within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
@@ -24794,6 +24854,8 @@ Likewise, there was also a lot of resistance, spiritually, to repenting from sin
 
 
 ### We're persecuted for following Jesus
+
+> **[Galatians 4:29](https://www.biblegateway.com/passage/?search=Galatians%204%3A29&version=ESV)** - But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
 
 Christian persecution is not for suffering as an evildoer:
 
