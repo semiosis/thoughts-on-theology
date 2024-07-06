@@ -10115,11 +10115,11 @@ righteousness:
   under the law will be judged by the law. For it is not the hearers of the law who are righteous before God, but
   the doers of the law who will be justified. (ESV)
 
-I Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law is
-not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and
-profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice
-homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with
-the glorious gospel of the blessed God with which I have been entrusted. (ESV)
+  I Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
+  is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy
+  and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who
+  practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
+  accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
 The righteousness in the actual doing of the law above is still upheld but there is now the righteousness that is
 by faith in Jesus Christ. In other words, keeping the commandments of God and following Jesus are not mutually
@@ -21742,7 +21742,41 @@ The followers of Paul the Apostle live by (walk by) faith; those are the righteo
   Galatians 3:11 - Now it is evident that no one is justified before God by the law, for The righteous shall live
   by faith. (ESV)
 
-40.1.1. Love God - treasure God, believe in God, obey God, trust in God. Keep His commandments and hold faith in His
+40.1.1. Accept the free gift which is by grace and not of our own merit
+
+In believing in Jesus, we are guaranteed an inheritance in heaven:
+
+  Ephesians 1:13,14 - In him you also, when you heard the word of truth, the gospel of your salvation, and
+  believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
+  acquire possession of it, to the praise of his glory. (ESV)
+
+The inheritance is in heaven:
+
+  I Peter 1:4 - to obtain an inheritance which is imperishable and undefiled and will not fade away, reserved in
+  heaven for you, (ESV)
+
+We work for the Lord while believing in Jesus:
+
+  Colossians 3:23-25 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
+  you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid
+  back for the wrong he has done, and there is no partiality. (ESV)
+
+So once again, we are actually instructed to work for God, but it's not wrong under the right conditions.
+
+All the Apostle Paul is saying here, I think is that in "working for God" doesn't imply you have accepted a gift.
+But, yes, you can accept the gift (believe in Jesus) and under that condition work for God:
+
+  Romans 4:4 - Now to the one who works, his wages are not counted as a gift but as his due. (ESV)
+
+We still really do need to accept the free gift! Actually, it's imperative, no matter how much we've been
+attempting to work for God, that we accept the free gift from God:
+
+  Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
+  as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
+  from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man
+  against whom the Lord will not count his sin. (ESV)
+
+40.1.2. Love God - treasure God, believe in God, obey God, trust in God. Keep His commandments and hold faith in His
 promises
 
   James 2:1-9 - My brothers, show no partiality as you hold the faith in our Lord Jesus Christ, the Lord of glory.
@@ -21757,7 +21791,7 @@ promises
   are doing well. But if you show partiality, you are committing sin and are convicted by the law as
   transgressors. (ESV)
 
-40.1.2. Remain faithful to God and keep trusting Him. We need trust in Jesus as we go through the trial
+40.1.3. Remain faithful to God and keep trusting Him. We need trust in Jesus as we go through the trial
 
 We must remain faithful to God:
 
@@ -21787,7 +21821,7 @@ Be assured in the heart of the promises of God:
 
   Hebrews 11:1 - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
 
-40.1.3. Love your enemies
+40.1.4. Love your enemies
 
 We must be like children of God to enter the Kingdom. Children of God are like their Father. So we must love our
 enemies:
@@ -21798,7 +21832,7 @@ enemies:
   collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even
   the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
-40.1.4. Practice your righteousness for God's commendation
+40.1.5. Practice your righteousness for God's commendation
 
 We must absolutely be faithful to God who sees in secret. Having an awareness and a faith in God is very important
 for behaving as children of God:
@@ -21810,11 +21844,11 @@ for behaving as children of God:
   left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in
   secret will reward you. (ESV)
 
-40.1.5. Will for God's will to be done
+40.1.6. Will for God's will to be done
 
   Matthew 6:10 - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
 
-40.1.6. Do the will of God
+40.1.7. Do the will of God
 
 We want to be children of God, so we must act like children of God:
 
@@ -21827,7 +21861,7 @@ We don't want to be children of the devil:
   from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he
   speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
-40.1.7. Forgive everyone
+40.1.8. Forgive everyone
 
 I believe we need to be serving Christ to be led by the Spirit, and that means forgiving everyone is important.
 Jesus commanded us to love one another as He loved us.
@@ -35653,7 +35687,7 @@ Date: 2024-07-07 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-07 Sun 04:26
+Created: 2024-07-07 Sun 04:44
 
 Validate
 
