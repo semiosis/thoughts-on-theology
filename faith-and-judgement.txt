@@ -2478,16 +2478,84 @@ youtube.com: Live with the End in View
   serves by the strength that God supplies-in order that in everything God may be glorified through Jesus Christ.
   To him belong glory and dominion forever and ever. Amen. (ESV)
 
+God wants as many people as possible to be saved (I think of this a bit like as 'delaying' second coming):
+
+  John 1:12-13 - But as many as received Him, to them He gave the right to become children of God, even to those
+  who believe in His name, who were born, not of blood nor of the will of the flesh nor of the will of man, but of
+  God. (NASB)
+
+  I Timothy 2:4 - who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+
+  II Peter 3:9 - The Lord is not slow to fulfill his promise as some count slowness, but is patient toward you,
+  not wishing that any should perish, but that all should reach repentance. (ESV)
+
+  Ezekiel 18:23 - Have I any pleasure in the death of the wicked, declares the Lord GOD, and not rather that he
+  should turn from his way and live? (ESV)
+
+I consider the 'coming of the Lord' to be something which happens during one's time on earth probably to every
+servant of the Lord:
+
+  Matthew 25:11-15 - Afterward the other virgins came also, saying, Lord, lord, open to us. But he answered,
+  Truly, I say to you, I do not know you. Watch therefore, for you know neither the day nor the hour. For it will
+  be like a man going on a journey, who called his servants and entrusted to them his property. To one he gave
+  five talents, to another two, to another one, to each according to his ability. Then he went away. (ESV)
+
+  Matthew 24:42 - Therefore, stay awake, for you do not know on what day your Lord is coming. (ESV)
+
+Just as it is inevitable that every son or daughter of God will be disciplined:
+
+  Hebrews 12:6 - For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
+
 I still hold imminence with regards to rapture a possibility on the basis that when I was born of the Spirit,
 things progressed very rapidly, my words seemed to have a lot of impact, then war broke out in the middle east
 after I said on my blog we should get ready for Armageddon, I felt as though I nearly did get 'raptured', and then
-things in my life began to stabilise. In some sense I think the rapture and judgement is imminent. "When Jesus
-became my Lord and Savior, a battle between good and evil started." as one commenter said on this video.
+things in my life began to stabilise. In some sense I think the rapture and judgement is imminent, and I think
+probably when each son or daughter is brought into the kingdom they may have a 'taste of it'. In other words, God
+is still adopting sons and daughters and we don't know who the last one to be adopted is.
+
+So in a sense it's been on the verge of the second coming of Christ for quite a long time:
+
+  Luke 21:20-24 - But when you see Jerusalem surrounded by armies, then know that its desolation has come near.
+  Then let those who are in Judea flee to the mountains, and let those who are inside the city depart, and let not
+  those who are out in the country enter it, for these are days of vengeance, to fulfill all that is written. Alas
+  for women who are pregnant and for those who are nursing infants in those days! For there will be great distress
+  upon the earth and wrath against this people. They will fall by the edge of the sword and be led captive among
+  all nations, and Jerusalem will be trampled underfoot by the Gentiles, until the times of the Gentiles are
+  fulfilled. (ESV)
+
+Those are my current eschatological thoughts.
+
+"When Jesus became my Lord and Savior, a battle between good and evil started." as one commenter said on this
+video.
 
   Matthew 3:10 - Even now the axe is laid to the root of the trees. Every tree therefore that does not bear good
   fruit is cut down and thrown into the fire. (ESV)
 
-Even regards to the rapture, ultimately we leave this world behind. The present form of it will pass away.
+Even regards to the rapture, ultimately we leave this world behind. Ultimately, I think we need to go all-in for
+Jesus and get used to relying on God completely, and be ready to leave this world behind. If we go all-in for
+Jesus now then we will experience the kingdom of God on earth.
+
+The present form of it will pass away and is passing away:
+
+  I Corinthians 7:30-31 - and those who mourn as though they were not mourning, and those who rejoice as though
+  they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as
+  though they had no dealings with it. For the present form of this world is passing away. (ESV)
+
+  Matthew 19:21 - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and
+  you will have treasure in heaven; and come, follow me. (ESV)
+
+  I John 2:15-17 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. For all that is in the world-the desires of the flesh and the desires of the eyes and
+  pride in possessions-is not from the Father but is from the world. And the world is passing away along with its
+  desires, but whoever does the will of God abides forever. (ESV)
+
+  Matthew 6:21 - For where your treasure is, there your heart will be also. (ESV)
+
+The repentant criminal on the cross next to Jesus was sold out for the kingdom of God and ready to leave this
+world behind:
+
+  Luke 23:42-43 - And he said, Jesus, remember me when you come into your kingdom. And he said to him, Truly, I
+  say to you, today you will be with me in Paradise. (ESV)
 
 Also, this is interesting:
 
@@ -35875,7 +35943,7 @@ Date: 2024-07-07 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-07 Sun 10:39
+Created: 2024-07-07 Sun 14:22
 
 Validate
 
