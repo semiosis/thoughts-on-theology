@@ -4203,18 +4203,19 @@ Obedience to Jesus' commandments (becoming disciples, obeying Jesus' commandment
   the Son and the Holy Spirit, teaching them to observe all that I commanded you; and lo, I am with you always,
   even to the end of the age."
 
-The word tereo means (to keep, observe, obey, follow). Obviously, because commandments are for obeying. That's all
-they are for, actually. I find it bewildering the way in which people think they can get away with thinking that
-this observance means to remember but not practice. Nowhere in the Bible does it teach to disobey God:
+The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This
+observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
 
-  Matthew 28:20 :: teaching them to follow all that I commanded you; and behold, I am with you always, to the end
+  Matthew 28:20 - teaching them to follow all that I commanded you; and behold, I am with you always, to the end
   of the age." (NASB2020)
 
-Someone who teachings against needing to do Jesus' commandments teach people to be not a part of Jesus' family.
-It's great how God has given us Hebrew and Greek:
+Don't teach against needing to do Jesus' commandments. To do so is to teach people to not be a part of Jesus'
+family. It's great how God has given us Hebrew and Greek to make this unambiguous:
 
   Deuteronomy 5:27 - Go near and hear all that the LORD our God will say and speak to us all that the LORD our God
   will speak to you, and we will hear and do it. (ESV)
+
+It's not just the red letters:
 
   Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
 
@@ -30441,15 +30442,14 @@ Make disciples of all the nations, teaching them to follow/obey Jesus:
   Matthew 28:20 - and teaching them to obey (G5083 tereo) all that I have commanded you. And surely I am with you
   always, even to the end of the age." (BSB)
 
-The word tereo means (to keep, observe, obey, follow). Obviously, because commandments are for obeying. That's all
-they are for, actually. I find it bewildering the way in which people think they can get away with thinking that
-this observance means to remember but not practice. Nowhere in the Bible does it teach to disobey God:
+The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This
+observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
 
-  Matthew 28:20 :: teaching them to follow all that I commanded you; and behold, I am with you always, to the end
+  Matthew 28:20 - teaching them to follow all that I commanded you; and behold, I am with you always, to the end
   of the age." (NASB2020)
 
-Someone who teachings against needing to do Jesus' commandments teach people to be not a part of Jesus' family.
-It's great how God has given us Hebrew and Greek:
+Don't teach against needing to do Jesus' commandments. To do so is to teach people to not be a part of Jesus'
+family. It's great how God has given us Hebrew and Greek to make this unambiguous:
 
   Deuteronomy 5:27 - Go near and hear all that the LORD our God will say and speak to us all that the LORD our God
   will speak to you, and we will hear and do it. (ESV)
@@ -36018,7 +36018,8 @@ There's Only One Acceptable Motive To Serve God - YouTube
 
 The motivation for everything must be to glorify God.
 
-78.1. Do the will of the Father - obey Jesus - AMEN!!
+78.1. Do the will of the Father - obey Jesus. It's not just the red letters either. We must keep God's commandments.
+AMEN!!
 
 The most terrifying passage in the Bible | Matthew 7:21-23 - YouTube
 
@@ -36200,7 +36201,7 @@ Date: 2024-07-08 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 13:47
+Created: 2024-07-08 Mon 14:01
 
 Validate
 

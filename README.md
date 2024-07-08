@@ -2755,15 +2755,17 @@ Obedience to Jesus' commandments (becoming disciples, obeying Jesus' commandment
 
 > **[Matthew 28:18-20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A18-20&version=ESV)** - And Jesus came up and spoke to them, saying, “All authority has been given to Me in heaven and on earth. Go therefore and make disciples of all the nations, baptizing them in the name of the Father and the Son and **the Holy Spirit**, teaching them to observe **all that I commanded you**; and lo, I am with you always, even to the end of the age.”
 
-The word tereo means (to keep, observe, obey, follow). Obviously, because commandments are for obeying. That's all they are for, actually. I find it bewildering the way in which people think they can get away with thinking that this observance means to remember but not practice. Nowhere in the Bible does it teach to disobey God:
+The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
 
-> **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=NASB)** :: teaching them to **follow** all that I commanded you; and behold, I am with you always, to the end of the age.” (NASB2020)
+> **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=NASB)** - teaching them to **follow** all that I commanded you; and behold, I am with you always, to the end of the age.” (NASB2020)
 
-Someone who teachings against needing to do Jesus' commandments teach people to be **not a part** of Jesus' family. It's great how God has given us Hebrew and Greek:
+Don't teach against needing to do Jesus' commandments. To do so is to teach people to **not be a part** of Jesus' family. It's great how God has given us Hebrew and Greek to make this unambiguous:
 
 > **[Deuteronomy 5:27](https://www.biblegateway.com/passage/?search=Deuteronomy%205%3A27&version=ESV)** - Go near and hear all that the LORD our God will say and speak to us all that the LORD our God will speak to you, and we will hear **and do it**. (ESV)
 
-> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+It's not just the red letters:
+
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God **and do it.** (ESV)
 
 Obedience to Jesus' commandments (trusting Jesus and being baptised):
 
@@ -21229,15 +21231,15 @@ Make disciples of all the nations, teaching them to follow/obey Jesus:
 
 > **Matthew 28:20** - and teaching them to obey (**[G5083 tereo](https://biblehub.com/greek/5083.htm)**) all that I have commanded you. And surely I am with you always, even to the end of the age.” (BSB)
 
-The word tereo means (to keep, observe, obey, follow). Obviously, because commandments are for obeying. That's all they are for, actually. I find it bewildering the way in which people think they can get away with thinking that this observance means to remember but not practice. Nowhere in the Bible does it teach to disobey God:
+The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
 
-> **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=NASB)** :: teaching them to **follow** all that I commanded you; and behold, I am with you always, to the end of the age.” (NASB2020)
+> **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=NASB)** - teaching them to **follow** all that I commanded you; and behold, I am with you always, to the end of the age.” (NASB2020)
 
-Someone who teachings against needing to do Jesus' commandments teach people to be **not a part** of Jesus' family. It's great how God has given us Hebrew and Greek:
+Don't teach against needing to do Jesus' commandments. To do so is to teach people to **not be a part** of Jesus' family. It's great how God has given us Hebrew and Greek to make this unambiguous:
 
 > **[Deuteronomy 5:27](https://www.biblegateway.com/passage/?search=Deuteronomy%205%3A27&version=ESV)** - Go near and hear all that the LORD our God will say and speak to us all that the LORD our God will speak to you, and we will hear **and do it**. (ESV)
 
-> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God **and do it.** (ESV)
 
 Deny yourself daily, and follow Jesus:
 
@@ -25486,7 +25488,7 @@ Jesus Christ was not made. He was there with Jehovah in the beginning. He is the
 The motivation for everything must be to glorify God.
 
 
-## Do the will of the Father - obey Jesus - AMEN!!
+## Do the will of the Father - obey Jesus. It's not just the red letters either. We must keep God's commandments. AMEN!!
 
 [The most terrifying passage in the Bible | Matthew 7:21-23 - YouTube](https://www.youtube.com/watch?v=v60efH7_POE&t=616s)
 
