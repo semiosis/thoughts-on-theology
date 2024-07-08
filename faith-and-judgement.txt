@@ -4203,6 +4203,21 @@ Obedience to Jesus' commandments (becoming disciples, obeying Jesus' commandment
   the Son and the Holy Spirit, teaching them to observe all that I commanded you; and lo, I am with you always,
   even to the end of the age."
 
+The word tereo means (to keep, observe, obey, follow). Obviously, because commandments are for obeying. That's all
+they are for, actually. I find it bewildering the way in which people think they can get away with thinking that
+this observance means to remember but not practice. Nowhere in the Bible does it teach to disobey God:
+
+  Matthew 28:20 :: teaching them to follow all that I commanded you; and behold, I am with you always, to the end
+  of the age." (NASB2020)
+
+Someone who teachings against needing to do Jesus' commandments teach people to be not a part of Jesus' family.
+It's great how God has given us Hebrew and Greek:
+
+  Deuteronomy 5:27 - Go near and hear all that the LORD our God will say and speak to us all that the LORD our God
+  will speak to you, and we will hear and do it. (ESV)
+
+  Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
 Obedience to Jesus' commandments (trusting Jesus and being baptised):
 
   Mark 16:15-18 - And he said to them, Go into all the world and proclaim the gospel to the whole creation.
@@ -21773,31 +21788,72 @@ sin:
 OK, so the Mosaic law is not about 'faith', yet the law of Christ is. But if a person 'does' the law, they will
 live. Indeed, it's a blessed way to live so long as your law compliance isn't compromised and you have a lot of
 sin because then the law becomes against you. So life comes when a person actually 'does' what is in the law and
-does not sin. It certainly seems to me that doing the law is a good thing but we can't rely on it for our life. We
-have to die to the law and not shrink back from faith in Jesus Christ. So even if a person is observing and
-teaching others to observe the law, at the end of the day our faith in Jesus Christ is more important. Making
-Jesus Christ our Master does not mean we say the law is evil, and we still endeavour to follow the law without it
-condemning us, bearing one another's burdens, behaving in accordance with sound doctrine, while holding our faith
-in Jesus, and to to be :
+does not sin. It certainly seems to me that doing the law is a good thing but we can't rely on it to perpetually
+sustain our life. We have to die to the law and live to Christ and not shrink back from faith in Jesus Christ.
+
+The law is not the sum of God. God is not the law:
+
+  Galatians 2:19 - For through the law I died to the law, so that I might live to God. (ESV)
+
+So even if a person is observing and teaching others to observe the law, at the end of the day our faith in Jesus
+Christ is more important. Making Jesus Christ our Master does not mean we say the law is evil, and we still
+endeavour to follow the law to the measure we observe without it condemning us, bearing one another's burdens,
+behaving in accordance with sound doctrine while holding our faith in Jesus:
 
   Galatians 3:12 - But the law is not of faith, rather The one who does them shall live by them. (ESV)
 
-Where Galatians 3:12 says that the law is not of faith, but we must do the law, it is talking about the Mosaic
-law, not Christ's law. When we talk about the law of Christ, that law is a law where people who hold faith may be
-justified while obeying Jesus. That faith always involves obedience to Jesus as Jesus works in us and for us.
-Whenever we believe Jesus we have obeyed Him. And whenever we disobey Jesus we have disobeyed Him. When we obey
-His commandments we have obeyed Him. It's all obedience. Even belief is obedience. So obedient faith is still
-faith and a person can be obedient to God even with regards to Mosaic law while being obedient to Jesus and
-placing faith in Jesus for our justification. Jesus did the work that we may be justified by faith in Him, and
-that includes the adherent of the law and the Gentiles. We believe that we are justified by faith in Him thanks to
-His perfect obedience but we must obey Jesus to see life. If a person is totally disobedient to Jesus then they
-haven't believed Him. It doesn't help in the slightest bit to be disobedient to Jesus. Obedience is an intrinsic
-part of faith:
+Where Galatians 3:12 says that the law is not of faith, it is talking about the Mosaic law, not Christ's law. When
+we talk about the law of Christ, that law is a law where people who hold faith may be justified while obeying
+Jesus. If a person holds faith in Jesus while also observing and doing the Mosaic law, that is excellent. If a
+person holds faith in Jesus Christ without caring much about the Mosaic law, serving Jesus they are acceptable to
+God. Faith always involves believing God. Faith always involves obedience to Jesus as Jesus works in us and for
+us. Whenever we believe Jesus we have obeyed Him. And whenever we disobey Jesus we have disobeyed Him.
+
+Faith and obedience are not mutually exclusive but they are mutually inclusive:
+
+  John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but
+  the wrath of God remains on him. (ESV)
+
+When we obey His commandments we have obeyed Him. It's all obedience, and it's all belief. Even belief is
+obedience. So obedient faith is still faith and a person can be obedient to God even with regards to Mosaic law
+while being obedient to Jesus and placing faith in Jesus for our justification. Jesus did the work that we may be
+justified by faith in Him, and that includes the adherent of the law and the Gentiles. We believe that we are
+justified by faith in Him thanks to His perfect obedience but we must obey Jesus to see life. If a person is
+totally disobedient to Jesus then they haven't believed Him. It doesn't help in the slightest bit to be
+disobedient to Jesus. Obedience is an intrinsic part of faith:
 
   Romans 3:26-29 - It was to show his righteousness at the present time, so that he might be just and the
   justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
   law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
   of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, (ESV)
+
+God's already spoken and given commandments. If we want to obey God then we can listen by reading the Holy Bible
+to see what God has already spoken:
+
+  Luke 16:24-31 - And he called out, Father Abraham, have mercy on me, and send Lazarus to dip the end of his
+  finger in water and cool my tongue, for I am in anguish in this flame. But Abraham said, Child, remember that
+  you in your lifetime received your good things, and Lazarus in like manner bad things; but now he is comforted
+  here, and you are in anguish. And besides all this, between us and you a great chasm has been fixed, in order
+  that those who would pass from here to you may not be able, and none may cross from there to us. And he said,
+  Then I beg you, father, to send him to my father's house- for I have five brothers-so that he may warn them,
+  lest they also come into this place of torment. But Abraham said, They have Moses and the Prophets; let them
+  hear them. And he said, No, father Abraham, but if someone goes to them from the dead, they will repent. He said
+  to him, If they do not hear Moses and the Prophets, neither will they be convinced if someone should rise from
+  the dead. (ESV)
+
+We must keep Jesus' commandments. We must keep God's commandments. It's not just the red letters of the Bible
+which we should observe, believe, trust and obey, but it's the 10 commandments, it's the great commandments. It's
+God's words which are spirit. It's not just what we get in a dream or a vision that we should observe and obey.
+Don't believe every spirit!
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
+Don't believe every spirit! The ones who write-off God's commandments found the Bible are probably listening to a
+different spirit:
+
+  I John 4:1 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
+  many false prophets have gone out into the world. (ESV)
 
 For our justification, Jesus does/has done the work for those who place their faith in Him. But sanctification
 involves ongoing work in our lives:
@@ -30375,12 +30431,30 @@ Stay alert and keep watch:
   awake and would not have let his house be broken into. Therefore you also must be ready, for the Son of Man is
   coming at an hour you do not expect. (ESV)
 
-Make disciples of all the nations, teaching them to obey Jesus:
+Make disciples of all the nations, teaching them to follow/obey Jesus:
 
   Matthew 28:18-20 - And Jesus came and said to them, All authority in heaven and on earth has been given to me.
   Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of
-  the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to
-  the end of the age. (ESV)
+  the Holy Spirit, teaching them to observe (G5083 tereo) all that I have commanded you. And behold, I am with you
+  always, to the end of the age. (ESV)
+
+  Matthew 28:20 - and teaching them to obey (G5083 tereo) all that I have commanded you. And surely I am with you
+  always, even to the end of the age." (BSB)
+
+The word tereo means (to keep, observe, obey, follow). Obviously, because commandments are for obeying. That's all
+they are for, actually. I find it bewildering the way in which people think they can get away with thinking that
+this observance means to remember but not practice. Nowhere in the Bible does it teach to disobey God:
+
+  Matthew 28:20 :: teaching them to follow all that I commanded you; and behold, I am with you always, to the end
+  of the age." (NASB2020)
+
+Someone who teachings against needing to do Jesus' commandments teach people to be not a part of Jesus' family.
+It's great how God has given us Hebrew and Greek:
+
+  Deuteronomy 5:27 - Go near and hear all that the LORD our God will say and speak to us all that the LORD our God
+  will speak to you, and we will hear and do it. (ESV)
+
+  Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
 
 Deny yourself daily, and follow Jesus:
 
@@ -36126,7 +36200,7 @@ Date: 2024-07-08 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 13:00
+Created: 2024-07-08 Mon 13:47
 
 Validate
 
