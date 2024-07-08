@@ -42,6 +42,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
+    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -8554,6 +8555,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
+    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 Practicing righteousness is an indicator that someone is born of God:
@@ -8997,6 +8999,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
+    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -12877,6 +12880,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
+    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -15277,7 +15281,7 @@ The righteous **live by** their faith in Jesus - in belief to His promises and i
 
 > **[Galatians 3:11](https://www.biblegateway.com/passage/?search=Galatians%203%3A11&version=ESV)** - Now it is evident that no one is justified before God by the law, for The righteous shall live by faith. (ESV)
 
-We **live to serve Jesus**, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're still living by our faith in God and in Jesus His Son. We don't justify ourselves but we still have faith to be justified by God as we hold faith in Jesus. I just want to continue to live faithfully to Jesus for the rest of my life, as I also hold faith that God is my justifier. I want God to justify me, as the way in which we are justified is that God justifies the one who has faith in Jesus. So that's the plan - to really be transformed by the gospel and live in the truth of God's word, and seek God's commendation, and live in the reality that God is for me and not against me as I hold faith in Jesus. I'll give it my best shot:
+We **live to serve Jesus**, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're still living by our faith in God and in Jesus His Son. I think it's dangerous and not *necessarily* correct to say, "I've been justified." We don't justify ourselves but we still have faith to be justified by God as we hold faith in Jesus, and we don't necessarily know **when** that justification has happened. It **may** have happened when we first believed. I would suggest holding to that belief and going on obeying Jesus like someone alive from the dead, serving God: I just want to continue to live faithfully to Jesus for the rest of my life, as I also hold faith that God is my justifier. I want God to justify me / have justified me, as the way in which we are justified is that God does the justifing of the one who has faith in Jesus. So the plan is to really be transformed by the gospel and live in the truth of God's word, and seek God's commendation, and live in the reality that God is for me and not against me as I hold faith in Jesus. I'll give it my best shot:
 
 > **[I John 4:17](https://www.biblegateway.com/passage/?search=1%20John%204%3A17&version=ESV)** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
 
@@ -24560,6 +24564,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
+    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -25068,7 +25073,25 @@ We're always seeking God's commendation:
 
 The righteous **live by** their faith in Jesus - in belief to His promises and in obedience to His commandments all of our life as Christians - hoping for God's commendation.
 
-We **live to serve Jesus**, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're still living by our faith in God and in Jesus His Son. We don't justify ourselves but we still have faith to be justified by God as we hold faith in Jesus. I just want to continue to live faithfully to Jesus for the rest of my life, as I also hold faith that God is my justifier. I want God to justify me, as the way in which we are justified is that God justifies the one who has faith in Jesus. So that's the plan - to really be transformed by the gospel and live in the truth of God's word, and seek God's commendation, and live in the reality that God is for me and not against me as I hold faith in Jesus. I'll give it my best shot:
+We **live to serve Jesus**, believing we are justified by our faith in Him, and not relying on our own righteousness, but we're still living by our faith in God and in Jesus His Son.
+
+I think it's possible to say, "I've been justified by Jesus' blood because I'm having faith in Jesus and I'm living to serve Him and I believe He is saving me from the wrath of God and I'm going to continue believing and obeying Him to receive the sanctification."
+
+And then we await personal commendation from God.
+
+I think it's dangerous and probably incorrect to say, "I've been justified and saved from the wrath of God" without having become obedient to Jesus.
+
+We don't justify ourselves ever, but we still have faith that we are justified already by God as we hold faith in Jesus, and we don't necessarily know **when** God has personally justified us by faith because, like Abraham's faith, it's from obedience to God's commandments that we get personal assurance. But if we are serving Jesus then we certainly can have faith that we have already been justified by God, where if we are not serving Jesus then I think to say that we are justified and saved from God's wrath is very bold.
+
+> **[Hebrews 10:30-31](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A30-31&version=ESV)** - For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall into the hands of the living God. (ESV)
+
+> **[Romans 5:1-2](https://www.biblegateway.com/passage/?search=Romans%205%3A1-2&version=ESV)** - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+It **may** have happened when we first believed. I would suggest holding to that belief and going on obeying Jesus like someone alive from the dead, serving God:
+
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - He who **believes in the Son** has eternal life; but he who does not **obey the Son** will not see life, but the wrath of God abides on him.”
+
+I just want to continue to live faithfully to Jesus for the rest of my life, as I also hold faith that God is my justifier. I want God to justify me / have justified me, as the way in which we are justified is that God does the justifing of the one who has faith in Jesus. So the plan is to really be transformed by the gospel and live in the truth of God's word, and seek God's commendation, and live in the reality that God is for me and not against me as I hold faith in Jesus. I'll give it my best shot:
 
 > **[I John 4:17](https://www.biblegateway.com/passage/?search=1%20John%204%3A17&version=ESV)** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
 
