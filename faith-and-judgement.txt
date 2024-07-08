@@ -2603,11 +2603,25 @@ Just as it is inevitable that every son or daughter of God will be disciplined:
   Hebrews 12:6 - For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
 
 I still hold imminence with regards to rapture a possibility on the basis that when I was born of the Spirit,
-things progressed very rapidly, my words seemed to have a lot of impact, then war broke out in the middle east
-after I said on my blog we should get ready for Armageddon, I felt as though I nearly did get 'raptured', and then
-things in my life began to stabilise. In some sense I think the rapture and judgement is imminent, and I think
-probably when each son or daughter is brought into the kingdom they may have a 'taste of it'. In other words, God
-is still adopting sons and daughters and we don't know who the last one to be adopted is.
+things progressed very rapidly I was quickly baptised in the Holy Spirit and I asked God in prayer that the whole
+of my city would be saved. My words seemed to have a lot of impact during this time, and I guess that is the case
+because God has been testing me and using me as He did with Paul the Apostle after he was taken into service by
+Jesus. I received lots of visions and many of them came from the enemy I believe, then after I had said towards
+the end of 2022 on my blog that we should get ready for Armageddon, war broke out in the middle east soon after. I
+felt as though I nearly did actually get 'raptured' or it was quickly progressing that way, and then I made a
+declaration to court that Jesus is the Truth, I forgive everyone etc. That resulted in some very rapid changes.
+Things in my life spiritually began to stabilise as I have gone through police corrections and used the time to
+attend Bible studies, and by corrected by the Scripture. I'm still trying to be sanctified ongoingly.
+
+  Mark 13:20 - And if the Lord had not cut short the days, no human being would be saved. But for the sake of the
+  elect, whom he chose, he shortened the days. (ESV)
+
+  Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
+  that through many tribulations we must enter the kingdom of God. (ESV)
+
+In some sense I think the rapture and judgement is imminent, and I think probably when each son or daughter is
+brought into the kingdom they may have a 'taste of it'. In other words, God is still adopting sons and daughters
+and we don't know who the last one to be adopted is.
 
 So in a sense it's been on the verge of the second coming of Christ for quite a long time:
 
@@ -34926,6 +34940,8 @@ thinking like the world thinks, and I've been living for Christ, and I've been l
   flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if
   anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come. (ESV)
 
+72.7.1. Court
+
 I had an out-of-body meeting with the Holy Spirit, and a dream on 3 May 2022 foreshadowing 1 year later on 3 May
 2023 when I ended up pleading guilty in court.
 
@@ -35190,7 +35206,24 @@ Transfiguration, I found out a year or so later, and made the proposal on 10 Aug
 | 22pm. Honestly, at the time I just thought it sounded memorable and I wanted it to be. Go figure! I'm not going
 to justify my own actions here.
 
-  Galatians 5:18 - But if you are led by the Spirit, you are not under the law. (ESV)
+Being born of the Spirit unpredictable:
+
+  John 3:8 - The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or
+  where it goes. So it is with everyone who is born of the Spirit. (ESV)
+
+I'm endeavouring to work according to God's timing a bit more. I like having my days managed by the Holy Spirit. I
+never liked alarm clocks anyway:
+
+  Matthew 6:34 - Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient
+  for the day is its own trouble. (ESV)
+
+God's timing is not in any way predictable by man:
+
+  Matthew 25:13 - Watch therefore, for you know neither the day nor the hour. (ESV)
+
+  Isaiah 55:8-9 - For my thoughts are not your thoughts, neither are your ways my ways, declares the LORD. For as
+  the heavens are higher than the earth, so are my ways higher than your ways and my thoughts than your thoughts.
+  (ESV)
 
 Honestly, I'm just really annoyed I haven't managed to put to death all impure thoughts and behaviour, and sin in
 my own body.
@@ -35647,7 +35680,7 @@ This is in line with what is written in Hebrews:
   one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
   shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
 
-72.7.1. Humility
+72.7.2. Humility
 
 Being born-again, I actually had a lot to learn about humility, and service.
 
@@ -35660,7 +35693,7 @@ Quote from Martin Luther King Jr.:
   have to make your subject and verb agree to serve. You only need a heart full of grace. A soul generated by
   love."
 
-72.7.2. Marriage should not become idolatry
+72.7.3. Marriage should not become idolatry
 
 The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
 
@@ -36487,7 +36520,7 @@ Date: 2024-07-09 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-09 Tue 00:11
+Created: 2024-07-09 Tue 00:48
 
 Validate
 
