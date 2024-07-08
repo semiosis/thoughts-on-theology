@@ -2474,6 +2474,11 @@ If you hear Jesus' words which came from God and trust God then you have eternal
 
 3.15. Treasuring anything else more than God is sin
 
+Quote by Tim Keller
+Know what the Bible says: Sin is craving something more than God. Sin is making something more important than God.
+Sin is is living for something more than God. If God is at the periphery of your life, if you're just religious
+occasionally, if God [is] sort of on the outskirts of your life, that is sin. That's the essence of sin.
+
   Luke 10:27-28 - And he answered, You shall love the Lord your God with all your heart and with all your soul and
   with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have
   answered correctly; do this, and you will live. (ESV)
@@ -3659,6 +3664,8 @@ God cancelled the record of debt of our sin with the blood of Jesus Christ:
   Colossians 2:14 - by canceling the record of debt that stood against us with its legal demands. This he set
   aside, nailing it to the cross. (ESV)
 
+4.2.2. God's kindness is meant to lead us to repentance from sin
+
 We are supposed to have a response of repentance from sin. God's kindness is meant to lead us to repentance from
 sin. And turning from sin is a loving response to grace given:
 
@@ -3703,7 +3710,15 @@ Sin no more so that nothing worse happens:
   John 8:10-11 - Jesus stood up and said to her, Woman, where are they? Has no one condemned you? She said, No
   one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more. (ESV)
 
-4.2.2. Subsequent behaviour - the Golden Rule and the Royal Law
+Sin enslaves. We're supposed to stop doing it. Jesus payed the price of sin for us to set us free from it and we
+shouldn't let ourselves become enslaved by sin again.
+
+Quote by Tim Keller
+When you do a sin, it has a powerful effect in which your own freedom - your freedom to want the good, to will the
+good, to think the good or understand the good is being undermined so that you are more and more by sin losing
+your freedom. It undermines your mind, it undermines your emotions and it undermines your will.
+
+4.2.3. Subsequent behaviour - the Golden Rule and the Royal Law
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
 grace through faith and they should also practice their righteousness and a person who has accepted forgiveness
@@ -3718,6 +3733,22 @@ good gifts to His children, and gifts that are truly good, far exceeding any amo
 own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's
 love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves
 like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the Son of God.
+
+youtube.com: Sin as Slavery - Timothy Keller Sermon
+
+When it comes to behavior when it comes to the behavior that religions ask and demand and urge upon us, there is
+almost absolute complete uniformity and universal consensus we're not supposed to tell lies, we're not supposed to
+break our promises, we're not supposed to rob or murder each other, but respect each other.
+
+In that sense we're supposed to live with justice and equity. We're supposed to live by the Golden Rule. We're
+supposed to be generous with with our possessions. There's, you know, several of these things every religion -
+everybody - understands that we should live that way.
+
+There's universal consensus that we should live that way, and then of course on top of that we know that the main
+reason for all the misery in the world is because we don't live that way. The main reason for all the problems of
+the of our society is because people don't live that way. Now when everybody agrees what we should be doing what's
+right, there there's no doubt and everybody agrees that the reason that we're miserable is because we're not doing
+it - the Bible's explanation is that human hearts are sinful but beyond that that we're slaves to sin.
 
 We should love others, as we would want to be loved by others. God gives common grace to all people, even the
 evil. We should love in this way, as our Father in Heaven:
@@ -3894,13 +3925,18 @@ Following Jesus includes your thought life:
 All people should seek to follow the Royal Law which is to love one's neighbour as themself, bearing their
 neighbours burdens and forgiving one another, but who has done that perfectly?
 
+Quote by Tim Keller
+"I want you to meet the needs of other people with all of the strength, with all of the joy and all of the
+creativity and with all of the speed with which you meet your own needs. 12 hours, that's all - Golden Rule, just
+try it"
+
 As Christians we were at one time disobedient, and were not able to do this perfectly, and we have been saved by
 Jesus, having been forgiven by Him, and after we are grafted into Christ, we now have His righteousness and
 Almighty God as our Father, and Jesus is our Master and we seek to please our Master, like the All Blacks try to
 please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His
 Spirit, and His Spirit helps us to do this.
 
-4.2.3. God definitely disciplines us even if we love Jesus - every son he receives
+4.2.4. God definitely disciplines us even if we love Jesus - every son he receives
 
 The ones who love Jesus, keep His teachings:
 
@@ -3933,7 +3969,7 @@ Whoever loves with Christ's love knows Father God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-4.2.4. Christians should live fulfilling the Royal Law
+4.2.5. Christians should live fulfilling the Royal Law
 
 Those walking (living) according to Jesus' Spirit should be able to do this:
 
@@ -3955,7 +3991,7 @@ Whoever loves with Christ's love knows Father God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-4.2.5. Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus,
+4.2.6. Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus,
 Jesus having fulfilled the entire law and prophets
 
   John 15:25 - But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)
@@ -30029,7 +30065,18 @@ We will be raised imperishable, just as the truth is imperishable:
 
   I Thessalonians 4:5 - not in the passion of lust like the Gentiles who do not know God;
 
-Addictions, the lusts of the world, the pride of life, etc.
+I feel like people often get this backwards, although I do believe that by Jesus' stripes we are healed, even from
+things such as addictions (Jesus set me free from vaping, for example), I think that, as Tim Keller puts it, "Not
+all addiction is sin but all sin is addiction.
+
+Quote by Tim Keller
+Sin is a power and the things you crave become your slave masters, because in your heart those things burn with
+this idea, "if only". Everything would be fine if only that. And that creates a suction in your life, like a fire.
+That says, "I've got to have more approval, I've got to have more this, I've got to have a better spouse, I've got
+to have this. That's the reason I'm unhappy." But the more you throw in there the more it wants. Sin enslaves.
+We're all addicts. Not all addiction is sin but all sin is addiction.
+
+Sinful addictions, the lusts of the world, the pride of life, etc:
 
   II Peter 2:19-21 - They promise them freedom, but they themselves are slaves of corruption. For whatever
   overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
@@ -34163,6 +34210,20 @@ Loving one another includes forgiving one another. Forgiving others means not ho
   Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
   shall love your neighbor as yourself: I am the LORD. (ESV)
 
+https://youtu.be/SDuXlGSV7l4?t=1337
+What if you just decided, "I know I'm supposed to forgive but I'm not I'm going to hold a grudge." You know what
+that will do to your mind? It will rot your mind mind. Because first of all in order to hold a grudge you've got
+to feel morally superior to that person. You cannot see yourself as yourself guilty of anything that person has
+done. And so, when the evidence comes that you are a sinner, when the evidence comes that you are weak, when the
+evidence comes that you're flawed, you'll screen it out. You won't be able to. Because you can't hold on, you
+can't crave vengeance and still be rational. You'll have to screen out any evidence that says, "Hey, you're as bad
+as that person" and not only that, you'll have to screen out any evidence that person isn't as bad as you thought
+they were.
+
+https://youtu.be/SDuXlGSV7l4?t=1387
+Sin will not only destroy your emotions through an eternal tolerance effect but it will destroy your mind. You
+will not be able to think and in the end your will is gone.
+
 Forgiving each other moves mountains (I know Gospel of Thomas is not considered canon, but this saying rings true
 for me, and I believe it means that when two people make peace, they can move mountains. Whether Jesus truly said
 it or not, who knows.):
@@ -36303,7 +36364,7 @@ Date: 2024-07-08 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 15:47
+Created: 2024-07-08 Mon 16:46
 
 Validate
 
