@@ -42,7 +42,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
-    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
+    -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -8642,7 +8642,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
-    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
+    -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 Practicing righteousness is an indicator that someone is born of God:
@@ -9086,7 +9086,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
-    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
+    -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -12967,7 +12967,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
-    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
+    -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -24345,7 +24345,7 @@ Loving one another includes forgiving one another. Forgiving others means not ho
 
 > **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)
 
--   **<https://youtu.be/SDuXlGSV7l4?t=1337>:** What if you just decided, "I
+-   **[youtube.com: Sin as Slavery - Timothy Keller  Sermon  @time: 22 min 17 sec](https://youtube.com/watch?v=SDuXlGSV7l4&t=1337):** What if you just decided, "I
     know I'm supposed to forgive but I'm not
     I'm going to hold a grudge." You know what
     that will do to your mind? It will rot
@@ -24367,7 +24367,7 @@ Loving one another includes forgiving one another. Forgiving others means not ho
     screen out any evidence that person
     isn't as bad as you thought they were.
 
--   **<https://youtu.be/SDuXlGSV7l4?t=1387>:** Sin will not only destroy your emotions through an eternal tolerance effect but it will destroy your mind. You will not be able to think and in the end your will is gone.
+-   **[youtube.com: Sin as Slavery - Timothy Keller  Sermon  @time: 23 min 7 sec](https://youtube.com/watch?v=SDuXlGSV7l4&t=1387):** Sin will not only destroy your emotions through an eternal tolerance effect but it will destroy your mind. You will not be able to think and in the end your will is gone.
 
 Forgiving each other moves mountains (I know Gospel of Thomas is not considered canon, but this saying rings true for me, and I believe it means that when two people make peace, they can move mountains. Whether Jesus truly said it or not, who knows.):
 
@@ -24681,7 +24681,7 @@ Because God loved us *first*:
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
     -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
 -   We should love because *He loved us first*
-    -   **Romans 5:7-8** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
+    -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -25214,11 +25214,11 @@ I just want to continue to live faithfully to Jesus for the rest of my life, as 
 
 It certainly appears that we're not supposed to simply do some righteous thing and then lean on that. Rather we're supposed to 'live by' our faith, &#x2013; keep going, and not shrink back:
 
-> **Ezekiel 33:13** - Though **I say to the righteous that he shall surely live**, *yet* <ins>if he trusts in his righteousness and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he shall die.</ins> (ESV)
+> **[Ezekiel 33:13](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A13&version=ESV)** - Though **I say to the righteous that he shall surely live**, *yet* <ins>if he trusts in his righteousness and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he shall die.</ins> (ESV)
 
 This is in line with what is written in Hebrews:
 
-> **Hebrews 10:37-39** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
+> **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
 
 
 ### Humility

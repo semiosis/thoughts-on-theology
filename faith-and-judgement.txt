@@ -34287,7 +34287,7 @@ Loving one another includes forgiving one another. Forgiving others means not ho
   Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
   shall love your neighbor as yourself: I am the LORD. (ESV)
 
-https://youtu.be/SDuXlGSV7l4?t=1337
+youtube.com: Sin as Slavery - Timothy Keller Sermon @time: 22 min 17 sec
 What if you just decided, "I know I'm supposed to forgive but I'm not I'm going to hold a grudge." You know what
 that will do to your mind? It will rot your mind mind. Because first of all in order to hold a grudge you've got
 to feel morally superior to that person. You cannot see yourself as yourself guilty of anything that person has
@@ -34297,7 +34297,7 @@ can't crave vengeance and still be rational. You'll have to screen out any evide
 as that person" and not only that, you'll have to screen out any evidence that person isn't as bad as you thought
 they were.
 
-https://youtu.be/SDuXlGSV7l4?t=1387
+youtube.com: Sin as Slavery - Timothy Keller Sermon @time: 23 min 7 sec
 Sin will not only destroy your emotions through an eternal tolerance effect but it will destroy your mind. You
 will not be able to think and in the end your will is gone.
 
@@ -36441,7 +36441,7 @@ Date: 2024-07-08 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 22:27
+Created: 2024-07-08 Mon 23:00
 
 Validate
 

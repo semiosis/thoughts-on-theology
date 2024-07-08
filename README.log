@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  8 JUL 2024 22:31
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  8 JUL 2024 23:04
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1918,7 +1918,12 @@ Overfull \hbox (12.60695pt too wide) in paragraph at lines 33384--33385
 []\TU/lmr/m/n/10.95 As you feel
  []
 
-[640] [641] [642] [643] [644] [645] [646] [647] [648] [649] [650]
+[640]
+Overfull \hbox (3.64989pt too wide) in paragraph at lines 33463--33484
+[]\TU/lmr/m/n/10.95 What if you just decided,
+ []
+
+[641] [642] [643] [644] [645] [646] [647] [648] [649] [650]
 Overfull \hbox (14.33705pt too wide) in paragraph at lines 34051--34052
 []\TU/lmr/m/n/10.95 Jesus faced
  []
