@@ -23187,7 +23187,7 @@ this, but that taking the Lord's supper / communion with believers in other chur
 effective and faithful to Jesus.
 
 If I were to attend the Catholic mass then I would simply receive it with faith, remembrance, repentance and
-thanksgiving, as I do at any church other I've attended. The way I currently view the Catholic mass is not
+thanksgiving, as I do at any other church I've attended. The way I currently view the Catholic mass is not
 "re-sacrificing Jesus" at all as people have said but "co-offering", which is a word which the following article
 uses to explain it:
 
@@ -24751,6 +24751,25 @@ at this point with my reasoning, because I'm serious about sanctification, and I
 
 51.2.2. We should not be thieves and robbers
 
+What I mean is we should not steal from God, even when Jesus has made us born-again and baptised in the Holy
+Spirit, in a situation like the one I faced in court in 2022-2023 we have to remain faithful to Jesus and to sound
+doctrine, and obediently be corrected by the Word in sanctification.
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+  Malachi 3:8-10 - Will man rob God? Yet you are robbing me. But you say, How have we robbed you? In your tithes
+  and contributions. You are cursed with a curse, for you are robbing me, the whole nation of you. Bring the full
+  tithes into the storehouse, that there may be food in my house. And thereby put me to the test, says the LORD of
+  hosts, if I will not open the windows of heaven for you and pour down for you a blessing until there is no more
+  need. (ESV)
+
+  I Timothy 1:10 - the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever
+  else is contrary to sound doctrine, (ESV)
+
+  Titus 1:9 - He must hold firm to the trustworthy word as taught, so that he may be able to give instruction in
+  sound doctrine and also to rebuke those who contradict it. (ESV)
+
 livingproof.co: John 10:10 | What Did Jesus Mean by "Abundant Life"? - Abundant Life
 
   John 10:10 - The thief comes only to steal and kill and destroy. I came that they may have life and have it
@@ -24814,7 +24833,34 @@ God who can see me, even when others can't.
 
 But the yoke of the Lord Jesus has been extremely difficult.
 
-51.2.4. Holiness - J.C. Ryle
+51.2.4. Genuine belief results a dramatic decoupling with the world out of darkness and out from under the power of
+Satan
+
+Going from darkness to light and arriving at a genuine understanding in the heart to agree with the truth
+coincides with a clash of beliefs between you (who has come into the light) and the world (which is still in
+darkness).
+
+In order to be faithful to God, you will start acting unpredictably to others who are still in darkness. Firstly,
+as happened to me, you may tell someone about Jesus for the first time. Also, you will be led amongst people in
+darkness and make confessions of the truth to combat lies in remaining faithful to God, and obey Jesus'
+commandments in situations where others in darkness or under the power of Satan may pressure you to not. And
+people may react in hostile ways. I just think that turning from darkness to light and the power of Satan to God
+naturally results in decoupling from the world:
+
+  John 10:18-21 - No one takes it from me, but I lay it down of my own accord. I have authority to lay it down,
+  and I have authority to take it up again. This charge I have received from my Father. There was again a division
+  among the Jews because of these words. Many of them said, He has a demon, and is insane; why listen to him?
+  Others said, These are not the words of one who is oppressed by a demon. Can a demon open the eyes of the blind?
+  (ESV)
+
+  Acts 26:24-25 - And as he was saying these things in his defense, Festus said with a loud voice, Paul, you are
+  out of your mind; your great learning is driving you out of your mind. But Paul said, I am not out of my mind,
+  most excellent Festus, but I am speaking true and rational words. (ESV)
+
+  Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+  God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
+
+51.2.5. Holiness - J.C. Ryle
 
   Holiness:
 
@@ -24841,7 +24887,7 @@ But the yoke of the Lord Jesus has been extremely difficult.
     o follow after spiritual-mindedness. He will endeavor to set his affections entirely on things above and to
       hold things on earth with a very loose hand.
 
-51.2.5. Gay 'marriage' should not be held in equal standing to God's design
+51.2.6. Gay 'marriage' should not be held in equal standing to God's design
 
   Isaiah 6:20 - Woe to those who call evil good, and good evil; Who substitute darkness for light and light for
   darkness; Who substitute bitter for sweet and sweet for bitter!
@@ -36437,11 +36483,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-08 Mon 00:00
+Date: 2024-07-09 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 23:00
+Created: 2024-07-09 Tue 00:11
 
 Validate
 
