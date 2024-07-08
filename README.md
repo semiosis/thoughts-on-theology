@@ -15319,6 +15319,8 @@ Of course we cannot inherit righteousness, peace and joy without putting to deat
 
 -   **Interesting fact:** [Te reo Māori](https://www.reomaori.co.nz/) doesn't have any filthy words. Every language has capacity to express anger, disgust or outrage. [Te reo Māori](https://www.reomaori.co.nz/) is no different. There are no single words that equate to English equivalents in terms of obscenity of insult. As Alan pointed out, words for body parts, copulation etc are just words — quite neutral.
 
+I still think though, that lying, slander and obscene talk can be done in any language using neutral words, so we should not use language in a bad way.
+
 Put to death the earthly in us:
 
 -   sexual immorality,

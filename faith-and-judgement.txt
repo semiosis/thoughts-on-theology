@@ -22098,6 +22098,9 @@ Te reo Maori doesn't have any filthy words. Every language has capacity to expre
 reo Maori is no different. There are no single words that equate to English equivalents in terms of obscenity of
 insult. As Alan pointed out, words for body parts, copulation etc are just words - quite neutral.
 
+I still think though, that lying, slander and obscene talk can be done in any language using neutral words, so we
+should not use language in a bad way.
+
 Put to death the earthly in us:
 
 - sexual immorality,
@@ -36300,7 +36303,7 @@ Date: 2024-07-08 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 15:22
+Created: 2024-07-08 Mon 15:47
 
 Validate
 
