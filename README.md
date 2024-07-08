@@ -214,6 +214,41 @@ Surely to be found **in Christ** we would be trusting Him and and trusting in Hi
 
 I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or salvation by obedience and I want my theology to be 'raw and real', and always Scriptural.
 
+The gospel in a nutshell:
+
+> **[Acts 26:14-20](https://www.biblegateway.com/passage/?search=Acts%2026%3A14-20&version=ESV)** - And when we had all fallen to the ground, I heard a voice saying to me in the Hebrew language, Saul, Saul, why are you persecuting me? It is hard for you to kick against the goads. And I said, Who are you, Lord? And the Lord said, I am Jesus whom you are persecuting. But rise and stand upon your feet, for I have appeared to you for this purpose, to appoint you as a servant and witness to the things in which you have seen me and to those in which I will appear to you, delivering you from your people and from the Gentiles—to whom I am sending you to open their eyes, so that they may **turn from darkness to light** and **from the power of Satan to God**, that they may **receive forgiveness of sins** and **a place among those who are sanctified by faith in me**. Therefore, O King Agrippa, I was not disobedient to the heavenly vision, but declared first to those in Damascus, then in Jerusalem and throughout all the region of Judea, and also to the Gentiles, that they should **repent and turn to God, performing deeds in keeping with their repentance.** (ESV)
+
+> **[Acts 28:25-28](https://www.biblegateway.com/passage/?search=Acts%2028%3A25-28&version=ESV)** - And disagreeing among themselves, they departed after Paul had made one statement: The Holy Spirit was right in saying to your fathers through Isaiah the prophet: Go to this people, and say, You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed; lest they should **see with their eyes** and **hear with their ears** and **understand with their heart** and **turn**, and **I would heal them.** Therefore let it be known to you that this salvation of God has been sent to the Gentiles; they will listen. (ESV)
+
+The general order of salvation from what I can dilvulge from **Acts 26** and **Acts 28**:
+
+-   See with their eyes
+-   Hear with their ears
+-   Understand with their heart
+    -   **[Romans 10:10](https://www.biblegateway.com/passage/?search=Romans%2010%3A10&version=ESV)** - For with the heart one believes and is justified, and with the mouth one confesses and is saved. (ESV)
+-   Turn from darkness to light
+    -   They believe the truth, and place their faith in Jesus
+        -   **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+    -   They become trusting to God, believing and obedient
+        -   **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+        -   **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going. (ESV)
+-   Turn from the power of Satan to God
+    -   Satan stops controlling them. God starts working through them, as we believe and obey, and our house is built.
+        -   **[Philippians 2:13](https://www.biblegateway.com/passage/?search=Philippians%202%3A13&version=ESV)** - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
+        -   **[Psalms 127:1](https://www.biblegateway.com/passage/?search=Psalms%20127%3A1&version=ESV)** - Unless the LORD builds the house, those who build it labor in vain. Unless the LORD watches over the city, the watchman stays awake in vain. (ESV)
+        -   **[Luke 6:48](https://www.biblegateway.com/passage/?search=Luke%206%3A48&version=ESV)** - he is like a man building a house, who dug deep and laid the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. (ESV)
+-   Sin is forgiven
+-   God heals
+    -   Sanctification is received through working faith, obedience, belief, trust - receiving healing, being renewed in mind, being conformed to Christ's image
+        -   **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
+        -   **[I John 4:17](https://www.biblegateway.com/passage/?search=1%20John%204%3A17&version=ESV)** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
+        -   **[Acts 26:20](https://www.biblegateway.com/passage/?search=Acts%2026%3A20&version=ESV)** - but declared first to those in Damascus, then in Jerusalem and throughout all the region of Judea, and also to the Gentiles, that they should repent and turn to God, **performing deeds in keeping with their repentance.** (ESV)
+-   Receive the inheritance
+
+God is the justifier, not us:
+
+> **[Romans 3:26](https://www.biblegateway.com/passage/?search=Romans%203%3A26&version=ESV)** - It was to show his righteousness at the present time, so that he might be just **and** the ***justifier*** of the one who has faith in Jesus. (ESV)
+
 
 ## 1689 Baptist confession of faith
 
@@ -868,6 +903,8 @@ Those who trust Jesus and believe Jesus is the Son of God, now being far more ob
 We don't justify ourselves. The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking care of them with mercy:
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
+
+> **[Romans 3:26](https://www.biblegateway.com/passage/?search=Romans%203%3A26&version=ESV)** - It was to show his righteousness at the present time, so that he might be just **and** the ***justifier*** of the one who has faith in Jesus. (ESV)
 
 Also being true together with believing Jesus Christ is obeying His commandments, and being obedient to Him. The way I read the following is, "Whoever trusts that Jesus is the Son of God overcomes the world through their believing, obedient faith and God's commandments are no longer burdensome to them":
 
@@ -2380,6 +2417,10 @@ Repenting from sin, including such things as idolatry, witchcraft, jealousy and 
 
 Practicing witchcraft, for example, is definitely not loving your neighbour as yourself.
 
+Being led by the Spirit and obeying God, repenting from sin and passing forward love and forgiveness, we have our souls purified:
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having **purified your souls by your obedience to the truth** for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
+
 
 ## Walk by the Spirit = Obey Jesus = Led by the Spirit
 
@@ -2443,6 +2484,8 @@ Sin enslaves. We're supposed to stop doing it. Jesus payed the price of sin for 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by grace through faith and they should also practice their righteousness and a person who has accepted forgiveness for their sin by the atonement made in Jesus' blood should certainly endeavour after that to fulfill practically the Royal Law, that is to love one's neighbour as themself, even owing that to other people:
 
 > **[Romans 13:8](https://www.biblegateway.com/passage/?search=Romans%2013%3A8&version=ESV)** - Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. (ESV)
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
 
 The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is **the** Son of God.
 

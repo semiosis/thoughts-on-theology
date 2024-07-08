@@ -363,6 +363,71 @@ I plan on adhering to what the Word of God says, even if it offends other Christ
 topics as the order of salvation, or salvation by obedience and I want my theology to be 'raw and real', and
 always Scriptural.
 
+The gospel in a nutshell:
+
+  Acts 26:14-20 - And when we had all fallen to the ground, I heard a voice saying to me in the Hebrew language,
+  Saul, Saul, why are you persecuting me? It is hard for you to kick against the goads. And I said, Who are you,
+  Lord? And the Lord said, I am Jesus whom you are persecuting. But rise and stand upon your feet, for I have
+  appeared to you for this purpose, to appoint you as a servant and witness to the things in which you have seen
+  me and to those in which I will appear to you, delivering you from your people and from the Gentiles-to whom I
+  am sending you to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+  God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me.
+  Therefore, O King Agrippa, I was not disobedient to the heavenly vision, but declared first to those in
+  Damascus, then in Jerusalem and throughout all the region of Judea, and also to the Gentiles, that they should
+  repent and turn to God, performing deeds in keeping with their repentance. (ESV)
+
+  Acts 28:25-28 - And disagreeing among themselves, they departed after Paul had made one statement: The Holy
+  Spirit was right in saying to your fathers through Isaiah the prophet: Go to this people, and say, You will
+  indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown
+  dull, and with their ears they can barely hear, and their eyes they have closed; lest they should see with their
+  eyes and hear with their ears and understand with their heart and turn, and I would heal them. Therefore let it
+  be known to you that this salvation of God has been sent to the Gentiles; they will listen. (ESV)
+
+The general order of salvation from what I can dilvulge from Acts 26 and Acts 28:
+
+- See with their eyes
+- Hear with their ears
+- Understand with their heart
+- Romans 10:10 - For with the heart one believes and is justified, and with the mouth one confesses and is
+saved. (ESV)
+- Turn from darkness to light
+- They believe the truth, and place their faith in Jesus
+- Ephesians 1:13-14 - In him you also, when you heard the word of truth, the gospel of your salvation,
+and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our
+inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+- They become trusting to God, believing and obedient
+- John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not
+see life, but the wrath of God remains on him. (ESV)
+- Hebrews 11:8 - By faith Abraham obeyed when he was called to go out to a place that he was to
+receive as an inheritance. And he went out, not knowing where he was going. (ESV)
+- Turn from the power of Satan to God
+- Satan stops controlling them. God starts working through them, as we believe and obey, and our house is
+built.
+- Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure.
+(ESV)
+- Psalms 127:1 - Unless the LORD builds the house, those who build it labor in vain. Unless the LORD
+watches over the city, the watchman stays awake in vain. (ESV)
+- Luke 6:48 - he is like a man building a house, who dug deep and laid the foundation on the rock. And
+when a flood arose, the stream broke against that house and could not shake it, because it had been
+well built. (ESV)
+- Sin is forgiven
+- God heals
+- Sanctification is received through working faith, obedience, belief, trust - receiving healing, being
+renewed in mind, being conformed to Christ's image
+- Luke 8:15 - As for that in the good soil, they are those who, hearing the word, hold it fast in an
+honest and good heart, and bear fruit with patience. (ESV)
+- I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of
+judgment, because as he is so also are we in this world. (ESV)
+- Acts 26:20 - but declared first to those in Damascus, then in Jerusalem and throughout all the
+region of Judea, and also to the Gentiles, that they should repent and turn to God, performing deeds
+in keeping with their repentance. (ESV)
+- Receive the inheritance
+
+God is the justifier, not us:
+
+  Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
+  of the one who has faith in Jesus. (ESV)
+
 1.1. 1689 Baptist confession of faith
 
 - https://www.the1689confession.com/
@@ -1371,6 +1436,9 @@ person, taking care of them with mercy:
   whatever more you spend, I will repay you when I come back. Which of these three, do you think, proved to be a
   neighbor to the man who fell among the robbers? He said, The one who showed him mercy. And Jesus said to him,
   You go, and do likewise. (ESV)
+
+  Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
+  of the one who has faith in Jesus. (ESV)
 
 Also being true together with believing Jesus Christ is obeying His commandments, and being obedient to Him. The
 way I read the following is, "Whoever trusts that Jesus is the Son of God overcomes the world through their
@@ -3637,6 +3705,12 @@ youtube.com: The Trademarks of Witchcraft - Derek Prince
 
 Practicing witchcraft, for example, is definitely not loving your neighbour as yourself.
 
+Being led by the Spirit and obeying God, repenting from sin and passing forward love and forgiveness, we have our
+souls purified:
+
+  I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one
+  another earnestly from a pure heart, (ESV)
+
 4.2. Walk by the Spirit = Obey Jesus = Led by the Spirit
 
   John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
@@ -3727,6 +3801,9 @@ the Royal Law, that is to love one's neighbour as themself, even owing that to o
 
   Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
   law. (ESV)
+
+  I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one
+  another earnestly from a pure heart, (ESV)
 
 The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives
 good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our
@@ -36364,7 +36441,7 @@ Date: 2024-07-08 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-08 Mon 16:46
+Created: 2024-07-08 Mon 22:27
 
 Validate
 
