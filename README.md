@@ -15118,9 +15118,66 @@ We need to perform our salvation in obedience to God:
 > **[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)** - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
 
+## Righteousness for entering the kingdom
+
+We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and we are not the ones to shrink back and to stop obeying but to remain obedient. We get our life from God as we hold our faith in Jesus Christ; that is believing, trusting, cleaving to, obeying Jesus Christ. The one who relies on the law for their life gets their life from continuing to abide by the law. The trouble with trying to get our life through Mosaic law compliance is that is that only Jesus did that perfectly, but that also means that if Jesus is our Master, then Jesus can save us. We should hold our faith in Jesus, do our best with regards to God's precepts, and not feel condemned by the law because we are following Jesus. And we also should at the same time not encourage the breaking of the Mosaic law.
+
+[biblehub.com: Greek Concordance: ζήσεται {zesetai} &#x2013; 9 Occurrences](https://biblehub.com/greek/ze_setai_2198.htm)
+
+This word **[zēsetai](https://biblehub.com/greek/ze_setai_2198.htm)** I think means to consider it the way we live in order for us to live. So therefore, with regards to the law, a person who lives by the law actually does it. But according to the Apostle Paul, the commandment which promised life proved to be death to him, Paul. I believe that's because the law is against sin, and Paul had sin:
+
+> **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%203%3A12&version=ESV)** - But the law is not of faith, rather The one who does them shall live by (**zēsetai en**) them. (ESV)
+
+> **[Romans 10:5](https://www.biblegateway.com/passage/?search=Romans%2010%3A5&version=ESV)** - For Moses writes about the righteousness that is based on the law, that the person who does the commandments shall live by them. (ESV)
+
+> **[Leviticus 18:5](https://www.biblegateway.com/passage/?search=Leviticus%2018%3A5&version=ESV)** - You shall therefore keep my statutes and my rules; if a person does them, he shall live by them: I am the LORD. (ESV)
+
+> **[Ezekiel 20:11](https://www.biblegateway.com/passage/?search=Ezekiel%2020%3A11&version=ESV)** - I gave them my statutes and made known to them my rules, by which, if a person does them, he shall live. (ESV)
+
+OK, so the Mosaic law is not about 'faith', yet the law of Christ is. But if a person 'does' the law, they will live. Indeed, it's a blessed way to live so long as your law compliance isn't compromised and you have a lot of sin because then the law becomes against you. So life comes when a person actually 'does' what is in the law and does not sin. It certainly seems to me that doing the law is a good thing but we can't rely on it for our life. We have to die to the law and not shrink back from faith in Jesus Christ. So even if a person is observing and teaching others to observe the law, at the end of the day our faith in Jesus Christ is more important. Making Jesus Christ our Master does not mean we say the law is evil, and we still endeavour to follow the law without it condemning us, bearing one another's burdens, behaving in accordance with sound doctrine, while holding our faith in Jesus, and to to be :
+
+> **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%203%3A12&version=ESV)** - But the law is not of faith, rather The one who does them shall live by them. (ESV)
+
+Where **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%203%3A12&version=ESV)** says that the law is not of faith, but we must do the law, it is talking about the Mosaic law, not Christ's law. When we talk about the law of Christ, that law is a law where people who hold faith may be justified while obeying Jesus. That faith always involves obedience to Jesus as Jesus works in us and for us. Whenever we believe Jesus we have obeyed Him. And whenever we disobey Jesus we have disobeyed Him. When we obey His commandments we have obeyed Him. It's all obedience. Even belief is obedience. So obedient faith is still faith and a person can be obedient to God even with regards to Mosaic law while being obedient to Jesus and placing faith in Jesus for our justification. Jesus did the work that we may be justified by faith in Him, and that includes the adherent of the law and the Gentiles. We believe that we are justified by faith in Him thanks to His perfect obedience but we **must** obey Jesus to see life. If a person is totally disobedient to Jesus then they haven't believed Him. It doesn't help in the slightest bit to be disobedient to Jesus. Obedience is an intrinsic part of faith:
+
+> **[Romans 3:26-29](https://www.biblegateway.com/passage/?search=Romans%203%3A26-29&version=ESV)** - It was to show his righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No, but by the **law of faith**. For we hold that one is justified by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, (ESV)
+
+For our justification, Jesus does/has done the work for those who place their faith in Him. But sanctification involves ongoing work in our lives:
+
+> **[Romans 3:28](https://www.biblegateway.com/passage/?search=Romans%203%3A28&version=ESV)** - For we hold that one is justified by faith apart from works of the law. (ESV)
+
+> **[Romans 3:24](https://www.biblegateway.com/passage/?search=Romans%203%3A24&version=ESV)** - and are justified by his grace as a gift, through the redemption that is in Christ Jesus, (ESV)
+
+We indeed want to aim to love God with our whole heart and our neighbour as ourselves. This is a very important commandment even and especially for Christians. Yes, at the end of the day we rely on Jesus' merit, but this is about loving God. We must have a response of love for God:
+
+> **[Luke 10:27-28](https://www.biblegateway.com/passage/?search=Luke%2010%3A27-28&version=ESV)** - And he answered, You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have answered correctly; **do this, and you will live.** (ESV)
+
+But the goodness of God should lead us to repentance:
+
+> **[Romans 2:4](https://www.biblegateway.com/passage/?search=Romans%202%3A4&version=ESV)** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
+
+> **[Romans 7:10](https://www.biblegateway.com/passage/?search=Romans%207%3A10&version=ESV)** - The very commandment that promised life proved to be death to me. (ESV)
+
+> **[Romans 7:9-13](https://www.biblegateway.com/passage/?search=Romans%207%3A9-13&version=ESV)** - I was once alive apart from the law, but when the commandment came, sin came alive and I died. **The very commandment that promised life proved to be death to me.** For sin, seizing an opportunity through the commandment, deceived me and through it killed me. So the law is holy, and the commandment is holy and righteous and good. Did that which is good, then, bring death to me? By no means! It was sin, producing death in me through what is good, in order that sin might be shown to be sin, and through the commandment might become sinful beyond measure. (ESV)
+
+
 # Entering and inheriting the kingdom
 
-It's received as an inheritance by being found **in Christ**. We believe we have it while we are found **in Christ**, and continue working it out, and we do need repentance from sin to inherit it. Also, God is not dead. The inheritance we receive goes to Christ and those found in Him who are practicing righteousness, presenting themselves to Christ as alive from the dead.
+At the time we believe, the kingdom of God to us is a promise for which we hope. When do you enter the kingdom of God? That's a good question. I think a reasonable answer is: hold the faith, fight the good fight of faith, and be the 'good soil':
+
+> **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that through many tribulations we must enter the kingdom of God. (ESV)
+
+> **[Matthew 13:18-21](https://www.biblegateway.com/passage/?search=Matthew%2013%3A18-21&version=ESV)** - Hear then the parable of the sower: When anyone hears the word of the kingdom and does not understand it, the evil one comes and snatches away what has been sown in his heart. This is what was sown along the path. As for what was sown on rocky ground, this is the one who hears the word and immediately receives it with joy, yet he has no root in himself, but endures for a while, and when tribulation or persecution arises on account of the word, immediately he falls away. (ESV)
+
+We must be the good soil:
+
+> **[Matthew 13:22-23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A22-23&version=ESV)** - As for what was sown among thorns, this is the one who hears the word, but the cares of the world and the deceitfulness of riches choke the word, and it proves unfruitful. As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
+
+It's received as an inheritance by being found **in Christ**. We believe we have it while we are found **in Christ**, and continue working it out, and we do need repentance from sin to inherit it.
+
+> **[Galatians 5:22-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A22-25&version=ESV)** - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires**. If we live by the Spirit, let us also walk by the Spirit. (ESV)
+
+God is not dead. The inheritance we receive goes to Christ and those found in Him who are practicing righteousness, presenting themselves to Christ as alive from the dead.
 
 We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
 
@@ -15150,30 +15207,6 @@ We must:
     -   Believe Jesus and practice His commandments
 
 > **[Luke 6:35](https://www.biblegateway.com/passage/?search=Luke%206%3A35&version=ESV)** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
-
-We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and we are not the ones to shrink back and to stop obeying but to remain obedient. We get our life from God as we hold our faith in Jesus Christ; that is believing, trusting, cleaving to, obeying Jesus Christ. The one who relies on the law for their life gets their life from continuing to abide by the law. The trouble with trying to get our life through Mosaic law compliance is that is that only Jesus did that perfectly, but that also means that if Jesus is our Master, then Jesus can save us. We should hold our faith in Jesus, do our best with regards to God's precepts, and not feel condemned by the law because we are following Jesus. And we also should at the same time not encourage the breaking of the Mosaic law.
-
-[biblehub.com: Greek Concordance: ζήσεται {zesetai} &#x2013; 9 Occurrences](https://biblehub.com/greek/ze_setai_2198.htm)
-
-This word **[zēsetai](https://biblehub.com/greek/ze_setai_2198.htm)** I think means to consider it the way we live in order for us to live. So therefore, with regards to the law, a person who lives by the law actually does it. But according to the Apostle Paul, the commandment which promised life proved to be death to him, Paul. I believe that's because the law is against sin, and Paul had sin:
-
-> **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%203%3A12&version=ESV)** - But the law is not of faith, rather The one who does them shall live by (**zēsetai en**) them. (ESV)
-
-> **[Romans 10:5](https://www.biblegateway.com/passage/?search=Romans%2010%3A5&version=ESV)** - For Moses writes about the righteousness that is based on the law, that the person who does the commandments shall live by them. (ESV)
-
-> **[Leviticus 18:5](https://www.biblegateway.com/passage/?search=Leviticus%2018%3A5&version=ESV)** - You shall therefore keep my statutes and my rules; if a person does them, he shall live by them: I am the LORD. (ESV)
-
-> **[Ezekiel 20:11](https://www.biblegateway.com/passage/?search=Ezekiel%2020%3A11&version=ESV)** - I gave them my statutes and made known to them my rules, by which, if a person does them, he shall live. (ESV)
-
-OK, so the law is not about 'faith'. But if a person 'does' the law, they will live. Indeed, it's a blessed way to live so long as your law compliance isn't compromised and you have a lot of sin because then the law becomes against you. So life comes when a person actually 'does' what is in the law and does not sin. It certainly seems to me that doing the law is a good thing but we can't rely on it for our life. We have to die to the law and not shrink back from faith in Jesus Christ. So even if a person is observing and teaching others to observe the law, at the end of the day our faith in Jesus Christ is more important. Making Jesus Christ our Master does not mean we say the law is evil, and we still endeavour to follow the law without it condemning us, bearing one another's burdens, behaving in accordance with sound doctrine, while holding our faith in Jesus, and to to be :
-
-> **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%203%3A12&version=ESV)** - But the law is not of faith, rather The one who does them shall live by them. (ESV)
-
-> **[Luke 10:27-28](https://www.biblegateway.com/passage/?search=Luke%2010%3A27-28&version=ESV)** - And he answered, You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have answered correctly; **do this, and you will live.** (ESV)
-
-> **[Romans 7:10](https://www.biblegateway.com/passage/?search=Romans%207%3A10&version=ESV)** - The very commandment that promised life proved to be death to me. (ESV)
-
-> **[Romans 7:9-13](https://www.biblegateway.com/passage/?search=Romans%207%3A9-13&version=ESV)** - I was once alive apart from the law, but when the commandment came, sin came alive and I died. **The very commandment that promised life proved to be death to me.** For sin, seizing an opportunity through the commandment, deceived me and through it killed me. So the law is holy, and the commandment is holy and righteous and good. Did that which is good, then, bring death to me? By no means! It was sin, producing death in me through what is good, in order that sin might be shown to be sin, and through the commandment might become sinful beyond measure. (ESV)
 
 We're always seeking God's commendation:
 
@@ -18894,6 +18927,8 @@ The universe is upheld by the word of Jesus' power.
 
     > **[Matthew 5:6](https://www.biblegateway.com/passage/?search=Matthew%205%3A6&version=ESV)** - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
     
+    > **[Jeremiah 31:34](https://www.biblegateway.com/passage/?search=Jeremiah%2031%3A34&version=ESV)** - And no longer shall each one teach his neighbor and each his brother, saying, Know the LORD, for they shall all know me, **from the least of them to the greatest**, declares the LORD. For I will forgive their iniquity, and I will remember their sin no more. (ESV)
+    
     Those who annul and teach others to break the law will be 'called' least in the kingdom. It's not humility to do so.
     
     -   It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong
@@ -18903,7 +18938,7 @@ The universe is upheld by the word of Jesus' power.
     
     -   It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret
     
-    There is a self-righteous way of trying to keep the law, and there is a humble way.
+    There is a self-righteous way of trying to keep the law, and there is a humble way. The law is not annulled but our justification comes from faith in Jesus.
     
     -   The self-righteous way
         -   Pursues the law as if by works
