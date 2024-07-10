@@ -355,7 +355,11 @@ holiness and being a living sacrifice for God
 Those who keep God's commandments and AND the righteousness of faith / the testimony of Jesus will be called great
 in the kingdom.
 
-- It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret
+It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret.
+
+Quote by John Piper
+"Pride is insubordinate. [It says,] You don't have a right to tell me what to do. That's what happened in the
+Garden of Eden right at the beginning of our sinful plight. And that's what all of us do apart from God's grace."
 
 It's God who tests the faith, and God who justifies:
 
@@ -10667,6 +10671,101 @@ youtube.com: The Great Sin by C. S. Lewis Doodle {BBC Talk 16, Mere Christianity
 
   Isaiah 13:11 - I will punish the world for its evil, and the wicked for their iniquity; I will put an end to the
   pomp of the arrogant, and lay low the pompous pride of the ruthless. (ESV)
+
+Quote by John Piper
+"Pride is self-satisfaction."
+
+  Hosea 13:4-6 - But I am the LORD your God from the land of Egypt; you know no God but me, and besides me there
+  is no savior. It was I who knew you in the wilderness, in the land of drought; but when they had grazed, they
+  became full, they were filled, and their heart was lifted up; therefore they forgot me. (ESV)
+
+Quote by John Piper
+"Pride is self-sufficiency / self-reliance."
+
+  Deuteronomy 8:11-16 - Take care lest you forget the LORD your God by not keeping his commandments and his rules
+  and his statutes, which I command you today, lest, when you have eaten and are full and have built good houses
+  and live in them, and when your herds and flocks multiply and your silver and gold is multiplied and all that
+  you have is multiplied, then your heart be lifted up, and you forget the LORD your God, who brought you out of
+  the land of Egypt, out of the house of slavery, who led you through the great and terrifying wilderness, with
+  its fiery serpents and scorpions and thirsty ground where there was no water, who brought you water out of the
+  flinty rock, who fed you in the wilderness with manna that your fathers did not know, that he might humble you
+  and test you, to do you good in the end. (ESV)
+
+Quote by John Piper
+"Pride considers itself above instruction [from God] - When God speaks and we don't listen."
+
+  Jeremiah 13:9-11 - Thus says the LORD: Even so will I spoil the pride of Judah and the great pride of Jerusalem.
+  This evil people, who refuse to hear my words, who stubbornly follow their own heart and have gone after other
+  gods to serve them and worship them, shall be like this loincloth, which is good for nothing. For as the
+  loincloth clings to the waist of a man, so I made the whole house of Israel and the whole house of Judah cling
+  to me, declares the LORD, that they might be for me a people, a name, a praise, and a glory, but they would not
+  listen. (ESV)
+
+Quote by John Piper
+"Pride is insubordinate. [It says,] You don't have a right to tell me what to do. That's what happened in the
+Garden of Eden right at the beginning of our sinful plight. And that's what all of us do apart from God's grace."
+
+  Psalms 119:21 - You rebuke the insolent, accursed ones, who wander from your commandments. (ESV)
+
+Quote by John Piper
+"Pride takes credit for what God alone does."
+
+  Daniel 4:30-34 - and the king answered and said, Is not this great Babylon, which I have built by my mighty
+  power as a royal residence and for the glory of my majesty? While the words were still in the king's mouth,
+  there fell a voice from heaven, O King Nebuchadnezzar, to you it is spoken: The kingdom has departed from you,
+  and you shall be driven from among men, and your dwelling shall be with the beasts of the field. And you shall
+  be made to eat grass like an ox, and seven periods of time shall pass over you, until you know that the Most
+  High rules the kingdom of men and gives it to whom he will. Immediately the word was fulfilled against
+  Nebuchadnezzar. He was driven from among men and ate grass like an ox, and his body was wet with the dew of
+  heaven till his hair grew as long as eagles' feathers, and his nails were like birds' claws. At the end of the
+  days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and
+  praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures
+  from generation to generation; (ESV)
+
+  Daniel 4:37 - Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right
+  and his ways are just; and those who walk in pride he is able to humble. (ESV)
+
+Quote by John Piper
+"Pride exalts in being made much of."
+
+  Matthew 23:6-7 - and they love the place of honor at feasts and the best seats in the synagogues and greetings
+  in the marketplaces and being called rabbi by others. (ESV)
+
+Quote by John Piper
+"Pride aspires to the place of God."
+
+  Acts 12:21-23 - On an appointed day Herod put on his royal robes, took his seat upon the throne, and delivered
+  an oration to them. And the people were shouting, The voice of a god, and not of a man! Immediately an angel of
+  the Lord struck him down, because he did not give God the glory, and he was eaten by worms and breathed his
+  last. (ESV)
+
+Quote by John Piper
+"Pride opposes the very existence of God."
+
+  Psalms 10:4 - In the pride of his face the wicked does not seek him; all his thoughts are, There is no God.
+  (ESV)
+
+Quote by John Piper
+"Pride refuses to trust in God. The opposite of arrogance is not just humility, it's trust. Trust is a very lowly
+demeanor. [Trust is] a way of saying I don't have what I need in here; I have to trust somebody else to give it to
+me. I don't have the resources in here to save me, to forgive me, to reconcile me to God, to lead my life in a
+holy way, to be what my family needs from me, to be what a church needs from me. I do not have th the resources, I
+cannot do it. And you look around for an answer and God says, I have a mighty hand and I promise you I will care
+for you. Trust me. Pride cringes at the prospect of saying, I am bankrupt and helpless. I need another to save me,
+and help me and lead me and guide me, and hold me and strengthen me. Everything comes from outside me. Only
+humility can talk that way. Trust in the promise of God is the expression of humility."
+
+Arrogance is contrasted with trust in God:
+
+  Proverbs 28:25 - A greedy man stirs up strife, but the one who trusts in the LORD will be enriched. (ESV)
+
+Quote by John Piper
+"Pride is often anxious about the future."
+
+Anxiety flows from pride. If we don't trust God we will be anxious about the future:
+
+  I Peter 5:6-7 - Humble yourselves, therefore, under the mighty hand of God so that at the proper time he may
+  exalt you, casting all your anxieties on him, because he cares for you. (ESV)
 
 7.5.12. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
 
@@ -23699,6 +23798,23 @@ To be domineering is to behave like a lord.
   Matthew 23:8 - But you are not to be called rabbi, for you have one teacher, and you are all brothers. (ESV)
 
   Matthew 23:10 - Neither be called instructors, for you have one instructor, the Christ. (ESV)
+
+youtube.com: Humbling Ourselves @time: 13 min 3 sec
+Pride considers itself above instruction. When God speaks and we don't listen.
+
+  Jeremiah 13:9-11 - Thus says the LORD: Even so will I spoil the pride of Judah and the great pride of Jerusalem.
+  This evil people, who refuse to hear my words, who stubbornly follow their own heart and have gone after other
+  gods to serve them and worship them, shall be like this loincloth, which is good for nothing. For as the
+  loincloth clings to the waist of a man, so I made the whole house of Israel and the whole house of Judah cling
+  to me, declares the LORD, that they might be for me a people, a name, a praise, and a glory, but they would not
+  listen. (ESV)
+
+Elders, listen to God. Those who are younger, be subject to the elders:
+
+  I Peter 5:5-7 - Likewise, you who are younger, be subject to the elders. Clothe yourselves, all of you, with
+  humility toward one another, for God opposes the proud but gives grace to the humble. Humble yourselves,
+  therefore, under the mighty hand of God so that at the proper time he may exalt you, casting all your anxieties
+  on him, because he cares for you. (ESV)
 
 46.2.2. Jesus has said we must stop sinning and follow Jesus to enter the kingdom
 
@@ -36748,7 +36864,7 @@ Date: 2024-07-10 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-10 Wed 19:42
+Created: 2024-07-10 Wed 23:14
 
 Validate
 
