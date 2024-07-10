@@ -15,9 +15,8 @@ Bible study helps other people to come to the obedience of faith in God through 
   against you and against your two friends, for you have not spoken of me what is right, as my servant Job has.
   (ESV)
 
-Don't become lords over one another. We are accountable to our Lord Jesus Christ for our actions and beliefs:
-
-- youtube.com: Isn't Veganism Closer to God's Original Design?
+We are accountable to our Lord Jesus Christ for our actions and beliefs
+youtube.com: Isn't Veganism Closer to God's Original Design?
 
 We serve the Most High God, Jehovah and Jesus Christ who He has sent:
 
@@ -36690,7 +36689,7 @@ Date: 2024-07-10 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-10 Wed 14:00
+Created: 2024-07-10 Wed 14:24
 
 Validate
 
