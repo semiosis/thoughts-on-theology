@@ -3940,6 +3940,10 @@ Everyone will give an account of themself to God:
   for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in
   love. By what you eat, do not destroy the one for whom Christ died. (ESV)
 
+  Mark 7:18-19 - And he said to them, Then are you also without understanding? Do you not see that whatever goes
+  into a person from outside cannot defile him, since it enters not his heart but his stomach, and is expelled?
+  (Thus he declared all foods clean.) (ESV)
+
 In some cases, I might even admire those that go beyond what a law strictly requires, inclusive of what the law
 requires. If a person wanted to go beyond Exodus 20:13 to avoid eating meat to spare the lives of animals and make
 themself accountable to God over that in the hope it pleases God then I admire that commitment actually, but I
@@ -12350,6 +12354,22 @@ It's still really important to put a stop to sin! And we must walk according to 
 
 15.2.1. Holiness
 
+I have so far found this series by R. C. Sproul to help clarify the meaning of the word 'holiness':
+
+Playlist
+youtube.com: The Holiness of God - R.C. Sproul
+
+I will defer to the following video by R. C. Sproul:
+
+Watch
+youtube.com: The Meaning of Holiness: The Holiness of God with R.C. Sproul
+
+15.2.2. Personal 'holiness' / 'righteousness' (i.e. devotion to Christ)
+
+Quote by R C Sproul
+"What makes something sacred, what makes something holy is the touch of God upon it. When the one who himself is
+other and different touches that which is ordinary, it becomes extraordinary."
+
 Undivided devotion to Christ:
 
   I Corinthians 7:32-35 - I want you to be free from anxieties. The unmarried man is anxious about the things of
@@ -12488,7 +12508,7 @@ We are the temple of God:
   with thankfulness in your hearts to God. And whatever you do, in word or deed, do everything in the name of
   the Lord Jesus, giving thanks to God the Father through him.
 
-15.2.2. What must be believe, and what we must do: Walk in truth and love the way Jesus has commanded us
+15.2.3. What must be believe, and what we must do: Walk in truth and love the way Jesus has commanded us
 
 We must receive Jesus' words through faith, walk in them through faith and come to know in truth (we must truly
 know) that Jesus came from God, and continue in faith, continuing to be sanctified.
@@ -15763,6 +15783,16 @@ Our hope should not be on our own lustful or idolatrous desires, but our hope sh
 
   Proverbs 4:23 - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
 
+We should hold the promises of God in our heart:
+
+  Mark 7:18-19 - And he said to them, Then are you also without understanding? Do you not see that whatever goes
+  into a person from outside cannot defile him, since it enters not his heart but his stomach, and is expelled?
+  (Thus he declared all foods clean.) (ESV)
+
+  Acts 28:27 - For the heart of this people has become dull, And with their ears they scarcely hear, And they have
+  closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And understand with their
+  heart and return, And I would heal them."'
+
 Actually, our faith and hope and heart's desire and our walking in faith should really be in line with God's will,
 and God's plan:
 
@@ -17823,6 +17853,10 @@ applies. We live in faith as we are serving Jesus:
   to eat meat or drink wine or do anything that causes your brother to stumble. The faith that you have, keep
   between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves.
   (ESV)
+
+  Mark 7:18-19 - And he said to them, Then are you also without understanding? Do you not see that whatever goes
+  into a person from outside cannot defile him, since it enters not his heart but his stomach, and is expelled?
+  (Thus he declared all foods clean.) (ESV)
 
 We should seek to build one another up rather than damage our neighbour's faith on issues of of law compliance. If
 they serve Christ they are acceptable to God:
@@ -36714,7 +36748,7 @@ Date: 2024-07-10 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-10 Wed 14:48
+Created: 2024-07-10 Wed 19:42
 
 Validate
 

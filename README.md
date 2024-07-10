@@ -2584,6 +2584,8 @@ Everyone will give an account of themself to God:
 
 > **[Romans 14:14-15](https://www.biblegateway.com/passage/?search=Romans%2014%3A14-15&version=ESV)** - I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in love. By what you eat, do not destroy the one for whom Christ died. (ESV)
 
+> **[Mark 7:18-19](https://www.biblegateway.com/passage/?search=Mark%207%3A18-19&version=ESV)** - And he said to them, Then are you also without understanding? Do you not see that whatever goes into a person from outside cannot defile him, since it enters not his **heart** but his stomach, and is expelled? *(Thus he declared all foods clean.)* (ESV)
+
 In some cases, I might even admire those that go beyond what a law strictly requires, inclusive of what the law requires. If a person wanted to go beyond **[Exodus 20:13](https://www.biblegateway.com/passage/?search=Exodus%2020%3A13&version=ESV)** to avoid eating meat to spare the lives of animals and make themself accountable to God over that in the hope it pleases God then I admire that commitment actually, but I wouldn't let anyone pass judgement on me over eating meat myself:
 
 > **[Romans 14:16](https://www.biblegateway.com/passage/?search=Romans%2014%3A16&version=ESV)** - So do not let what you regard as good be spoken of as evil. (ESV)
@@ -8422,6 +8424,19 @@ It's still really important to put a stop to sin! And we must walk according to 
 
 ### Holiness
 
+I have so far found this series by R. C. Sproul to help clarify the meaning of the word 'holiness':
+
+-   **Playlist:** [youtube.com: The Holiness of God - R.C. Sproul](https://www.youtube.com/playlist?list=PL30acyfm60fVpGc7Eo--3S6w1kdhXY9Cb)
+
+I will defer to the following video by R. C. Sproul:
+
+-   **Watch:** [youtube.com: The Meaning of Holiness: The Holiness of God with R.C. Sproul](https://www.youtube.com/watch?v=K96e1tK7eN4)
+
+
+### Personal 'holiness' / 'righteousness' (i.e. devotion to Christ)
+
+-   **[Quote by R C Sproul](https://youtu.be/K96e1tK7eN4?list=PL30acyfm60fVpGc7Eo--3S6w1kdhXY9Cb&t=433):** "What makes something sacred, what makes something holy is the touch of God upon it. When the one who himself is other and different touches that which is ordinary, it becomes extraordinary."
+
 *Undivided* devotion to Christ:
 
 > **[I Corinthians 7:32-35](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A32-35&version=ESV)** - I want you to be free from anxieties. The unmarried man is anxious about the things of the Lord, how to please the Lord. But the married man is anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But the married woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay any restraint upon you, but to promote good order and to **secure your undivided devotion to the Lord**. (ESV)
@@ -10766,6 +10781,12 @@ Our hope should not be on our own lustful or idolatrous desires, but our hope sh
 
 > **[Proverbs 4:23](https://www.biblegateway.com/passage/?search=Proverbs%204%3A23&version=ESV)** - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
 
+We should hold the promises of God in our heart:
+
+> **[Mark 7:18-19](https://www.biblegateway.com/passage/?search=Mark%207%3A18-19&version=ESV)** - And he said to them, Then are you also without understanding? Do you not see that whatever goes into a person from outside cannot defile him, since it enters not his **heart** but his stomach, and is expelled? *(Thus he declared all foods clean.)* (ESV)
+
+> **[Acts 28:27](https://www.biblegateway.com/passage/?search=Acts%2028%3A27&version=ESV)** - For the heart of this people has become dull, And with their ears they scarcely hear, And they have closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And **understand with their heart** and **return**, And I would heal them.”’
+
 Actually, our faith and hope and heart's desire and our walking in faith should really be in line with God's will, and God's plan:
 
 > **[Matthew 6:9-12](https://www.biblegateway.com/passage/?search=Matthew%206%3A9-12&version=ESV)** - Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, <ins>your will be done,</ins> on earth as it is in heaven. Give us this day our daily bread, and forgive us our debts, as we also have forgiven our debtors. (ESV)
@@ -12149,6 +12170,8 @@ Jesus' disciples were obediently serving Jesus and while they were doing what Je
 > **[I Corinthians 6:12](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A12&version=ESV)** - All things are lawful **for me**, but not all things are helpful. All things are lawful **for me**, but I will not be enslaved by anything. (ESV)
 
 > **[Romans 14:17-22](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-22&version=ESV)** - For **the kingdom of God** is not a matter of eating and drinking but of **righteousness and peace and joy in the Holy Spirit**. Whoever thus **serves Christ** is <ins>acceptable to God</ins> and approved by men. So then let us pursue what makes for **peace and for mutual upbuilding**. *Do not, for the sake of food, destroy the work of God.* Everything is indeed clean, but it is wrong for anyone to make another stumble by what he eats. **It is good not to** eat meat or drink wine or **do anything that causes your brother to stumble**. <ins>The faith that you have, keep between yourself and God.</ins> **Blessed is the one who has no reason to pass judgment on himself for what he approves.** (ESV)
+
+> **[Mark 7:18-19](https://www.biblegateway.com/passage/?search=Mark%207%3A18-19&version=ESV)** - And he said to them, Then are you also without understanding? Do you not see that whatever goes into a person from outside cannot defile him, since it enters not his **heart** but his stomach, and is expelled? *(Thus he declared all foods clean.)* (ESV)
 
 We should seek to build one another up rather than damage our neighbour's faith on issues of of law compliance. If they serve Christ they are acceptable to God:
 
