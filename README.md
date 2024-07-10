@@ -578,6 +578,12 @@ When the day of judgement comes, we should be loving our brother and sister in C
 
 > **[I John 4:17-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A17-21&version=ESV)** - By this is love perfected with us, so <ins>that we may have **confidence** for the day of judgment</ins>, because as he is so also are we in this world. There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And <ins>this commandment we have from him:</ins> whoever loves God **must** also love his brother. (ESV)
 
+If we are merciful then we will receive mercy:
+
+> **[Matthew 5:7](https://www.biblegateway.com/passage/?search=Matthew%205%3A7&version=ESV)** - Blessed are the merciful, for they shall receive mercy.
+
+> **[James 2:13](https://www.biblegateway.com/passage/?search=James%202%3A13&version=ESV)** - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment.
+
 To get to know Jesus, we **must obey** His commandments:
 
 > **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
@@ -636,6 +642,10 @@ Out with the old selfish self and in with the new selflessly loving self:
 
 > **[Galatians 5:6](https://www.biblegateway.com/passage/?search=Galatians%205%3A6&version=ESV)** - For in Christ Jesus <ins>neither circumcision nor uncircumcision counts for anything,</ins> but only **faith working through love.** (ESV)
 
+Baptism should result in faith working through/by love; maintaining faith in Jesus, and passing-forward love. This is really what it means to have put on Christ - to have received forgiveness and love from God through faith and then to forgive and love others:
+
+> **[Galatians 3:25-27](https://www.biblegateway.com/passage/?search=Galatians%203%3A25-27&version=ESV)** - But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. (ESV)
+
 Out with the old selfish self and in with the new selflessly loving, and obedient to God self:
 
 > **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For <ins>neither circumcision counts for anything nor uncircumcision,</ins> but **keeping the commandments of God.** (ESV)
@@ -663,6 +673,8 @@ Belief (in the heart) that Jesus is the Son of God leads to:
     -   God's commandments are not burdensome
 
 > **[I John 5:3-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A3-5&version=ESV)** - For this is the love of God, that **we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world.** And this is the victory that has overcome the world—our faith. **Who is it that overcomes the world except the one who believes that Jesus is the Son of God?** (ESV)
+
+> **[Acts 28:27](https://www.biblegateway.com/passage/?search=Acts%2028%3A27&version=ESV)** - For the heart of this people has become dull, And with their ears they scarcely hear, And they have closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And **understand with their heart** and **return**, And I would heal them.”’
 
 -   **Song:** [youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}](https://www.youtube.com/watch?v=Z32HiCoFzlU&list=RD0cnEDUMfPXs&index=4)
 
@@ -1096,7 +1108,7 @@ In Christ Jesus, through faith in Him (through trusting Him, believing Him, beli
 
 -   **Song:** [youtube.com: Be Thou My Vision - Audrey Assad](https://www.youtube.com/watch?v=Optrm7lF16s&list=RD8txqw-u4V78&index=11)
 
-Believing is an initial act of obedience before continuing in the teaching of Christ. If we believe in Him we have obeyed Him, but belief doesn't end there:
+Believing in your heart is an initial act of obedience before continuing in the teaching of Christ. If we believe in Him we have obeyed Him, but belief doesn't end there:
 
 > **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=NASB)** - “Do not let your heart be troubled; believe (G4100 **pisteuo**) in God, believe (G4100 **pisteuo**) also in Me. (NASB)
 
@@ -1324,7 +1336,7 @@ Jesus Christ is our Lord and Teacher - that means we believe and obey Him:
 
 > **[John 13:13-14](https://www.biblegateway.com/passage/?search=John%2013%3A13-14&version=ESV)** - You call me Teacher and Lord, and you are right, for so I am. If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. (ESV)
 
-If you hear Jesus' word and believe Father God, then you have eternal life, and don't come into judgement. I don't doubt it. But the enemy will certainly try to condemn the person after they are born-again:
+If you hear Jesus' word and believe Father God, then you have eternal life, and don't come into judgement. I don't doubt it. We must continue trusting. But the enemy will certainly try to condemn the person after they are born-again:
 
 > **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
 
@@ -4044,6 +4056,8 @@ It's definitely about belief in in the heart:
 > **[Proverbs 4:23](https://www.biblegateway.com/passage/?search=Proverbs%204%3A23&version=ESV)** - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
 
 > **[Jeremiah 17:10](https://www.biblegateway.com/passage/?search=Jeremiah%2017%3A10&version=ESV)** - I the LORD search the heart and test the mind, to give every man according to his ways, according to the fruit of his deeds. (ESV)
+
+> **[Acts 28:27](https://www.biblegateway.com/passage/?search=Acts%2028%3A27&version=ESV)** - For the heart of this people has become dull, And with their ears they scarcely hear, And they have closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And **understand with their heart** and **return**, And I would heal them.”’
 
 Eternal salvation goes to those who obey Jesus:
 
@@ -7006,21 +7020,68 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <td class="org-left"><b>1</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&amp;version=ESV">Exodus 20:2-3</a></b> - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)</td>
-<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=1%20John%204%3A19&amp;version=ESV">I John 4:19</a></b> - We love because he first loved us. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=1%20John%204%3A10-11&amp;version=ESV">I John 4:10-11</a></b> - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. (ESV)</td>
+<td class="org-left"><b>II Corinthians 6:16-17</b> - What agreement has the temple of God with idols? For we are the temple of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God, and they shall be my people. Therefore go out from their midst, and be separate from them, says the Lord, and touch no unclean thing; then I will welcome you, (ESV) <b><a href="https://www.biblegateway.com/passage/?search=1%20John%205%3A21&amp;version=ESV">I John 5:21</a></b> - Little children, keep yourselves from idols. (ESV) <b>I Corinthians 10:11-14</b> - Now these things happened to them as an example, but they were written down for our instruction, on whom the end of the ages has come. Therefore let anyone who thinks that he stands take heed lest he fall. No temptation has overtaken you that is not common to man. God is faithful, and he will not let you be tempted beyond your ability, but with the temptation he will also provide the way of escape, that you may be able to endure it. Therefore, my beloved, <b>flee from idolatry</b>. (ESV) <b>I Corinthians 10:7</b> - Do not be idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=1%20John%204%3A19&amp;version=ESV">I John 4:19</a></b> - We love because he first loved us. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=1%20John%204%3A10-11&amp;version=ESV">I John 4:10-11</a></b> - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">#</th>
+<th scope="col" class="org-left">Bible reference</th>
+<th scope="col" class="org-left">&#xa0;</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left"><b>2</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A4-6&amp;version=ESV">Exodus 20:4-6</a></b> - You shall not make for yourself a carved image, or any likeness of anything that is in heaven above, or that is in the earth beneath, or that is in the water under the earth. You shall not bow down to them or serve them, for I the LORD your God am a jealous God, visiting the iniquity of the fathers on the children to the third and the fourth generation of those who hate me, but showing steadfast love to thousands of those who love me and keep my commandments. (ESV)</td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Acts%2017%3A29&amp;version=ESV">Acts 17:29</a></b> - Being then God's offspring, we ought not to think that the divine being is like gold or silver or stone, an image formed by the art and imagination of man. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Romans%201%3A23&amp;version=ESV">Romans 1:23</a></b> - and exchanged the glory of the immortal God for images resembling mortal man and birds and animals and reptiles. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Psalms%2097%3A7&amp;version=ESV">Psalms 97:7</a></b> - All worshipers of images are put to shame, who make their boast in worthless idols; worship him, all you gods! (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Revelation%2016%3A2&amp;version=ESV">Revelation of John 16:2</a></b> - So the first angel went and poured out his bowl on the earth, and harmful and painful sores came upon the people who bore the mark of the beast and worshiped its image. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">#</th>
+<th scope="col" class="org-left">Bible reference</th>
+<th scope="col" class="org-left">&#xa0;</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left"><b>3</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A7&amp;version=ESV">Exodus 20:7</a></b> - You shall not take the name of the LORD your God in vain, for the LORD will not hold him guiltless who takes his name in vain. (ESV)</td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=James%205%3A12&amp;version=ESV">James 5:12</a></b> - But above all, my brothers, do not swear, either by heaven or by earth or by any other oath, but let your yes be yes and your no be no, so that you may not fall under condemnation. (ESV)</td>
+</tr>
+
+
+<tr>
+<td class="org-left"><b>4</b></td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A8-11&amp;version=ESV">Exodus 20:8-11</a></b> - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Genesis%202%3A3&amp;version=ESV">Genesis 2:3</a></b> - So God blessed the seventh day and made it holy, because on it God rested from all his work that he had done in creation. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Luke%2023%3A56&amp;version=ESV">Luke 23:56</a></b> - Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Mark%202%3A27-28&amp;version=ESV">Mark 2:27-28</a></b> - And he said to them, The Sabbath was made for man, not man for the Sabbath. So the Son of Man is lord even of the Sabbath. (ESV)</td>
 </tr>
 </tbody>
 </table>
@@ -7040,13 +7101,6 @@ The righteousness in the actual doing of the law above is still upheld but there
 <td class="org-left">#</td>
 <td class="org-left">Bible reference</td>
 <td class="org-left">&#xa0;</td>
-</tr>
-
-
-<tr>
-<td class="org-left"><b>4</b></td>
-<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A8-11&amp;version=ESV">Exodus 20:8-11</a></b> - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)</td>
-<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Genesis%202%3A3&amp;version=ESV">Genesis 2:3</a></b> - So God blessed the seventh day and made it holy, because on it God rested from all his work that he had done in creation. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Luke%2023%3A56&amp;version=ESV">Luke 23:56</a></b> - Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Mark%202%3A27-28&amp;version=ESV">Mark 2:27-28</a></b> - And he said to them, The Sabbath was made for man, not man for the Sabbath. So the Son of Man is lord even of the Sabbath. (ESV)</td>
 </tr>
 
 
@@ -7082,14 +7136,15 @@ The righteousness in the actual doing of the law above is still upheld but there
 
 <col  class="org-left" />
 </colgroup>
-<tbody>
+<thead>
 <tr>
-<td class="org-left">#</td>
-<td class="org-left">Bible reference</td>
-<td class="org-left">&#xa0;</td>
+<th scope="col" class="org-left">#</th>
+<th scope="col" class="org-left">Bible reference</th>
+<th scope="col" class="org-left">&#xa0;</th>
 </tr>
+</thead>
 
-
+<tbody>
 <tr>
 <td class="org-left"><b>8</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A15&amp;version=ESV">Exodus 20:15</a></b> - You shall not steal. (ESV)</td>
@@ -7102,8 +7157,28 @@ The righteousness in the actual doing of the law above is still upheld but there
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A16&amp;version=ESV">Exodus 20:16</a></b> - You shall not bear false witness against your neighbor. (ESV)</td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A8-11&amp;version=ESV">I Timothy 1:8-11</a></b> - Now we know that the law is good, if one uses it lawfully, understanding this, that the law is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)</td>
 </tr>
+</tbody>
+</table>
+
+<table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
 
+<colgroup>
+<col  class="org-left" />
+
+<col  class="org-left" />
+
+<col  class="org-left" />
+</colgroup>
+<thead>
+<tr>
+<th scope="col" class="org-left">#</th>
+<th scope="col" class="org-left">Bible reference</th>
+<th scope="col" class="org-left">&#xa0;</th>
+</tr>
+</thead>
+
+<tbody>
 <tr>
 <td class="org-left"><b>10</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A17&amp;version=ESV">Exodus 20:17</a></b> - You shall not covet your neighbor's house; you shall not covet your neighbor's wife, or his male servant, or his female servant, or his ox, or his donkey, or anything that is your neighbor's. (ESV)</td>
@@ -11466,7 +11541,7 @@ The word return specifies 'action'.
 
 > **[John 12:40](https://www.biblegateway.com/passage/?search=John%2012%3A40&version=ESV)** - “He has blinded their eyes and He hardened their heart, so that they would not see with their eyes and perceive with their heart, and be converted and I heal them.”
 
-> **[Acts 28:27](https://www.biblegateway.com/passage/?search=Acts%2028%3A27&version=ESV)** - For the heart of this people has become dull, And with their ears they scarcely hear, And they have closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And understand with their heart and **return**, And I would heal them.”’
+> **[Acts 28:27](https://www.biblegateway.com/passage/?search=Acts%2028%3A27&version=ESV)** - For the heart of this people has become dull, And with their ears they scarcely hear, And they have closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And **understand with their heart** and **return**, And I would heal them.”’
 
 
 # Spirit of Truth vs Spirit of Error
@@ -12241,12 +12316,46 @@ hearts and deeds:
 
 # Commandments and faith
 
+Faith receives, even the free gift of eternal life from God:
+
+> **[Romans 6:23](https://www.biblegateway.com/passage/?search=Romans%206%3A23&version=ESV)** - For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
+> **[Ephesians 2:8-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-9&version=ESV)** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
+
+Love gives:
+
+> **[I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)** - So now faith, hope, and love abide, these three; but the greatest of these is love. (ESV)
+
+> **[Acts 20:35](https://www.biblegateway.com/passage/?search=Acts%2020%3A35&version=ESV)** - In all things I have shown you that by working hard in this way we must help the weak and remember the words of the Lord Jesus, how he himself said, **It is more blessed to give than to receive.** (ESV)
+
+There's no law against love:
+
+> **[I Corinthians 13:1](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A1&version=ESV)** - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. (ESV)
+
+> **[Galatians 5:22-23](https://www.biblegateway.com/passage/?search=Galatians%205%3A22-23&version=ESV)** - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. (ESV)
+
+There's certainly no law against God's commandments:
+
+> **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
+
 > **[Revelation of John 14:12](https://www.biblegateway.com/passage/?search=Revelation%2014%3A12&version=ESV)** - Here is a call for the endurance of the saints, those who keep the commandments of God and their faith in Jesus.
 
-I read this as 'A saint is someone who has faith in Jesus and keeps His commandments (pursuing by faith, not works), and keeps the commandments of God'.
-I read this as the Great commandments, 10 Commandments and faith in Jesus Christ, and potentially various other commandments from the Mosaic law if you know about them, or whatever subset a person practices by faith making themself accountable to God.
-Keep in mind that God commanded us to listen to Jesus, and Jesus' commandments came from God, so as long as a person is keeping Jesus' commandments, they are also keeping God's commandments, but there are many commandments of God, even in the Torah.
+I read this as 'A saint is someone who has faith in Jesus and keeps His commandments (pursuing by faith, not works), and keeps the commandments of God'. A saint is someone who has faith in Jesus and also loves as God commanded.
+
+I read the commandments as being the Great commandments, 10 Commandments and faith in Jesus Christ, and potentially various other commandments from the Mosaic law if you know about them, or whatever subset a person practices by faith making themself accountable to God.
+
+Keep in mind that God commanded us to listen to Jesus, and Jesus' commandments came from God, so as long as a person is keeping Jesus' commandments, they are also keeping the requirement of God's commandments, but there are many commandments of God, even in the Torah.
+
+> **[Galatians 5:14](https://www.biblegateway.com/passage/?search=Galatians%205%3A14&version=ESV)** - For the whole law is fulfilled in one word: You shall love your neighbor as yourself.
+
+AMEN!! Loving your neighbour as yourself involves forgiving your neighbour, and not bearing a grudge.
+
+But people can take this to the point of laying down one's life for their friends:
+
+> **[John 15:13](https://www.biblegateway.com/passage/?search=John%2015%3A13&version=ESV)** - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
+
 But the Mosaic Law, if it's pursued at all, should be pursued by faith and not by works, and it's not pursued for justification. Justification comes from faith in Christ.
+
 We may abide in Jesus' love by keeping His commandments, and we may abide in Father God's love by keeping His commandments. A saint, I think is someone who does this:
 
 > **[John 15:10](https://www.biblegateway.com/passage/?search=John%2015%3A10&version=ESV)** - **If you keep my commandments, you will abide in my love,** just as I have kept **my Father's commandments and abide in his love.** (ESV)
@@ -12254,6 +12363,10 @@ We may abide in Jesus' love by keeping His commandments, and we may abide in Fat
 > **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)** - for the Father himself loves you, **because** you have loved me and have believed that I came from God. (ESV)
 
 > **[Romans 9:30-32](https://www.biblegateway.com/passage/?search=Romans%209%3A30-32&version=ESV)** - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works. They have stumbled over the stumbling stone, (ESV)
+
+A saint helps to carry one another's cross:
+
+> **[Galatians 6:2](https://www.biblegateway.com/passage/?search=Galatians%206%3A2&version=ESV)** - Bear one another's burdens, and so fulfill the law of Christ. (ESV)
 
 
 ### Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism)
@@ -16958,13 +17071,17 @@ We've got to be clear on that, but like all other corruption/falsehood, if agree
 
 > **[Galatians 3:22-26](https://www.biblegateway.com/passage/?search=Galatians%203%3A22-26&version=ESV)** - But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith.
 
-Grace and truth have come through Jesus Christ.
+If we are merciful then we will receive mercy:
 
-> **[John 1:17](https://www.biblegateway.com/passage/?search=John%201%3A17&version=ESV)** - For the law was given through Moses; grace and truth came through Jesus Christ.
+> **[Matthew 5:7](https://www.biblegateway.com/passage/?search=Matthew%205%3A7&version=ESV)** - Blessed are the merciful, for they shall receive mercy.
 
 > **[James 2:13](https://www.biblegateway.com/passage/?search=James%202%3A13&version=ESV)** - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment.
 
 Jesus' servants are given mercy by Jesus and they also show mercy to others.
+
+Grace and truth have come through Jesus Christ:
+
+> **[John 1:17](https://www.biblegateway.com/passage/?search=John%201%3A17&version=ESV)** - For the law was given through Moses; grace and truth came through Jesus Christ.
 
 
 ## Marriage should not be forbidden
@@ -19882,6 +19999,12 @@ But I would much like my dream life to be like the following:
 Whoever loves in the way Jesus loved us and the way Jesus commanded us has been born of God and knows God.
 
 > **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God.
+
+Knowing God involves loving one another the way Jesus instructed us and we can get there by following Jesus' commandments:
+
+> **[John 8:19](https://www.biblegateway.com/passage/?search=John%208%3A19&version=ESV)** - They said to him therefore, Where is your Father? Jesus answered, You know neither me nor my Father. If you knew me, you would know my Father also. (ESV)
+
+> **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
 
 Anyone who **truly believes**.
 
@@ -23063,6 +23186,26 @@ I believe that after being [born-again of the spirit](https://web.archive.org/we
 So I was born-again of the Spirit and when that happened I was given some very strong faith/knowledge that God exists, but I still had to seek Jesus because the Bible says that anyone who claims to know Jesus but doesn't walk in His commandments is not telling the truth, and I want to come to know Jesus.
 
 > **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+When people say, "Is there anyone who does not know Jesus yet? Please put up your hand." they are effectively saying, "Is there anyone who does not follow Jesus' commandments yet? Please put up your hand."
+
+Believing in your heart is an initial act of obedience before continuing in the teaching of Christ. If we believe in Him we have obeyed Him, but belief doesn't end there:
+
+> **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)** - “Do not let your heart be troubled; believe (G4100 **pisteuo**) in God, believe (G4100 **pisteuo**) also in Me. (NASB)
+
+> **[Acts 28:27](https://www.biblegateway.com/passage/?search=Acts%2028%3A27&version=ESV)** - For the heart of this people has become dull, And with their ears they scarcely hear, And they have closed their eyes; Otherwise they might see with their eyes, And hear with their ears, And **understand with their heart** and **return**, And I would heal them.”’
+
+God wants everyone who comes to Jesus and place their trust in Him to have eternal life:
+
+> **[John 6:40-47](https://www.biblegateway.com/passage/?search=John%206%3A40-47&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father. Truly, truly, I say to you, whoever believes has eternal life. (ESV)
+
+If you hear Jesus' word and believe Father God, then you have eternal life, and don't come into judgement. I don't doubt it. We must continue trusting. But the enemy will certainly try to condemn the person after they are born-again:
+
+> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+
+> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
 
 ## Repentance includes bearing fruit and being raised up as a child for Abraham
