@@ -8,6 +8,16 @@ I've also added parts of my own testimony. It's my hope that this Bible study he
 
 > **[Job 42:7](https://www.biblegateway.com/passage/?search=Job%2042%3A7&version=ESV)** - After the LORD had spoken these words to Job, the LORD said to Eliphaz the Temanite: My anger burns against you and against your two friends, for you have not spoken of me what is right, as my servant Job has. (ESV)
 
+Don't become lords over one another. We are accountable to our Lord Jesus Christ for our actions and beliefs:
+
+-   [youtube.com: Isn't Veganism Closer to God's Original Design?](https://www.youtube.com/watch?v=7NkpboocNA4)
+
+We serve the Most High God, Jehovah and Jesus Christ who He has sent:
+
+> **[I Corinthians 8:5-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A5-7&version=ESV)** - For although <ins>there may be so-called gods in heaven or on earth</ins> — *as indeed there are many gods and many lords* — yet **for us there is one God, the Father, from whom are all things and for whom we exist, and one Lord, Jesus Christ, through whom are all things and through whom we exist**. However, not all possess this knowledge. But some, through former association with idols, eat food as really offered to an idol, and their conscience, being weak, is defiled. (ESV)
+
+> **[Deuteronomy 10:17](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A17&version=ESV)** - For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and takes no bribe. (ESV)
+
 > I agree whole heartedly with Keith Green here:
 > 
 > -   [youtube.com: Keith Green 1978 : Make My Life A Prayer to You {live}](https://www.youtube.com/watch?v=z7oCa9BvO9g)
@@ -25802,6 +25812,12 @@ God is not saving Lucifer/Satan/the devil or his demons/devils. They're all goin
 The Only True God is the [God and Father of Jesus Christ, and Jesus Christ who He Sent](https://www.youtube.com/watch?v=14zixS3TvZg&ab_channel=DesiringGod).
 
 > **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know <ins>you the only true God, and Jesus Christ whom you have sent.</ins> (ESV)
+
+We serve the Most High God, Jehovah and Jesus Christ who He has sent:
+
+> **[I Corinthians 8:5-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A5-7&version=ESV)** - For although <ins>there may be so-called gods in heaven or on earth</ins> — *as indeed there are many gods and many lords* — yet **for us there is one God, the Father, from whom are all things and for whom we exist, and one Lord, Jesus Christ, through whom are all things and through whom we exist**. However, not all possess this knowledge. But some, through former association with idols, eat food as really offered to an idol, and their conscience, being weak, is defiled. (ESV)
+
+> **[Deuteronomy 10:17](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A17&version=ESV)** - For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and takes no bribe. (ESV)
 
 What I believe is that everything that is in the 'made' category has been created through Jesus (Yeshua) by Jehovah (Yahweh) God.
 Jesus Christ was not made. He was there with Jehovah in the beginning. He is the Word of God. Jesus is God the Son:
