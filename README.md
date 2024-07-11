@@ -5705,7 +5705,7 @@ Jehovah is God Almighty:
 
 > **[Exodus 6:3](https://www.biblegateway.com/passage/?search=Exodus%206%3A3&version=ESV)** - I appeared to Abraham, to Isaac, and to Jacob, as God Almighty, but by my name the LORD I did not make myself known to them. (ESV)
 
-[[[https://www.biblegateway.com/passage/?search=Exodus%206%3A3&version=ESV][Exodus 6:3](https://biblehub.com/interlinear/exodus/6-3.htm) Interlinear: and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been known to them;]]
+[Exodus 6:3](https://biblehub.com/interlinear/exodus/6-3.htm) Interlinear: and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been known to them;]]
 
 
 ### Faith and law-keeping as a Christian
@@ -5763,7 +5763,7 @@ We should not forsake Jesus as our Master:
 
 We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness:
 
-**[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
+> **[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
 
 We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments:
 
