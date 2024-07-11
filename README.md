@@ -644,7 +644,11 @@ A new creation lives for Christ:
 
 > **[Matthew 20:27-28](https://www.biblegateway.com/passage/?search=Matthew%2020%3A27-28&version=ESV)** - and whoever would be first among you must be your slave, even as the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
 
-We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. We must be born-again. This is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
+We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. We must be born-again:
+
+> -   **[Quote of John Piper](https://youtu.be/0ZrcokMSBZY?t=1366):** Your life becomes a foretaste for others of your cherished future. But if your future that you cherish is grace coming to you at the revelation of Jesus Christ and that is your treasure, and that is your hope and that is your faith and that is your vision and what you hold onto and embrace, **you cannot return evil for evil.** You know *why* you cannot return evil for evil? (If that's where your heart is.) Because **the cherished grace that's coming is that He's not going to return evil for evil to you.** Then we cannot turn around and have a lifestyle of returning evil for evil or insulting for insulting, and therefore the point of saying it's a <ins>condition</ins> for that is simply this, **"You must be born again."**
+
+This is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
 > **[II Corinthians 5:17](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A17&version=ESV)** - Therefore, **if** anyone is in Christ, he is a new creation. The **old has passed away**; behold, the **new has come.**
 
@@ -15765,6 +15769,8 @@ In believing in Jesus, we are guaranteed an inheritance in heaven:
 
 > **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV),14** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
 
+> **[I Peter 1:13](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV)** - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ. (ESV)
+
 The inheritance is in heaven:
 
 > **[I Peter 1:4](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A4&version=ESV)** - to obtain an inheritance which is imperishable and undefiled and will not fade away, reserved in heaven for you, (ESV)
@@ -15911,6 +15917,10 @@ We must do good, and behave like the children of God, or we will not enter the K
 > **[I John 3:10](https://www.biblegateway.com/passage/?search=1%20John%203%3A10&version=ESV)** - By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
 > **[Luke 6:35](https://www.biblegateway.com/passage/?search=Luke%206%3A35&version=ESV)** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+-   **Sermon:** [youtube.com: Called to Bless Others](https://www.youtube.com/watch?v=0ZrcokMSBZY)
+
+> -   **[Quote of John Piper](https://youtu.be/0ZrcokMSBZY?t=1366):** Your life becomes a foretaste for others of your cherished future. But if your future that you cherish is grace coming to you at the revelation of Jesus Christ and that is your treasure, and that is your hope and that is your faith and that is your vision and what you hold onto and embrace, **you cannot return evil for evil.** You know *why* you cannot return evil for evil? (If that's where your heart is.) Because **the cherished grace that's coming is that He's not going to return evil for evil to you.** Then we cannot turn around and have a lifestyle of returning evil for evil or insulting for insulting, and therefore the point of saying it's a <ins>condition</ins> for that is simply this, **"You must be born again."**
 
 
 ### Trust Jesus like a child trusts their parents
