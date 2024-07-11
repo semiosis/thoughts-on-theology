@@ -1028,7 +1028,15 @@ born-again:
   why you cannot return evil for evil? (If that's where your heart is.) Because the cherished grace that's coming
   is that He's not going to return evil for evil to you. Then we cannot turn around and have a lifestyle of
   returning evil for evil or insulting for insulting, and therefore the point of saying it's a condition for that
-  is simply this, "You must be born again."
+  is simply this, "You must be born again." Therefore, it's a condition, not in the sense of earning anything but
+  in the sense of bearing witness that you've fallen in love and live out of that confidence.
+
+Amen. I want to say though that I obey Jesus when I'm feeling depressed and having a bad day myself, it most
+certainly still counts as love to Jesus. If I'm suffering for exercising obedient faith in Jesus, that obedience
+is still loving Jesus. In fact, it's more blessed to give than to receive. The obedience is still done out of love
+for Jesus and out of faith in Jesus. I believe that obedience to Jesus is an expression of faith in Jesus, and an
+expression of love for Jesus, and hope in Jesus. I've invested my life in Jesus, and happy about it because I
+believe and hope in Jesus.
 
 This is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
@@ -23005,7 +23013,13 @@ youtube.com: Called to Bless Others
   why you cannot return evil for evil? (If that's where your heart is.) Because the cherished grace that's coming
   is that He's not going to return evil for evil to you. Then we cannot turn around and have a lifestyle of
   returning evil for evil or insulting for insulting, and therefore the point of saying it's a condition for that
-  is simply this, "You must be born again."
+  is simply this, "You must be born again." Therefore, it's a condition, not in the sense of earning anything but
+  in the sense of bearing witness that you've fallen in love and live out of that confidence.
+
+I believe this type of obedience, obedience to Jesus may come before or after being born of the Spirit, and
+obedience to Jesus is a part of faith in Jesus. If I obey Jesus when I'm feeling depressed and having a bad day
+myself, that's fine. It most certainly still counts as love. In fact, it's more blessed to give than to receive.
+The obedience is still done out of love for Jesus and out of faith in Jesus.
 
 40.2.2. Trust Jesus like a child trusts their parents
 
@@ -37172,7 +37186,7 @@ Date: 2024-07-11 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-11 Thu 15:55
+Created: 2024-07-11 Thu 16:09
 
 Validate
 
