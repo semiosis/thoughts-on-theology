@@ -25880,9 +25880,15 @@ I'm also experiencing a lot of testing, and positive interactions, and some enco
 
 > **[Galatians 5:19-21](https://www.biblegateway.com/passage/?search=Galatians%205%3A19-21&version=ESV)** - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that <ins>those who do such things will not inherit the kingdom of God.</ins> (ESV)
 
+-   **Sermon:** [youtube.com: Assurance for Battle](https://www.youtube.com/watch?v=qVajGb8n2Fg)
+
 I know my family in Christ also experience the same kind of suffering / spiritual warfare:
 
 > **[I Peter 5:9](https://www.biblegateway.com/passage/?search=1%20Peter%205%3A9&version=ESV)** - Resist him, firm in your faith, knowing that the same kinds of suffering are being experienced by your brotherhood throughout the world. (ESV)
+
+> **I Peter 4:16-17** - Yet if anyone suffers as a Christian, let him not be ashamed, but let him glorify God in that name. For it is time for judgment to begin at the household of God; and if it begins with us, what will be the outcome for those who do not obey the gospel of God? (ESV)
+
+> **Job 1:8-12** - And the LORD said to Satan, Have you considered my servant Job, that there is none like him on the earth, a blameless and upright man, who fears God and turns away from evil? Then Satan answered the LORD and said, Does Job fear God for no reason? Have you not put a hedge around him and his house and all that he has, on every side? You have blessed the work of his hands, and his possessions have increased in the land. But stretch out your hand and touch all that he has, and he will curse you to your face. And the LORD said to Satan, Behold, all that he has is in your hand. Only against him do not stretch out your hand. So Satan went out from the presence of the LORD. (ESV)
 
 > **[Psalms 57:1](https://www.biblegateway.com/passage/?search=Psalms%2057%3A1&version=ESV)** - Be merciful to me, O God, be merciful to me, for in you my soul takes refuge; in the shadow of your wings I will take refuge, till the storms of destruction pass by. (ESV)
 
