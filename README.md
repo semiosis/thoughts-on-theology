@@ -213,42 +213,7 @@ Instead we focus on following Jesus first and foremost:
 
 > **[Romans 14:22-23](https://www.biblegateway.com/passage/?search=Romans%2014%3A22-23&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
 
-When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law compliance
-while we follow Jesus first and foremost.
-
-Those who annul and teach others to annul the law will be 'called' least in the kingdom. It's not humility to do so.
-
--   We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness
-    -   **[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
--   We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments
--   It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't love God and our neighbour
-    -   Teaching others to break the law is teaching bad behaviour. It refuses to acknowledge sin and it refuses to agree with God and it refuses to acknowledge loving God and one another, and it refuses to acknowledge holiness and being a living sacrifice for God
-
-Jesus, the original Apostles and the founding fathers of Christianity still taught us to keep the 2 Great commandments and the 10 Commandments which is sound doctrine:
-
--   **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - Circumcision is nothing, and uncircumcision is nothing, but the keeping of the commandments of God. (KJV)
-
-So long as we hold faith in Christ, we're no longer victims of the curse of the law (which is to rely on keeping the full law perfectly to avoid being cursed):
-
-> **[Galatians 3:10-13](https://www.biblegateway.com/passage/?search=Galatians%203%3A10-13&version=ESV)** - For all who rely on works of the law are under a curse; for it is written, Cursed be everyone who does not abide by all things written in the Book of the Law, and do them. Now it is evident that no one is justified before God by the law, for The righteous shall live by faith. But the law is not of faith, rather The one who does them shall live by them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— (ESV)
-
-Those who keep God's commandments and **and** the righteousness of faith / the testimony of Jesus will be called great in the kingdom:
-
-> **[Matthew 5:19](https://www.biblegateway.com/passage/?search=Matthew%205%3A19&version=ESV)** - Therefore <ins>whoever relaxes one of the least of these commandments and teaches others to do the same</ins> will be called *least in the kingdom of heaven*, but <ins>whoever does them and teaches them</ins> will be called *great in the kingdom of heaven*. (ESV)
-
-It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret.
-
--   **[Quote by John Piper](https://youtu.be/nZT9N7Duu_Y?t=815):** "Pride is insubordinate. [It says,] You don't have a right to tell me what to do. That's what happened in the Garden of Eden right at the beginning of our sinful plight. And that's what all of us do apart from God's grace."
-
-It's God who tests the faith, and God who justifies:
-
-> **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
-
-We 'endeavour' to be justified **in Christ**. We want to be found **in Christ**. We don't justify ourselves, and we don't put ourselves in, but we endeavour to be justified by God by being **in Christ**:
-
-> **[Galatians 2:17](https://www.biblegateway.com/passage/?search=Galatians%202%3A17&version=ESV)** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
-
-Surely to be found **in Christ** we would be trusting Him and and trusting in Him and living for Him, and even serving Him.
+-   **[Quote by John Piper](https://youtu.be/clrbUjkbNsM?t=701):** That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the law. That is, we keep the commandments, we love. We are doers of the law. Not sinlessly perfect law-keepers. Nobody is nor anybody has been except Jesus, which is why we depend on Him, but rather, radically transformed people, through faith, in the power of the Holy Spirit, leaning on the grace of God that comes to us through Jesus Christ.
 
 
 # Confessions of faith
@@ -5740,7 +5705,121 @@ Jehovah is God Almighty:
 
 > **[Exodus 6:3](https://www.biblegateway.com/passage/?search=Exodus%206%3A3&version=ESV)** - I appeared to Abraham, to Isaac, and to Jacob, as God Almighty, but by my name the LORD I did not make myself known to them. (ESV)
 
-[Exodus 6:3 Interlinear: and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been known to them;](https://biblehub.com/interlinear/exodus/6-3.htm)
+[[[https://www.biblegateway.com/passage/?search=Exodus%206%3A3&version=ESV][Exodus 6:3](https://biblehub.com/interlinear/exodus/6-3.htm) Interlinear: and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been known to them;]]
+
+
+### Faith and law-keeping as a Christian
+
+When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law compliance
+while we follow Jesus first and foremost.
+
+-   **John Piper on Faith and Law-Keeping:** [youtube.com: How Our Faith and Law-Keeping Work Together in the Christian Life](https://www.youtube.com/watch?v=clrbUjkbNsM)
+
+We're all going to be judged by the divine standards that we have access to, and everybody has access to divine standards that we fall short of:
+
+> **[Romans 2:11-12](https://www.biblegateway.com/passage/?search=Romans%202%3A11-12&version=ESV)** - For **God shows no partiality**. For all who have sinned without the law will also perish without the law, and all who have sinned under the law will be judged by the law. (ESV)
+
+It's not "having (having possession of) the law" which counts, but "doing it". This does **not** say they will be justified **by** doing the law, which means it could be thought of as a potential way of showing evidence for or confirming a person's faith in Jesus:
+
+> **[Romans 2:13](https://www.biblegateway.com/passage/?search=Romans%202%3A13&version=ESV)** - For it is not the hearers of the law who are righteous before God, but the doers of the law who will be justified. (ESV)
+
+We of course may be *imperfect* doers of the law, especially as Christians because we are justified by our faith in Jesus:
+
+-   **[Quote by John Piper](https://youtube.com/watch?v=clrbUjkbNsM&t=336):** A person today may be a doer of the law who trusts Jesus as the only basis of their justification before God, who in the power of that faith by the Spirit walks in a manner worthy of the LORD and then at the last judgement Christ will be the basis of our acceptance - Christ alone, the basis of our acceptance with the Father and our life of obedience doing the law will be brought in to confirm that our faith was real, because faith works through love. So "doing the law" will not be the <ins>basis</ins> of our being in God's favour, but the evidence that we are trusting Christ, united to Christ, and thus necessary at the last day.
+
+AMEN!! This has totally been my stance, but John Piper hit the nail on the head with this one.
+
+We can certainly "be obedient to God's commandments" and that is "doing":
+
+> **[I Peter 1:14-16](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A14-16&version=ESV)** - As obedient children, do not be conformed to the passions of your former ignorance, but as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am holy. (ESV)
+
+> **[Titus 3:3](https://www.biblegateway.com/passage/?search=Titus%203%3A3&version=ESV)** - For we ourselves were once foolish, disobedient, led astray, slaves to various passions and pleasures, passing our days in malice and envy, hated by others and hating one another. (ESV)
+
+> **[James 1:22](https://www.biblegateway.com/passage/?search=James%201%3A22&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. (ESV)
+
+> **[Hebrews 11:31](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A31&version=ESV)** - By faith Rahab the prostitute did not perish with those who were disobedient, because she had given a friendly welcome to the spies. (ESV)
+
+Perfect obedience though is something Jesus reached but I certainly have not:
+
+> **[Philippians 2:8](https://www.biblegateway.com/passage/?search=Philippians%202%3A8&version=ESV)** - And being found in human form, he humbled himself by becoming obedient to the point of death, even death on a cross. (ESV)
+
+The nations have a form of God's law written on our hearts:
+
+> **[Romans 2:14-16](https://www.biblegateway.com/passage/?search=Romans%202%3A14-16&version=ESV)** - For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law. They show that the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
+
+> **[Romans 3:28-29](https://www.biblegateway.com/passage/?search=Romans%203%3A28-29&version=ESV)** - For we hold that one is justified by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, (ESV)
+
+> **[Romans 5:1-2](https://www.biblegateway.com/passage/?search=Romans%205%3A1-2&version=ESV)** - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+There is no problem with keeping the law to your level of commitment accountable to God, but we should not feel under the law that we must keep all of it all the time. Also, our obedience to the law is not what justifies us:
+
+> **[Galatians 5:3-4](https://www.biblegateway.com/passage/?search=Galatians%205%3A3-4&version=ESV)** - I testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed from Christ, you who would be justified by the law; you have fallen away from grace. (ESV)
+
+Those who annul and teach others to annul the law will be 'called' least in the kingdom. It's not humility to do so. They're teaching people against bearing good fruit.
+
+We should not forsake Jesus as our Master:
+
+> **[Jude 1:4](https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV)** - For certain people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. (ESV)
+
+We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness:
+
+**[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
+
+We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments:
+
+> **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For neither circumcision counts for anything nor uncircumcision, but keeping the commandments of God. (ESV)
+
+It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't love God and our neighbour:
+
+> **[Galatians 5:6](https://www.biblegateway.com/passage/?search=Galatians%205%3A6&version=ESV)** - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through love. (ESV)
+
+Love is the fulfillment of the law. Love does the commandments of God that the law requires. The person who does them can be described as a *doer* of the law:
+
+> **[Romans 13:8](https://www.biblegateway.com/passage/?search=Romans%2013%3A8&version=ESV)** - Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. (ESV)
+
+-   **[Quote by John Piper](https://youtu.be/clrbUjkbNsM?t=701):** That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the law. That is, we keep the commandments, we love. We are doers of the law. Not sinlessly perfect law-keepers. Nobody is nor anybody has been except Jesus, which is why we depend on Him, but rather, radically transformed people, through faith, in the power of the Holy Spirit, leaning on the grace of God that comes to us through Jesus Christ.
+
+AMEN!!
+
+Jesus' atonement means that the requirement of the law might be fulfilled in us who walk according to the Spirit - keeping the commandments of God:
+
+> **[Romans 8:3-4](https://www.biblegateway.com/passage/?search=Romans%208%3A3-4&version=ESV)** - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
+Teaching others to not obey Jesus' commandments and to not obey the 10 Commandments is teaching people *against* walking by the Spirit.
+
+Teaching others to break the law is teaching bad behaviour. 
+
+> **[Romans 2:6-7](https://www.biblegateway.com/passage/?search=Romans%202%3A6-7&version=ESV)** - He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; (ESV)
+
+It refuses to acknowledge sin and it refuses to agree with God and it refuses to acknowledge loving God and one another, and it refuses to acknowledge holiness and being a living sacrifice for God:
+
+> **[Luke 1:5-6](https://www.biblegateway.com/passage/?search=Luke%201%3A5-6&version=ESV)** - In the days of Herod, king of Judea, there was a priest named Zechariah, of the division of Abijah. And he had a wife from the daughters of Aaron, and her name was Elizabeth. And **they were both righteous before God, walking blamelessly in all the commandments and statutes of the Lord.** (ESV)
+
+Jesus, the original Apostles and the founding fathers of Christianity still taught us to keep the 2 Great commandments and the 10 Commandments which is sound doctrine:
+
+-   **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - Circumcision is nothing, and uncircumcision is nothing, but the keeping of the commandments of God. (KJV)
+
+So long as we hold faith in Christ, we're no longer victims of the curse of the law (which is to rely on keeping the full law perfectly to avoid being cursed):
+
+> **[Galatians 3:10-13](https://www.biblegateway.com/passage/?search=Galatians%203%3A10-13&version=ESV)** - For all who rely on works of the law are under a curse; for it is written, Cursed be everyone who does not abide by all things written in the Book of the Law, and do them. Now it is evident that no one is justified before God by the law, for The righteous shall live by faith. But the law is not of faith, rather The one who does them shall live by them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— (ESV)
+
+Those who keep God's commandments and **and** the righteousness of faith / the testimony of Jesus will be called great in the kingdom:
+
+> **[Matthew 5:19](https://www.biblegateway.com/passage/?search=Matthew%205%3A19&version=ESV)** - Therefore <ins>whoever relaxes one of the least of these commandments and teaches others to do the same</ins> will be called *least in the kingdom of heaven*, but <ins>whoever does them and teaches them</ins> will be called *great in the kingdom of heaven*. (ESV)
+
+It is humility to keep God's commandments by faith (and not works), accountable to God who sees in secret.
+
+-   **[Quote by John Piper](https://youtu.be/nZT9N7Duu_Y?t=815):** "Pride is insubordinate. [It says,] You don't have a right to tell me what to do. That's what happened in the Garden of Eden right at the beginning of our sinful plight. And that's what all of us do apart from God's grace."
+
+It's God who tests the faith, and God who justifies:
+
+> **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
+
+We 'endeavour' to be justified **in Christ**. We want to be found **in Christ**. We don't justify ourselves, and we don't put ourselves in, but we endeavour to be justified by God by being **in Christ**:
+
+> **[Galatians 2:17](https://www.biblegateway.com/passage/?search=Galatians%202%3A17&version=ESV)** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
+
+Surely to be found **in Christ** we would be trusting Him and and trusting in Him and living for Him, and even serving Him.
 
 
 # Jehovah is Almighty God, Creator of Heaven and Earth
@@ -19374,13 +19453,7 @@ The universe is upheld by the word of Jesus' power.
     When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law compliance
     while we follow Jesus first and foremost.
     
-    Those who annul and teach others to annul the law will be 'called' least in the kingdom. It's not humility to do so.
-    
-    -   We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness
-        -   **[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
-    -   We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments
-    -   It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't love God and our neighbour
-        -   Teaching others to break the law is teaching bad behaviour. It refuses to acknowledge sin and it refuses to agree with God and it refuses to acknowledge loving God and one another, and it refuses to acknowledge holiness and being a living sacrifice for God
+    -   **[Quote by John Piper](https://youtu.be/clrbUjkbNsM?t=701):** That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the law. That is, we keep the commandments, we love. We are doers of the law. Not sinlessly perfect law-keepers. Nobody is nor anybody has been except Jesus, which is why we depend on Him, but rather, radically transformed people, through faith, in the power of the Holy Spirit, leaning on the grace of God that comes to us through Jesus Christ.
     
     Jesus, the original Apostles and the founding fathers of Christianity still taught us to keep the 2 Great commandments and the 10 Commandments which is sound doctrine:
     
@@ -21667,7 +21740,7 @@ Make disciples of all the nations, teaching them to follow/obey Jesus:
 
 > **[Matthew 28:18-20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A18-20&version=ESV)** - And Jesus came and said to them, All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of **the Holy Spirit**, teaching them to observe (**[G5083 tereo](https://biblehub.com/greek/5083.htm)**) all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
 
-> **Matthew 28:20** - and teaching them to obey (**[G5083 tereo](https://biblehub.com/greek/5083.htm)**) all that I have commanded you. And surely I am with you always, even to the end of the age.” (BSB)
+> **[Matthew 28:20](https://www.bible.com/bible/3034/mat.28.20)** - and teaching them to obey (**[G5083 tereo](https://biblehub.com/greek/5083.htm)**) all that I have commanded you. And surely I am with you always, even to the end of the age.” (BSB)
 
 The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
 
