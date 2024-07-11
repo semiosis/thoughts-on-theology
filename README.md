@@ -219,6 +219,7 @@ while we follow Jesus first and foremost.
 Those who annul and teach others to annul the law will be 'called' least in the kingdom. It's not humility to do so.
 
 -   We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness
+    -   **[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
 -   We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments
 -   It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't love God and our neighbour
     -   Teaching others to break the law is teaching bad behaviour. It refuses to acknowledge sin and it refuses to agree with God and it refuses to acknowledge loving God and one another, and it refuses to acknowledge holiness and being a living sacrifice for God
@@ -391,7 +392,7 @@ So the problem in my opinion is not the will to do the will of God but the abili
 
 > **[Matthew 26:40-43](https://www.biblegateway.com/passage/?search=Matthew%2026%3A40-43&version=ESV)** - And he came to the disciples and found them sleeping. And he said to Peter, So, <ins>could you not watch with me one hour? Watch and pray that you may not enter into temptation.</ins> **The spirit indeed is willing, but the flesh is weak**. Again, for the second time, he went away and prayed, My Father, if this cannot pass unless I drink it, your will be done. <ins>And again he came and found them sleeping, for their eyes were heavy.</ins> (ESV)
 
-> **Romans 7:16-18** - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. (ESV)
+> **[Romans 7:16-18](https://www.biblegateway.com/passage/?search=Romans%207%3A16-18&version=ESV)** - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. (ESV)
 
 
 ## Heidelberg Catechism
@@ -19376,6 +19377,7 @@ The universe is upheld by the word of Jesus' power.
     Those who annul and teach others to annul the law will be 'called' least in the kingdom. It's not humility to do so.
     
     -   We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness
+        -   **[Matthew 23:23](https://www.biblegateway.com/passage/?search=Matthew%2023%3A23&version=ESV)** - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to have done, without neglecting the others. (ESV)
     -   We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments
     -   It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't love God and our neighbour
         -   Teaching others to break the law is teaching bad behaviour. It refuses to acknowledge sin and it refuses to agree with God and it refuses to acknowledge loving God and one another, and it refuses to acknowledge holiness and being a living sacrifice for God

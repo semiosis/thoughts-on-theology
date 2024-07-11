@@ -379,6 +379,9 @@ Those who annul and teach others to annul the law will be 'called' least in the 
 so.
 
 - We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness
+- Matthew 23:23 - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and
+have neglected the weightier matters of the law: justice and mercy and faithfulness. These you ought to
+have done, without neglecting the others. (ESV)
 - We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments
 - It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't love
 God and our neighbour
@@ -27947,6 +27950,9 @@ Those who annul and teach others to annul the law will be 'called' least in the 
 do so.
 
 - We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness
+- Matthew 23:23 - Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and
+cumin, and have neglected the weightier matters of the law: justice and mercy and faithfulness.
+These you ought to have done, without neglecting the others. (ESV)
 - We certainly should not annul and teach others to annul the Great Commandments or the 10 Commandments
 - It's prideful to say that God is wrong, Jesus behaved badly and that the Law is wrong, and we shouldn't
 love God and our neighbour
@@ -37023,7 +37029,7 @@ Date: 2024-07-11 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-11 Thu 12:56
+Created: 2024-07-11 Thu 13:18
 
 Validate
 
