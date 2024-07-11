@@ -10,7 +10,7 @@ I've also added parts of my own testimony. It's my hope that this Bible study he
 
 -   **We are accountable to our Lord Jesus Christ for our actions and beliefs:** [youtube.com: Isn't Veganism Closer to God's Original Design?](https://www.youtube.com/watch?v=7NkpboocNA4)
 
-> **Romans 14:4** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
+> **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
 
 We serve the Most High God, Jehovah and Jesus Christ who He has sent:
 
@@ -2820,7 +2820,7 @@ You cannot make money master over you:
 
 We must accept Jesus as Master over us:
 
-> **Romans 14:4** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
+> **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
 
 But not only that; We also have to want God, treasure God and love God. And that means loving Him, treasure Him, love Him in trust and in belief and obedience. In order to follow Jesus, sometimes you will **have to** sacrifice financial security because there are many people you around you who need you to lighten their burdens. Also God may even test you to see if you love your money more than Him:
 
