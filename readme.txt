@@ -356,6 +356,19 @@ Rule:
   shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as
   yourself. Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
+Quote by John Bunyan
+Interpreter explained, "This parlor is the heart of a man which has never been sanctified by the sweet grace of
+the Gospel. The dust is his original sin and inward corruptions, which have defiled the whole man. He who began to
+sweep at first, is the Law. The maiden who brought and sprinkled the water, is the Gospel. "You saw that as soon
+as the man began to sweep, that the dust thickly swirled around the room, and became even more difficult to
+cleanse, nearly choking you to death. This is to show you that the Law, instead of cleansing the heart from
+sin-does in fact arouse sin, giving greater strength to it-and causing it to flourish in the soul. The Law both
+manifests and forbids sin-but it has no power to subdue sin. "Again, you saw the maiden sprinkle the room with
+water, upon which it was cleansed with ease. This is to show you, that when the Gospel comes in the sweet and
+precious influences thereof to the heart-then, I say, even as you saw the maiden subdue the dust by sprinkling the
+floor with water-just so is sin vanquished and subdued, and the soul made clean, through faith, and consequently
+fit for the King of glory to inhabit."
+
 The law is good. It's not our source of justification but we don't teach people to disobey it, especially those
 who follow it by faith.
 
@@ -365,6 +378,11 @@ who follow it by faith.
   let us not pass judgment on one another any longer, but rather decide never to put a stumbling block or
   hindrance in the way of a brother. I know and am persuaded in the Lord Jesus that nothing is unclean in itself,
   but it is unclean for anyone who thinks it unclean. (ESV)
+
+But the law doesn't save:
+
+  Hebrews 7:19 - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through
+  which we draw near to God. (ESV)
 
 Instead we focus on following Jesus first and foremost:
 
@@ -37205,11 +37223,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-11 Thu 00:00
+Date: 2024-07-12 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-11 Thu 22:54
+Created: 2024-07-12 Fri 15:26
 
 Validate
 
