@@ -25448,6 +25448,9 @@ born-again as an excuse to plead not-guilty in court, I feel like has damaged me
 not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the
 Word of God.
 
+  Romans 14:17-18 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
+  and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
 The way I chose was based on truth and joy and being at peace. And the fact of the matter is that while I had
 faith I had joy and peace and could just focus on being productive and working, and when the fruit of the spirit
 is gone what is left but sadness and depression and filling the void with the wrong stuff. I personally do not
@@ -25466,8 +25469,11 @@ I'm not upset with people, but I'm upset that I feel broken and as if I am in a 
 following Jesus, and like I had to kill the marriage proposal to put Jesus first, and I'm grieved. I feel like
 Abraham if he was to actually kill Isaac on the Altar, and God didn't intervene.
 
-I want it to stay in God's court (until I am sanctified) because I feel like I have tried my best to remain
-faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole.
+I want it to stay in God's court (until I am sanctified and delivered) because I feel like I have tried my best to
+remain faithful to God, and now I need full deliverance and I want to be completely cleaned and made whole, and
+instead of being rescued it's been as if satan has kept me in a chokehold and daily I experience these antichrist
+dreams and visions at night time. Obviously it's spiritual oppression which I am fight against, and that has
+manifested too with the actual church attacking me:
 
   II Timothy 2:21-22 - Therefore, if anyone cleanses himself from what is dishonorable, he will be a vessel for
   honorable use, set apart as holy, useful to the master of the house, ready for every good work. So flee youthful
@@ -25476,8 +25482,30 @@ faithful to God, and now I need full deliverance and I want to be completely cle
 
 I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year,
 and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend
-against it and trying to be obedient to Jesus. I pray Jesus continues to wash me, and for the grace to be
-sanctified and for ultimate deliverance from these demons.
+against it and trying to be obedient to Jesus.
+
+All of that spiritual attack I have received pales in comparison to the depression from having my joy taken from
+me.
+
+What I'm experiencing is certainly not the kingdom of God, and the Holy Spirit certainly doesn't steal kill and
+destroy.
+
+I'm going to claim this:
+
+Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into
+Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's
+encouraged. I think we bear His reproach in order to be sanctified and then call Jerusalem our home:
+
+  Hebrews 13:12-14 - So Jesus also suffered outside the gate in order to sanctify the people through his own
+  blood. Therefore let us go to him outside the camp and bear the reproach he endured. For here we have no lasting
+  city, but we seek the city that is to come. (ESV)
+
+  I Peter 4:12-13 - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though
+  something strange were happening to you. But rejoice insofar as you share Christ's sufferings, that you may also
+  rejoice and be glad when his glory is revealed. (ESV)
+
+I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these
+demons:
 
   Romans 4:7-8 - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the
   man against whom the Lord will not count his sin. (ESV)
@@ -37469,7 +37497,7 @@ Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 16:35
+Created: 2024-07-13 Sat 17:12
 
 Validate
 
