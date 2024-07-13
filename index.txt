@@ -14653,18 +14653,6 @@ out of ongoing faith, ongoing obedience:
   in God may be careful to devote themselves to good works. These things are excellent and profitable for people.
   (ESV)
 
-youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec
-You've heard about my wife well over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to
-marry her. So I came to her one day and I had a little present wrapped up for her. It was a cookbook. So I said
-I'd like to marry you Sally. Now the condition would be this: let's look at page 147 - it's apple cake, and here
-are the laws for making apple cake. Thou shalt take some what's flower, thou shall take some what sugar, and there
-you are. Now, here's the way it's gonna be: If you keep these laws for the next forty years I think about
-accepting you. If you don't, you can go back to your mother. But, look why are you laughing? That is what many of
-you sitting here think about God. And you would never insult a fellow human being by basing a relationship of
-merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my
-acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that.
-It's not religion in that sense, it's a relationship.
-
 Talk by
 John Lennox - How Christianity Is Different From Every Religion - YouTube
 
@@ -37570,7 +37558,7 @@ Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 17:53
+Created: 2024-07-13 Sat 18:12
 
 Validate
 
