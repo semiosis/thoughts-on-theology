@@ -503,6 +503,8 @@ And the obedience doesn't end. We continue to be sanctified through faith. We ar
 
 -   **Talk by:** [John Lennox - How Christianity Is Different From Every Religion - YouTube](https://www.youtube.com/watch?v=7Ii46kW12Zo)
 
+-   **[youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec](https://youtube.com/watch?v=xe9eg2G3tCk&t=492):** You've heard about my wife well over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to marry her. So I came to her one day and I had a little present wrapped up for her. It was a cookbook. So I said I'd like to marry you Sally. Now the condition would be this: let's look at page 147 - it's apple cake, and here are the laws for making apple cake. Thou shalt take some what's flower, thou shall take some what sugar, and there you are. Now, here's the way it's gonna be: If you keep these laws for the next forty years I think about accepting you. If you don't, you can go back to your mother. But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship of merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
+
 Christianity is a relationship, like a marriage:
 
 -   Acceptance comes at the beginning; Jesus gives us the benefit of the doubt. Just start serving Jesus
@@ -9863,12 +9865,26 @@ We're not being justified by our works - we've already been redeemed, but we do 
 
 > **[Titus 3:8](https://www.biblegateway.com/passage/?search=Titus%203%3A8&version=ESV)** - The saying is trustworthy, and I want you to insist on these things, so that **those who have believed in God may be careful to devote themselves to good works**. These things are excellent and profitable for people. (ESV)
 
+-   **[youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec](https://youtube.com/watch?v=xe9eg2G3tCk&t=492):** You've heard about my wife well over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to marry her. So I came to her one day and I had a little present wrapped up for her. It was a cookbook. So I said I'd like to marry you Sally. Now the condition would be this: let's look at page 147 - it's apple cake, and here are the laws for making apple cake. Thou shalt take some what's flower, thou shall take some what sugar, and there you are. Now, here's the way it's gonna be: If you keep these laws for the next forty years I think about accepting you. If you don't, you can go back to your mother. But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship of merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
+
 -   **Talk by:** [John Lennox - How Christianity Is Different From Every Religion - YouTube](https://www.youtube.com/watch?v=7Ii46kW12Zo)
+
+-   **[youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec](https://youtube.com/watch?v=xe9eg2G3tCk&t=492):** You've heard about my wife well over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to marry her. So I came to her one day and I had a little present wrapped up for her. It was a cookbook. So I said I'd like to marry you Sally. Now the condition would be this: let's look at page 147 - it's apple cake, and here are the laws for making apple cake. Thou shalt take some what's flower, thou shall take some what sugar, and there you are. Now, here's the way it's gonna be: If you keep these laws for the next forty years I think about accepting you. If you don't, you can go back to your mother. But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship of merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
 
 Christianity is a relationship, like a marriage:
 
--   Acceptance comes at the beginning; Jesus gives us the benefit of the doubt (like a kingdom marriage proposal)
+-   Acceptance comes at the beginning; Jesus gives us the benefit of the doubt. Just start serving Jesus
+    -   We must still forgive and love our family in Christ. This isn't 'work', but it is obedience, and it is a required heart attitude
+    -   **[Romans 14:18](https://www.biblegateway.com/passage/?search=Romans%2014%3A18&version=ESV)** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 -   It's not a merit-based religion
+-   We **must** have a response of love for Jesus
+    -   **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - <ins>Whoever has my commandments and keeps them, he it is who loves me.</ins> And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
+    -   **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)** - for the Father himself loves you, **because** you have loved me and have believed that I came from God. (ESV)
+-   In whatever we do, we should be serving the Lord Jesus Christ
+    -   **[I Corinthians 10:31](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A31&version=ESV)** - So, whether you eat or drink, or **whatever you do, do all to the glory of God.** (ESV)
+    -   **[Colossians 3:17](https://www.biblegateway.com/passage/?search=Colossians%203%3A17&version=ESV)** - And **whatever you do**, in word or deed, **do everything in the name of the Lord Jesus, giving thanks to God the Father through him.** (ESV)
+    -   **[I Corinthians 16:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A14&version=ESV)** - **Let all that you do be done in love.** (ESV)
+    -   **[Romans 12:9](https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV)** - **Let love be genuine.** *Abhor what is evil;* <ins>hold fast to what is good.</ins> (ESV)
 
 The Holy Spirit still goes to those who obey Jesus:
 
@@ -25869,11 +25885,14 @@ But the Hebrew for helper in **[Genesis 2:18](https://www.biblegateway.com/passa
 > **[Genesis 2:18](https://www.biblegateway.com/passage/?search=Genesis%202%3A18&version=ESV)** - Then the Lord (H3068 Yhovah) God (H430 'elohiym) said (H559 'amar), “It is not good (H2896 towb) for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 \`asah) him a helper (H5828 \`ezer) suitable (H5048 neged) for him.”
 
 
-## The spiritual attack I have received in recent times - my spiritual experiences are not all bad, I'm just "in the Spirit" now and I am engaged in spiritual warfare
+## The spiritual attack I have received in recent times
+
+My spiritual experiences are not *all* bad, but it has been very bad. I'm "in the Spirit" now and I am engaged in spiritual warfare.
 
 It makes sense that I've been receiving spiritual attack because I'm at war with satan's kingdom after being born of the Spirit:
 
 -   [youtube.com: Casting Down Strongholds | Derek Prince](https://www.youtube.com/watch?v=owF24I04Da4)
+-   [youtube.com: Robert Henderson |   1. Courts of Heaven](https://www.youtube.com/watch?v=A-MANcuJwVo)
 
 I'll be listening to music such as this to help maintain the correct perspective against lies
 that come from the enemy through dreams and through other people:
