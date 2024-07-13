@@ -9437,13 +9437,11 @@ Jesus carried His cross, bore our shame, bore our sin that we might become the r
 
 So working together with Jesus, and thanks to being born-again and empowered by Jesus' spirit, Jesus helps us to put to death sin in our own body, forgive those who we had a grudge with, do good works, etc. repent, be sanctified, forgive as we have been forgiven, love as we have been loved:
 
->   **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
-> \#+END<sub>QUOT</sub>
-> 
-> By His stripes we are healed, and then we live to serve Jesus:
-> 
-> \#+BEGIN<sub>QUOTE</sub>
->   **[Isaiah 53:5](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A5&version=ESV)** -  But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed.  (ESV)
+> **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
+
+By His stripes we are healed, and then we live to serve Jesus:
+
+> **[Isaiah 53:5](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A5&version=ESV)** -  But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed.  (ESV)
 
 Jesus washed out feet. Now we wash others' feet. A saint, having been forgiven and love by Jesus passes forward this love and forgiveness and bears other people's burdens:
 

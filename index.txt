@@ -14018,12 +14018,12 @@ sanctified, forgive as we have been forgiven, love as we have been loved:
   every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
   looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
   cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
-  sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV) #+END[QUOT]
+  sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
 
-  By His stripes we are healed, and then we live to serve Jesus:
+By His stripes we are healed, and then we live to serve Jesus:
 
-  #+BEGIN[QUOTE] Isaiah 53:5 - But he was wounded for our transgressions; he was crushed for our iniquities; upon
-  him was the chastisement that brought us peace, and with his stripes we are healed. (ESV)
+  Isaiah 53:5 - But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the
+  chastisement that brought us peace, and with his stripes we are healed. (ESV)
 
 Jesus washed out feet. Now we wash others' feet. A saint, having been forgiven and love by Jesus passes forward
 this love and forgiveness and bears other people's burdens:
@@ -37469,7 +37469,7 @@ Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 16:26
+Created: 2024-07-13 Sat 16:35
 
 Validate
 
