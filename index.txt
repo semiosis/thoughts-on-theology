@@ -239,6 +239,11 @@ Yes, Jesus has set us free, but it's to serve God by serving Christ. We are free
   Galatians 5:1 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
   slavery. (ESV)
 
+Slaves worship idols. Christians obey God, and in obeying God we are free:
+
+  Exodus 20:2-3 - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery.
+  You shall have no other gods before me. (ESV)
+
 In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so
 there should be a change of behaviour. We should have changed to serve God:
 
@@ -10725,6 +10730,13 @@ Sinners:
 boastful, inventors of evil, disobedient to parents, foolish, faithless, heartless, ruthless.
 
 7.5.1. Transgressing the 10 Commandments
+
+Slaves worship idols. Christians obey God, and in obeying God we are free:
+
+  Exodus 20:2-3 - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery.
+  You shall have no other gods before me. (ESV)
+
+The New Testament writers still taught believers to not break the 10 Commandments:
 
   James 2:11 - For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery
   but do murder, you have become a transgressor of the law. (ESV)
@@ -37554,11 +37566,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-13 Sat 00:00
+Date: 2024-07-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 18:12
+Created: 2024-07-14 Sun 09:02
 
 Validate
 

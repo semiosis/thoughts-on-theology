@@ -145,6 +145,10 @@ Yes, Jesus has set us free, but it's to serve God by serving Christ. We are free
 
 > **[Galatians 5:1](https://www.biblegateway.com/passage/?search=Galatians%205%3A1&version=ESV)** - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery. (ESV)
 
+Slaves worship idols. Christians obey God, and in obeying God we are free:
+
+> **[Exodus 20:2-3](https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&version=ESV)** - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)
+
 In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
@@ -7185,6 +7189,12 @@ Sinners:
 
 
 ### Transgressing the 10 Commandments
+
+Slaves worship idols. Christians obey God, and in obeying God we are free:
+
+> **[Exodus 20:2-3](https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&version=ESV)** - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)
+
+The New Testament writers still taught believers to not break the 10 Commandments:
 
 > **[James 2:11](https://www.biblegateway.com/passage/?search=James%202%3A11&version=ESV)** - For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. (ESV)
 
@@ -16932,7 +16942,7 @@ My biggest problems exist inside of me, not outside:
 
 Faith chapter:
 
--   Hebrews 11-12:2
+-   [Hebrews 11-12:2](https://www.biblegateway.com/passage/?search=Hebrews%2011-12%3A2&version=ESV)
 
 
 ### Also, my thoughts
