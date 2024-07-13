@@ -1562,7 +1562,11 @@ We should disobey sin, and present ourselves to God as those alive from the dead
 
 ### There's some bonuses to suffering for Christ's sake and for endurance
 
+If we keep His commandments, keep His works we will reign with Him:
+
 > **[II Timothy 2:12-13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A12-13&version=ESV)** - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
+
+> **[Revelation of John 2:26](https://www.biblegateway.com/passage/?search=Revelation%202%3A26&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give authority over the nations, (ESV)
 
 > **[Romans 8:17](https://www.biblegateway.com/passage/?search=Romans%208%3A17&version=ESV)** - and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
 
@@ -9405,7 +9409,7 @@ Because God loved us *first*:
 
 The redemption in Christ Jesus is a gift, and
 is a substitutionary atonement that is
-received through faith in Jesus.
+received through faith in Jesus, which is supposed to result in us passing forward love and forgiveness, and putting sin to death.
 
 As far as "obtaining the glory of our Lord Jesus Christ" goes, or sharing in Jesus'
 holiness, a limited analogy may be that this works like a
@@ -9415,11 +9419,39 @@ should be received by faith, faith which
 includes the belief of faith and the obedience
 of faith, such as obedience to the discipline
 of Christ, that should yield the peaceful
-fruit of righteousness.
+fruit of righteousness as we then seek to imitate Christ, passing forward love and forgiveness and endeavoring to be holy.
+
+If we keep His commandments, keep His works we will reign with Him:
+
+> **[II Timothy 2:12-13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A12-13&version=ESV)** - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
+
+> **[Revelation of John 2:26](https://www.biblegateway.com/passage/?search=Revelation%202%3A26&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give authority over the nations, (ESV)
 
 I believe that becoming the righteousness of God is initially **instantaneous** when we believe but going forward it also is **cooperative** as we live, submitting to the righteousness of God (Jesus' righteousness) and then being found in Jesus, letting Jesus wash us, and work in us, transform us, and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, <ins>walking</ins> in faith, and behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that is by faith. I believe we have righteousness because we are found **in** Him, and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have righteousness from Him, because we are found **in** Him and are being perfected and sanctified like a branch getting healthier because it's connected to Jesus. It does not mean we are able to displace Him as the head of the body because we don't have righteousness apart from Him (as far as I understand):
 
 > **[II Corinthians 5:21-6:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21-6&version=ESV)** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
+
+Jesus carried His cross, bore our shame, bore our sin that we might become the righteousness of God; that we might bear others' shame, and pass forward love and forgiveness:
+
+> **[I Peter 2:24](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A24&version=ESV)** - He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed. (ESV)
+
+So working together with Jesus, and thanks to being born-again and empowered by Jesus' spirit, Jesus helps us to put to death sin in our own body, forgive those who we had a grudge with, do good works, etc. repent, be sanctified, forgive as we have been forgiven, love as we have been loved:
+
+>   **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
+> \#+END<sub>QUOT</sub>
+> 
+> By His stripes we are healed, and then we live to serve Jesus:
+> 
+> \#+BEGIN<sub>QUOTE</sub>
+>   **[Isaiah 53:5](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A5&version=ESV)** -  But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed.  (ESV)
+
+Jesus washed out feet. Now we wash others' feet. A saint, having been forgiven and love by Jesus passes forward this love and forgiveness and bears other people's burdens:
+
+> **[John 13:14-15](https://www.biblegateway.com/passage/?search=John%2013%3A14-15&version=ESV)** - If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have given you an example, that you also should do just as I have done to you. (ESV)
+
+A saint, having been forgiven and love by Jesus passes forward this love and forgiveness and bears other people's burdens:
+
+> **[Galatians 6:2](https://www.biblegateway.com/passage/?search=Galatians%206%3A2&version=ESV)** - Bear one another's burdens, and so fulfill the law of Christ. (ESV)
 
 I believe we should have a noticable change of heart and behaviour as a result of trusting obedient faith in Jesus:
 
@@ -12607,10 +12639,6 @@ We may abide in Jesus' love by keeping His commandments, and we may abide in Fat
 
 > **[Romans 9:30-32](https://www.biblegateway.com/passage/?search=Romans%209%3A30-32&version=ESV)** - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works. They have stumbled over the stumbling stone, (ESV)
 
-A saint helps to carry one another's cross:
-
-> **[Galatians 6:2](https://www.biblegateway.com/passage/?search=Galatians%206%3A2&version=ESV)** - Bear one another's burdens, and so fulfill the law of Christ. (ESV)
-
 
 ### Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism)
 
@@ -15602,11 +15630,45 @@ We need to perform our salvation in obedience to God:
 
 ## Righteousness for entering the kingdom
 
-We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and we are not the ones to shrink back and to stop obeying but to remain obedient. We get our life from God as we hold our faith in Jesus Christ; that is believing, trusting, cleaving to, obeying Jesus Christ. The one who relies on the law for their life gets their life from continuing to abide by the law. The trouble with trying to get our life through Mosaic law compliance is that is that only Jesus did that perfectly, but that also means that if Jesus is our Master, then Jesus can save us. We should hold our faith in Jesus, do our best with regards to God's precepts, and not feel condemned by the law because we are following Jesus. And we also should at the same time not encourage the breaking of the Mosaic law.
+We get our life from God as we hold our faith in Jesus Christ; that is believing, trusting, cleaving to, obeying Jesus Christ.
+
+Even from the believer's perspective, we have already won:
+
+> **[1 John 4:4](https://www.biblegateway.com/passage/?search=1%20John%204%3A4&version=ESV)** -  Little children, you are from God and have overcome them, for he who is in you is greater than he who is in the world.  (ESV)
+
+> **[Romans 8:37](https://www.biblegateway.com/passage/?search=Romans%208%3A37&version=ESV)** - No, in all these things we are more than conquerors through him who loved us.
+
+We live by our faith in Jesus Christ - our trust in God has the visible evidence of obeying His commandments - and we are not the ones to shrink back and to stop obeying but to remain obedient.
+
+> **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
+
+And is in line with what Jesus has said:
+
+> **[Luke 9:62](https://www.biblegateway.com/passage/?search=Luke%209%3A62&version=ESV)** - Jesus said to him, No one who puts his hand to the plow and looks back is fit for the kingdom of God. (ESV)
+
+The one who relies on the law for their life hopes to get their life from continuing to abide by the law, but if they sin it will produce for them death:
+
+> **[Romans 7:10](https://www.biblegateway.com/passage/?search=Romans%207%3A10&version=ESV)** - The very commandment that promised life proved to be death to me. (ESV)
+
+> **[Galatians 3:21](https://www.biblegateway.com/passage/?search=Galatians%203%3A21&version=ESV)** - Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. (ESV)
+
+The trouble with trying to get our life and justification through Mosaic law compliance is that is that only Jesus did that perfectly, but that also means that if Jesus is our Master, then Jesus can save us.
+
+We should hold our faith in Jesus, do our best with regards to God's precepts, being accountable to Jesus, and not feel condemned by the law because we are following Jesus:
+
+We have confidence when we keep His commandments, believing in the name of God's Son Jesus Christ and loving one another and our heart doesn't condemn us:
+
+> **[I John 3:21-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A21-24&version=ESV)** - Beloved, if our heart does not condemn us, **we have confidence before God**; and <ins>whatever we ask we receive from him</ins>, **because we keep his commandments and do what pleases him**. And this is his commandment, that we **believe in the name of his Son Jesus Christ and love one another**, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+It's obedience which leads to righteousness, even the righteousness of faith:
+
+> **[Romans 6:16](https://www.biblegateway.com/passage/?search=Romans%206%3A16&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of **obedience, which leads to righteousness**? (ESV)
+
+And we also should at the same time not encourage the breaking of the Mosaic law.
 
 [biblehub.com: Greek Concordance: ζήσεται {zesetai} &#x2013; 9 Occurrences](https://biblehub.com/greek/ze_setai_2198.htm)
 
-This word **[zēsetai](https://biblehub.com/greek/ze_setai_2198.htm)** I think means to consider it the way we live in order for us to live. So therefore, with regards to the law, a person who lives by the law actually does it. But according to the Apostle Paul, the commandment which promised life proved to be death to him, Paul. I believe that's because the law is against sin, and Paul had sin:
+This word **[zēsetai](https://biblehub.com/greek/ze_setai_2198.htm)** I think means to consider it the way we live in order for us to live. So therefore, with regards to the law, a person who lives by the law actually does it. But according to the Apostle Paul, the commandment which promised life **proved to be death** to him, Paul. I believe that's because the law is against sin, and Paul had sin:
 
 > **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%203%3A12&version=ESV)** - But the law is not of faith, rather The one who does them shall live by (**zēsetai en**) them. (ESV)
 
@@ -15671,8 +15733,6 @@ We indeed want to aim to love God with our whole heart and our neighbour as ours
 But the goodness of God should lead us to repentance:
 
 > **[Romans 2:4](https://www.biblegateway.com/passage/?search=Romans%202%3A4&version=ESV)** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
-
-> **[Romans 7:10](https://www.biblegateway.com/passage/?search=Romans%207%3A10&version=ESV)** - The very commandment that promised life proved to be death to me. (ESV)
 
 > **[Romans 7:9-13](https://www.biblegateway.com/passage/?search=Romans%207%3A9-13&version=ESV)** - I was once alive apart from the law, but when the commandment came, sin came alive and I died. **The very commandment that promised life proved to be death to me.** For sin, seizing an opportunity through the commandment, deceived me and through it killed me. So the law is holy, and the commandment is holy and righteous and good. Did that which is good, then, bring death to me? By no means! It was sin, producing death in me through what is good, in order that sin might be shown to be sin, and through the commandment might become sinful beyond measure. (ESV)
 
@@ -16225,6 +16285,8 @@ The gospel of the Kingdom of God (God's reign on earth):
 If we keep Jesus' works then we receive authority over the nations (obvious bonuses for obedience to Jesus' commandments, and it's not easy):
 
 > **[Revelation of John 2:26](https://www.biblegateway.com/passage/?search=Revelation%202%3A26&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give authority over the nations, (ESV)
+
+> **[II Timothy 2:12-13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A12-13&version=ESV)** - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
 
 > **[Revelation 2:17](https://www.biblegateway.com/passage/?search=Revelation%202%3A17&version=ESV)** - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone that no one knows except the one who receives it. (ESV)
 
@@ -18650,6 +18712,8 @@ In Jesus, there is no sin.
 > **[1 John 3:5](https://www.biblegateway.com/passage/?search=1%20John%203%3A5&version=ESV)** - You know that he appeared to take away sins, and in him there is no sin.  (ESV)
 
 > **[Mark 10:45](https://www.biblegateway.com/passage/?search=Mark%2010%3A45&version=ESV)** -  For even the Son of Man came not to be served but to serve, and to give his life as a ransom for many.  (ESV)
+
+By His stripes we are healed, and then we live to serve Jesus:
 
 > **[Isaiah 53:5](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A5&version=ESV)** -  But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed.  (ESV)
 
@@ -23044,7 +23108,7 @@ Consider this as I read Jesus' words talking about Father God:
 > **[John 12:35-36](https://www.biblegateway.com/passage/?search=John%2012%3A35-36&version=ESV)** - So Jesus said to them, The light is among you for a little while longer. Walk while you have the light, lest darkness overtake you. The one who walks in the darkness does not know where he is going. While you have the light, believe in the light, that you may become sons of light. When Jesus had said these things, he departed and hid himself from them. (ESV)
 
 
-### 
+### Jesus washed out feet. Now we wash others' feet. A saint, having been forgiven and love by Jesus passes forward this love and forgiveness and bears other people's burdens
 
 > **[John 13:14-15](https://www.biblegateway.com/passage/?search=John%2013%3A14-15&version=ESV)** - If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have given you an example, that you also should do just as I have done to you. (ESV)
 
