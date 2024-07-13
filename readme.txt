@@ -271,6 +271,8 @@ saved. Later on I got the doctrine. But I'd met Jesus and I just want to tell yo
 meet Jesus and stay the same. You can join a church and remain unchanged. You can believe all sorts of things with
 your head and remain unchanged, but when you meet the resurrected Christ it's transforming and it's permanent.
 
+For me, after I was born-again I confessed Jesus.
+
 OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting
 to know Christ, and disobeying sin.
 
@@ -309,11 +311,12 @@ grace given to us, we are supposed to love Jesus back in obedience to His comman
 
   Galatians 2:10 - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
 
-Those who teach others to disobey Jesus, calling Jesus' commandments contrary to grace, are not being humble. But
-Jesus indeed did give us freedom. We can resist people who try to put us under a yoke of slavery, but we don't
-teach people to disobey Jesus as to do so is to teach pride and lawlessness and against trusting in Jesus, and
-against obeying Jesus, and against believing Jesus regarding all the warnings about disobedience, and I think it's
-without the fear of God to teach others to disobey Jesus.
+Those who teach others to disobey Jesus, calling Jesus' commandments contrary to grace, are not being humble.
+We're not being set free from Jesus - we're getting married to Him. But Jesus indeed did give us freedom. We can
+resist people who try to put us under a yoke of slavery, but we don't teach people to disobey Jesus as to do so is
+to teach pride and lawlessness and against trusting in Jesus, and against obeying Jesus, and against believing
+Jesus regarding all the warnings about disobedience and disbelief, and I think it's without the fear of God to
+teach others to disobey Jesus.
 
 God gives grace to the humble (not the self-righteous). That is true. But recognising your own sin and calling it
 sin is humility. And in wanting to turn from it, God may give grace to do so:
@@ -8737,6 +8740,24 @@ I believe that Jesus Christ is Jehovah, in that Jesus is God the Son:
   law, the worship, and the promises. To them belong the patriarchs, and from their race, according to the flesh,
   is the Christ who is God over all, blessed forever. Amen. (ESV)
 
+  Ezekiel 34:11-12 - For thus says the Lord GOD: Behold, I, I myself will search for my sheep and will seek them
+  out. As a shepherd seeks out his flock when he is among his sheep that have been scattered, so will I seek out
+  my sheep, and I will rescue them from all places where they have been scattered on a day of clouds and thick
+  darkness. (ESV)
+
+biblehub.com 34-11.htm: Ezekiel 34:11 Interlinear: For thus said the Lord Jehovah: Lo, I - even I, have required
+My flock, And I have sought it out.
+
+  John 10:16 - And I have other sheep that are not of this fold. I must bring them also, and they will listen to
+  my voice. So there will be one flock, one shepherd. (ESV)
+
+  John 11:51-52 - He did not say this of his own accord, but being high priest that year he prophesied that Jesus
+  would die for the nation, and not for the nation only, but also to gather into one the children of God who are
+  scattered abroad. (ESV)
+
+  Acts 28:28 - Therefore let it be known to you that this salvation of God has been sent to the Gentiles; they
+  will listen. (ESV)
+
 Video
 Gospel of Mark calls Jesus God in every chapter - YouTube
 
@@ -9513,14 +9534,39 @@ We are commanded to be innocent, and to bear witness of Jesus before men who per
   Matthew 16:25 - For whoever would save his life will lose it, but whoever loses his life for my sake will
   find it. (ESV)
 
-It's the same gospel. We must follow the light: Jesus:
+Video
+youtube.com: The Gospel Jesus Preached Is Different than What Most Have Been Taught
+
+The gospel of the Kingdom of God (God's reign on earth):
+
+  Revelation of John 11:15 - Then the seventh angel blew his trumpet, and there were loud voices in heaven,
+  saying, The kingdom of the world has become the kingdom of our Lord and of his Christ, and he shall reign
+  forever and ever. (ESV)
+
+  Revelation of John 2:26 - The one who conquers and who keeps my works until the end, to him I will give
+  authority over the nations, (ESV)
+
+  Acts 8:12 - But when they believed Philip as he preached good news about the kingdom of God and the name of
+  Jesus Christ, they were baptized, both men and women. (ESV)
+
+  Acts 19:8 - And he entered the synagogue and for three months spoke boldly, reasoning and persuading them
+  about the kingdom of God. (ESV)
+
+  Zechariah 14:4,9 - On that day his feet shall stand on the Mount of Olives that lies before Jerusalem on the
+  east, and the Mount of Olives shall be split in two from east to west by a very wide valley, so that one
+  half of the Mount shall move northward, and the other half southward. And the LORD will be king over all the
+  earth. On that day the LORD will be one and his name one. (ESV)
+
+  Acts 28:31 - proclaiming the kingdom of God and teaching about the Lord Jesus Christ with all boldness and
+  without hindrance. (ESV)
+
+It's the same gospel. We must follow Jesus, the light, and come into the truth, and into the Kingdom of God.
+Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King, our God, the light:
 
   John 12:44-47 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent
   me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes
   in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I
   did not come to judge the world but to save the world. (ESV)
-
-It's the same gospel. We must follow the light: Jesus:
 
   Mark 8:35 - For whoever would save his life will lose it, but whoever loses his life for my sake and the
   gospel's will save it. (ESV)
@@ -17332,6 +17378,13 @@ Jesus used the Scriptures to combat lies:
 Sermon
 youtube.com: Contrary to Roman Catholics, the Bible Is Our Sufficient Authority
 
+Jesus' warning against forsaking the word of God, the Holy Scriptures, for tradition:
+
+  Mark 7:11-13 - But you say, If a man tells his father or his mother, Whatever you would have gained from me
+  is Corban (that is, given to God)- then you no longer permit him to do anything for his father or mother,
+  thus making void the word of God by your tradition that you have handed down. And many such things you do.
+  (ESV)
+
 Sermon
 youtube.com: John Piper's Sermon with Scripture only
  2. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
@@ -23257,19 +23310,29 @@ Zacchaeus was repentant, and was saved through Jesus as he had the faith of Abra
 
 40.4. Inheriting the kingdom
 
-40.4.1. We must be born-again
+40.4.1. We must keep Jesus' works
+
+  Revelation 2:17 - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers
+  I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone
+  that no one knows except the one who receives it. (ESV)
+
+Condition: If we overcome persecution and trials
+Promise: Jesus will allow us to eat of the hidden Manna and will give a us white stone with a new name written on
+it that only the one that receives it will know.
+
+40.4.2. We must be born-again
 
   I Corinthians 15:50 - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does the
   perishable inherit the imperishable. (ESV)
 
-40.4.2. Made alive in Christ
+40.4.3. Made alive in Christ
 
   Ephesians 2:1 - And you were dead in the trespasses and sins (ESV)
 
   Ephesians 2:4-5 - But God, being rich in mercy, because of the great love with which he loved us, even when we
   were dead in our trespasses, made us alive together with Christ-by grace you have been saved- (ESV)
 
-40.4.3. We must repent and be sanctified - it's for our own good
+40.4.4. We must repent and be sanctified - it's for our own good
 
 youtube.com: Practicing Sin Destroys the Soul: Galatians 5:19-21, Part 1
 
@@ -23316,7 +23379,7 @@ We want to walk in a worthy manner, bearing fruit in good work:
   share in the inheritance of the saints in light. He has delivered us from the domain of darkness and transferred
   us to the kingdom of his beloved Son, in whom we have redemption, the forgiveness of sins. (ESV)
 
-40.4.4. We must be a good and faithful servant
+40.4.5. We must be a good and faithful servant
 
   Matthew 25:31-34 - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his
   glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a
@@ -23324,7 +23387,7 @@ We want to walk in a worthy manner, bearing fruit in good work:
   left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom
   prepared for you from the foundation of the world.
 
-40.4.5. We must be servants
+40.4.6. We must be servants
 
   Colossians 3:23-24 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
   you will receive the inheritance as your reward. You are serving the Lord Christ. (ESV)
@@ -28866,6 +28929,9 @@ they all must have faith, and pursuing the law as if by works is the problem, bu
 I believe in-between is OK, so long as it is by faith.
 
   Romans 7:22 - For I delight in the law of God, in my inner being, (ESV)
+
+  Romans 3:29-30 - Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also,
+  since God is one. He will justify the circumcised by faith and the uncircumcised through faith. (ESV)
 
 It's possible for Gentiles to keep Jewish commandments if they want (I think it's honorable) - but we are
 justified by faith in Jesus, not by being under the law:
@@ -36645,6 +36711,15 @@ Sigh....
 On the bright side, last week I did get a picture of John Piper on YouTube saying "Jesus has given you clothes."
 That means that when I turn up in heaven I'll have 'clothes' so I can enter - the imputed righteousness of Christ.
 
+  Matthew 22:11-13 - But when the king came in to look at the guests, he saw there a man who had no wedding
+  garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was speechless.
+  Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness. In that place
+  there will be weeping and gnashing of teeth. (ESV)
+
+Also, I recall that some time in 2022 I had a dream where someone asked me, "How did you get in here?" And I
+responded pointing to 2 blog articles I had written (2 April 2022 and 3 May 2022 and indicating that it was
+through being born-again, through baptism, the death and resurrection of Jesus Christ.
+
   Revelation of John 3:4 - Yet you have still a few names in Sardis, people who have not soiled their garments,
   and they will walk with me in white, for they are worthy. (ESV)
 
@@ -37223,11 +37298,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-12 Fri 00:00
+Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-12 Fri 15:26
+Created: 2024-07-13 Sat 14:47
 
 Validate
 
