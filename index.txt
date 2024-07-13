@@ -2292,6 +2292,23 @@ Walk as an imitator of Christ:
 
   I Corinthians 11:1 - Be imitators of me, as I am of Christ. (ESV)
 
+We must be imitators of Christ Jesus. See what Paul is doing as an example of imitating Christ. We repent from
+sin, we do what God says, we are accountable to God with His precepts and are doers of His commandments, we
+forgive others as we've been forgiven and we love others as we've been loved, and we have our minds set on
+heavenly things and the promises of God:
+
+  Philippians 3:12-21 - Not that I have already obtained this or am already perfect, but I press on to make it my
+  own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one
+  thing I do: forgetting what lies behind and straining forward to what lies ahead, I press on toward the goal for
+  the prize of the upward call of God in Christ Jesus. Let those of us who are mature think this way, and if in
+  anything you think otherwise, God will reveal that also to you. Only let us hold true to what we have attained.
+  Brothers, join in imitating me, and keep your eyes on those who walk according to the example you have in us.
+  For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of
+  Christ. Their end is destruction, their god is their belly, and they glory in their shame, with minds set on
+  earthly things. But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will
+  transform our lowly body to be like his glorious body, by the power that enables him even to subject all things
+  to himself. (ESV)
+
 Do not be an enemy of the cross of Christ, submit to the righteousness of God - we needed Jehovah God, Father of
 Jesus Christ, to pay for our sin - and we must imitate Christ, passing forward Christ's love and forgiving as we
 have been forgiven, and repenting from sin:
@@ -34150,7 +34167,10 @@ So put into practice Jesus Christ's commandments, and line up your will line up 
   III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
   has not seen God.
 
-We must be imitators of Christ Jesus. See what Paul is doing as an example of imitating Christ:
+We must be imitators of Christ Jesus. See what Paul is doing as an example of imitating Christ. We repent from
+sin, we do what God says, we are accountable to God with His precepts and are doers of His commandments, we
+forgive others as we've been forgiven and we love others as we've been loved, and we have our minds set on
+heavenly things and the promises of God:
 
   Philippians 3:12-21 - Not that I have already obtained this or am already perfect, but I press on to make it my
   own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one
@@ -37550,7 +37570,7 @@ Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 17:43
+Created: 2024-07-13 Sat 17:53
 
 Validate
 
