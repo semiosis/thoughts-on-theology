@@ -23319,29 +23319,19 @@ Zacchaeus was repentant, and was saved through Jesus as he had the faith of Abra
 
 40.4. Inheriting the kingdom
 
-40.4.1. We must keep Jesus' works
-
-  Revelation 2:17 - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers
-  I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone
-  that no one knows except the one who receives it. (ESV)
-
-Condition: If we overcome persecution and trials
-Promise: Jesus will allow us to eat of the hidden Manna and will give a us white stone with a new name written on
-it that only the one that receives it will know.
-
-40.4.2. We must be born-again
+40.4.1. We must be born-again
 
   I Corinthians 15:50 - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does the
   perishable inherit the imperishable. (ESV)
 
-40.4.3. Made alive in Christ
+40.4.2. Made alive in Christ
 
   Ephesians 2:1 - And you were dead in the trespasses and sins (ESV)
 
   Ephesians 2:4-5 - But God, being rich in mercy, because of the great love with which he loved us, even when we
   were dead in our trespasses, made us alive together with Christ-by grace you have been saved- (ESV)
 
-40.4.4. We must repent and be sanctified - it's for our own good
+40.4.3. We must repent and be sanctified - it's for our own good
 
 youtube.com: Practicing Sin Destroys the Soul: Galatians 5:19-21, Part 1
 
@@ -23388,7 +23378,7 @@ We want to walk in a worthy manner, bearing fruit in good work:
   share in the inheritance of the saints in light. He has delivered us from the domain of darkness and transferred
   us to the kingdom of his beloved Son, in whom we have redemption, the forgiveness of sins. (ESV)
 
-40.4.5. We must be a good and faithful servant
+40.4.4. We must be a good and faithful servant
 
   Matthew 25:31-34 - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his
   glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a
@@ -23396,7 +23386,7 @@ We want to walk in a worthy manner, bearing fruit in good work:
   left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom
   prepared for you from the foundation of the world.
 
-40.4.6. We must be servants
+40.4.5. We must be servants
 
   Colossians 3:23-24 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
   you will receive the inheritance as your reward. You are serving the Lord Christ. (ESV)
@@ -23413,6 +23403,73 @@ We want to walk in a worthy manner, bearing fruit in good work:
   hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer
   them, saying, Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me.
   And these will go away into eternal punishment, but the righteous into eternal life.
+
+40.4.6. We must keep conquer (in our own lives) evil and sin, keeping Jesus' works, keeping our faith in Jesus
+
+Our work for God is not in vain, and it's all grace:
+
+  I Corinthians 15:58 - Therefore, my beloved brothers, be steadfast, immovable, always abounding in the work of
+  the Lord, knowing that in the Lord your labor is not in vain. (ESV)
+
+All of this is grace. Our hope is on the grace that is brought to us as we hold our faith in Jesus - it's all
+grace. Obedience to Jesus doesn't make it no longer grace:
+
+  I Peter 1:13 - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the
+  grace that will be brought to you at the revelation of Jesus Christ. (ESV)
+
+Realise that Jesus has overcome the world, and while we are in Him, we ourselves become overcomers:
+
+  John 16:33 - I have said these things to you, that in me you may have peace. In the world you will have
+  tribulation. But take heart; I have overcome the world. (ESV)
+
+Every person who has been born of God overcomes the world:
+
+  I John 5:4-5 - For everyone who has been born of God overcomes the world. And this is the victory that has
+  overcome the world-our faith. Who is it that overcomes the world except the one who believes that Jesus is the
+  Son of God? (ESV)
+
+We must overcome evil with good:
+
+  Romans 12:21 - Do not be overcome by evil, but overcome evil with good. (ESV)
+
+  II Peter 2:20 - For if, after they have escaped the defilements of the world through the knowledge of our Lord
+  and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them
+  than the first. (ESV)
+
+We must overcome the evil one:
+
+  I John 2:13-14 - I am writing to you, fathers, because you know him who is from the beginning. I am writing to
+  you, young men, because you have overcome the evil one. I write to you, children, because you know the Father. I
+  write to you, fathers, because you know him who is from the beginning. I write to you, young men, because you
+  are strong, and the word of God abides in you, and you have overcome the evil one. (ESV)
+
+The gospel of the Kingdom of God (God's reign on earth):
+
+  Revelation of John 11:15 - Then the seventh angel blew his trumpet, and there were loud voices in heaven,
+  saying, The kingdom of the world has become the kingdom of our Lord and of his Christ, and he shall reign
+  forever and ever. (ESV)
+
+If we keep Jesus' works then we receive authority over the nations (obvious bonuses for obedience to Jesus'
+commandments, and it's not easy):
+
+  Revelation of John 2:26 - The one who conquers and who keeps my works until the end, to him I will give
+  authority over the nations, (ESV)
+
+  Revelation 2:17 - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers
+  I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone
+  that no one knows except the one who receives it. (ESV)
+
+Condition: If we overcome persecution and trials
+Promise: Jesus will allow us to eat of the hidden Manna and will give a us white stone with a new name written on
+it that only the one that receives it will know.
+
+Indeed the "paradise of God" (Garden of Eden, I assume) is still around:
+
+  Revelation 2:7 - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I
+  will grant to eat of the tree of life, which is in the paradise of God. (ESV)
+
+Condition: If we persevere over evil and endure for Christ's namesake and overcome (persecution and trials)
+Promise: We will be allowed to eat from the Tree of Life which is in the paradise of God
 
 41. Who will enter the holy city of Jerusalem which is in Heaven? Not sinners. Only servants. Only those who follow
 Jesus' commandments
@@ -36220,6 +36277,11 @@ and remain faithful to Jesus:
   the place of honor at feasts and the best seats in the synagogues and greetings in the marketplaces and being
   called rabbi by others. (ESV)
 
+Our work for God is not in vain, and it's all grace:
+
+  I Corinthians 15:58 - Therefore, my beloved brothers, be steadfast, immovable, always abounding in the work of
+  the Lord, knowing that in the Lord your labor is not in vain. (ESV)
+
 But at the time I was being led by the Spirit, walking in seeking to know Jesus Christ through following His
 commandments, so I decided I would use it as an opportunity in what felt like a graceless situation to demonstrate
 Christ's love and to make testimony of Jesus, and to 'take any log out of my own eye' - to be corrected - because
@@ -37318,7 +37380,7 @@ Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 15:06
+Created: 2024-07-13 Sat 15:58
 
 Validate
 

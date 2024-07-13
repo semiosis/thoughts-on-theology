@@ -16137,13 +16137,6 @@ Zacchaeus was repentant, and was saved through Jesus as he had the faith of Abra
 ## Inheriting the kingdom
 
 
-### We must keep Jesus' works
-
-> **[Revelation 2:17](https://www.biblegateway.com/passage/?search=Revelation%202%3A17&version=ESV)** - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone that no one knows except the one who receives it. (ESV)
-
--   **<ins>Condition:</ins> If we overcome persecution and trials:** <ins>Promise:</ins> Jesus will allow us to eat of the hidden Manna and will give a us white stone with a new name written on it that only the one that receives it will know.
-
-
 ### We must be born-again
 
 > **[I Corinthians 15:50](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A50&version=ESV)** - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does the perishable inherit the imperishable. (ESV)
@@ -16195,6 +16188,53 @@ We want to walk in a worthy manner, **bearing fruit in good work**:
 > **[Colossians 3:23-24](https://www.biblegateway.com/passage/?search=Colossians%203%3A23-24&version=ESV)** -  Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are serving the Lord Christ.  (ESV)
 
 > **[Matthew 25:35-46](https://www.biblegateway.com/passage/?search=Matthew%2025%3A35-46&version=ESV)** - For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me. Then the righteous will answer him, saying, Lord, when did we see you hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I say to you, as you did it to one of the least of these my brothers, you did it to me. Then he will say to those on his left, Depart from me, you cursed, into the eternal fire prepared for the devil and his angels. For I was hungry and you gave me no food, I was thirsty and you gave me no drink, I was a stranger and you did not welcome me, naked and you did not clothe me, sick and in prison and you did not visit me. Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me. And these will go away into eternal punishment, but the righteous into eternal life.
+
+
+### We must keep conquer (in our own lives) evil and sin, keeping Jesus' works, keeping our faith in Jesus
+
+Our work for God is not in vain, and it's all grace:
+
+> **[I Corinthians 15:58](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A58&version=ESV)** - Therefore, my beloved brothers, be steadfast, immovable, always abounding in the work of the Lord, knowing that in the Lord your labor is not in vain. (ESV)
+
+All of this is grace. Our hope is on the grace that is brought to us as we hold our faith in Jesus - it's all grace. Obedience to Jesus doesn't make it no longer grace:
+
+> **[I Peter 1:13](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV)** - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ. (ESV)
+
+Realise that Jesus has overcome the world, and while we are **in Him**, we ourselves become overcomers:
+
+> **[John 16:33](https://www.biblegateway.com/passage/?search=John%2016%3A33&version=ESV)** - I have said these things to you, that in me you may have peace. In the world you will have tribulation. But take heart; I have overcome the world. (ESV)
+
+Every person who has been born of God overcomes the world:
+
+> **[I John 5:4-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A4-5&version=ESV)** - For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of God? (ESV)
+
+We must overcome evil with good:
+
+> **[Romans 12:21](https://www.biblegateway.com/passage/?search=Romans%2012%3A21&version=ESV)** - Do not be overcome by evil, but overcome evil with good. (ESV)
+
+> **[II Peter 2:20](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A20&version=ESV)** - For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first. (ESV)
+
+We must overcome the evil one:
+
+> **[I John 2:13-14](https://www.biblegateway.com/passage/?search=1%20John%202%3A13-14&version=ESV)** - I am writing to you, fathers, because you know him who is from the beginning. I am writing to you, young men, because you have overcome the evil one. I write to you, children, because you know the Father. I write to you, fathers, because you know him who is from the beginning. I write to you, young men, because you are strong, and the word of God abides in you, and you have overcome the evil one. (ESV)
+
+The gospel of the Kingdom of God (God's reign on earth):
+
+> **[Revelation of John 11:15](https://www.biblegateway.com/passage/?search=Revelation%2011%3A15&version=ESV)** - Then the seventh angel blew his trumpet, and there were loud voices in heaven, saying, **The <ins>kingdom of the world</ins> has become the kingdom of our Lord and of his Christ, and he shall reign forever and ever.** (ESV)
+
+If we keep Jesus' works then we receive authority over the nations (obvious bonuses for obedience to Jesus' commandments, and it's not easy):
+
+> **[Revelation of John 2:26](https://www.biblegateway.com/passage/?search=Revelation%202%3A26&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give authority over the nations, (ESV)
+
+> **[Revelation 2:17](https://www.biblegateway.com/passage/?search=Revelation%202%3A17&version=ESV)** - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone that no one knows except the one who receives it. (ESV)
+
+-   **<ins>Condition:</ins> If we overcome persecution and trials:** <ins>Promise:</ins> Jesus will allow us to eat of the hidden Manna and will give a us white stone with a new name written on it that only the one that receives it will know.
+
+Indeed the "paradise of God" (Garden of Eden, I assume) is still around:
+
+> **[Revelation 2:7](https://www.biblegateway.com/passage/?search=Revelation%202%3A7&version=ESV)** - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I will grant to eat of the tree of life, which is in the paradise of God. (ESV)
+
+-   **<ins>Condition:</ins> If we persevere over evil and endure for Christ's namesake and overcome (persecution and trials):** <ins>Promise:</ins> We will be allowed to eat from the Tree of Life which is in the paradise of God
 
 
 # Who will enter the holy city of Jerusalem which is in Heaven? Not sinners. Only servants. Only those who follow Jesus' commandments
@@ -25596,6 +25636,10 @@ I have lots of evidence of this. Jehovah knows it.
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by grace through faith and they should also practice their righteousness. Christians should **both** submit to the righteousness of God through faith in Jesus Christ, having the imputed righteousness of Christ that we believe we have as we are walking with Christ and Christians should practice righteousness too (as Jesus said, "go and sin no more"), and Christians should seek to keep accountability primarily to God in regards to the law because He sees everything, and **secondarily** have good conscience with men, to love as Jesus loved, and give to Caesar what is Caesar's, but give to God what is God's - and God owns our hearts - and we should be prepared to die for Jesus, and remain faithful to Jesus:
 
 > **[Matthew 23:2-7](https://www.biblegateway.com/passage/?search=Matthew%2023%3A2-7&version=ESV)** - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell you—but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay them on people's shoulders, but they themselves are not willing to move them with their finger. They do all their deeds to be seen by others. For they make their phylacteries broad and their fringes long, and they love the place of honor at feasts and the best seats in the synagogues and greetings in the marketplaces and being called rabbi by others. (ESV)
+
+Our work for God is not in vain, and it's all grace:
+
+> **[I Corinthians 15:58](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A58&version=ESV)** - Therefore, my beloved brothers, be steadfast, immovable, always abounding in the work of the Lord, knowing that in the Lord your labor is not in vain. (ESV)
 
 But at the time I was being led by the Spirit, walking in seeking to know Jesus Christ through following His
 commandments, so I decided I would use it as an
