@@ -15571,6 +15571,12 @@ Those in the Kingdom of God are serving Christ. As we serve Christ, we are appro
 
 > **[Romans 14:18](https://www.biblegateway.com/passage/?search=Romans%2014%3A18&version=ESV)** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
+*Inheriting* the Kingdom, however, appears to be reigning with Christ:
+
+> **[Daniel 7:18](https://www.biblegateway.com/passage/?search=Daniel%207%3A18&version=ESV)** - But the saints of the Most High shall receive the kingdom and possess the kingdom forever, forever and ever. (ESV)
+
+> **[Revelation 2:26-28](https://www.biblegateway.com/passage/?search=Revelation%202%3A26-28&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give **authority over the nations**, and **he will rule them with a rod of iron**, as when earthen pots are broken in pieces, **even as I myself have received authority from my Father**. And I will give him the morning star. (ESV)
+
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
 > **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
@@ -18714,7 +18720,7 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
 
 > **[Daniel 7:18](https://www.biblegateway.com/passage/?search=Daniel%207%3A18&version=ESV)** - But the saints of the Most High shall receive the kingdom and possess the kingdom forever, forever and ever. (ESV)
 
-> **[Revelation 2:26-28](https://www.biblegateway.com/passage/?search=Revelation%202%3A26-28&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give authority over the nations, and he will rule them with a rod of iron, as when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give him the morning star. (ESV)
+> **[Revelation 2:26-28](https://www.biblegateway.com/passage/?search=Revelation%202%3A26-28&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give **authority over the nations**, and **he will rule them with a rod of iron**, as when earthen pots are broken in pieces, **even as I myself have received authority from my Father**. And I will give him the morning star. (ESV)
 
 
 ## Be humble in this world and serve others of humble circumstances while in this world
@@ -20874,7 +20880,7 @@ Stress: Trust in God.
 
 ### 
 
-> **[Revelation 2:26-28](https://www.biblegateway.com/passage/?search=Revelation%202%3A26-28&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give authority over the nations, and he will rule them with a rod of iron, as when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give him the morning star. (ESV)
+> **[Revelation 2:26-28](https://www.biblegateway.com/passage/?search=Revelation%202%3A26-28&version=ESV)** - The one who conquers and who keeps my works until the end, to him I will give **authority over the nations**, and **he will rule them with a rod of iron**, as when earthen pots are broken in pieces, **even as I myself have received authority from my Father**. And I will give him the morning star. (ESV)
 
 -   **<ins>Condition:</ins> To those that overcome and keep Jesus' works until the bitter end:** <ins>Promise:</ins> Jesus will give power over the nations and will give the morning star
 
@@ -25978,6 +25984,11 @@ I <ins>do **not** think</ins> the Golden Rule is saying that "God is humanity." 
 I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by our enemies - love people the way Father God loves us:
 
 > **[Matthew 7:9-12](https://www.biblegateway.com/passage/?search=Matthew%207%3A9-12&version=ESV)** - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will **your Father** who is in heaven give good things to those who ask him! So **whatever you wish that others would do to you, do also to them**, for this is the Law and the Prophets. (ESV)
+
+I'm still getting slammed with these antichrist dreams at night up till today <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-13 Sat&gt;</span></span>, but I'm going to stick with what Scripture says.
+These dreams and visions are very false with regards to what the Holy Bible says.
+I wont trust every spirit but only those which confess Jesus biblically (i.e. as having come from God, walked the earth in the flesh, died and raised from the dead and ascended to Father God and reigns on High).
+God has spoken quite a lot already through the Scripture so I'm going to be taught and corrected by the Word of God, and be sanctified by the Truth.
 
 I think I'll keep these notes here documenting a tiny view of spiritual attack I have endured, until I am delivered and on the other side of it.
 

@@ -22459,6 +22459,15 @@ Those in the Kingdom of God are serving Christ. As we serve Christ, we are appro
 
   Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
+Inheriting the Kingdom, however, appears to be reigning with Christ:
+
+  Daniel 7:18 - But the saints of the Most High shall receive the kingdom and possess the kingdom forever, forever
+  and ever. (ESV)
+
+  Revelation 2:26-28 - The one who conquers and who keeps my works until the end, to him I will give authority
+  over the nations, and he will rule them with a rod of iron, as when earthen pots are broken in pieces, even as I
+  myself have received authority from my Father. And I will give him the morning star. (ESV)
+
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
 obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
@@ -36860,6 +36869,13 @@ our enemies - love people the way Father God loves us:
   more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others
   would do to you, do also to them, for this is the Law and the Prophets. (ESV)
 
+I'm still getting slammed with these antichrist dreams at night up till today <2024-07-13 Sat>, but I'm going to
+stick with what Scripture says. These dreams and visions are very false with regards to what the Holy Bible says.
+I wont trust every spirit but only those which confess Jesus biblically (i.e. as having come from God, walked the
+earth in the flesh, died and raised from the dead and ascended to Father God and reigns on High). God has spoken
+quite a lot already through the Scripture so I'm going to be taught and corrected by the Word of God, and be
+sanctified by the Truth.
+
 I think I'll keep these notes here documenting a tiny view of spiritual attack I have endured, until I am
 delivered and on the other side of it.
 
@@ -37302,7 +37318,7 @@ Date: 2024-07-13 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-13 Sat 14:47
+Created: 2024-07-13 Sat 15:06
 
 Validate
 
