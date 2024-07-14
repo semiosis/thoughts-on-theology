@@ -2626,12 +2626,23 @@ living for and serving God:
   hope of the glory of God. (ESV)
 
 Being justified by Jesus' blood, we are saved by Him from the wrath of God. We have faith in God also to be saved
-from the wrath of God. That doesn't come with God asking us to turn from our sin:
+from the wrath of God. That come with God asking us to turn from our sin:
 
   Romans 5:9 - Since, therefore, we have now been justified by his blood, much more shall we be saved by him from
   the wrath of God. (ESV)
 
-- Immediately we are reconciled to God by the death of His Son,
+Continuing to be sanctified by faith is a process where a person continues in Jesus' words because they are
+sanctified by faith in Jesus and that means ongoing trust and faithful obedience.
+
+  Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+  God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
+
+To be sanctified by faith in Jesus is an applied process, I think:
+
+  Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+  God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
+
+- Immediately we are reconciled to God by the death of His Son. We are justified,
 - and then we are saved from the wrath of God by His life, repenting from sin and keeping His commandments,
 - Ephesians 2:3 - among whom we all once lived in the passions of our flesh, carrying out the desires of
 the body and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
@@ -2658,10 +2669,10 @@ to get to know Jesus and become like Him in His death
   I Peter 2:24 - He himself bore our sins in his body on the tree, that we might die to sin and live to
   righteousness. By his wounds you have been healed. (ESV)
 
-Faith presses on to walk the same way Jesus walked - even to spend the rest of the time on earth obedient to Jesus
-to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God,
-stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in His
-sufferings, living has He lived) and His resurrection:
+Faith presses on, faithful to Jesus, walking in the manner which Jesus walked - even to spend the rest of the time
+on earth being obedient to Jesus to know Jesus and the power of His resurrection, becoming like Him in His death
+(i.e. being faithful to God, stopping sin, exercising righteousness, becoming a scapegoat, even to death like the
+Apostles, sharing in His sufferings, living has He lived) and His resurrection:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
@@ -8207,10 +8218,10 @@ All of these I believe belong under the umbrella of faith, not works:
 - Getting baptised is not 'dead works'. It's obedience / walking in obedient faith.
 - Obeying Jesus Christ's commandments are not 'dead works'. It's obedience / walking in obedient faith.
 
-Faith presses on to walk the same way Jesus walked - even to spend the rest of the time on earth obedient to Jesus
-to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God,
-stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in his
-sufferings) and His resurrection:
+Faith presses on, faithful to Jesus, walking in the manner which Jesus walked - even to spend the rest of the time
+on earth being obedient to Jesus to know Jesus and the power of His resurrection, becoming like Him in His death
+(i.e. being faithful to God, stopping sin, exercising righteousness, becoming a scapegoat, even to death like the
+Apostles, sharing in His sufferings, living has He lived) and His resurrection:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
@@ -37833,7 +37844,7 @@ Date: 2024-07-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-14 Sun 22:57
+Created: 2024-07-14 Sun 23:39
 
 Validate
 
