@@ -935,8 +935,9 @@ youtube.com: You Cannot Obey God Without God
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 Jesus said to these believers that if they abide in His word (and I believe that means keep His word, even in
 obedience), they are His disciples - so a person can be a believer before they are a disciple. But we're supposed
@@ -1894,8 +1895,9 @@ in Him we have obeyed Him, but belief doesn't end there:
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 And our obedience is not burdensome:
 
@@ -2747,8 +2749,9 @@ If you hear Jesus' words which came from God and trust God then you have eternal
 
   John 7:16 - So Jesus answered them, My teaching is not mine, but his who sent me. (ESV)
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
   I Timothy 6:3-4 - If anyone teaches a different doctrine and does not agree with the sound words of our Lord
   Jesus Christ and the teaching that accords with godliness, he is puffed up with conceit and understands nothing.
@@ -4809,8 +4812,9 @@ Jehovah:
   God, obeying his voice and holding fast to him, for he is your life and length of days, that you may dwell in
   the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them. (ESV)
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
   I Timothy 6:3-4 - If anyone teaches a different doctrine and does not agree with the sound words of our Lord
   Jesus Christ and the teaching that accords with godliness, he is puffed up with conceit and understands nothing.
@@ -5607,8 +5611,9 @@ abiding in Him
 
 After believing in Him we must go ahead in the teaching of Christ:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
   Romans 6:17-19 - But thanks be to God, that you who were once slaves of sin have become obedient from the heart
   to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves
@@ -6274,8 +6279,9 @@ follower of Jesus.
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 I think we are permanently saved when we are following Jesus.
 
@@ -6625,8 +6631,9 @@ Repentance leads to belief and obedience to Jesus:
 
 - Someone who has only belief in the gift of grace and no obedience to Jesus (which is effectively hating Jesus)
 must repent and come to have an obedient heart.
-- II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-Whoever abides in the teaching has both the Father and the Son. (ESV)
+- II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have
+God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not
+bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 - Someone who has only obedience to Jesus' precepts but unbelieving and unsubmissive to the righteousness of God
 must repent and come to have a believing heart.
 - John 20:27-28 - Then he said to Thomas, Put your finger here, and see my hands; and put out your hand,
@@ -9905,8 +9912,9 @@ etc.
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 You must obey Jesus, and that is choosing light and choosing love:
 
@@ -13256,8 +13264,9 @@ and remember the words of the Lord Jesus:
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah
 God), and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring
+  this teaching, do not receive him into your house or give him any greeting, (ESV)
 
 Definitely stop sinning after receiving the knowledge of the truth:
 
@@ -13972,8 +13981,9 @@ So John Piper is taking the Apostle John's writing in II John 1:9 and saying tha
 people talking about justification through works, but I don't think that's what the Apostle John is talking about.
 But I think it's important to affirm Lord Jesus's teaching.
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
   I Timothy 6:3-4 - If anyone teaches a different doctrine and does not agree with the sound words of our Lord
   Jesus Christ and the teaching that accords with godliness, he is puffed up with conceit and understands nothing.
@@ -14837,8 +14847,9 @@ We don't want lazy, cowardly, disobedient faith:
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 Obedience is good:
 
@@ -22634,8 +22645,9 @@ I confess that Jesus is the Son of God:
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 Knowing God means loving as Jesus loved us:
 
@@ -27079,8 +27091,9 @@ I believe that producing good fruit is necessary for being saved:
 - a heart that is turning away from sin
 - believing the Gospel and obeying Jesus
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 What does it mean to be "in Christ"? - YouTube
 
@@ -33710,8 +33723,9 @@ born-again:
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God:
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
-  Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 64.2. Repentance includes bearing fruit and being raised up as a child for Abraham
 
@@ -37795,7 +37809,7 @@ Date: 2024-07-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-14 Sun 22:41
+Created: 2024-07-14 Sun 22:48
 
 Validate
 
