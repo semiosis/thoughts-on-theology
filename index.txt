@@ -17878,6 +17878,30 @@ another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
 - Acts 13:38-39 - Let it be known to you therefore, brothers, that through this man forgiveness
 of sins is proclaimed to you, and by him everyone who believes is freed from everything from
 which you could not be freed by the law of Moses. (ESV)
+- John 15:12 - This is my commandment, that you love one another as I have loved you. (ESV)
+- youtube.com: What Is the Law of Christ? Galatians 6:1-5, Part 2
+- We seek to love as Christ loved us. God loved us first. Love comes from God. We pass-forward
+love and forgiveness as we have been loved and forgiven first by God. As I understand it, to be
+led by the Spirit is when we are applying Jesus' commandments (Jesus is your Lord) obeying
+Jesus out of love and gratitude:
+- love one another as Christ has loved us
+- bearing our neighbours' burdens
+- obedient to Christ
+- belief in Christ's atoning sacrifice
+- we must forgive one another as Christ has forgiven you or face discipline
+- Required to satisfy the "Christ's love" criteria I believe are:
+- Our first agape love has to be Jesus
+- We love because God loved us first. We ought to love others because we have been loved by
+God
+- We forgive out of a loving response to God and to others, knowing we have already been
+forgiven of our debt
+- It must satisfy Christ's law
+- Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
+- Be a servant; consider others more significant than yourself
+- Seek to do not harm to your neighbour
+- Bear one another's burdens without partiality
+- We should endeavour to love not just on occasion, but at all times, continually, as Jesus
+did, and give our all
 
 OK, so being led by the Spirit, under the law of Christ, we still actually comply with the Law of God, and the law
 of Moses cannot condemn us.
@@ -37809,7 +37833,7 @@ Date: 2024-07-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-14 Sun 22:48
+Created: 2024-07-14 Sun 22:57
 
 Validate
 
