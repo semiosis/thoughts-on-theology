@@ -457,7 +457,14 @@ watches over the city, the watchman stays awake in vain. (ESV)
 - Luke 6:48 - he is like a man building a house, who dug deep and laid the foundation on the rock. And
 when a flood arose, the stream broke against that house and could not shake it, because it had been
 well built. (ESV)
-- Sin is forgiven
+- II Timothy 2:24-26 - And the Lord's servant must not be quarrelsome but kind to everyone, able to
+teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them
+repentance leading to a knowledge of the truth, and they may escape from the snare of the devil,
+after being captured by him to do his will. (ESV)
+- Sin is forgiven as a person turns from darkness to light and turns from satan's will to God's will
+- Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan
+to God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in
+me. (ESV)
 - God heals
 - Sanctification is received through working faith, obedience, belief, trust - receiving healing, being
 renewed in mind, being conformed to Christ's image
@@ -1076,7 +1083,20 @@ for Jesus and out of faith in Jesus. I believe that obedience to Jesus is an exp
 expression of love for Jesus, and hope in Jesus. I've invested my life in Jesus, and happy about it because I
 believe and hope in Jesus.
 
-This is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
+OK, so to be obedient while enduring suffering, which God has allowed is love which is greater than faith and hope
+which both abide; It's more blessed to give than to receive. I would argue though that to maintain an affectionate
+love for God while enduring suffering which God has allowed to happen is even more difficult and more blessed than
+to maintain good works while suffering. Love gives - love obeys Jesus' teaching. Love forgives and gives while
+being stolen from and abused - love obeys. Love praises God and affectionately loves God despite experiencing
+being thrown into darkness and God allowing them to be tormented by the enemy.. Faithfulness to Jesus, though, is
+a baseline requirement.
+
+See how faithfulness is related to faith - faith is faithful to God. Having faith in God is keeping accountability
+with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
+
+  II Timothy 2:13 - if we are faithless, he remains faithful- for he cannot deny himself. (ESV)
+
+The following is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
   II Corinthians 5:17 - Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold,
   the new has come.
@@ -9576,6 +9596,44 @@ We are commanded to be innocent, and to bear witness of Jesus before men who per
 Video
 youtube.com: The Gospel Jesus Preached Is Different than What Most Have Been Taught
 
+Video
+youtube.com: Did Jesus Preach the Gospel?
+
+Video notes:
+
+  Tim Keller says that the synoptic gospels (Matthew, Mark, Luke), and Paul all say these 3 things:
+
+     o 1. Jesus is the Messiah, the Son of God, who came to earth in human form.
+          o Luke 3:22 - and the Holy Spirit descended on him in bodily form, like a dove; and a voice came
+            from heaven, You are my beloved Son; with you I am well pleased. (ESV)
+     o 2. Jesus died to atone for our sins and it justifies by grace.
+          o Mark 10:45 - For even the Son of Man came not to be served but to serve, and to give his life as a
+            ransom for many. (ESV)
+          o Luke 24:44-47 - Then he said to them, These are my words that I spoke to you while I was still
+            with you, that everything written about me in the Law of Moses and the Prophets and the Psalms
+            must be fulfilled. Then he opened their minds to understand the Scriptures, and said to them, Thus
+            it is written, that the Christ should suffer and on the third day rise from the dead, and that
+            repentance and forgiveness of sins should be proclaimed in his name to all nations, beginning from
+            Jerusalem. (ESV)
+          o Luke 18:9-14 - He also told this parable to some who trusted in themselves that they were
+            righteous, and treated others with contempt: Two men went up into the temple to pray, one a
+            Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I
+            thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax
+            collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing
+            far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful
+            to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For
+            everyone who exalts himself will be humbled, but the one who humbles himself will be exalted.
+            (ESV)
+     o 3. On the cross and resurrection He overcame the power of evil and death and at the end of time He will
+       come back to complete that victory.
+
+Jesus is definitely reigning as King. That is for sure.
+
+Quote John Piper
+The King, risen, reigning, replaces "Jesus, the King, saying the Kingdom is coming", in which He meant, "I'm
+here. The Kingdom is in your midst." And now He's come. He's done His ruling work. He's died to establish
+that. He's risen. He's reigning.
+
 The gospel of the Kingdom of God (God's reign on earth):
 
   Revelation of John 11:15 - Then the seventh angel blew his trumpet, and there were loud voices in heaven,
@@ -12743,6 +12801,11 @@ Jesus has enabled us to die to sin and live to righteousness:
   Matthew 25:46 - And these will go away into eternal punishment, but the righteous into eternal life. (ESV)
 
 Cleaned up by having faith in the truth.
+
+See how faithfulness is related to faith - faith is faithful to God. Having faith in God is keeping accountability
+with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
+
+  II Timothy 2:13 - if we are faithless, he remains faithful- for he cannot deny himself. (ESV)
 
 Faith in the truth - strong faith word! Belief and ongoing faithfulness, trust, reliance.
 
@@ -18637,6 +18700,20 @@ There's no law against love:
   Galatians 5:22-23 - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness,
   gentleness, self-control; against such things there is no law. (ESV)
 
+youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 4 min 54 sec
+This is an illustration of why we need specific commandments. Remember last time I argued that it's not enough to
+say, "Walk by the Spirit." You need specific illustrations, and this (Galatians 6:1-5) is a good example of that.
+Suppose somebody said, "No, the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, meekness,
+gentleness, self-control. If we live by those, we wont get in other people's lives and make lives miserable for
+them, and bring out their sin into the open. How would you answer that? We would answer it by saying, "Look, the
+Holy Spirit Himself in chapter 6, verse 1 of Galatians has told us that is not a right application of the fruit of
+the Spirit. You are drawing inferences from the fruit of the Spirit that are unbiblical; They're unfaithful.
+That's why we need the whole Scripture, not just vague statements about walking according to the Spirit or walking
+in love. We need specifics, and this is a specific. If you find somebody in transgression, love is not passive.
+Love does not turn away. Love doesn't sweep it under the rug." - Rather, you who are spiritual (walking by the
+Spirit) should restore him in a spirit of gentleness. The spiritual person is bearing fruit of the Spirit. They
+are walking by the Spirit. They are keeping in step with the Spirit.
+
 There's certainly no law against God's commandments:
 
   I John 5:3 - For this is the love of God, that we keep his commandments. And his commandments are not
@@ -20721,12 +20798,36 @@ We work, obediently serving God, but it's God working in us:
 
 We must obey Jesus.
 
-31.1. An infant in Christ
+31.1. An infant in Christ - still of the flesh - not spiritual
+
+Potentially still driven by:
+
+- jealousy
+- strife
 
   I Corinthians 3:1 - But I, brothers, could not address you as spiritual people, but as people of the flesh, as
   infants in Christ. (ESV)
 
+youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 4 min 54 sec
+This is an illustration of why we need specific commandments. Remember last time I argued that it's not enough to
+say, "Walk by the Spirit." You need specific illustrations, and this (Galatians 6:1-5) is a good example of that.
+Suppose somebody said, "No, the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, meekness,
+gentleness, self-control. If we live by those, we wont get in other people's lives and make lives miserable for
+them, and bring out their sin into the open. How would you answer that? We would answer it by saying, "Look, the
+Holy Spirit Himself in chapter 6, verse 1 of Galatians has told us that is not a right application of the fruit of
+the Spirit. You are drawing inferences from the fruit of the Spirit that are unbiblical; They're unfaithful.
+That's why we need the whole Scripture, not just vague statements about walking according to the Spirit or walking
+in love. We need specifics, and this is a specific. If you find somebody in transgression, love is not passive.
+Love does not turn away. Love doesn't sweep it under the rug." - Rather, you who are spiritual (walking by the
+Spirit) should restore him in a spirit of gentleness. The spiritual person is bearing fruit of the Spirit. They
+are walking by the Spirit. They are keeping in step with the Spirit.
+
 31.2. A person who is mature in Christ
+
+Mature and stable. Grown beyond fleshly things. Not sucked into the old ways of vainglory and provocation and
+envy.
+
+youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 7 min 53 sec
 
   Colossians 1:28 - Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present
   everyone mature in Christ. (ESV)
@@ -36650,6 +36751,11 @@ it's from obedience to God's commandments that we get personal assurance. But if
 certainly can have faith that we have already been justified by God, where if we are not serving Jesus then I
 think to say that we are justified and saved from God's wrath is very bold.
 
+See how faithfulness is related to faith - faith is faithful to God. Having faith in God is keeping accountability
+with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
+
+  II Timothy 2:13 - if we are faithless, he remains faithful- for he cannot deny himself. (ESV)
+
   Hebrews 10:30-31 - For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his
   people. It is a fearful thing to fall into the hands of the living God. (ESV)
 
@@ -37570,7 +37676,7 @@ Date: 2024-07-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-14 Sun 09:02
+Created: 2024-07-14 Sun 13:51
 
 Validate
 

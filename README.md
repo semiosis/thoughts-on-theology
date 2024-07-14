@@ -255,7 +255,9 @@ The general order of salvation from what I can dilvulge from **Acts 26** and **A
         -   **[Philippians 2:13](https://www.biblegateway.com/passage/?search=Philippians%202%3A13&version=ESV)** - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
         -   **[Psalms 127:1](https://www.biblegateway.com/passage/?search=Psalms%20127%3A1&version=ESV)** - Unless the LORD builds the house, those who build it labor in vain. Unless the LORD watches over the city, the watchman stays awake in vain. (ESV)
         -   **[Luke 6:48](https://www.biblegateway.com/passage/?search=Luke%206%3A48&version=ESV)** - he is like a man building a house, who dug deep and laid the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. (ESV)
--   Sin is forgiven
+        -   **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him **to do his will**. (ESV)
+-   Sin is forgiven **as** a person <ins>turns from darkness to light</ins> and turns <ins>from satan's will to God's will</ins>
+    -   **[Acts 26:18](https://www.biblegateway.com/passage/?search=Acts%2026%3A18&version=ESV)** - to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, **that they may receive** forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
 -   God heals
     -   Sanctification is received through working faith, obedience, belief, trust - receiving healing, being renewed in mind, being conformed to Christ's image
         -   **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
@@ -664,7 +666,17 @@ We must be in Christ Jesus. Those who have been born-again have become obedient 
 
 Amen. I want to say though that I obey Jesus when I'm feeling depressed and having a bad day myself, it most certainly still counts as love to Jesus. If I'm suffering for exercising obedient faith in Jesus, that obedience is still loving Jesus. In fact, it's more blessed to give than to receive. The obedience is still done out of love for Jesus and out of faith in Jesus. I believe that obedience to Jesus is an expression of faith in Jesus, and an expression of love for Jesus, and hope in Jesus. I've invested my life in Jesus, and happy about it because I believe and hope in Jesus.
 
-This is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
+OK, so to be obedient while enduring suffering, which God has allowed is love which is greater than faith and hope which both abide; It's more blessed to give than to receive.
+I would argue though that to maintain an affectionate love for God while enduring suffering which God has allowed to happen is even more difficult and more blessed than to maintain good works while suffering.
+Love gives - love obeys Jesus' teaching. Love forgives and gives while being stolen from and abused - love obeys.
+Love praises God and affectionately loves God despite experiencing being thrown into darkness and God allowing them to be tormented by the enemy..
+Faithfulness to Jesus, though, is a baseline requirement.
+
+See how faithfulness is related to faith - faith is faithful to God. Having faith in God **is** keeping accountability with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
+
+> **[II Timothy 2:13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A13&version=ESV)** - if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
+
+The following is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
 > **[II Corinthians 5:17](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A17&version=ESV)** - Therefore, **if** anyone is in Christ, he is a new creation. The **old has passed away**; behold, the **new has come.**
 
@@ -6448,6 +6460,24 @@ We must obey! This obedience is being led by the Spirit.
     
     -   **Video:** [youtube.com: The Gospel Jesus Preached Is Different than What Most Have Been Taught](https://www.youtube.com/watch?v=wcX-FRUSm8M)
     
+    -   **Video:** [youtube.com: Did Jesus Preach the Gospel?](https://www.youtube.com/watch?v=S5E_MqEqk-U)
+    
+    Video notes:
+    
+    > Tim Keller says that the synoptic gospels (Matthew, Mark, Luke), and Paul all say these 3 things:
+    > 
+    > -   1. Jesus is the Messiah, the Son of God, who came to earth in human form.
+    >     -   **[Luke 3:22](https://www.biblegateway.com/passage/?search=Luke%203%3A22&version=ESV)** - and the Holy Spirit descended on him in bodily form, like a dove; and a voice came from heaven, You are my beloved Son; with you I am well pleased. (ESV)
+    > -   2. Jesus died to atone for our sins and it justifies by grace.
+    >     -   **[Mark 10:45](https://www.biblegateway.com/passage/?search=Mark%2010%3A45&version=ESV)** - For even the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
+    >     -   **[Luke 24:44-47](https://www.biblegateway.com/passage/?search=Luke%2024%3A44-47&version=ESV)** - Then he said to them, These are my words that I spoke to you while I was still with you, that everything written about me in the Law of Moses and the Prophets and the Psalms must be fulfilled. Then he opened their minds to understand the Scriptures, and said to them, Thus it is written, that the Christ should suffer and on the third day rise from the dead, and that repentance and forgiveness of sins should be proclaimed in his name to all nations, beginning from Jerusalem. (ESV)
+    >     -   **[Luke 18:9-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A9-14&version=ESV)** - He also told this parable to some who trusted in themselves that they were righteous, and treated others with contempt: Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+    > -   3. On the cross and resurrection He overcame the power of evil and death and at the end of time He will come back to complete that victory.
+    
+    Jesus is definitely reigning as King. That is for sure.
+    
+    -   **[Quote John Piper](https://youtu.be/S5E_MqEqk-U?t=513):** The King, risen, reigning, replaces "Jesus, the King, saying the Kingdom is coming", in which He meant, "I'm here. The Kingdom is in your midst." And now He's come. He's done His ruling work. He's died to establish that. He's risen. He's reigning.
+    
     The gospel of the Kingdom of God (God's reign on earth):
     
     > **[Revelation of John 11:15](https://www.biblegateway.com/passage/?search=Revelation%2011%3A15&version=ESV)** - Then the seventh angel blew his trumpet, and there were loud voices in heaven, saying, **The <ins>kingdom of the world</ins> has become the kingdom of our Lord and of his Christ, and he shall reign forever and ever.** (ESV)
@@ -8621,6 +8651,10 @@ Jesus has enabled us to die to sin and live to righteousness:
 
 Cleaned up by having faith in the truth.
 
+See how faithfulness is related to faith - faith is faithful to God. Having faith in God **is** keeping accountability with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
+
+> **[II Timothy 2:13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A13&version=ESV)** - if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
+
 **Faith** in the truth - strong faith word! Belief and ongoing faithfulness, trust, reliance.
 
     1  :  4102  pistis  pis'-tis
@@ -9597,7 +9631,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 -   **sesōsmenoi (saved):** <https://biblehub.com/greek/seso_smenoi_4982.htm>
 
-We don't justify ourselves. The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking care of them with mercy:
+[We don't justify ourselves](https://youtu.be/S5E_MqEqk-U?t=606). The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking care of them with mercy:
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
@@ -12635,6 +12669,8 @@ There's no law against love:
 
 > **[Galatians 5:22-23](https://www.biblegateway.com/passage/?search=Galatians%205%3A22-23&version=ESV)** - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. (ESV)
 
+-   **[youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 4 min 54 sec](https://youtube.com/watch?v=U7v13scZqN0&t=294):** This is an illustration of why we need specific commandments. Remember last time I argued that it's not enough to say, "Walk by the Spirit." You need specific illustrations, and this ([Galatians 6:1-5](https://www.biblegateway.com/passage/?search=Galatians%206%3A1-5&version=ESV)) is a good example of that. Suppose somebody said, "No, the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, meekness, gentleness, self-control. If we live by those, we wont get in other people's lives and make lives miserable for them, and bring out their sin into the open. How would you answer that? We would answer it by saying, "Look, the Holy Spirit Himself in chapter 6, verse 1 of Galatians has told us that is not a right application of the fruit of the Spirit. You are drawing inferences from the fruit of the Spirit that are unbiblical; They're unfaithful. That's why we need the whole Scripture, not just vague statements about walking according to the Spirit or walking in love. We need specifics, and this is a specific. If you find somebody in transgression, love is not passive. Love does not turn away. Love doesn't sweep it under the rug." - Rather, you who are **spiritual** (walking by the Spirit) should restore him in a spirit of gentleness. The spiritual person is bearing fruit of the Spirit. They are walking by the Spirit. They are keeping in step with the Spirit.
+
 There's certainly no law against God's commandments:
 
 > **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
@@ -14039,12 +14075,23 @@ We work, obediently serving God, but it's God working in us:
 We must obey Jesus.
 
 
-## An infant in Christ
+## An infant in Christ - still of the flesh - not spiritual
+
+Potentially still driven by:
+
+-   jealousy
+-   strife
 
 > **[I Corinthians 3:1](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A1&version=ESV)** - But I, brothers, could not address you as spiritual people, but as people of the flesh, as infants in Christ. (ESV)
 
+-   **[youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 4 min 54 sec](https://youtube.com/watch?v=U7v13scZqN0&t=294):** This is an illustration of why we need specific commandments. Remember last time I argued that it's not enough to say, "Walk by the Spirit." You need specific illustrations, and this ([Galatians 6:1-5](https://www.biblegateway.com/passage/?search=Galatians%206%3A1-5&version=ESV)) is a good example of that. Suppose somebody said, "No, the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, meekness, gentleness, self-control. If we live by those, we wont get in other people's lives and make lives miserable for them, and bring out their sin into the open. How would you answer that? We would answer it by saying, "Look, the Holy Spirit Himself in chapter 6, verse 1 of Galatians has told us that is not a right application of the fruit of the Spirit. You are drawing inferences from the fruit of the Spirit that are unbiblical; They're unfaithful. That's why we need the whole Scripture, not just vague statements about walking according to the Spirit or walking in love. We need specifics, and this is a specific. If you find somebody in transgression, love is not passive. Love does not turn away. Love doesn't sweep it under the rug." - Rather, you who are **spiritual** (walking by the Spirit) should restore him in a spirit of gentleness. The spiritual person is bearing fruit of the Spirit. They are walking by the Spirit. They are keeping in step with the Spirit.
+
 
 ## A person who is mature in Christ
+
+Mature and stable. Grown beyond fleshly things. Not sucked into the old ways of vainglory and provocation and envy.
+
+[youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 7 min 53 sec](https://youtube.com/watch?v=U7v13scZqN0&t=473)
 
 > **[Colossians 1:28](https://www.biblegateway.com/passage/?search=Colossians%201%3A28&version=ESV)** - Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present everyone mature in Christ. (ESV)
 
@@ -25845,7 +25892,11 @@ And then we await personal commendation from God.
 
 I think it's dangerous and probably incorrect to say, "I've been justified and saved from the wrath of God" without having become obedient to Jesus.
 
-We don't justify ourselves ever, but we still have faith that we are justified already by God as we hold faith in Jesus, and we don't necessarily know **when** God has personally justified us by faith because, like Abraham's faith, it's from obedience to God's commandments that we get personal assurance. But if we are serving Jesus then we certainly can have faith that we have already been justified by God, where if we are not serving Jesus then I think to say that we are justified and saved from God's wrath is very bold.
+[We don't justify ourselves ever](https://youtu.be/S5E_MqEqk-U?t=606), but we still have faith that we are justified already by God as we hold faith in Jesus, and we don't necessarily know **when** God has personally justified us by faith because, like Abraham's faith, it's from obedience to God's commandments that we get personal assurance. But if we are serving Jesus then we certainly can have faith that we have already been justified by God, where if we are not serving Jesus then I think to say that we are justified and saved from God's wrath is very bold.
+
+See how faithfulness is related to faith - faith is faithful to God. Having faith in God **is** keeping accountability with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
+
+> **[II Timothy 2:13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A13&version=ESV)** - if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
 
 > **[Hebrews 10:30-31](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A30-31&version=ESV)** - For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall into the hands of the living God. (ESV)
 
