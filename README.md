@@ -95,7 +95,13 @@ Jesus follows us and supports us:
 
 > **[I Corinthians 10:4](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A4&version=ESV)** - and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. (ESV)
 
-Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. God's strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the power at the time we need it to endure the suffering:
+Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. Jesus wants us to practice His love, His faith, His commandments:
+
+This is Christ's law:
+
+> **[John 15:12](https://www.biblegateway.com/passage/?search=John%2015%3A12&version=ESV)** - **This is my commandment**, that you love one another as I have loved you. (ESV)
+
+God's strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the power at the time we need it to endure the suffering:
 
 > **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
 
@@ -12172,6 +12178,14 @@ And faith intrinsically includes obedience to Christ.
     -   belief in Christ's atoning sacrifice
     -   you **must** forgive one another as Christ has forgiven you
 
+We have freedom from needing perfect law-keeping as a means of justification (i.e. for getting right with God):
+
+> **[Galatians 5:13-14](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-14&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but **through love serve one another.** For the whole law is fulfilled in one word: **You shall love your neighbor as yourself.** (ESV)
+
+-   **[Quote by John Piper](https://www.youtube.com/watch?v=ctSi4G74iGw&ab_channel=DesiringGod):** Justification by faith alone sets us free from law-keeping [as] a way of getting right with God. This justifying faith is the kind of faith that produces love. This love humbly, sacrificially serves others. Thus loving the neighbour as itself, this love fulfills the law. This faith-produced, neighbour-serving, law-fulfilling love is the "Law of Christ".
+
+-   **Summary:** Faith-produced, law-fulfilling love as a result and fruit of justification replaces law-keeping as a cause and means of justification. This new fruit of faith-produced, law-fulfilling love is the law of Christ.
+
 > **[Galatians 5:18](https://www.biblegateway.com/passage/?search=Galatians%205%3A18&version=ESV)** - But **if** you are led by the Spirit, you are not under the law.
 
 Doing the will of God is what it means to be led by the Spirit of God:
@@ -12185,6 +12199,14 @@ We must have obedient faith in Jesus, as God keeps His covenant with those who p
 We are under the law of Christ:
 
 > **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but <ins>under the law of Christ</ins>) that I might win those outside the law.
+
+Faith which produces love:
+
+> **[Galatians 5:6](https://www.biblegateway.com/passage/?search=Galatians%205%3A6&version=ESV)** - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through love. (ESV)
+
+Faith which fulfills the law:
+
+> **[Galatians 5:14-16](https://www.biblegateway.com/passage/?search=Galatians%205%3A14-16&version=ESV)** - For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
 
 We must bear one another's burdens:
 
@@ -12201,6 +12223,43 @@ We must forgive our family in Christ:
 > **[Luke 17:3-4](https://www.biblegateway.com/passage/?search=Luke%2017%3A3-4&version=ESV)** - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive him.
 
 > **[Colossians 3:13](https://www.biblegateway.com/passage/?search=Colossians%203%3A13&version=ESV)** - bearing with one another and, if one has a complaint against another, forgiving each other; as the Lord has forgiven you, so <ins>you also must forgive.</ins> (ESV)
+
+Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. Jesus wants us to practice His love, His faith, His commandments:
+
+This is Christ's law:
+
+> **[John 15:12](https://www.biblegateway.com/passage/?search=John%2015%3A12&version=ESV)** - **This is my commandment**, that you love one another as I have loved you. (ESV)
+
+The faith that justifies works through love. Real saving faith that justifies and shows its reality; It has in it the power to produce love.
+
+This love humbly, sacrificially, serves others.
+
+The demons believe and tremble because they don't have the kind of faith that produces love:
+
+> **[James 2:19](https://www.biblegateway.com/passage/?search=James%202%3A19&version=ESV)** - You believe that God is one; you do well. Even the demons believe—and shudder! (ESV)
+
+God's strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the power at the time we need it to endure the suffering:
+
+> **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
+
+Our love must be genuine. Obedience to Christ must be impartial and merciful, as God was to us:
+
+> **[James 2:8-13](https://www.biblegateway.com/passage/?search=James%202%3A8-13&version=ESV)** - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as transgressors. For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. (ESV)
+
+-   **Sermon:** [youtube.com: What Is the Law of Christ? Galatians 6:1-5, Part 2](https://www.youtube.com/watch?v=ctSi4G74iGw)
+
+Amen. We seek to love as Christ loved us. God loved us first. Love comes from God. We pass-forward love and forgiveness as we have been loved and forgiven first by God. As I understand it, to be led by the Spirit is when we are applying Jesus' commandments (Jesus is your Lord) obeying Jesus out of love and gratitude:
+
+-   love one another as Christ has loved us
+-   bearing our neighbours' burdens
+-   obedient to Christ
+-   belief in Christ's atoning sacrifice
+-   we must forgive one another as Christ has forgiven you or face discipline
+
+Also the merciful will receive mercy.
+
+The law-fulfilling love we produce as a result of justifying faith
+means we are not **under** the Mosaic law as our actions are law-fulfilling. If we have faith in Christ working through love then our actions are law-fulfilling. In other words, as we follow Jesus we are being led by His Spirit and we are not under the law. As we put our trust in Jesus for our justification, exercising obedience to Jesus, our obedient action is law-fulfilling, and since Jesus is our Lord and Master, we have Him as Advocate and High Priest to God and we can live in peace with God.
 
 
 ## Doing the law and doing faith in Jesus are compatible. And with faith in Jesus we still seek to do the law but our justification comes by our faith in Jesus not by law-keeping
