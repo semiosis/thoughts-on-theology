@@ -5683,6 +5683,8 @@ I affirm the Nicene creed wholeheartedly:
 
 AMEN!!
 
+> **[II Corinthians 13:14](https://www.biblegateway.com/passage/?search=2%20Corinthians%2013%3A14&version=ESV)** - The grace of the Lord Jesus Christ and the love of God and the fellowship of the Holy Spirit be with you all. (ESV)
+
 -   **Song:** ["Agnus Dei" with Michael W  Smith & the First Dallas Choir & Orchestra - YouTube](https://www.youtube.com/watch?v=db0t_NUq5bw)
 
 > **[Hebrews 1:3](https://www.biblegateway.com/passage/?search=Hebrews%201%3A3&version=ESV)** - He is the radiance of the glory of God and the exact imprint of his nature, and he upholds the universe by the word of his power. After making purification for sins, he sat down at the right hand of the Majesty on high,
