@@ -263,6 +263,33 @@ of righteousness to God. We should be practicing righteousness, practicing love 
 
 We need to receive the Holy Spirit:
 
+Quote by John Piper
+Hold fast in obedience to what you have heard and believed.
+
+Jesus manifests to those who keep His word and obey Him:
+
+  John 14:22-23 - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not
+  to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we
+  will come to him and make our home with him.
+
+Quote by John Piper
+Hold fast in obedience to what you have heard and believed. John 14:22 really bothers some people. John 14:22,
+here's what it says: "Lord, how is it that you will manifest yourself to us, and not to the world?" Jesus answered
+him, "If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our
+home with him." This is not unconditional love. This is profoundly conditional. I'll read it again: "Lord how is
+it that you will manifest yourself to us, and not to the world, to us - we are your disciples. If anyone loves me
+he will keep my word and my father will love him - In a way that he doesn't love everybody! My father will love
+him, and We will come to him to that one who loves us and keeps our word. We will come to that one, make our home,
+our abode, with him. There is an experience of intimacy and at homeness with Jesus and the father that comes only
+through obedience. Those who love me so much that keeping my word is not the works of the law, but the overflow of
+their affections for Me - and how could we not move into such in such a heart with the fullness of the at homeness
+that you longed for. If anyone keeps My word, holds fast treasures it, in obedience, that person will not be
+quenching the spirit, that person will not be grieving the spirit, but will know the fullness and sweetness of
+fellowship with the Father and the Son. If you're watching pornagraphy every week, do not expect this experience -
+you wont have it. If you're harsh with your wife, you wont have it.
+
+AMEN!!
+
 youtube.com: Accept the Holy Spirit - Derek Prince Sermon @time: 9 min 47 sec
 I don't believe you can be saved without meeting Jesus. I don't mean that you mean that you meet him visibly as
 the disciples did but I don't believe there's any way into the true church of Jesus Christ except Jesus. He said,
@@ -37679,7 +37706,7 @@ Date: 2024-07-14 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-14 Sun 14:00
+Created: 2024-07-14 Sun 14:18
 
 Validate
 
