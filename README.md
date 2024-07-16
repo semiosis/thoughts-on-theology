@@ -18072,9 +18072,9 @@ I want to continue in the process of sanctification, and holiness in body and sp
 
 I believe that outlawing marriage proposal is very close to outlawing God.
 
-I believe that it should be normalised that Christians should feel **comfortable** proposing being betrothed first needing to have a job or own a house.
+I believe that it should be normalised that Christians should feel **comfortable** proposing or being betrothed without first needing to have a job or own a house.
 
-What I mean by betrothed is the person who a person has decided they want to marry:
+What I mean by betrothed is being able to express commitment to the person who a person has decided they want to marry:
 
 > **[I Corinthians 7:37-38](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A37-38&version=ESV)** - But whoever is firmly established in his heart, being under no necessity but having his desire under control, and has determined this in his heart, to keep her as his betrothed, he will do well. So then he who marries his betrothed does well, and he who refrains from marriage will do even better. (ESV)
 
@@ -18200,7 +18200,7 @@ But at the end of the day, I don't hold to their doctrine, and also I was seekin
 
 According to a [Mormon](https://purposeinchrist.com/8-weird-mormon-beliefs/), they believe in polygamy which I think is not God's design,
 and from a quick internet search I can see their beliefs about becoming gods and goddesses and eternal marriage
-actually have an interest parallel **in my testing** / **[divine court](https://www.youtube.com/watch?v=6EBKeGC1LOo&t=488s&ab_channel=VictoryChristianCentre)** after being born-again of the spirit.
+actually have an interesting parallel **in my testing** / **[divine court](https://www.youtube.com/watch?v=6EBKeGC1LOo&t=488s&ab_channel=VictoryChristianCentre)** after being born-again of the spirit.
 
 When I said on Facebook something like: "Jesus is my life my truth and my heaven
 and [the girl I love is like a little bit of that](https://www.youtube.com/watch?v=OWNLVogchpU&ab_channel=DaveDobbyn-Topic).", the Hindu guy who was asking me for financial assistance (I still have the transcripts, and my lawyer also received them)

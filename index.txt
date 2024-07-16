@@ -26180,10 +26180,11 @@ to continue being cleaned up for a while:
 
 I believe that outlawing marriage proposal is very close to outlawing God.
 
-I believe that it should be normalised that Christians should feel comfortable proposing being betrothed first
-needing to have a job or own a house.
+I believe that it should be normalised that Christians should feel comfortable proposing or being betrothed
+without first needing to have a job or own a house.
 
-What I mean by betrothed is the person who a person has decided they want to marry:
+What I mean by betrothed is being able to express commitment to the person who a person has decided they want to
+marry:
 
   I Corinthians 7:37-38 - But whoever is firmly established in his heart, being under no necessity but having his
   desire under control, and has determined this in his heart, to keep her as his betrothed, he will do well. So
@@ -26299,7 +26300,7 @@ But at the end of the day, I don't hold to their doctrine, and also I was seekin
 accountable before God and bring my deeds into the light.
 
 According to a Mormon, they believe in polygamy which I think is not God's design, and from a quick internet
-search I can see their beliefs about becoming gods and goddesses and eternal marriage actually have an interest
+search I can see their beliefs about becoming gods and goddesses and eternal marriage actually have an interesting
 parallel in my testing / divine court after being born-again of the spirit.
 
 When I said on Facebook something like: "Jesus is my life my truth and my heaven and the girl I love is like a
@@ -38493,7 +38494,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-17 Wed 00:14
+Created: 2024-07-17 Wed 00:58
 
 Validate
 
