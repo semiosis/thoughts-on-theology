@@ -5883,7 +5883,7 @@ Jesus' atonement means that the requirement of the law might be fulfilled in us 
 
 Teaching others to not obey Jesus' commandments and to not obey the 10 Commandments is teaching people *against* walking by the Spirit.
 
-Teaching others to break the law is teaching bad behaviour. 
+Teaching others to break the law is teaching bad behaviour.
 
 > **[Romans 2:6-7](https://www.biblegateway.com/passage/?search=Romans%202%3A6-7&version=ESV)** - He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; (ESV)
 
@@ -17859,7 +17859,7 @@ Also, I stress this verse again because if you're obeying God then the Mosaic la
 
 Not that I was or am perfect, but I have been following Jesus so I claim to be on Jesus' side. By the grace of God He made me born-again, washed, regenerated and [filled with the Holy Spirit in 2022](https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/) after I had begun to repent and seek Jesus.
 
-For many years before that I've had what I've felt was unreasonably difficulty with relationships, but it's after I was born-again and actively following Jesus that I was denied my first ever marriage proposal, and it was very obvious to me that what I have been fighting is an antichrist/antirelationship/slander spirit attacking me after I was born-again (only now I could easily see it working through people) and probably long before that, and I feel like the spiritual attack (i.e. spirit spouse, LGBT dreams etc., thrown out of churches) I have received as a fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead of using the [documented fact I was born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the Word of God. 
+For many years before that I've had what I've felt was unreasonably difficulty with relationships, but it's after I was born-again and actively following Jesus that I was denied my first ever marriage proposal, and it was very obvious to me that what I have been fighting is an antichrist/antirelationship/slander spirit attacking me after I was born-again (only now I could easily see it working through people) and probably long before that, and I feel like the spiritual attack (i.e. spirit spouse, LGBT dreams etc., thrown out of churches) I have received as a fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead of using the [documented fact I was born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the Word of God.
 
 > **[Romans 14:17-18](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-18&version=ESV)** - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
@@ -24688,7 +24688,7 @@ It's very clear that there is some distinction between Father and Son:
 
 > **[John 20:17](https://www.biblegateway.com/passage/?search=John%2020%3A17&version=ESV)** - Jesus said to her, Do not cling to me, for I have not yet ascended to the Father; but go to my brothers and say to them, I am ascending to my Father and your Father, to my God and your God. (ESV)
 
-> **[John 7:16](https://www.biblegateway.com/passage/?search=John%207%3A16&version=ESV)** - So Jesus answered them, My teaching is not mine, but his who sent me. (ESV) 
+> **[John 7:16](https://www.biblegateway.com/passage/?search=John%207%3A16&version=ESV)** - So Jesus answered them, My teaching is not mine, but his who sent me. (ESV)
 
 But Jesus Christ is our Mediator:
 
@@ -25850,6 +25850,86 @@ Ever since [2 April 2022](https://web.archive.org/web/20220402091720/https://mul
 
 I had an out-of-body meeting with the Holy Spirit, and a dream on [3 May 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection-pt-2/) foreshadowing 1 year later on 3 May 2023 when I ended up pleading guilty in court.
 
+I got angry and yelled at the judge in court saying he was a liar because the judge had made a remark against my water baptism which was an appeal to God for a good conscience:
+
+-   **[youtube.com: The Hidden Snare of Bitterness @time: 9 min 21 sec](https://youtube.com/watch?v=ZSVWNhh1bbE&t=561):** "anger at something because God's
+    purposes are being resisted or God's
+    character is being maligned not our
+    purposes merely or our
+    character good anger is targeting sin
+    against God not just assaults against
+    us"
+
+Well, all humans except for Jesus have broken God's law - we've all been liars, but God is true. And that is exactly the reason why I pleaded guilty, and the judge is also guilty:
+
+> **[Romans 3:4](https://www.biblegateway.com/passage/?search=Romans%203%3A4&version=ESV)** - By no means! Let God be true though every one were a liar, as it is written, That you may be justified in your words, and prevail when you are judged. (ESV)
+
+Sproul also had a moment like this:
+
+-   **[youtube.com: The Meaning of Holiness: The Holiness of God with R.C. Sproul](https://www.youtube.com/watch?v=K96e1tK7eN4&list=PL30acyfm60fVpGc7Eo--3S6w1kdhXY9Cb&index=5&t=506s):** I was lecturing on
+    the Lord's Supper, and his question was
+    not so much a question as an expression of
+    unbridled cynicism.
+    
+    He put his hand up, and I acknowledged
+    him.
+    
+    He said, "What's the big deal about bread
+    and wine?
+    
+    Why do we have to do that?
+    
+    Why can't we just have peanut butter and
+    jelly sandwiches and coca-cola?" That's
+    when I lost it.
+    
+    I just felt this rage just flowing up out
+    of my soul.
+    
+    He grated my sensitivity when he said
+    that, and instead of giving a polite,
+    genteel, professorial response to him, I
+    said, "You want to know why we don't have
+    peanut butter and jelly sandwiches and
+    coca-cola at Holy Communion?
+    
+    Because Jesus never consecrated peanut
+    butter and jelly or coca-cola." I just
+    wanted to kill him.
+    
+    Why?
+    
+    Because he had just profaned with his
+    question something that was precious and
+    holy in my experience.
+    
+    But what is it that makes the bread and
+    the wine so special?
+    
+    What is it that makes any moment in
+    history so special?
+    
+    What is it that makes a piece of real
+    estate holy ground?
+    
+    Why is it that Noah marked the spot where
+    he landed with a &#x2013; built an altar?
+    
+    And Abraham built an altar to God.
+    
+    Why is it that we are drawn to take
+    something that is common and make it
+    extraordinary because of its significance?
+    
+    It's not because of the intrinsic value of
+    these objects, but what makes something
+    sacred, what makes something holy is the
+    touch of God upon it.
+    
+    When the one who himself is other and
+    different touches that which is ordinary,
+    it becomes extraordinary.
+
 Even though I have been born-again, and I think I've been treated with almost zero grace, even treated unfairly, I do not say I am without sin, and to have pleaded 'not guilty' as I am seeking to be obedient to Jesus, even while repenting from certain things which were nothing to do with court, and to not use the year I was born of the Spirit to make testimony of Jesus I think would be to dishonour Jesus, as Jesus is my Lord. So for that and also to try to do no harm to my neighbour, and also because I am not without sin, even after being washed and regenerated, I pleaded guilty in court:
 
 > **[I John 1:8-10](https://www.biblegateway.com/passage/?search=1%20John%201%3A8-10&version=ESV)** - **If we say we have no sin, we deceive ourselves, and the truth is not in us.** If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. If we say we have not sinned, we make him a liar, and his word is not in us. (ESV)
@@ -26602,6 +26682,53 @@ On the bright side, last week I did get a picture of John Piper on YouTube sayin
 That means that when I turn up in heaven I'll have 'clothes' so I can enter - the imputed righteousness of Christ.
 
 > **[Matthew 22:11-13](https://www.biblegateway.com/passage/?search=Matthew%2022%3A11-13&version=ESV)** - But when the king came in to look at the guests, he saw there a man who had no wedding garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness. In that place there will be weeping and gnashing of teeth. (ESV)
+
+-   **[youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** So when Paul says, "Put it on, this new     he means, "Act it out." If you have been
+    created anew after the likeness of God
+    clothe yourselves with godly garments.
+    
+    Now what is clothing?
+    
+    Clothing is what people see.
+    
+    When you put clothing around yourself you
+    give something for people to look at
+    that's presentable.
+    
+    So when Paul says "clothe yourselves, put
+    on your new nature," he means, "let that
+    inner reality that God has created work
+    itself out invisible actions and behaviors
+    and attitudes.
+    
+    Become what you are within." if the hidden
+    spring has been purified let the visible
+    streams run clean.
+    
+    But of course if the spring is purified
+    the streams will run clean.
+    
+    If the tree is good the fruit will be
+    good.
+    
+    Out of the abundance of the heart the
+    mouth does speak.
+    
+    &#x2026;
+    
+    These choices are the obedience
+    that confirm your calling and election
+    and make it
+    sure.
+    
+    &#x2026;
+
+-   **[**warning**](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** If we neglect to understand that the
+    Christian life as it is lived out is a
+    miracle, then all our pursuit of morality
+    or holiness will become striving in our
+    own strength&#x2026; we will chalk it up to our
+    merit&#x2026;
 
 Also, I recall that some time in 2022 I had a dream where someone asked me, "How did you get in here?" And I responded pointing to 2 blog articles I had written ([2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) and [3 May 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection-pt-2/) and indicating that it was through being born-again, through baptism, the death and resurrection of Jesus Christ.
 

@@ -36545,6 +36545,63 @@ thinking like the world thinks, and I've been living for Christ, and I've been l
 I had an out-of-body meeting with the Holy Spirit, and a dream on 3 May 2022 foreshadowing 1 year later on 3 May
 2023 when I ended up pleading guilty in court.
 
+I got angry and yelled at the judge in court saying he was a liar because the judge had made a remark against my
+water baptism which was an appeal to God for a good conscience:
+
+youtube.com: The Hidden Snare of Bitterness @time: 9 min 21 sec
+"anger at something because God's purposes are being resisted or God's character is being maligned not our
+purposes merely or our character good anger is targeting sin against God not just assaults against us"
+
+Well, all humans except for Jesus have broken God's law - we've all been liars, but God is true. And that is
+exactly the reason why I pleaded guilty, and the judge is also guilty:
+
+  Romans 3:4 - By no means! Let God be true though every one were a liar, as it is written, That you may be
+  justified in your words, and prevail when you are judged. (ESV)
+
+Sproul also had a moment like this:
+
+youtube.com: The Meaning of Holiness: The Holiness of God with R.C. Sproul
+
+I was lecturing on the Lord's Supper, and his question was not so much a question as an expression of unbridled
+cynicism.
+
+He put his hand up, and I acknowledged him.
+
+He said, "What's the big deal about bread and wine?
+
+Why do we have to do that?
+
+Why can't we just have peanut butter and jelly sandwiches and coca-cola?" That's when I lost it.
+
+I just felt this rage just flowing up out of my soul.
+
+He grated my sensitivity when he said that, and instead of giving a polite, genteel, professorial response to him,
+I said, "You want to know why we don't have peanut butter and jelly sandwiches and coca-cola at Holy Communion?
+
+Because Jesus never consecrated peanut butter and jelly or coca-cola." I just wanted to kill him.
+
+Why?
+
+Because he had just profaned with his question something that was precious and holy in my experience.
+
+But what is it that makes the bread and the wine so special?
+
+What is it that makes any moment in history so special?
+
+What is it that makes a piece of real estate holy ground?
+
+Why is it that Noah marked the spot where he landed with a - built an altar?
+
+And Abraham built an altar to God.
+
+Why is it that we are drawn to take something that is common and make it extraordinary because of its
+significance?
+
+It's not because of the intrinsic value of these objects, but what makes something sacred, what makes something
+holy is the touch of God upon it.
+
+When the one who himself is other and different touches that which is ordinary, it becomes extraordinary.
+
 Even though I have been born-again, and I think I've been treated with almost zero grace, even treated unfairly, I
 do not say I am without sin, and to have pleaded 'not guilty' as I am seeking to be obedient to Jesus, even while
 repenting from certain things which were nothing to do with court, and to not use the year I was born of the
@@ -37672,6 +37729,38 @@ That means that when I turn up in heaven I'll have 'clothes' so I can enter - th
   Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness. In that place
   there will be weeping and gnashing of teeth. (ESV)
 
+youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec
+
+So when Paul says, "Put it on, this new he means, "Act it out." If you have been created anew after the likeness
+of God clothe yourselves with godly garments.
+
+Now what is clothing?
+
+Clothing is what people see.
+
+When you put clothing around yourself you give something for people to look at that's presentable.
+
+So when Paul says "clothe yourselves, put on your new nature," he means, "let that inner reality that God has
+created work itself out invisible actions and behaviors and attitudes.
+
+Become what you are within." if the hidden spring has been purified let the visible streams run clean.
+
+But of course if the spring is purified the streams will run clean.
+
+If the tree is good the fruit will be good.
+
+Out of the abundance of the heart the mouth does speak.
+
+...
+
+These choices are the obedience that confirm your calling and election and make it sure.
+
+...
+
+warning
+If we neglect to understand that the Christian life as it is lived out is a miracle, then all our pursuit of
+morality or holiness will become striving in our own strength... we will chalk it up to our merit...
+
 Also, I recall that some time in 2022 I had a dream where someone asked me, "How did you get in here?" And I
 responded pointing to 2 blog articles I had written (2 April 2022 and 3 May 2022 and indicating that it was
 through being born-again, through baptism, the death and resurrection of Jesus Christ.
@@ -38265,7 +38354,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 21:19
+Created: 2024-07-16 Tue 21:46
 
 Validate
 
