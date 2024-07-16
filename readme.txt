@@ -21,8 +21,8 @@ youtube.com: Isn't Veganism Closer to God's Original Design?
   Romans 14:4 - Who are you to pass judgment on the servant of another? It is before his own master that he stands
   or falls. And he will be upheld, for the Lord is able to make him stand. (ESV)
 
-We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent. Other so-called gods are
-not actually gods but demons:
+We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are
+found in Christ Jesus:
 
   I Corinthians 8:5-7 - For although there may be so-called gods in heaven or on earth - as indeed there are many
   gods and many lords - yet for us there is one God, the Father, from whom are all things and for whom we exist,
@@ -32,6 +32,15 @@ not actually gods but demons:
 
   Deuteronomy 10:17 - For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the
   awesome God, who is not partial and takes no bribe. (ESV)
+
+Christ is reigning until all things are placed into subjection under Him. We must come under the Lordship of
+Christ Jesus. I consider any so-called god which is in rebellion to Christ to be a demon:
+
+  I Corinthians 15:25-28 - For he must reign until he has put all his enemies under his feet. The last enemy to be
+  destroyed is death. For God has put all things in subjection under his feet. But when it says, all things are
+  put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things
+  are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under
+  him, that God may be all in all. (ESV)
 
   I agree whole heartedly with Keith Green here:
 
@@ -26149,20 +26158,69 @@ In my view what has happened is John 10:10:
   John 10:10 - The thief comes only to steal and kill and destroy. I came that they may have life and have it
   abundantly. (ESV)
 
-For anyone who has some insight into my situation, another possibility is that due to the fact I had attended a
-Mormon church for the first and only time on (if I recall correctly) what I think was the second day (2 Jan) of
-2022, and subsequently born-again of the Spirit on 2 April 2022, I may have encountered some spirits of bad
-doctrine.
+For anyone who has some insight into my situation, another possibility is that I was tested by God after being
+born of the Spirit.
 
-But at the end of the day, I don't believe their doctrine. They believe in polygamy, becoming your own god, and
-eternal marriage, and they are not trinitarians. I'm a trinitarian Christian, I don't believe in polygamy, I
-believe that marriage should not be idolatry, I believe in being a servant in God's kingdom living as a sacrifice
-to God.
+I had attended a Mormon church for the first and only time on (if I recall correctly) what I think was the second
+day (2 Jan) of 2022, and subsequently born-again of the Spirit on 2 April 2022, I may have encountered some
+spirits of bad doctrine.
+
+But at the end of the day, I don't hold to their doctrine, and also I was seeking Jesus and endeavouring to remain
+accountable before God and bring my deeds into the light.
+
+According to a Mormon, they believe in polygamy, and from a quick internet search I can see their beliefs about
+becoming gods and goddesses and eternal marriage actually have an interest parallel in my testing / divine court
+after being born-again of the spirit.
+
+When I said on Facebook something like: "Jesus is my life my truth and my heaven and the girl I love is like a
+little bit of that." the Hindu guy who was asking me for financial assistance (as I was getting pagan dreams of
+evading judgement through good works) immediately said on my Facebook post, "Maybe she's god", as I was staying at
+the house of a close friend.
+
+I rebuked that comment in Jesus Christ's name because my love was genuine but was not going to allow the devil to
+continue trying to push me into feeling as though I was rejecting the grace of God by denying the free gift of
+justification by the blood of Jesus Christ by faith in Jesus Christ.
+
+I'm not going to allow the devil to try to frame it as though:
+
+- I had to "pay" for justification
+- I wasn't already forgiven
+- I had to "pay" for the girl I proposed to by doing good works
+- the devil is a scumbag and probably wants to institute prostitution in the spiritual realm
+- the devil wants to put a spiritual price tag on getting married
+- I was trying to be my own god
+
+The devil wanted to make me think I was not forgiven by God already, and prey on my Fruit of the Holy Spirit
+desire to marry the girl, and make it look like covetousness / licentiousness / lewdness when it was not. it was
+love.
+
+i hold to that belief.
+
+the devil tried to steal my blessings, and push me back into bondage, and into sin, meanwhile bombarding me with
+accusations of my past.
+
+Nevertheless it got to the point where I could not test God by pleading not guilty because I know Jesus was there
+in the court room, and I was being faithful to my Jesus.
+
+I had my own meeting with Holy Spirit on 3 May which
+
+I found out much later that was her birthday and also the exact date of when I pleaded guilty in court a year
+later.
+
+I'm a trinitarian Christian, I confess the Nicene creed, I don't believe in polygamy, I believe that marriage
+should not be idolatry, I believe in being a servant in God's kingdom living as a sacrifice to God, and not hubris
+in "becoming my own god". I want a real relationship with Jesus by being obedient to Jesus is reality, accountable
+to God. Jehovah God as my witness:
+
+  I John 2:4 - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him,
+  (ESV)
 
 I don't believe in polygamy, in fact I am resolutely against it. I much prefer to believe that God has one person
-in mind for me, like Eve to Adam. And I don't know about the permanency of marriage either but I do believe that
-God has all who are in Christ joined together by love and whatever God has in store for us will make earthly
-marriage look pale by comparison.
+in mind for me, like Eve to Adam, yes, but not as if "in union we would become a god", but rather that we have our
+own union with Christ first and foremost.
+
+And I don't know about the permanency of marriage either but I do believe that God has all who are in Christ
+joined together by love and whatever God has in store for us will make earthly marriage look pale by comparison.
 
   I Corinthians 7:29-31 - This is what I mean, brothers: the appointed time has grown very short. From now on, let
   those who have wives live as though they had none, and those who mourn as though they were not mourning, and
@@ -36960,6 +37018,96 @@ and forgiven, price paid in full with Jesus' blood.
 
 I have lots of evidence of this. Jehovah knows it.
 
+Sermon
+
+He says in Revelation 12:10, he said, first-hand, "for the accuser of the brethren who accuses them before God day
+and night has been cast out."
+
+Here's what I want you to see: The thing that's going to cause complete and total breakthrough is not you
+defeating a demon on a battlefield...
+
+It is you silencing the argument of a demon against you.
+
+When you silence the voice of the accuser the full breakthrough is now free to come you see.
+
+In other words, what is stopping us from coming into the full breakthrough God has for us is not a demon on a
+battlefield, it's an argument in the spirit world against you.
+
+And we have to know how to go in to the spirit world in silence that argument.
+
+We have to know how to accomplish that because when we do, when we were able to silence the argument, then all of
+a sudden everything that we were made for, everything that we were were created to accomplish, every destiny every
+purpose ,every breakthrough begins to be set into place so that we can experience what God has for us.
+
+Because that's what you have to do with an accuser.
+
+Now, the next verse tells us how to do.
+
+Here's what he says he says, "and they overcame him by the blood of the Lamb and by the word of their testimony
+and they did not love their lives unto death." So there's three things he says here, three things that are
+necessary to overcome the accuser.
+
+He says very clearly, it says, "these are the way they overcame him".
+
+This is the way they silenced the legal argument against them, was they overcame him by the blood of the Lamb, the
+word of their testimony and they loved not their lives unto death.
+
+Okay, number one, the blood of the Lamb, and we've talked about this a little bit but the blood of the Lamb is
+what you use to dismiss cases against you.
+
+That's what you do with the blood.
+
+The blood is used to dismiss cases that the enemy would claim against you.
+
+Why?
+
+Because when I come and I repent, when I come and I repent and through my repentance agree with the blood of lamb,
+when I do that then what happens is that the blood is able to now silence the voices that would be speaking
+against me that the accuser would be using.
+
+Okay, so I use that or I use the blood to silence the voice of course that's Hebrews12:24 - and to Jesus, the
+mediator of a new covenant, and to the sprinkled blood that speaks a better word than the blood of Abel. (ESV) Now
+let me just show you one scripture.
+
+Why it's important to repent: I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship
+with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV) It literally says keeps on
+cleansing us from all sin.
+
+That's why - that's actually the verbiage
+
+- it keeps on cleansing us - why because
+
+the blood is 'not that which was spoke, it is that which is speaking'.
+
+That's what it said.
+
+There was a blood that speaks better things.
+
+The blood isn't something that was spoke about you.
+
+The blood is speaking concerning you.
+
+So watch, it says that the blood keeps on cleansing us from all sin but only when we walk in the light as he is in
+the light See what does that mean?
+
+That means I come out of darkness into the light.
+
+That means I have to repent.
+
+Repentance is coming out of darkness and into light.
+
+So you cannot get the benefits of the blood, you cannot agree with what the blood is saying about you unless you
+come out of darkness and into light.
+
+As we walk in the light as he is in the light, the blood of Jesus keeps on cleansing us from all unrighteousness
+at all sins.
+
+Does that make sense?
+
+So it's very important to repent: that we come and we acknowledge, we come in yoder hearts, we come in surrender,
+we ask for the blood to speak in our behalf, and it begins to speak in our behalf, and the cases that are against
+us whether it's because by sin by transgression or by iniquity, those cases are dismissed.
+
   In Jesus Christ's name I rebuke the antichrist spirit which continues to attack me and deny the grace,
   forgiveness and atonement which I have received through faith in Jesus Christ, as if God has not forgiven me
   especially in regards to the sins of my past particularly before I was born-again of water and the Spirit on 2
@@ -38095,7 +38243,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 19:34
+Created: 2024-07-16 Tue 20:51
 
 Validate
 
