@@ -11100,7 +11100,7 @@ Perfect compliance to the law is no longer the basis of our justification but we
   law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 
-#           Bible reference                                                 
+#           Bible reference                      Verses to show these commandments are still important
 
 II Corinthians 6:16-17 - What agreement has the temple of God with idols?
 For we are the temple of the living God; as God said, I will make my
@@ -11124,7 +11124,7 @@ Beloved, if God so loved us, we also ought to love one another. (ESV)
 
 
 
-#                   Bible reference                                                 
+#                   Bible reference                      Verses to show these commandments are still important
 
 Acts 17:29 - Being then God's offspring, we ought not to
 Exodus 20:4-6 - You shall not make for yourself a   think that the divine being is like gold or silver or
@@ -11141,7 +11141,8 @@ the beast and worshiped its image. (ESV)
 
 
 
-#                      Bible reference                                                
+#                      Bible reference                          Verses to show these commandments are still
+important
 
 Exodus 20:7 - You shall not take the name of the LORD    James 5:12 - But above all, my brothers, do not
 3  your God in vain, for the LORD will not hold him         swear, either by heaven or by earth or by any other
@@ -11160,7 +11161,8 @@ day and made it holy. (ESV)
 
 
 
-#  Bible reference                        
+#            Bible reference                      Verses to show these commandments are still important
+
 Exodus 20:12 - Honor your father and  We should follow God's commandments to love him and so that things go
 your mother, that your days may be    well with us. Ephesians 6:1-3 - Children, obey your parents in the
 5  long in the land that the LORD your   Lord, for this is right. Honor your father and mother (this is the
@@ -11185,7 +11187,7 @@ something to share with anyone in need. (ESV)
 
 
 
-#              Bible reference                                                
+#              Bible reference                     Verses to show these commandments are still important
 
 I Timothy 1:8-11 - Now we know that the law is good, if one uses it
 lawfully, understanding this, that the law is not laid down for the
@@ -38491,7 +38493,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 23:52
+Created: 2024-07-17 Wed 00:14
 
 Validate
 

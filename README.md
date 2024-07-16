@@ -7413,7 +7413,7 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <th scope="col" class="org-left">#</th>
 <th scope="col" class="org-left">Bible reference</th>
-<th scope="col" class="org-left">&#xa0;</th>
+<th scope="col" class="org-left">Verses to show these commandments are still important</th>
 </tr>
 </thead>
 
@@ -7440,7 +7440,7 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <th scope="col" class="org-left">#</th>
 <th scope="col" class="org-left">Bible reference</th>
-<th scope="col" class="org-left">&#xa0;</th>
+<th scope="col" class="org-left">Verses to show these commandments are still important</th>
 </tr>
 </thead>
 
@@ -7467,7 +7467,7 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <th scope="col" class="org-left">#</th>
 <th scope="col" class="org-left">Bible reference</th>
-<th scope="col" class="org-left">&#xa0;</th>
+<th scope="col" class="org-left">Verses to show these commandments are still important</th>
 </tr>
 </thead>
 
@@ -7497,14 +7497,15 @@ The righteousness in the actual doing of the law above is still upheld but there
 
 <col  class="org-left" />
 </colgroup>
-<tbody>
+<thead>
 <tr>
-<td class="org-left">#</td>
-<td class="org-left">Bible reference</td>
-<td class="org-left">&#xa0;</td>
+<th scope="col" class="org-left">#</th>
+<th scope="col" class="org-left">Bible reference</th>
+<th scope="col" class="org-left">Verses to show these commandments are still important</th>
 </tr>
+</thead>
 
-
+<tbody>
 <tr>
 <td class="org-left"><b>5</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A12&amp;version=ESV">Exodus 20:12</a></b> - Honor your father and your mother, that your days may be long in the land that the LORD your God is giving you. (ESV)</td>
@@ -7548,7 +7549,7 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <th scope="col" class="org-left">#</th>
 <th scope="col" class="org-left">Bible reference</th>
-<th scope="col" class="org-left">&#xa0;</th>
+<th scope="col" class="org-left">Verses to show these commandments are still important</th>
 </tr>
 </thead>
 
