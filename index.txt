@@ -25715,6 +25715,9 @@ The asceticism [of denying marriage] has no value in stopping the indulgence of 
   promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the
   indulgence of the flesh. (ESV)
 
+Sermon
+youtube.com: The Battle for Sexual Purity
+
 Marriage itself is good. So denying it for reasons of self-made religion / worldly precepts actually causes harm
 because it's not the truth.
 
@@ -37984,7 +37987,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 18:08
+Created: 2024-07-16 Tue 18:22
 
 Validate
 
