@@ -696,6 +696,16 @@ See how faithfulness is related to faith - faith is faithful to God. Having fait
 
 > **[II Timothy 2:13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A13&version=ESV)** - if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
 
+-   **[Quote from John Piper](https://youtu.be/JkSAMTp5leQ?t=2305):** Christ-exalting love for people is the overflow of joy in God or it's not love in a Biblical sense.
+
+I have a strong desire to do what God wants me to do as I feel comfortable that God is on my side and will not put me to shame for my shortcomings because I am trusting Him.
+If the devil tries to damage me to make me sin and I sin I know I have confidence that God is still taking care of me and knows everything.
+Now I know I want to love other people because I have joy in knowing God.
+But on a bad day, especially during this intense trial that I face, I have confidence that even though I may have a **Job 23:1-17** day, I will still
+I will still keep my heart of obedience to God, especially the call to love others because I do not want to misrepresent God or shame God in public which would be akin to taking His name in vain.
+So I have a joy that's in God, yes, but it does not mean that on a bad day I have no love for God.
+Jesus says that the one who loves Him is the one who keeps His commandments. Amen.
+
 The following is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
 > **[II Corinthians 5:17](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A17&version=ESV)** - Therefore, **if** anyone is in Christ, he is a new creation. The **old has passed away**; behold, the **new has come.**

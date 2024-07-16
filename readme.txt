@@ -1140,6 +1140,19 @@ with God with regard to His commands and promises and maintaining faithfulness w
 
   II Timothy 2:13 - if we are faithless, he remains faithful- for he cannot deny himself. (ESV)
 
+Quote from John Piper
+Christ-exalting love for people is the overflow of joy in God or it's not love in a Biblical sense.
+
+I have a strong desire to do what God wants me to do as I feel comfortable that God is on my side and will not put
+me to shame for my shortcomings because I am trusting Him. If the devil tries to damage me to make me sin and I
+sin I know I have confidence that God is still taking care of me and knows everything. Now I know I want to love
+other people because I have joy in knowing God. But on a bad day, especially during this intense trial that I
+face, I have confidence that even though I may have a Job 23:1-17 day, I will still I will still keep my heart of
+obedience to God, especially the call to love others because I do not want to misrepresent God or shame God in
+public which would be akin to taking His name in vain. So I have a joy that's in God, yes, but it does not mean
+that on a bad day I have no love for God. Jesus says that the one who loves Him is the one who keeps His
+commandments. Amen.
+
 The following is Scripture and trumps my own thoughts. I affirm these verses wholeheartedly:
 
   II Corinthians 5:17 - Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold,
@@ -38354,7 +38367,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 21:46
+Created: 2024-07-16 Tue 22:12
 
 Validate
 
