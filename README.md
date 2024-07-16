@@ -18102,16 +18102,25 @@ and [the girl I love is like a little bit of that](https://www.youtube.com/watch
 
 I rebuked that comment in Jesus Christ's name because my love was genuine but was not going to allow the devil to continue trying to push me into feeling as though I was rejecting the grace of God by denying the **free gift** of justification by the blood of Jesus Christ by faith in Jesus Christ.
 
-The Hindu guy then said, "I'm going back to the sea. I hope to wash up on shore again soon." - totally demonic stuff.
+I asked the Hindu guy, "Did you try to put a demon in me?"
+Instead of saying no, the Hindu guy then said, "But I need you to invent." - and I thought of this verse:
+
+> **[Romans 1:30](https://www.biblegateway.com/passage/?search=Romans%201%3A30&version=ESV)** - slanderers, haters of God, insolent, haughty, boastful, inventors of evil, disobedient to parents, (ESV)
+
+So I then rebuked him in Jesus Christ's name.
+
+The Hindu guy then said, "I'm going back to the sea. I hope to wash up on shore again soon.", and I felt a spirit depart from my body, and he disappeared from Facebook. - totally demonic stuff.
 
 I'm not going to allow the devil to try to frame it as though:
 
--   I had to "pay" for justification, but I was actually just obeying Jesus out of obedience - God mad me love Him back for loving me first
+-   I had to "pay" for justification
+    -   But I was actually just obeying Jesus out of obedience - God had simply through His grace granted me repentance to life, to be able to love Him back as a response of Him loving me first
 -   I wasn't already forgiven
+    -   But I was a born-again believer with my trust in Jesus Christ, simply being obedient to Jesus out of love for Him, and I believed I was totally forgiven, and without guilt
 -   I had to "pay" for the girl I proposed to by doing good works
     -   the devil is a scumbag and probably wants to institute prostitution in the spiritual realm
     -   the devil wants to put a spiritual price tag on getting married
--   I was trying to be my own god, which I certainly was not trying to do, but I was interested in "union with Christ"
+-   I was trying to be my own god, which I certainly was not trying to do, but I was interested in getting to know Jesus and "union with Christ"
 
 The devil wanted to make me think I was not
 forgiven by the one True God already, and prey on my active Fruit
