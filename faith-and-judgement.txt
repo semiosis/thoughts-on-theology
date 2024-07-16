@@ -26194,7 +26194,7 @@ The devil wanted to make me think I was not forgiven by God already, and prey on
 desire to marry the girl, and make it look like covetousness / licentiousness / lewdness when it was not. it was
 love.
 
-i hold to that belief.
+I hold to that belief.
 
 the devil tried to steal my blessings, and push me back into bondage, and into sin, meanwhile bombarding me with
 accusations of my past.
@@ -38243,7 +38243,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 20:51
+Created: 2024-07-16 Tue 20:56
 
 Validate
 

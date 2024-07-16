@@ -18118,7 +18118,7 @@ and make it look like covetousness /
 licentiousness / lewdness when it was not.
 it was love.
 
-i hold to that belief.
+I hold to that belief.
 
 the devil tried to steal my blessings, and
 push me back into bondage, and into sin,
@@ -18133,7 +18133,7 @@ I found out much later that was her birthday and also the exact date of when I p
 I'm a trinitarian Christian, I confess the Nicene creed, I don't believe in polygamy, I believe that marriage should not be idolatry, I believe in being a servant in God's kingdom living as a sacrifice to God, and not hubris in "becoming my own god".
 I want a real relationship with Jesus by being obedient to Jesus is reality, accountable to God. Jehovah God as my witness:
 
-> **I John 2:4** - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+> **[I John 2:4](https://www.biblegateway.com/passage/?search=1%20John%202%3A4&version=ESV)** - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 I don't believe in polygamy, in fact I am resolutely against it. I much prefer to believe that God has one person in mind for me,
 like Eve to Adam, yes, but not as if "in union we would become a god", but rather that we have our own union with Christ first and foremost.
