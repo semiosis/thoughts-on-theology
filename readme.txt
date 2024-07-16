@@ -2854,10 +2854,37 @@ Armageddon, war broke out in the middle east soon after. I felt as though I near
 it was quickly progressing that way or something like that, and then I made a declaration to court that Jesus is
 the Truth, I forgive everyone etc. That resulted in some very rapid changes. Things in my life spiritually began
 to stabilise as I have gone through police corrections and used the time to attend Bible studies, and be corrected
-by the Scripture. I'm still trying to be sanctified ongoingly. I am really sorry for misleading people.
+by the Scripture in my beliefs, obedience and deeds. I'm still trying to be sanctified ongoingly. I am really
+sorry for misleading people with regards to any error in my writings, but the way to handle this, I believe, is
+not to throw the baby out with the bath-water but to be corrected by the word of God. I'm still a work in
+progress.
+
+A friend said this at church the very day after I was born again of the Spirit, " Just because some messages may
+have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure
+you test them. Hold onto what is good and dismiss those that are not good (i.e. those that are evil). "
+
+I feel that way about my experience of being born-again of the Spirit and then undergoing purification and ongoing
+repentance and correction.
+
+Over the course of 2022, I was actually speaking a lot of prophecy. There was a lot of truth in it, and a lot of
+error, but my defense is Jesus and I was getting to know Jesus through being washed in the word, and in obedience
+to Jesus' commandments, and being corrected by the word, but we don't want to throw the baby out with the
+bathwater.
 
   Mark 13:20 - And if the Lord had not cut short the days, no human being would be saved. But for the sake of the
   elect, whom he chose, he shortened the days. (ESV)
+
+Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely
+new heavens and earth (not just a renewal, although I do believe God is still taking care of and reigning on the
+earth), so I think that whatever Paul the Apostle is referring to here, well I have my speculatinons, is something
+more imminent, and perhaps more to do with God's kingdom work on the earth, but I still hold the eschatological
+view that there is ultimately an entirely new heavens and earth without any corruption:
+
+  I Corinthians 7:29-31 - This is what I mean, brothers: the appointed time has grown very short. From now on, let
+  those who have wives live as though they had none, and those who mourn as though they were not mourning, and
+  those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those
+  who deal with the world as though they had no dealings with it. For the present form of this world is passing
+  away. (ESV)
 
   Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
   that through many tribulations we must enter the kingdom of God. (ESV)
@@ -4293,6 +4320,12 @@ Those who love God - those who believe and obey Him - those who trust Him - will
 
   James 1:12 - Blessed is the man who remains steadfast under trial, for when he has stood the test he will
   receive the crown of life, which God has promised to those who love him. (ESV)
+
+I believe strongly that I am currently going through this and I have been going through this
+discipline/testing/repentance/forgiving-others stuff for a year or longer now:
+
+  I Corinthians 11:32 - But when we are judged by the Lord, we are disciplined so that we may not be condemned
+  along with the world. (ESV)
 
 We have to believe and obey the Truth. We have to agree with the word of God, and allow God to correct our beliefs
 and behaviour:
@@ -19174,8 +19207,20 @@ belief.
 
 25.0.5. The new heavens and new earth
 
+This is cool:
+
   Isaiah 65:17 - For behold, I create new heavens and a new earth, and the former things shall not be remembered
   or come into mind.
+
+I personally am holding out for an entirely new heavens and earth:
+
+  I Corinthians 7:29-31 - This is what I mean, brothers: the appointed time has grown very short. From now on, let
+  those who have wives live as though they had none, and those who mourn as though they were not mourning, and
+  those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those
+  who deal with the world as though they had no dealings with it. For the present form of this world is passing
+  away. (ESV)
+
+I believe though, that the LORD is making an entirely new heavens and a new earth.
 
   Isaiah 66:22 - For as the new heavens and the new earth that I makeshall remain before me, says the Lord, so
   shall your offspring and your name remain.
@@ -26005,7 +26050,25 @@ livingproof.co: John 10:10 | What Did Jesus Mean by "Abundant Life"? - Abundant 
   from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he
   speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
-51.2.3. I was learning Christ before I was born-again
+51.2.3. I want to get married but continue in sanctification first - that's the conflict - I don't want to bring any
+ongoing issues into marriage
+
+I want to continue in the process of sanctification, and holiness in body and spirit. But I feel like I'm made for
+marriage. And I feel like loneliness and isolation have been a cause of problems for me. The conflict is I
+wouldn't want to be married unless I was feeling totally cleaned up, and have everything under control, and I want
+to continue being cleaned up for a while:
+
+  I Corinthians 7:33-35 - But the married man is anxious about worldly things, how to please his wife, and his
+  interests are divided. And the unmarried or betrothed woman is anxious about the things of the Lord, how to be
+  holy in body and spirit. But the married woman is anxious about worldly things, how to please her husband. I say
+  this for your own benefit, not to lay any restraint upon you, but to promote good order and to secure your
+  undivided devotion to the Lord. (ESV)
+
+  I Corinthians 9:25-27 - Every athlete exercises self-control in all things. They do it to receive a perishable
+  wreath, but we an imperishable. So I do not run aimlessly; I do not box as one beating the air. But I discipline
+  my body and keep it under control, lest after preaching to others I myself should be disqualified. (ESV)
+
+51.2.4. I was learning Christ before I was born-again
 
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are in
 Him:
@@ -26053,7 +26116,7 @@ God who can see me, even when others can't.
 
 But the yoke of the Lord Jesus has been extremely difficult.
 
-51.2.4. Genuine belief results a dramatic decoupling with the world out of darkness and out from under the power of
+51.2.5. Genuine belief results a dramatic decoupling with the world out of darkness and out from under the power of
 Satan
 
 Going from darkness to light and arriving at a genuine understanding in the heart to agree with the truth
@@ -26080,7 +26143,7 @@ naturally results in decoupling from the world:
   Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
   God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
 
-51.2.5. Holiness - J.C. Ryle
+51.2.6. Holiness - J.C. Ryle
 
   Holiness:
 
@@ -26107,7 +26170,7 @@ naturally results in decoupling from the world:
     o follow after spiritual-mindedness. He will endeavor to set his affections entirely on things above and to
       hold things on earth with a very loose hand.
 
-51.2.6. Gay 'marriage' should not be held in equal standing to God's design
+51.2.7. Gay 'marriage' should not be held in equal standing to God's design
 
   Isaiah 6:20 - Woe to those who call evil good, and good evil; Who substitute darkness for light and light for
   darkness; Who substitute bitter for sweet and sweet for bitter!
@@ -37921,7 +37984,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 17:31
+Created: 2024-07-16 Tue 18:08
 
 Validate
 

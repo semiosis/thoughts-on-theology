@@ -1776,9 +1776,19 @@ I was quickly baptised in the Holy Spirit and I asked God in prayer that the who
 
 -   **video:** [youtube.com: Life or Death by Your Tongue](https://www.youtube.com/watch?v=WcGhzysmCl8)
 
-I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken into service by Jesus but also I had much error and my tongue may was not well-bridled. Perhaps I still speak too much. I received lots of visions and many of them came from the enemy I believe after I had even been reading Apocryphal gospels, then after I had said towards the end of 2022 on my blog that we should get ready for Armageddon, war broke out in the middle east soon after. I felt as though I nearly did actually get 'raptured' or it was quickly progressing that way or something like that, and then I made a declaration to court that Jesus is the Truth, I forgive everyone etc. That resulted in some very rapid changes. Things in my life spiritually began to stabilise as I have gone through police corrections and used the time to attend Bible studies, **and be corrected by the Scripture**. I'm still trying to be sanctified ongoingly. I am really sorry for misleading people.
+I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken into service by Jesus but also I had much error and my tongue may was not well-bridled. Perhaps I still speak too much. I received lots of visions and many of them came from the enemy I believe after I had even been reading Apocryphal gospels, then after I had said towards the end of 2022 on my blog that we should get ready for Armageddon, war broke out in the middle east soon after. I felt as though I nearly did actually get 'raptured' or it was quickly progressing that way or something like that, and then I made a declaration to court that Jesus is the Truth, I forgive everyone etc. That resulted in some very rapid changes. Things in my life spiritually began to stabilise as I have gone through police corrections and used the time to attend Bible studies, **and be corrected by the Scripture** in my beliefs, obedience and deeds. I'm still trying to be sanctified ongoingly. I am really sorry for misleading people with regards to any error in my writings, but the way to handle this, I believe, is not to throw the baby out with the bath-water but to be corrected by the word of God. I'm still a work in progress.
+
+A friend said this at church the very day after I was born again of the Spirit, " **Just because some messages may have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure you test them. Hold onto what is good and dismiss those that are not good** (i.e. those that are evil). "
+
+I feel that way about my experience of being born-again of the Spirit and then undergoing purification and ongoing repentance and correction.
+
+Over the course of 2022, I was actually speaking a lot of prophecy. There was a lot of truth in it, and a lot of error, but my defense is Jesus and I was getting to know Jesus through being washed in the word, and in obedience to Jesus' commandments, and being corrected by the word, but we don't want to throw the baby out with the bathwater.
 
 > **[Mark 13:20](https://www.biblegateway.com/passage/?search=Mark%2013%3A20&version=ESV)** - And if the Lord had not cut short the days, no human being would be saved. But for the sake of the elect, whom he chose, he shortened the days. (ESV)
+
+Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely new heavens and earth (not just a renewal, although I do believe God is still taking care of and reigning on the earth), so I think that whatever Paul the Apostle is referring to here, *well I have my speculatinons*, is something more imminent, and perhaps more to do with God's kingdom work on the earth, but I still hold the eschatological view that there is ultimately an entirely new heavens and earth without any corruption:
+
+> **[I Corinthians 7:29-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A29-31&version=ESV)** - This is what I mean, brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For the present form of this world is passing away. (ESV)
 
 > **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that **through many tribulations we must enter the kingdom of God.** (ESV)
 
@@ -2763,6 +2773,10 @@ God *definitely* disciplines us, even if we love Jesus and keep Jesus' commandme
 Those who love God - those who believe and obey Him - those who trust Him - will experience trial:
 
 > **[James 1:12](https://www.biblegateway.com/passage/?search=James%201%3A12&version=ESV)** - Blessed is the man who remains steadfast under trial, for when he has stood the test he will receive the crown of life, which God has promised to those <ins>who love him.</ins> (ESV)
+
+I believe strongly that I am **currently** going through this and I have been going through this discipline/testing/repentance/forgiving-others stuff for a year or longer now:
+
+> **[I Corinthians 11:32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A32&version=ESV)** - But when we are judged by the Lord, we are disciplined so that we may not be condemned along with the world. (ESV)
 
 We have to believe and obey the Truth. We have to agree with the word of God, and allow God to correct our beliefs and behaviour:
 
@@ -12942,7 +12956,15 @@ Jesus helped Thomas believe by giving him a commandment to do. It's implied that
 
 ### The new heavens and new earth
 
+This is cool:
+
 > **[Isaiah 65:17](https://www.biblegateway.com/passage/?search=Isaiah%2065%3A17&version=ESV)** - For behold, I create new heavens and a new earth, and <ins>the former things shall not be remembered or come into mind.</ins>
+
+I personally am holding out for an entirely new heavens and earth:
+
+> **[I Corinthians 7:29-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A29-31&version=ESV)** - This is what I mean, brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For **the present form of this world is passing away**. (ESV)
+
+I believe though, that the LORD is making an entirely new heavens and a new earth.
 
 > **[Isaiah 66:22](https://www.biblegateway.com/passage/?search=Isaiah%2066%3A22&version=ESV)** - For as the new heavens and the new earth that I makeshall remain before me, says the Lord, so shall your offspring and your name remain.
 
@@ -17937,6 +17959,15 @@ What I mean is we should not steal from God, even when Jesus has made us born-ag
 > **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV),4,7-9** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. When he has brought out all his own, he goes before them, and the sheep follow him, for they know his voice. So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. All who came before me are thieves and robbers, but the sheep did not listen to them. I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture. (ESV)
 
 > **[John 8:44](https://www.biblegateway.com/passage/?search=John%208%3A44&version=ESV)** - You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. (ESV)
+
+
+### I want to get married but continue in sanctification first - that's the conflict - I don't want to bring any ongoing issues into marriage
+
+I want to continue in the process of sanctification, and holiness in body and spirit. But I feel like I'm made for marriage. And I feel like loneliness and isolation have been a cause of problems for me. The conflict is I wouldn't want to be married unless I was feeling totally cleaned up, and have everything under control, and I want to continue being cleaned up for a while:
+
+> **[I Corinthians 7:33-35](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A33-35&version=ESV)** - But the married man is anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or betrothed woman is anxious about the things of the Lord, **how to be holy in body and spirit**. But the married woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay any restraint upon you, but to promote good order and to secure your undivided devotion to the Lord. (ESV)
+
+> **[I Corinthians 9:25-27](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A25-27&version=ESV)** - Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable. So I do not run aimlessly; I do not box as one beating the air. But I discipline my body and keep it under control, lest after preaching to others I myself should be disqualified. (ESV)
 
 
 ### I was learning Christ before I was born-again
