@@ -4598,11 +4598,22 @@ We have the Word of God. We can also walk in Jesus' commandments. We've got to b
 God can speak to us directly without internet, even through His Spirit, even in a dream.
 
 I believe that it should be normalised that Christians should feel comfortable being betrothed before having a job
-or owning a house. What I mean by this, is "having a job" or "owning a house" must never become a prerequisite to
-a Christian tto being allowed to marry or at least to being "betrothed" (people should be allowed to propose and
-given a chance even if they have no assets, and no job). "Having God" is a much better prerequisite. We shouldn't
-fight against God by making Him out to be not enough because God is all we need, and at the start of a marriage,
-it should really be founded on that type of faith.
+or owning a house.
+
+What I mean by betrothed is the person who a person has decided they want to marry:
+
+  I Corinthians 7:37-38 - But whoever is firmly established in his heart, being under no necessity but having his
+  desire under control, and has determined this in his heart, to keep her as his betrothed, he will do well. So
+  then he who marries his betrothed does well, and he who refrains from marriage will do even better. (ESV)
+
+What I mean by this, is "having a job" or "owning a house" must never become a prerequisite to a Christian to
+being allowed to marry or at least to being "betrothed" (people should be allowed to propose and given a chance
+even if they have no assets, and no job).
+
+"Having God" is a much better prerequisite.
+
+We shouldn't fight against God by making Him out to be not enough because God is all we need, and at the start of
+a marriage, it should really be founded on that type of faith.
 
 Otherwise, at its essence, getting marriage security from a job is essentially encouraging prostitution and
 divorce. To make a person think they need money or a job before they can marry is to attack their faith. Satan can
@@ -4614,6 +4625,52 @@ command to give their possessions to those in need and follow Him, and I believe
 through a job or through material possessions, is an attack against God's design and is faithless to God at its
 very essence and sets the stage for a divorce when there is a financial crisis because trust must be in God not
 money, and it's best to establish that trust in God at the very beginning.
+
+Sermon :: youtube.com: The Battle for Sexual Purity
+
+And it came out that he was fasting and praying to Satan, and the conversation went on and the discovery was made
+that what this person was fasting and praying for was the destruction of ministers' marriages.
+
+Now if if you were a Satan worshipper and you wanted to know what to pray to your father in hell, what's his will?
+
+Where would you go to find out go?
+
+- to the Bible because the Bible is True.
+
+The Bible tells you Truly what Satan is about in the world.
+
+And you go to the Bible, and what you find in 1 Corinthians 7 [is] that Satan with all his might is in favor of
+adultery and against fidelity.
+
+No wonder then that Satan worshippers are making their aim to pray for that sort of thing.
+
+Learn from the scriptures this morning that when you battle sexual temptation you battle Satan, a cosmic power who
+wants your soul.
+
+Never forget however, in conclusion, that the Son of God came into the world to destroy the works of the devil.
+
+And there is a way to resist, and I close with commending this to you all, married and single.
+
+1 Thessalonians 4:3-5 contains a key for what I think is the way out of bondage to the abuses of sexual desire.
+
+Paul says there "this is the will of God, your sanctification, that you abstain from immorality that each one of
+you knows how to take a wife for himself in holiness and honor, not in passion of lust like the heathens do who do
+not know God." You see the key one kind of person governs his life by the lust of fleshly passions.
+
+Another person governs his life by holiness and honor.
+
+What's the difference?
+
+Whether you know God or not is the difference.
+
+I mean, know God, not know about God, know God.
+
+Paul said in Romans 1:28 "since they did not approve to have God in their knowledge, He gave them up to a debased
+mind and improper conduct." You see the connection?
+
+He said in Galatians 4:8, "formerly, when you did not know God you were in bondage to beings that by nature are
+not gods." In other words, the antidote the liberating force from the bondage of Satan in the area of sexual
+desire is to know God.
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -4635,7 +4692,50 @@ money, and it's best to establish that trust in God at the very beginning.
 
   Matthew 6:21 - For where your treasure is, there your heart will be also. (ESV)
 
-4.4.2. Make friends with charity while money hasn't yet failed
+4.4.2. Personal testimony thoughts around marriage sabotage
+
+Very sadly, after I made the marriage proposal in 2022 the devil really came at me to:
+
+- Make me think I had to work for salvation after being born-again
+- Make me think I need to "pay" to marry her - which is like a spirit of prostitution or trafficking - the devil
+would happily attempt to turn marriage into an economy - the devil is like a pimp
+
+In my view what has happened is John 10:10:
+
+  John 10:10 - The thief comes only to steal and kill and destroy. I came that they may have life and have it
+  abundantly. (ESV)
+
+For anyone who has some insight into my situation, another possibility is that due to the fact I had attended a
+Mormon church for the first and only time on (if I recall correctly) what I think was the second day (2 Jan) of
+2022, and subsequently born-again of the Spirit on 2 April 2022, I may have encountered some spirits of bad
+doctrine.
+
+But at the end of the day, I don't believe their doctrine. They believe in polygamy, becoming your own god, and
+eternal marriage, and they are not trinitarians. I'm a trinitarian Christian, I don't believe in polygamy, I
+believe that marriage should not be idolatry, I believe in being a servant in God's kingdom living as a sacrifice
+to God.
+
+I don't believe in polygamy, in fact I am resolutely against it. I much prefer to believe that God has one person
+in mind for me, like Eve to Adam. And I don't know about the permanency of marriage either but I do believe that
+God has all who are in Christ joined together by love and whatever God has in store for us will make earthly
+marriage look pale by comparison.
+
+  I Corinthians 7:29-31 - This is what I mean, brothers: the appointed time has grown very short. From now on, let
+  those who have wives live as though they had none, and those who mourn as though they were not mourning, and
+  those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those
+  who deal with the world as though they had no dealings with it. For the present form of this world is passing
+  away. (ESV)
+
+Consider that Adam and Eve were in the paradise of God, which is our final destination.
+
+  Revelation of John 2:7 - He who has an ear, let him hear what the Spirit says to the churches. To the one who
+  conquers I will grant to eat of the tree of life, which is in the paradise of God. (ESV)
+
+Since what has happened has been a train-wreck - I feel like my marriage prospects have been sabotaged - I
+currently am praying for God to do a miracle to fix everything, and I know my immediate concern is ongoing
+sanctification so that is my current focus.
+
+4.4.3. Make friends with charity while money hasn't yet failed
 
 Money is temporary. While it's in your hands, make friends with it, by giving in charity to those in need.
 
@@ -4655,7 +4755,7 @@ Money will fail - bitcoin will fail, ethereum will fail, and when it fails peopl
   Luke 16:8-9 - And I tell you, make friends for yourselves by means of unrighteous wealth, so that when it fails
   they may receive you into the eternal dwellings. (ESV)
 
-4.4.3. In this world God can see if we are to be trusted with true heavenly wealth by seeing how we used our money
+4.4.4. In this world God can see if we are to be trusted with true heavenly wealth by seeing how we used our money
 
   Luke 16:11-12 - If then you have not been faithful in the unrighteous wealth, who will entrust to you the true
   riches? And if you have not been faithful in that which is another's, who will give you that which is your own?
@@ -4665,7 +4765,7 @@ Money will fail - bitcoin will fail, ethereum will fail, and when it fails peopl
   evils. It is through this craving that some have wandered away from the faith and pierced themselves with many
   pangs. (ESV)
 
-4.4.4. We must actually make following Jesus a reality to take hold of the eternal life to which we are called
+4.4.5. We must actually make following Jesus a reality to take hold of the eternal life to which we are called
 
 We make the confession, but we must then take hold of it.
 
@@ -26017,6 +26117,10 @@ at this point with my reasoning, because I'm serious about sanctification, and I
   sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body
   go into hell. (ESV)
 
+Quote by John Piper
+"You can't cast one devil out and leave the cravings of your heart empty - seven will return. You must fill your
+life with God, the glory and excellency of God."
+
 51.2.2. We should not be thieves and robbers
 
 What I mean is we should not steal from God, even when Jesus has made us born-again and baptised in the Holy
@@ -37987,7 +38091,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 18:22
+Created: 2024-07-16 Tue 19:23
 
 Validate
 
