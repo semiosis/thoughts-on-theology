@@ -983,6 +983,88 @@ Obedience is important:
   the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
   because it had been well built. (ESV)
 
+Our obedience is not without trust. We obey because we trust God - we obey out of faith in God:
+
+  Jeremiah 17:5-8 - Thus says the LORD: Cursed is the man who trusts in man and makes flesh his strength, whose
+  heart turns away from the LORD. He is like a shrub in the desert, and shall not see any good come. He shall
+  dwell in the parched places of the wilderness, in an uninhabited salt land. Blessed is the man who trusts in the
+  LORD, whose trust is the LORD. He is like a tree planted by water, that sends out its roots by the stream, and
+  does not fear when heat comes, for its leaves remain green, and is not anxious in the year of drought, for it
+  does not cease to bear fruit. (ESV)
+
+Our obedience is in the heart. We want to obey because we love Jesus (we will to):
+
+  Luke 10:25-37 - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to
+  inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall
+  love the Lord your God with all your heart and with all your soul and with all your strength and with all your
+  mind, and your neighbor as yourself. And he said to him, You have answered correctly; do this, and you will
+  live. But he, desiring to justify himself, said to Jesus, And who is my neighbor? Jesus replied, A man was going
+  down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving
+  him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other
+  side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan,
+  as he journeyed, came to where he was, and when he saw him, he had compassion. He went to him and bound up his
+  wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of
+  him. And the next day he took out two denarii and gave them to the innkeeper, saying, Take care of him, and
+  whatever more you spend, I will repay you when I come back. Which of these three, do you think, proved to be a
+  neighbor to the man who fell among the robbers? He said, The one who showed him mercy. And Jesus said to him,
+  You go, and do likewise. (ESV)
+
+|  2036     25             2962       3588     2316
+|  eipen    Agapeseis      Kyrion     ton      Theon
+|  ?????  , ?????????      ??????     ???      ????
+|  he said  You shall love [the] Lord the      God
+|  V-AIA-3S V-FIA-2S       N-AMS      Art-AMS  N-AMS
+|          +-------+
+|  4771    |1537   | 3650     3588     2588     4771
+|  sou     |ex  <--+ holes    tes      kardias  sou
+|  ???     |??     | ????     ???      ???????  ???  ,
+|   of you  |with   | all      the      heart    of you
+|   PPro-G2S|Prep   | Adj-GFS  Art-GFS  N-GFS    PPro-G2S
+|           +-------+
+|   2532    |1722   | 3650     3588     5590     4771
+|   kai     |en     | hole     te       psyche   sou
+|   ???     |??     | ???      ??       ????     ???  ,
+|   and     |with   | all      the      soul     of you
+|   Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
+|           |       |
+|   2532    |1722   | 3650     3588     2479     4771
+|   kai     |en     | hole     te       ischui   sou
+|   ???     |??     | ???      ??       ?????    ???  ,
+|   and     |with   | all      the      strength of you
+|   Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
+|           |       |
+|   2532    |1722   | 3650     3588     1271     4771
+|   kai     |en     | hole     te       dianoia  sou
+|   ???     |??     | ???      ??       ???????  ???
+|   and     |with   | all      the      mind     of you
+|   Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
+|           |       |
+|   2532    |3588   | 4139     4771     5613     4572
+|   kai     |Ton    | plesion  sou      hos      seauton
+|   ???     |???    | ???????  ???      ??       ???????  .
+|   and     |The    | neighbor of you   as       yourself
+|   Conj    |Art-AMS| Adv      PPro-G2S Adv      PPro-AM2S
+|           +-------+
+
+youtube.com: The Joy of the Puritans
+
+Love for God is from the heart. Now, Luke's version of the great commandment gives a clue that that's the case.
+Luke's version: Just to read it now in the ESV, the lawyer expresses this and Jesus approves it, "You shall love
+the Lord your God with all your heart, with all your soul, with all your strength, with all your mind" but that
+translation isn't exactly right. Because those four prepositional phrases in the English are all the same, and in
+Greek they're not. The first one heart has a different preposition than the other three. It has the preposition EX
+"from or out-of" and the others are all EN "in or with/by".
+
+So literally I would say it goes like this, "You shall love the Lord your God from (or out of) your heart, with
+your soul, and with your strength and with your mind." Now, why does that matter?
+
+That's a clue, that's a that's a hint that the human heart is unique in its role that it plays in loving God.
+
+Quote by John Piper
+The essence of love is heart work, not mind work.
+
+AMEN.
+
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are in
 Him:
 
@@ -38367,7 +38449,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-16 Tue 22:12
+Created: 2024-07-16 Tue 22:35
 
 Validate
 

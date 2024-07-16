@@ -606,6 +606,77 @@ Obedience is important:
 
 > **[Luke 6:46-48](https://www.biblegateway.com/passage/?search=Luke%206%3A46-48&version=ESV)** - Why do you call me Lord, Lord, and not do what I tell you? **Everyone who comes to me and hears my words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid the foundation on the rock**. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. (ESV)
 
+Our obedience is not without trust. We obey because we trust God - we obey out of faith in God:
+
+> **Jeremiah 17:5-8** - Thus says the LORD: Cursed is the man who trusts in man and makes flesh his strength, whose heart turns away from the LORD. He is like a shrub in the desert, and shall not see any good come. He shall dwell in the parched places of the wilderness, in an uninhabited salt land. Blessed is the man who trusts in the LORD, whose trust is the LORD. He is like a tree planted by water, that sends out its roots by the stream, and does not fear when heat comes, for its leaves remain green, and is not anxious in the year of drought, for it does not cease to bear fruit. (ESV)
+
+Our obedience is in the heart. We want to obey because we love Jesus (we will to):
+
+> **Luke 10:25-37** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have answered correctly; do this, and you will live. But he, desiring to justify himself, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, he had compassion. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, Take care of him, and whatever more you spend, I will repay you when I come back. Which of these three, do you think, proved to be a neighbor to the man who fell among the robbers? He said, The one who showed him mercy. And Jesus said to him, You go, and do likewise. (ESV)
+
+     1  2036     25             2962       3588     2316
+     2  eipen    Agapēseis      Kyrion     ton      Theon
+     3  εἶπεν  , Ἀγαπήσεις      Κύριον     τὸν      Θεόν
+     4  he said  You shall love [the] Lord the      God
+     5  V-AIA-3S V-FIA-2S       N-AMS      Art-AMS  N-AMS
+     6          +-------+
+     7  4771    |1537   | 3650     3588     2588     4771
+     8  sou     |ex  <--+ holēs    tēs      kardias  sou
+     9  σου     |ἐξ     | ὅλης     τῆς      καρδίας  σου  ,
+    10  of you  |with   | all      the      heart    of you
+    11  PPro-G2S|Prep   | Adj-GFS  Art-GFS  N-GFS    PPro-G2S
+    12          +-------+
+    13  2532    |1722   | 3650     3588     5590     4771
+    14  kai     |en     | holē     tē       psychē   sou
+    15  καὶ     |ἐν     | ὅλῃ      τῇ       ψυχῇ     σου  ,
+    16  and     |with   | all      the      soul     of you
+    17  Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
+    18          |       |
+    19  2532    |1722   | 3650     3588     2479     4771
+    20  kai     |en     | holē     tē       ischui   sou
+    21  καὶ     |ἐν     | ὅλῃ      τῇ       ἰσχύϊ    σου  ,
+    22  and     |with   | all      the      strength of you
+    23  Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
+    24          |       |
+    25  2532    |1722   | 3650     3588     1271     4771
+    26  kai     |en     | holē     tē       dianoia  sou
+    27  καὶ     |ἐν     | ὅλῃ      τῇ       διανοίᾳ  σου
+    28  and     |with   | all      the      mind     of you
+    29  Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
+    30          |       |
+    31  2532    |3588   | 4139     4771     5613     4572
+    32  kai     |Ton    | plēsion  sou      hōs      seauton
+    33  καὶ     |Τὸν    | πλησίον  σου      ὡς       σεαυτόν  .
+    34  and     |The    | neighbor of you   as       yourself
+    35  Conj    |Art-AMS| Adv      PPro-G2S Adv      PPro-AM2S
+    36          +-------+
+
+-   **[youtube.com: The Joy of the Puritans](https://www.youtube.com/watch?v=iEkEihkqI9I):** **Love for God is from the heart**. Now,
+    Luke's version of the great commandment gives a clue that that's the case.
+    Luke's version: Just to read it now in the ESV,
+    the lawyer expresses this and Jesus approves it, "You
+    shall love the Lord your God with all your heart, with all your soul, with all your strength, with all your mind"
+    *but that translation isn't exactly right*.
+    Because those four prepositional phrases
+    in the English are all the same, and in Greek they're **not**.
+    The first one **heart has a different preposition than the other three**.
+    It has the preposition EX "from or out-of"
+    and the others are all EN "in or with/by".
+    
+    So literally I would say it goes like this,
+    "You shall love the Lord your God **from (or out of) your heart**,
+    with your soul, and with your strength
+    and with your mind." Now, why does that
+    matter?
+    
+    That's a clue, that's a that's a hint
+    that the human heart is unique
+    in its role that it plays in loving God.
+
+-   **[Quote by John Piper](https://www.youtube.com/watch?v=iEkEihkqI9I):** The essence of love is heart work, not mind work.
+
+AMEN.
+
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are **in** Him:
 
 > **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
