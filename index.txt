@@ -36936,8 +36936,10 @@ I realise what has happened regarding me and relationships is messy and the need
 I offer it to anyone.
 
 Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of
-righteousness, peace and joy in the Holy Spirit, but God is the only one who can solve this for me. At the end of
-the day, it's good conscience with God I am after and sanctification:
+righteousness, peace and joy in the Holy Spirit, and I have felt like I have had my blessings stolen from me by
+the enemy, but God is the only one who can solve this for me, but I do have peace and righteousness in the Holy
+Spirit, and baseline joy which is derived from a good conscience with God. At the end of the day, it's good
+conscience with God I am after and sanctification:
 
   Romans 14:17-18 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
   and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
@@ -38806,7 +38808,7 @@ Date: 2024-07-18 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 18:43
+Created: 2024-07-18 Thu 18:58
 
 Validate
 
