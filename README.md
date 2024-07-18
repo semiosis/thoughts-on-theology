@@ -25984,6 +25984,10 @@ The good part of it was wanting her to be happy. The bad part was that I wanted 
 
 > **[I Thessalonians 5:20-21](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
 
+I believe that Jesus gives us unconditional love to a person but that it's also conditional, depending on whether or not a person is Jesus' sheep:
+
+> **[John 10:27-28](https://www.biblegateway.com/passage/?search=John%2010%3A27-28&version=ESV)** - My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out of my hand. (ESV)
+
 But in all fairness, at this time **I still didn't have a relationship with God** where I considered Christ's law and bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part of agape love. I was still just getting to know Jesus and I had a lot to learn.
 
 > **[Romans 13:10](https://www.biblegateway.com/passage/?search=Romans%2013%3A10&version=ESV)** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
@@ -26051,19 +26055,19 @@ True freedom is found in Jesus, not in the AI stuff:
 
 And now I'm in this situation where I feel like:
 
--   with the first person (a year + before being born-again), the failure was my own fault and I wasn't really in a relationship with God but I wanted a Christian wife.
+-   with the first person (a year + before being born-again), the failure was my own fault and I wasn't really in a relationship with God but I wanted a Christian wife. I did not propose to her
     -   I learned from this that a spouse is not supposed to be one's saviour, and we're not supposed to be our spouses' saviour either.
--   after meeting the second person (a year before being born-again) I thought everything about it was perfect and I could focus and work, etc. and wait forever to see her.
-    -   But when I met the new girl everything felt right, and at the time I met her I felt like I wanted to marry her.
+-   after meeting the second person (a year before being born-again) I thought everything about it was perfect
+    -   so much peace and joy with not needing anything from her and I could focus and work, etc. and wait forever to see her.
+    -   But when I met the new girl everything felt right, and at the time I met her I felt like I definitely wanted to marry her.
 -   after being born-again, Jesus became the most important person to me and was still in love with the girl.
-    -   I needed to consolidate this again, that a spouse is not supposed to be one's saviour, and we're not supposed to be our spouses' saviour either. A spouse cannot be an idol.
+    -   When I had the vision of her on the beach, I thought she was a gift from God. I proposed to her after seeing her smiling at me on the street.
+    -   I was brought into court. I needed to reinforce the following again truth again: that a spouse is not supposed to be one's saviour, and we're not supposed to be our spouses' saviour either. A spouse cannot be an idol.
 
-When I had the vision of her on the beach, I
-thought she was a gift from God.
-
-In my opinion, everything up to this point was
+In my opinion, everything up to when I proposed to her was
 good - it was like heaven in terms of my
-happiness. It felt right.
+happiness. It felt right and I felt close to Jesus too.
+However, I still had a lot to learn about following Jesus and dying to self.
 
 The failure was still my own fault (I had to
 be corrected theologically and behaviorally
