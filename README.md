@@ -10591,6 +10591,14 @@ Sow your own life as an investment for Jesus' sake:
 
 -   **[St. Theophan the Recluse (1815-1894)](https://classicalchristianity.com/2013/02/09/on-human-freedom/):** The goal of human freedom is not freedom itself… but in God… with the intention that man would voluntarily bring it as a sacrifice to God, a most pleasing offering. (St. Theophan’s “Path to Salvation” Topical Compendium, 169)
 
+-   **[youtube.com: Nothing Can Separate Us from Christ's Love](https://www.youtube.com/watch?v=Xl4Xr7tAZPA):** You are so
+    *secure* in Jesus that you are so *bound* to
+    him that he has you so *firmly* that His
+    promises are so *precious* and so *glorious*
+    and your destiny in him is so *firm* and
+    so *fixed* and so *assured* <ins>that you can actually give your life away</ins> - give it
+    away for others.
+
 Seek God:
 
 > **[Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A6&version=ESV)** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him. (ESV)
@@ -18979,6 +18987,10 @@ Here's the grace. I choose to interpret this in this way, and I claim it because
 > **[Isaiah 56:11](https://www.biblegateway.com/passage/?search=Isaiah%2056%3A11&version=ESV)** - The **dogs** have a mighty appetite; they never have enough. But they are shepherds who have no understanding; <ins>they have all turned to their own way, each to his own gain, one and all</ins>.
 
 > **[Philippians 3:2-3](https://www.biblegateway.com/passage/?search=Philippians%203%3A2-3&version=ESV)** - Look out for the <ins>dogs, look out for the evildoers</ins>, look out for those who mutilate the flesh. For we are the real circumcision, who worship by the Spirit of God and glory in Christ Jesus and put no confidence in the flesh—
+
+It's not of my own interpretation though:
+
+> **[II Peter 1:20-21](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A20-21&version=ESV)** - knowing this first of all, that no prophecy of Scripture comes from someone's own interpretation. For no prophecy was ever produced by the will of man, but men spoke from God as they were carried along by the Holy Spirit. (ESV)
 
 1.  God's original design is male and female union and also the law reflects the spiritual reality
 

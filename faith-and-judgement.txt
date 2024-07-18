@@ -15714,6 +15714,11 @@ St. Theophan the Recluse (1815-1894)
 The goal of human freedom is not freedom itself... but in God... with the intention that man would voluntarily bring
 it as a sacrifice to God, a most pleasing offering. (St. Theophan's "Path to Salvation" Topical Compendium, 169)
 
+youtube.com: Nothing Can Separate Us from Christ's Love
+You are so secure in Jesus that you are so bound to him that he has you so firmly that His promises are so
+precious and so glorious and your destiny in him is so firm and so fixed and so assured that you can actually give
+your life away - give it away for others.
+
 Seek God:
 
   Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
@@ -27420,6 +27425,12 @@ Here's the grace. I choose to interpret this in this way, and I claim it because
   flesh. For we are the real circumcision, who worship by the Spirit of God and glory in Christ Jesus and put no
   confidence in the flesh-
 
+It's not of my own interpretation though:
+
+  II Peter 1:20-21 - knowing this first of all, that no prophecy of Scripture comes from someone's own
+  interpretation. For no prophecy was ever produced by the will of man, but men spoke from God as they were
+  carried along by the Holy Spirit. (ESV)
+
  1. God's original design is male and female union and also the law reflects the spiritual reality
 
   I do not actually know what 'astral projection is'. I just googled for whatever I could find to describe it.
@@ -38842,7 +38853,7 @@ Date: 2024-07-18 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 20:29
+Created: 2024-07-18 Thu 21:17
 
 Validate
 
