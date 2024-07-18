@@ -144,9 +144,6 @@ straight for us:
   Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
   day of Jesus Christ. (ESV)
 
-Sermon
-youtube.com: What Is It Like to 'Know Christ'?
-
 David Mathis
 "Don't think that becoming like Jesus in his death means that Paul is anticipating that he himself will be
 crucified, or that we will be crucified, but that he wants us to know Christ as we live in the pattern in which he
@@ -161,6 +158,15 @@ God in Christ Jesus may result in some being martyred.
 
   John 21:19 - (This he said to show by what kind of death he was to glorify God.) And after saying this he said
   to him, Follow me. (ESV)
+
+We must act out our new nature:
+
+youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec
+So when Paul says, "Put it on, this new nature, he means, 'Act it out'." If you have been created anew after the
+likeness of God clothe yourselves with godly garments. Now what is clothing? Clothing is what people see. When you
+put clothing around yourself you give something for people to look at that's presentable. So when Paul says
+"clothe yourselves, put on your new nature," he means, "let that inner reality that God has created work itself
+out invisible actions and behaviors and attitudes. Become what you are within."
 
 Jesus follows us and supports us:
 
@@ -10301,6 +10307,16 @@ Absolutely:
 
   I Peter 4:17 - For it is time for judgment to begin at the household of God; and if it begins with us, what will
   be the outcome for those who do not obey the gospel of God? (ESV)
+
+youtube.com: Keep Rejoicing @time: 6 min 1 sec
+For it is time for judgment to begin with the household of God. You see the purposefulness in suffering? Now, this
+is God's judgment upon the church, in this text. For it is time for judgment to begin with the household of God
+and if it begins with us, Christians whom he loves with all of his heart and gave his son to die for, what will be
+the outcome of those who do not obey the gospel? So that Judgment of God is moving through the earth and it begins
+with churches. And the Judgment of God comes upon churches. Why? Because he hates us? Not at all. But because he
+loves us so much he will not spare us anything to get out of us what he hates. Did you get that? It's not because
+he hates us when a church or a Christian goes through times of darkness and trial. It's because he loves us so
+much he will spare us nothing to to get out of us what he hates, namely sin.
 
   Matthew 5:21-22 - You have heard that it was said to those of old, You shall not murder; and whoever murders
   will be liable to judgment. But I say to you that everyone who is angry with his brother will be liable to
@@ -37966,32 +37982,16 @@ That means that when I turn up in heaven I'll have 'clothes' so I can enter - th
   there will be weeping and gnashing of teeth. (ESV)
 
 youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec
+So when Paul says, "Put it on, this new nature, he means, 'Act it out'." If you have been created anew after the
+likeness of God clothe yourselves with godly garments. Now what is clothing? Clothing is what people see. When you
+put clothing around yourself you give something for people to look at that's presentable. So when Paul says
+"clothe yourselves, put on your new nature," he means, "let that inner reality that God has created work itself
+out invisible actions and behaviors and attitudes. Become what you are within." If the hidden spring has been
+purified let the visible streams run clean. But of course if the spring is purified the streams will run clean. If
+the tree is good the fruit will be good. Out of the abundance of the heart the mouth does speak. ... These choices
+are the obedience that confirm your calling and election and make it sure. ...
 
-So when Paul says, "Put it on, this new he means, "Act it out." If you have been created anew after the likeness
-of God clothe yourselves with godly garments.
-
-Now what is clothing?
-
-Clothing is what people see.
-
-When you put clothing around yourself you give something for people to look at that's presentable.
-
-So when Paul says "clothe yourselves, put on your new nature," he means, "let that inner reality that God has
-created work itself out invisible actions and behaviors and attitudes.
-
-Become what you are within." if the hidden spring has been purified let the visible streams run clean.
-
-But of course if the spring is purified the streams will run clean.
-
-If the tree is good the fruit will be good.
-
-Out of the abundance of the heart the mouth does speak.
-
-...
-
-These choices are the obedience that confirm your calling and election and make it sure.
-
-...
+youtube.com: Keep Rejoicing
 
 warning
 If we neglect to understand that the Christian life as it is lived out is a miracle, then all our pursuit of
@@ -38616,7 +38616,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 13:50
+Created: 2024-07-18 Thu 14:16
 
 Validate
 

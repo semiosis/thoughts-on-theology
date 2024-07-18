@@ -91,13 +91,28 @@ When we walk in trusting, believing, obedient faith, God works in us and to deli
 
 > **[Philippians 1:6](https://www.biblegateway.com/passage/?search=Philippians%201%3A6&version=ESV)** - And I am sure of this, that he who began a good work in you will bring it to completion at the day of Jesus Christ. (ESV)
 
--   **Sermon:** [youtube.com: What Is It Like to 'Know Christ'?](https://www.youtube.com/watch?v=0g2ExGC1GaE)
-
--   **David Mathis:** "Don't think that becoming like Jesus in his death means that Paul is anticipating that he himself will be crucified, or that we will be crucified, but that he wants us to know Christ as we live in the pattern in which he lived; That we would **have his heart**, we would **have his mind** (mindset). We would **know him by walking in that mind**, **in that heart**. That's the pattern Paul wants to be conformed to. And knowing Christ by sharing in his sufferings means <ins>walking in the footsteps of his self-humbling,</ins> and **experiencing Jesus' help and the fellowship of having Him near and His resurrection power on the path of our obedience when it's the hardest**".
+-   **[David Mathis](https://www.youtube.com/watch?v=0g2ExGC1GaE):** "Don't think that becoming like Jesus in his death means that Paul is anticipating that he himself will be crucified, or that we will be crucified, but that he wants us to know Christ as we live in the pattern in which he lived; That we would **have his heart**, we would **have his mind** (mindset). We would **know him by walking in that mind**, **in that heart**. That's the pattern Paul wants to be conformed to. And knowing Christ by sharing in his sufferings means <ins>walking in the footsteps of his self-humbling,</ins> and **experiencing Jesus' help and the fellowship of having Him near and His resurrection power on the path of our obedience when it's the hardest**".
 
 Very well put by David Mathis. I'd say that in obeying Christ and imitating Christ, we endeavour to be found in Him, and He is our righteousness, and He is also our strength. However, I still believe that the upward call of God in Christ Jesus may result in some being martyred.
 
 > **[John 21:19](https://www.biblegateway.com/passage/?search=John%2021%3A19&version=ESV)** - (This he said to show by what kind of death he was to glorify God.) And after saying this he said to him, Follow me. (ESV)
+
+We must act out our new nature:
+
+-   **[youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** So when Paul says, "Put it on, this new nature, he means,
+    'Act it out'." If you have been
+    created anew after the likeness of God
+    clothe yourselves with godly garments.
+    Now what is clothing?
+    Clothing is what people see.
+    When you put clothing around yourself you
+    give something for people to look at
+    that's presentable.
+    So when Paul says "clothe yourselves, put
+    on your new nature," he means, "let that
+    inner reality that God has created work
+    itself out invisible actions and behaviors
+    and attitudes. Become what you are within."
 
 Jesus follows us and supports us:
 
@@ -683,7 +698,7 @@ AMEN.
 
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are **in** Him:
 
-> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
+> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as **the truth is in Jesus**, (ESV)
 
 Therefore, even before I was noticeably "born-again of the water and the Spirit" in 2022, I had begun to try to practice Jesus' commandments in 2020/2021 in an effort to seek God, Jesus must have been already working in me, but I say this to explain how I believe that it might be quite hard to pinpoint the starting point, but we know that it's God's grace through faith (believing, obedient, trusting faith) that it happens, but that doesn't mean believing and obeying Jesus are not important to receive the Holy Spirit, because they are.
 
@@ -6889,6 +6904,35 @@ Absolutely:
 
 > **[I Peter 4:17](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A17&version=ESV)** - For **it is time for judgment to begin at the household of God**; and if it begins with us, what will be the outcome for those who do not obey the gospel of God? (ESV)
 
+-   **[youtube.com: Keep Rejoicing @time: 6 min 1 sec](https://youtube.com/watch?v=dwOm7kov7r0&t=361):** For it is time for judgment to begin
+    with the household of God.
+    You see the purposefulness in suffering?
+    Now, this is God's judgment upon the
+    church, in this text.
+    For it is time for judgment to begin with
+    the household of God and if it begins with
+    us, Christians whom he loves with all of
+    his heart and gave his son to die for,
+    what will be the outcome of those who do
+    not obey the gospel?
+    So that Judgment of God is moving through
+    the earth and it begins with churches.
+    And the Judgment of God comes upon
+    churches.
+    Why?
+    Because he hates us?
+    Not at all.
+    But because he loves us so much he will
+    not spare us anything to get out of us
+    what he hates.
+    Did you get that?
+    It's not because he hates us when a church
+    or a Christian goes through times of
+    darkness and trial.
+    It's because he loves us so much he will
+    spare us nothing to to get out of us what
+    he hates, namely sin.
+
 > **[Matthew 5:21-22](https://www.biblegateway.com/passage/?search=Matthew%205%3A21-22&version=ESV)** - You have heard that it was said to those of old, You shall not murder; and whoever murders will be liable to judgment. But I say to you that everyone who is angry with his brother will be liable to judgment; whoever insults his brother will be liable to the council; and whoever says, You fool! will be liable to the hell of fire. (ESV)
 
 > **[Ephesians 5:5-7](https://www.biblegateway.com/passage/?search=Ephesians%205%3A5-7&version=ESV)** - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them;
@@ -12092,7 +12136,7 @@ These do not contradict:
     -   The Scripture (Torah) does not contradict
     -   **[Psalms 119:160](https://www.biblegateway.com/passage/?search=Psalms%20119%3A160&version=ESV)** - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
     -   **[John 17:17](https://www.biblegateway.com/passage/?search=John%2017%3A17&version=ESV)** - Sanctify them in the truth; your word is truth. (ESV)
--   [Jesus Christ is the Word of God](https://www.youtube.com/watch?v=buZm8hUguEc&ab_channel=DesiringGod), who has come into the world in the flesh
+-   **[Jesus Christ is the Word of God](https://www.youtube.com/watch?v=buZm8hUguEc&ab_channel=DesiringGod), who has come into the world in the flesh**
     -   Emmanuel
     -   **[Isaiah 7:14](https://www.biblegateway.com/passage/?search=Isaiah%207%3A14&version=ESV)** - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. (ESV)
 -   **The Spirit of Truth is the Truth**
@@ -12101,11 +12145,11 @@ These do not contradict:
     -   **[Isaiah 9:6](https://www.biblegateway.com/passage/?search=Isaiah%209%3A6&version=ESV)** - For to us a child is born, to us a son is given; and the government shall be upon his shoulder, and his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. (ESV)
     -   **[Jeremiah 32:17-18](https://www.biblegateway.com/passage/?search=Jeremiah%2032%3A17-18&version=ESV)** - Ah, Lord GOD! It is you who has made the heavens and the earth by your great power and by your outstretched arm! Nothing is too hard for you. You show steadfast love to thousands, but you repay the guilt of fathers to their children after them, O great and mighty God, whose name is the LORD of hosts, (ESV)
 
-> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
+> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as **the truth is in Jesus**, (ESV)
 
 -   **Read:** <https://www.scriptureway.com/home/jesus-is-the-truth>
 
--   **[Quote by R. C. Sproul](https://www.ligonier.org/learn/devotionals/god-truth/):** "Truth is not defined by our own subjective standards; it is determined by the Source of truth Himself"
+-   **[Quote by R. C. Sproul](https://www.ligonier.org/learn/devotionals/god-truth/):** "Truth is not defined by our own subjective standards; it is determined by the Source of truth **Himself**"
 
 
 ### Jesus is noticeably present with us as we believe and affirm and obey the Truth
@@ -18323,7 +18367,7 @@ I currently am praying for God to do a miracle to fix everything, and I know my 
 
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are **in** Him:
 
-> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
+> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as **the truth is in Jesus**, (ESV)
 
 Therefore, even before I was noticeably "born-again of the water and the Spirit" in 2022, I had begun to try to practice Jesus' commandments in 2020/2021 in an effort to seek God, Jesus must have been already working in me, but I say this to explain how I believe that it might be quite hard to pinpoint the starting point, but we know that it's God's grace through faith (believing, obedient, trusting faith) that it happens, but that doesn't mean believing and obeying Jesus are not important to receive the Holy Spirit, because they are.
 
@@ -26846,45 +26890,37 @@ That means that when I turn up in heaven I'll have 'clothes' so I can enter - th
 
 > **[Matthew 22:11-13](https://www.biblegateway.com/passage/?search=Matthew%2022%3A11-13&version=ESV)** - But when the king came in to look at the guests, he saw there a man who had no wedding garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness. In that place there will be weeping and gnashing of teeth. (ESV)
 
--   **[youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** So when Paul says, "Put it on, this new     he means, "Act it out." If you have been
+-   **[youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** So when Paul says, "Put it on, this new nature, he means,
+    'Act it out'." If you have been
     created anew after the likeness of God
     clothe yourselves with godly garments.
-    
     Now what is clothing?
-    
     Clothing is what people see.
-    
     When you put clothing around yourself you
     give something for people to look at
     that's presentable.
-    
     So when Paul says "clothe yourselves, put
     on your new nature," he means, "let that
     inner reality that God has created work
     itself out invisible actions and behaviors
     and attitudes.
-    
-    Become what you are within." if the hidden
+    Become what you are within." If the hidden
     spring has been purified let the visible
     streams run clean.
-    
     But of course if the spring is purified
     the streams will run clean.
-    
     If the tree is good the fruit will be
     good.
-    
     Out of the abundance of the heart the
     mouth does speak.
-    
     &#x2026;
-    
     These choices are the obedience
     that confirm your calling and election
     and make it
     sure.
-    
     &#x2026;
+
+[youtube.com: Keep Rejoicing](https://youtube.com/watch?v=dwOm7kov7r0)
 
 -   **[**warning**](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** If we neglect to understand that the
     Christian life as it is lived out is a
@@ -27033,7 +27069,7 @@ Likewise, there was also a lot of resistance, spiritually, to repenting from sin
 I had to acknowledge certain beliefs and behaviour in my life was not what God's will was for me, and turn away from the bad beliefs and behaviour,
 and I want to continue learning Christ:
 
-> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
+> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as **the truth is in Jesus**, (ESV)
 
 Trust and obey:
 
