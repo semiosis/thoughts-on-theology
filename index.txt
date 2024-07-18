@@ -42,6 +42,14 @@ Christ Jesus. I consider any so-called god which is in rebellion to Christ to be
   are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under
   him, that God may be all in all. (ESV)
 
+I'm trying to side with Jesus over issues regarding the evil which is still present in the world and "hate the
+sin, not the sinner", and starting by first taking a look at my own problems but by no means endorsing sinful
+things even things I consider I do which are sinful, I don't endorse them for myself either:
+
+  John 7:6-8 - Jesus said to them, My time has not yet come, but your time is always here. The world cannot hate
+  you, but it hates me because I testify about it that its works are evil. You go up to the feast. I am not going
+  up to this feast, for my time has not yet fully come. (ESV)
+
   I agree whole heartedly with Keith Green here:
 
     o youtube.com: Keith Green 1978 : Make My Life A Prayer to You {live}
@@ -1590,7 +1598,7 @@ obedient to end (turn away from) the bad works:
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
 
-We just turn away from doing satan's will and doing God's will:
+We just turn away from doing satan's will and turn torwards doing God's will:
 
   Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
   God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
@@ -4726,13 +4734,19 @@ The thoughts that go through our minds must be:
   distribute to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
 
 You can't follow Jesus Christ's instructions in faith while asking OpenAI if it's OK. You can not be led by God
-and be led by an AI such as ChatGPT.
+and be led by an AI such as ChatGPT. You can not be led by God and be led by a Neuralink chip.
 
   Matthew 8:22 - And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
 
 We have the Word of God. We can also walk in Jesus' commandments. We've got to be yoked to Jesus Christ.
 
 God can speak to us directly without internet, even through His Spirit, even in a dream.
+
+  John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
+  through me. (ESV)
+
+youtube.com: Christ is Enough - Hillsong Worship | LYRIC VIDEO
+Christ is enough for me. Everything I need is in You.
 
 4.4.2. Make friends with charity while money hasn't yet failed
 
@@ -17737,15 +17751,43 @@ It's false to say that 'all spirit is true' and body and soul are false.
 These do not contradict:
 
 - Jesus is the Truth
+- Matthew 5:17 - Do not think that I have come to abolish the Law or the Prophets; I have not come to
+abolish them but to fulfill them. (ESV)
+- John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father
+except through me. (ESV)
 - Jesus' words are Truth and Life
-- God's word is truth
+- John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to
+you are spirit and life. (ESV)
+- God's word is truth. The sum of our Creator's word is Truth
 - The Scripture (Torah) does not contradict
+- Psalms 119:160 - The sum of your word is truth, and every one of your righteous rules endures forever.
+(ESV)
+- John 17:17 - Sanctify them in the truth; your word is truth. (ESV)
 - Jesus Christ is the Word of God, who has come into the world in the flesh
 - Emmanuel
+- Isaiah 7:14 - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear
+a son, and shall call his name Immanuel. (ESV)
 - The Spirit of Truth is the Truth
+- I John 5:6 - This is he who came by water and blood-Jesus Christ; not by the water only but by the water
+and the blood. And the Spirit is the one who testifies, because the Spirit is the truth. (ESV)
+- Jesus is God
+- Isaiah 9:6 - For to us a child is born, to us a son is given; and the government shall be upon his
+shoulder, and his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of
+Peace. (ESV)
+- Jeremiah 32:17-18 - Ah, Lord GOD! It is you who has made the heavens and the earth by your great power
+and by your outstretched arm! Nothing is too hard for you. You show steadfast love to thousands, but you
+repay the guilt of fathers to their children after them, O great and mighty God, whose name is the LORD
+of hosts, (ESV)
+- https://www.scriptureway.com/home/jesus-is-the-truth
+- Quote by R. C. Sproul
+">"Truth is not defined by our own subjective standards; it is determined by the Source of truth Himself"
+
+  Ephesians 4:20-21 - But that is not the way you learned Christ!- assuming that you have heard about him and were
+  taught in him, as the truth is in Jesus, (ESV)
 
 20.3.1. Jesus is noticeably present with us as we believe and affirm and obey the Truth
 
+Sermon
 youtube.com: How to Seek the Holy Spirit @time: 19 min 20 sec
 
 The work of the Holy Spirit is to cause you to remember Him (Jesus) and with the eyes of the heart Ephesians 1:17
@@ -18793,11 +18835,15 @@ applies. We live in faith as we are serving Jesus:
   into a person from outside cannot defile him, since it enters not his heart but his stomach, and is expelled?
   (Thus he declared all foods clean.) (ESV)
 
-We should seek to build one another up rather than damage our neighbour's faith on issues of of law compliance. If
-they serve Christ they are acceptable to God:
+We should seek to build one another up rather than damage our neighbour's faith in Jesus by issues of of law
+compliance. If they serve Christ they are acceptable to God:
 
   I Corinthians 10:23 - All things are lawful, but not all things are helpful. All things are lawful, but not all
   things build up. (ESV)
+
+The work of God in trusting in Jesus:
+
+  John 6:29 - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
 
 If they hold a good conscience with God and hold genuine faith in Jesus Christ, we don't want to damage that. If
 they're fulfilling Christ's law (i.e. loving one another with Christ's love), that should be acceptable to the
@@ -18805,6 +18851,9 @@ brethren:
 
   Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
   law. (ESV)
+
+  II Corinthians 3:6 - who has made us competent to be ministers of a new covenant, not of the letter but of the
+  Spirit. For the letter kills, but the Spirit gives life. (ESV)
 
 I still think that fulfilling Christ's law is important but actually the most important thing is having a saving
 faith in Jesus which is trusting on God's promises, and we have Jesus' righteousness if we are found in Jesus:
@@ -25844,6 +25893,12 @@ Light and darkness do not gel:
   II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
   lawlessness? Or what fellowship has light with darkness? (ESV)
 
+This is why light and darkness do not go together because the whole point is to turn away from darkness:
+
+    o Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+      God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me.
+      (ESV)
+
 Another reason would be that there is resistance to be expected when wanting to live faithfully to God in Christ,
 and I was being saved, and the devil didn't want me to be saved, and wanted to keep me in darkness, and in
 hopelessness, and not in the freedom of Jesus' Spirit:
@@ -25925,16 +25980,17 @@ for me has become 'socially unacceptable', then only God can save me. Worldly pe
   John 10:10 - The thief comes only to steal and kill and destroy. I came that they may have life and have it
   abundantly. (ESV)
 
-The Bible doesn't say that marriage among consenting adults with large age gap is immoral or forbidden, as far as
-I understand, although I need to do a more comprehensive Bible study and perhaps pray about it. But thus far I
-haven't found anything and God hasn't said anything against it to me as far as I know. Gay marriage, however, is
-not blessed at all.
+The Bible doesn't say that marriage among consenting adults with large age gap is immoral or forbidden [in
+itself], as far as I understand, although I need to do a more comprehensive Bible study and perhaps pray about it.
+But thus far I haven't found anything and God hasn't said anything against it to me as far as I know. Gay
+marriage, however, is not blessed at all.
 
 While I agree that lust, and impure motivations disqualify a relationship being seen as Biblically acceptable,
 there are certain things I think are not intrinsically wrong, such as marriage between consenting adults with an
 age gap.
 
-Worldly people will always discriminate against people who desire to live according to the Bible:
+Worldly people will always discriminate against people who desire to live according to the Bible, and I don't mean
+obeying the law by works but by obeying it in faith:
 
   II Timothy 3:12-13 - Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, while evil
   people and impostors will go on from bad to worse, deceiving and being deceived. (ESV)
@@ -25959,11 +26015,23 @@ obedient to Jesus Christ:
 
   Galatians 5:18 - But if you are led by the Spirit, you are not under the law. (ESV)
 
+But if you think I'm wrong then please help correct me but please back it up with Scripture because I want to be
+sanctified by the Truth.
+
 And even if I sin from time to time, especially as a consequence of being in a difficult situation due to
-persecution, I won't accept accusations or condemnation for that, because I'm following Jesus:
+persecution, I won't accept accusations or condemnation for that, because I'm [trying to] follow Jesus, and I
+accept the need for repentance and correction:
 
   Galatians 2:17 - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ
   then a servant of sin? Certainly not! (ESV)
+
+I'm trying to side with Jesus over issues regarding the evil which is still present in the world and "hate the
+sin, not the sinner", and starting by first taking a look at my own problems but by no means endorsing sinful
+things even things I consider I do which are sinful, I don't endorse them for myself either:
+
+  John 7:6-8 - Jesus said to them, My time has not yet come, but your time is always here. The world cannot hate
+  you, but it hates me because I testify about it that its works are evil. You go up to the feast. I am not going
+  up to this feast, for my time has not yet fully come. (ESV)
 
 Also, I stress this verse again because if you're obeying God then the Mosaic law isn't meant for others to use it
 against you to condemn you. Literally, if your heart's in the right place, and you're being obedient to Jesus
@@ -26026,6 +26094,9 @@ manifested too with the actual church attacking me:
 I've been getting pounded with antichrist dreams, voices and prodings during my sleep daily for well over a year,
 and have often found myself being tested throughout the day and I've been using the Bible to fight back and defend
 against it and trying to be obedient to Jesus.
+
+It helps when I am pro-active and pray to God before bed asking Him for a good night's rest and also leave prayers
+and scriptures written down next to or on me when I sleep.
 
 All of that spiritual attack I have received pales in comparison to the depression from having my joy taken from
 me.
@@ -26195,6 +26266,9 @@ being allowed to marry or at least to being "betrothed" (people should be allowe
 even if they have no assets, and no job).
 
 "Having God" is a much better prerequisite.
+
+youtube.com: Christ is Enough - Hillsong Worship | LYRIC VIDEO
+Christ is enough for me. Everything I need is in You.
 
 We shouldn't fight against God by making Him out to be not enough because God is all we need, and at the start of
 a marriage, it should really be founded on that type of faith.
@@ -26878,7 +26952,16 @@ those who are unrepentant from sexual immorality
   practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
   accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
 
-51.12. God's law is good. His precepts are good. I don't identify with any of this LGBT stuff
+51.12. God's law is good. His precepts are good. I don't identify with any of this LGBT stuff, and I am against
+licentiousness
+
+I'm trying to side with Jesus over issues regarding the evil which is still present in the world and "hate the
+sin, not the sinner", and starting by first taking a look at my own problems but by no means endorsing sinful
+things even things I consider I do which are sinful, I don't endorse them for myself either:
+
+  John 7:6-8 - Jesus said to them, My time has not yet come, but your time is always here. The world cannot hate
+  you, but it hates me because I testify about it that its works are evil. You go up to the feast. I am not going
+  up to this feast, for my time has not yet fully come. (ESV)
 
   Hebrews 13:4 - Let marriage be held in honor among all, and let the marriage bed be undefiled, for God will
   judge the sexually immoral and adulterous. (ESV)
@@ -30108,6 +30191,10 @@ Jesus follows us and supports us:
   followed them, and the Rock was Christ. (ESV)
 
  3. I wrote about following the law by faith, also law written on my heart.
+
+Quote
+"When Jesus said that he is the truth, he was saying that he is the embodiment and fulfillment of the Word of
+God, and that he is aletheia, reality, the opposite of what is false or illusion."
 
 https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/
 
@@ -37935,6 +38022,13 @@ Doing the will of God is important for inheriting the kingdom of God:
   Matthew 25:23 - His master said to him, Well done, good and faithful servant. You have been faithful over a
   little; I will set you over much. Enter into the joy of your master. (ESV)
 
+  Romans 6:22-23- But now that you have been set free from sin and have become slaves of God, the fruit you get
+  leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
+  eternal life in Christ Jesus our Lord. (ESV)
+
+  Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+  God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
+
 Quote from CH Spurgeon
 "Peace is joy resting, and joy is peace dancing"
 
@@ -38107,7 +38201,26 @@ resistance from other people to following Jesus' commandments.
 
 Likewise, there was also a lot of resistance, spiritually, to repenting from sin.
 
-72.11.4. We're persecuted for following Jesus
+72.11.4. I had to humble myself and repent
+
+I had to acknowledge certain beliefs and behaviour in my life was not what God's will was for me, and turn away
+from the bad beliefs and behaviour, and I want to continue learning Christ:
+
+  Ephesians 4:20-21 - But that is not the way you learned Christ!- assuming that you have heard about him and were
+  taught in him, as the truth is in Jesus, (ESV)
+
+Trust and obey:
+
+  II Timothy 3:12-17 - Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, while evil
+  people and impostors will go on from bad to worse, deceiving and being deceived. But as for you, continue in
+  what you have learned and have firmly believed, knowing from whom you learned it and how from childhood you have
+  been acquainted with the sacred writings, which are able to make you wise for salvation through faith in Christ
+  Jesus. All Scripture is breathed out by God and profitable for teaching, for reproof, for correction, and for
+  training in righteousness, that the man of God may be competent, equipped for every good work. (ESV)
+
+72.11.5. We're persecuted for following Jesus. We're persecuted for repentance
+
+  John 7:7 - The world cannot hate you, but it hates me because I testify about it that its works are evil. (ESV)
 
   Galatians 4:29 - But just as at that time he who was born according to the flesh persecuted him who was born
   according to the Spirit, so also it is now. (ESV)
@@ -38131,7 +38244,7 @@ in Jesus' power are entirely given by grace to us:
   and may fulfill every resolve for good and every work of faith by his power, so that the name of our Lord Jesus
   may be glorified in you, and you in him, according to the grace of our God and the Lord Jesus Christ. (ESV)
 
-72.11.5. Believers will marvel. The saints will do good works which glorify Jesus, all done in God's grace
+72.11.6. Believers will marvel. The saints will do good works which glorify Jesus, all done in God's grace
 
 Is there a subtle difference between 'believer' and 'saint'? Saints keep the commandments of God.
 
@@ -38494,7 +38607,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-17 Wed 00:58
+Created: 2024-07-18 Thu 13:15
 
 Validate
 
