@@ -22181,7 +22181,9 @@ John Piper's explanation of the rapture I affirm:
 
 -   [What Is the Rapture? - YouTube](https://www.youtube.com/watch?v=4UkAQOi3QPg)
 
-I'm a total believer in the rapture.
+I'm a total believer in the rapture. In fact, I believe that a person can be raptured by faith. I really wouldn't mind being raptured today <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-18 Thu&gt;</span></span>. The world lost its luster for me, and that is a good thing actually:
+
+> **[Hebrews 11:5](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A5&version=ESV)** - By faith Enoch was taken up so that he should not see death, and he was not found, because God had taken him. Now before he was taken he was commended as having pleased God. (ESV)
 
 > **[Revelation of John 3:10](https://www.biblegateway.com/passage/?search=Revelation%203%3A10&version=ESV)** - Because you have kept my word about patient endurance, I will keep you from the hour of trial that is coming on the whole world, to try those who dwell on the earth. (ESV)
 
@@ -26960,7 +26962,14 @@ But if there is a spirit-spouse manifesting spiritually and messing with me phys
 
 > The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is **the** Son of God.
 
-Yeah, I am at my limits to what I can endure. This has been going on every day for nearly 2 years. Any Christians out there pray for me please that God will stop allowing the evil spirits to attack me. It's an actual living hell. What's worse though is when other so-called Christians, rather than show support, actually shun me and push me out of the church like a leper. I have no idea why God is putting me through this hell.
+Yeah, I am at my limits to what I can endure.
+
+This has been going on every day for nearly 2
+years.
+
+Any Christians out there pray for me please
+that God will stop allowing the evil spirits
+to attack me.
 
 > **[Psalms 88:18](https://www.biblegateway.com/passage/?search=Psalms%2088%3A18&version=ESV)** - You have caused my beloved and my friend to shun me; my companions have become darkness. (ESV)
 
@@ -26968,7 +26977,22 @@ Yeah, I am at my limits to what I can endure. This has been going on every day f
 
 > **[Psalms 10:12](https://www.biblegateway.com/passage/?search=Psalms%2010%3A12&version=ESV)** - Arise, O LORD; O God, lift up your hand; forget not the afflicted. (ESV)
 
-Also, to "be holy as He is holy" when people deny relationships and marriage, and just heap on heavy burdens, asking even more of me, without lifting a finger to help, and then simultaneously I'm attacked with a spirit spouse at night, for example, and I'm supposed to just ignore it - well it feels like an impossibility to remain clean. So a complaint I have to Almighty God Jehovah is that remaining holy in all my conduct during the trial I have faced has felt impossibly difficult, and very graceless, and I've felt "under the pump", in constant spiritual warfare:
+Also, to "be holy as He is holy" when people
+deny relationships and marriage, and just heap
+on heavy burdens, asking even more of me,
+without lifting a finger to help, and then
+simultaneously I'm attacked with a spirit
+spouse at night, for example, and I'm supposed
+to just ignore it - well it feels like an
+impossibility to remain clean.
+
+So a complaint I have to Almighty God Jehovah
+is that remaining holy in all my conduct
+during the trial I have faced has felt
+impossibly difficult, and very graceless, and
+I've felt "under the pump", in constant
+spiritual warfare, and I have been constantly
+denied work and a marriage partner!
 
 > **[Colossians 2:18-21](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-21&version=ESV)** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (ESV)
 
@@ -26984,7 +27008,7 @@ I actually feel spiritually damaged/injured by what I've had to endure regarding
 
 With regards to the spirit spouse, it makes me feel very gross and it makes me feel [Psalm 22:1](https://www.biblegateway.com/passage/?search=Psalms%2022%3A1&version=ESV) forsaken by God - no joke.
 
-God does give me encouragements from time to time though:
+God does give me encouragements from time to time though, and my confidence in God is not failing:
 
 > **[Hebrews 13:5](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A5&version=ESV)** - Keep your life free from love of money, and be content with what you have, for he has said, I will never leave you nor forsake you. (ESV)
 
@@ -27305,6 +27329,10 @@ God is not saving Lucifer/Satan/the devil or his demons/devils. They're all goin
 > **[Revelation of John 20:7-10](https://www.biblegateway.com/passage/?search=Revelation%2020%3A7-10&version=ESV)** - And when the thousand years are ended, Satan will be released from his prison and will come out to deceive the nations that are at the four corners of the earth, Gog and Magog, to gather them for battle; their number is like the sand of the sea. And they marched up over the broad plain of the earth and surrounded the camp of the saints and the beloved city, but fire came down from heaven and consumed them, and **the devil who had deceived them was thrown into the lake of fire and sulfur where the beast and the false prophet were, and they will be tormented day and night forever and ever**. (ESV)
 
 > **[Revelation 22:12-17](https://www.biblegateway.com/passage/?search=Revelation%2022%3A12-17&version=ESV), [20-21](https://www.biblegateway.com/passage/?search=Revelation%2022%3A20-21&version=ESV)** - Behold, I am coming soon, bringing my recompense with me, to repay everyone for what he has done. I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may enter the city by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and everyone who loves and practices falsehood. I, Jesus, have sent my angel to testify to you about these things for the churches. I am the root and the descendant of David, the bright morning star. The Spirit and the Bride say, Come. And let the one who hears say, Come. And let the one who is thirsty come; let the one who desires take the water of life without price. He who testifies to these things says, Surely I am coming soon. Amen. Come, Lord Jesus! The grace of the Lord Jesus be with all. Amen. (ESV)
+
+I'm a total believer in the rapture. In fact, I believe that a person can be raptured by faith. I really wouldn't mind being raptured today <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-18 Thu&gt;</span></span>. The world lost its luster for me, and that is a good thing actually:
+
+> **[Hebrews 11:5](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A5&version=ESV)** - By faith Enoch was taken up so that he should not see death, and he was not found, because God had taken him. Now before he was taken he was commended as having pleased God. (ESV)
 
 
 # [Jesus Christ is Lord! :)](https://www.youtube.com/watch?v=kemT9EoKvHs&ab_channel=CHRISPlus)

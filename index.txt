@@ -31893,7 +31893,11 @@ John Piper's explanation of the rapture I affirm:
 
 - What Is the Rapture? - YouTube
 
-I'm a total believer in the rapture.
+I'm a total believer in the rapture. In fact, I believe that a person can be raptured by faith. I really wouldn't
+mind being raptured today <2024-07-18 Thu>. The world lost its luster for me, and that is a good thing actually:
+
+  Hebrews 11:5 - By faith Enoch was taken up so that he should not see death, and he was not found, because God
+  had taken him. Now before he was taken he was commended as having pleased God. (ESV)
 
   Revelation of John 3:10 - Because you have kept my word about patient endurance, I will keep you from the hour
   of trial that is coming on the whole world, to try those who dwell on the earth. (ESV)
@@ -38073,10 +38077,11 @@ difficult. At least I do not feel as guilty about it. But I think I should conti
   God behaves like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is the
   Son of God.
 
-Yeah, I am at my limits to what I can endure. This has been going on every day for nearly 2 years. Any Christians
-out there pray for me please that God will stop allowing the evil spirits to attack me. It's an actual living
-hell. What's worse though is when other so-called Christians, rather than show support, actually shun me and push
-me out of the church like a leper. I have no idea why God is putting me through this hell.
+Yeah, I am at my limits to what I can endure.
+
+This has been going on every day for nearly 2 years.
+
+Any Christians out there pray for me please that God will stop allowing the evil spirits to attack me.
 
   Psalms 88:18 - You have caused my beloved and my friend to shun me; my companions have become darkness. (ESV)
 
@@ -38087,9 +38092,11 @@ me out of the church like a leper. I have no idea why God is putting me through 
 Also, to "be holy as He is holy" when people deny relationships and marriage, and just heap on heavy burdens,
 asking even more of me, without lifting a finger to help, and then simultaneously I'm attacked with a spirit
 spouse at night, for example, and I'm supposed to just ignore it - well it feels like an impossibility to remain
-clean. So a complaint I have to Almighty God Jehovah is that remaining holy in all my conduct during the trial I
-have faced has felt impossibly difficult, and very graceless, and I've felt "under the pump", in constant
-spiritual warfare:
+clean.
+
+So a complaint I have to Almighty God Jehovah is that remaining holy in all my conduct during the trial I have
+faced has felt impossibly difficult, and very graceless, and I've felt "under the pump", in constant spiritual
+warfare, and I have been constantly denied work and a marriage partner!
 
   Colossians 2:18-21 - Let no one disqualify you, insisting on asceticism and worship of angels, going on in
   detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom
@@ -38119,7 +38126,7 @@ day.
 With regards to the spirit spouse, it makes me feel very gross and it makes me feel Psalm 22:1 forsaken by God -
 no joke.
 
-God does give me encouragements from time to time though:
+God does give me encouragements from time to time though, and my confidence in God is not failing:
 
   Hebrews 13:5 - Keep your life free from love of money, and be content with what you have, for he has said, I
   will never leave you nor forsake you. (ESV)
@@ -38584,6 +38591,12 @@ God is not saving Lucifer/Satan/the devil or his demons/devils. They're all goin
   take the water of life without price. He who testifies to these things says, Surely I am coming soon. Amen.
   Come, Lord Jesus! The grace of the Lord Jesus be with all. Amen. (ESV)
 
+I'm a total believer in the rapture. In fact, I believe that a person can be raptured by faith. I really wouldn't
+mind being raptured today <2024-07-18 Thu>. The world lost its luster for me, and that is a good thing actually:
+
+  Hebrews 11:5 - By faith Enoch was taken up so that he should not see death, and he was not found, because God
+  had taken him. Now before he was taken he was commended as having pleased God. (ESV)
+
 77. Jesus Christ is Lord! :)
 
 The Only True God is the God and Father of Jesus Christ, and Jesus Christ who He Sent.
@@ -38829,7 +38842,7 @@ Date: 2024-07-18 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 20:03
+Created: 2024-07-18 Thu 20:29
 
 Validate
 
