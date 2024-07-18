@@ -948,6 +948,7 @@ Jesus:
   receive a different spirit from the one you received, or if you accept a different gospel from the one you
   accepted, you put up with it readily enough. (ESV)
 
+Talk by John Piper
 youtube.com: You Cannot Obey God Without God
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
@@ -2942,6 +2943,7 @@ youtube.com: Love Jesus More Than You Love Anything
 
 3.15.1. How we should act how we're instructed to act while awaiting the Lord's return
 
+Sermon
 youtube.com: Live with the End in View
 
   Luke 21:36 - But stay awake at all times, praying that you may have strength to escape all these things that are
@@ -15662,6 +15664,10 @@ Sow your own life as an investment for Jesus' sake:
   alone; but if it dies, it bears much fruit. Whoever loves his life loses it, and whoever hates his life in this
   world will keep it for eternal life. If anyone serves me, he must follow me; and where I am, there will my
   servant be also. If anyone serves me, the Father will honor him. (ESV)
+
+St. Theophan the Recluse (1815-1894)
+The goal of human freedom is not freedom itself... but in God... with the intention that man would voluntarily bring
+it as a sacrifice to God, a most pleasing offering. (St. Theophan's "Path to Salvation" Topical Compendium, 169)
 
 Seek God:
 
@@ -38607,7 +38613,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 13:15
+Created: 2024-07-18 Thu 13:39
 
 Validate
 

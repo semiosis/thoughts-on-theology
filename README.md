@@ -580,7 +580,7 @@ The Jesus which the Apostles proclaimed is the same Jesus we need to proclaim in
 
 > **[II Corinthians 11:4](https://www.biblegateway.com/passage/?search=2%20Corinthians%2011%3A4&version=ESV)** - For if someone comes and proclaims another Jesus than the one we proclaimed, or if you receive a different spirit from the one you received, or if you accept a different gospel from the one you accepted, you put up with it readily enough. (ESV)
 
-[youtube.com: You Cannot Obey God Without God](https://www.youtube.com/watch?v=mqlCjq60ogg&t=203s)
+-   **Talk by John Piper:** [youtube.com: You Cannot Obey God Without God](https://www.youtube.com/watch?v=mqlCjq60ogg&t=203s)
 
 It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
 
@@ -1858,7 +1858,7 @@ If you hear Jesus' words which came from God and trust God then you have eternal
 
 ### How we should act how we're instructed to act while awaiting the Lord's return
 
-[youtube.com: Live with the End in View](https://www.youtube.com/watch?v=CTaeOKhiI1k)
+-   **Sermon:** [youtube.com: Live with the End in View](https://www.youtube.com/watch?v=CTaeOKhiI1k)
 
 > **[Luke 21:36](https://www.biblegateway.com/passage/?search=Luke%2021%3A36&version=ESV)** - But stay awake at all times, praying that you may have strength to escape all these things that are going to take place, and to stand before the Son of Man. (ESV)
 
@@ -10520,6 +10520,8 @@ Sow your own life as an investment for Jesus' sake:
 > **[Matthew 16:25](https://www.biblegateway.com/passage/?search=Matthew%2016%3A25&version=ESV)** - For whoever would save his life will lose it, but <ins>whoever loses his life for my sake will find it.</ins> (ESV)
 
 > **[John 12:24-26](https://www.biblegateway.com/passage/?search=John%2012%3A24-26&version=ESV)** - Truly, truly, I say to you, unless a grain of wheat falls into the earth and dies, it remains alone; but if it dies, it bears much fruit. Whoever loves his life loses it, and whoever hates his life in this world will keep it for eternal life. <ins>If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone serves me, the Father will honor him.</ins> (ESV)
+
+-   **[St. Theophan the Recluse (1815-1894)](https://classicalchristianity.com/2013/02/09/on-human-freedom/):** The goal of human freedom is not freedom itself… but in God… with the intention that man would voluntarily bring it as a sacrifice to God, a most pleasing offering. (St. Theophan’s “Path to Salvation” Topical Compendium, 169)
 
 Seek God:
 
