@@ -12083,29 +12083,29 @@ It's false to say that 'all spirit is true' and body and soul are false.
 
 These do not contradict:
 
--   Jesus is the Truth
+-   **Jesus is the Truth**
     -   **[Matthew 5:17](https://www.biblegateway.com/passage/?search=Matthew%205%3A17&version=ESV)** - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them but to fulfill them. (ESV)
     -   **[John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)** - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except through me. (ESV)
--   Jesus' words are Truth and Life
+-   **Jesus' words are Truth and Life**
     -   **[John 6:63](https://www.biblegateway.com/passage/?search=John%206%3A63&version=ESV)** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
--   God's word is truth. The sum of our Creator’s word is Truth
+-   **God's word is truth. The sum of our Creator’s word is Truth**
     -   The Scripture (Torah) does not contradict
     -   **[Psalms 119:160](https://www.biblegateway.com/passage/?search=Psalms%20119%3A160&version=ESV)** - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
     -   **[John 17:17](https://www.biblegateway.com/passage/?search=John%2017%3A17&version=ESV)** - Sanctify them in the truth; your word is truth. (ESV)
 -   [Jesus Christ is the Word of God](https://www.youtube.com/watch?v=buZm8hUguEc&ab_channel=DesiringGod), who has come into the world in the flesh
     -   Emmanuel
     -   **[Isaiah 7:14](https://www.biblegateway.com/passage/?search=Isaiah%207%3A14&version=ESV)** - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. (ESV)
--   The Spirit of Truth is the Truth
+-   **The Spirit of Truth is the Truth**
     -   **[I John 5:6](https://www.biblegateway.com/passage/?search=1%20John%205%3A6&version=ESV)** - This is he who came by water and blood—Jesus Christ; not by the water only but by the water and the blood. And the Spirit is the one who testifies, because the Spirit is the truth. (ESV)
--   Jesus is God
+-   **Jesus is God**
     -   **[Isaiah 9:6](https://www.biblegateway.com/passage/?search=Isaiah%209%3A6&version=ESV)** - For to us a child is born, to us a son is given; and the government shall be upon his shoulder, and his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. (ESV)
     -   **[Jeremiah 32:17-18](https://www.biblegateway.com/passage/?search=Jeremiah%2032%3A17-18&version=ESV)** - Ah, Lord GOD! It is you who has made the heavens and the earth by your great power and by your outstretched arm! Nothing is too hard for you. You show steadfast love to thousands, but you repay the guilt of fathers to their children after them, O great and mighty God, whose name is the LORD of hosts, (ESV)
+
+> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
 
 -   **Read:** <https://www.scriptureway.com/home/jesus-is-the-truth>
 
 -   **[Quote by R. C. Sproul](https://www.ligonier.org/learn/devotionals/god-truth/):** "Truth is not defined by our own subjective standards; it is determined by the Source of truth Himself"
-
-> **[Ephesians 4:20-21](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-21&version=ESV)** - But that is not the way you learned Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, (ESV)
 
 
 ### Jesus is noticeably present with us as we believe and affirm and obey the Truth

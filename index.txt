@@ -17784,12 +17784,15 @@ Peace. (ESV)
 and by your outstretched arm! Nothing is too hard for you. You show steadfast love to thousands, but you
 repay the guilt of fathers to their children after them, O great and mighty God, whose name is the LORD
 of hosts, (ESV)
-- https://www.scriptureway.com/home/jesus-is-the-truth
-- Quote by R. C. Sproul
-">"Truth is not defined by our own subjective standards; it is determined by the Source of truth Himself"
 
   Ephesians 4:20-21 - But that is not the way you learned Christ!- assuming that you have heard about him and were
   taught in him, as the truth is in Jesus, (ESV)
+
+Read
+https://www.scriptureway.com/home/jesus-is-the-truth
+
+Quote by R. C. Sproul
+"Truth is not defined by our own subjective standards; it is determined by the Source of truth Himself"
 
 20.3.1. Jesus is noticeably present with us as we believe and affirm and obey the Truth
 
@@ -38613,7 +38616,7 @@ Date: 2024-07-16 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 13:39
+Created: 2024-07-18 Thu 13:50
 
 Validate
 
