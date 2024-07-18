@@ -1224,6 +1224,12 @@ for Jesus and out of faith in Jesus. I believe that obedience to Jesus is an exp
 expression of love for Jesus, and hope in Jesus. I've invested my life in Jesus, and happy about it because I
 believe and hope in Jesus.
 
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us. It also means to
+not take vengeance (Christ's law includes not rendering evil for evil):
+
+  Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
+  shall love your neighbor as yourself: I am the LORD. (ESV)
+
 OK, so to be obedient while enduring suffering, which God has allowed is love which is greater than faith and hope
 which both abide; It's more blessed to give than to receive. I would argue though that to maintain an affectionate
 love for God while enduring suffering which God has allowed to happen is even more difficult and more blessed than
@@ -2280,7 +2286,8 @@ Love God [from the heart and soul] so that we may live:
   Deuteronomy 30:6 - And the LORD your God will circumcise your heart and the heart of your offspring, so that you
   will love the LORD your God with all your heart and with all your soul, that you may live. (ESV)
 
-To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us:
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us. It also means to
+not take vengeance (Christ's law includes not rendering evil for evil):
 
   Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
   shall love your neighbor as yourself: I am the LORD. (ESV)
@@ -4532,6 +4539,12 @@ Jesus having fulfilled the entire law and prophets
 
   Matthew 5:17 - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish them
   but to fulfill them. (ESV)
+
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us. It also means to
+not take vengeance (Christ's law includes not rendering evil for evil):
+
+  Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
+  shall love your neighbor as yourself: I am the LORD. (ESV)
 
 4.3. Following Jesus is the way of righteousness
 
@@ -23698,7 +23711,8 @@ We don't want to be children of the devil:
 I believe we need to be serving Christ to be led by the Spirit, and that means forgiving everyone is important.
 Jesus commanded us to love one another as He loved us.
 
-To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us:
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us. It also means to
+not take vengeance (Christ's law includes not rendering evil for evil):
 
   Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
   shall love your neighbor as yourself: I am the LORD. (ESV)
@@ -25705,7 +25719,8 @@ Goats:
 
 - Goats are disobedient!
 
-To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us:
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us. It also means to
+not take vengeance (Christ's law includes not rendering evil for evil):
 
   Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
   shall love your neighbor as yourself: I am the LORD. (ESV)
@@ -36595,7 +36610,7 @@ Required to satisfy the "Christ's love" criteria I believe are:
 - It must satisfy Christ's law
 - Acceptance comes at the beginning; Jesus gives us the benefit of the doubt
 - Be a servant; consider others more significant than yourself
-- Seek to do not harm to your neighbour
+- Seek to do not harm to your neighbour and not take vengeance
 - Bear one another's burdens without partiality
 - We should endeavour to love not just on occasion, but at all times, continually, as Jesus did, and give our
 all
@@ -36622,6 +36637,12 @@ Our love is in response to Christ having loved us first:
 
   Ephesians 4:32 - Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.
   (ESV)
+
+To love your neighbour as yourself means forgiving them too, and remember that Jesus forgave us. It also means to
+not take vengeance (Christ's law includes not rendering evil for evil):
+
+  Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
+  shall love your neighbor as yourself: I am the LORD. (ESV)
 
 Because God loved us first:
 
@@ -38808,7 +38829,7 @@ Date: 2024-07-18 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 18:58
+Created: 2024-07-18 Thu 20:03
 
 Validate
 
