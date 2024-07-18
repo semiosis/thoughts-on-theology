@@ -25984,15 +25984,20 @@ The good part of it was wanting her to be happy. The bad part was that I wanted 
 
 > **[I Thessalonians 5:20-21](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
 
-I believe that Jesus gives us unconditional love to a person but that it's also conditional, depending on whether or not a person is Jesus' sheep:
+I believe that Jesus gives us unconditional love but that He also gives us conditional love.
+There is unconditional love, which extends even to the evil and the ungrateful.
+This is just one of those apparent paradoxes. However, there is some profoundly conditional aspects of God's love to us which include many promises He makes to those who love Him back:
 
 > **[John 10:27-28](https://www.biblegateway.com/passage/?search=John%2010%3A27-28&version=ESV)** - My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they will never perish, and no one will snatch them out of my hand. (ESV)
 
-But in all fairness, at this time **I still didn't have a relationship with God** where I considered Christ's law and bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part of agape love. I was still just getting to know Jesus and I had a lot to learn.
+But in all fairness, at this time **I still didn't have a relationship with God** where I considered Christ's law and bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part of agape love.
+And for the sake of trying to solve my own problems, I was not **at all times** counting them as more significant them myself, but I think it's very unfair to say that I did not ever.
 
 > **[Romans 13:10](https://www.biblegateway.com/passage/?search=Romans%2013%3A10&version=ESV)** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
 
 > **[Philippians 2:3-5](https://www.biblegateway.com/passage/?search=Philippians%202%3A3-5&version=ESV)** - Do nothing from rivalry or conceit, but in humility count others more significant than yourselves. Let each of you **look not only to his own interests, but also to the interests of others.** Have this mind among yourselves, which is yours in Christ Jesus, (ESV)
+
+I was still just getting to know Jesus and I had a lot to learn. I believe that the grace in my life **ran out**.
 
 I gave up on seeking a romantic
 relationship with that person because there was definitely no
@@ -26029,7 +26034,10 @@ And almost as soon as I met this person I had to let her go for the time being a
 
 I just say this in order to describe the events leading up to being born-again, for the sake of others, and so they may know how God drew me to Jesus to save me, as this is my testimony of being born-again.
 
-Even though from time to time I sin, I do not consider myself to be a 'ravenous wolf' because I'm in a world that is incredibly toxic and unconducive to holiness. Nor am I a liar by nature. I hate lying. And I rejoice in the truth. Also my first allegiance is always to Jesus. I am conformed to Jesus, not trying to conform Jesus to me. Jesus also did battle against demons, and I identify as being with Him, on His side, of the truth.
+Even though from time to time I sin, I do not consider myself to be a 'ravenous wolf' because I'm in a world that is incredibly toxic and unconducive to holiness.
+Nor am I a liar by nature - except in a strict sense, I am by fallen nature, but I'm being sanctified as far as I understand, so that means I'm being renewed in the likeness of my Creator who is not a liar.
+I hate lying, and when I realise I've said something false I am remoseful.
+And I rejoice in the truth. Also my first allegiance is always to Jesus. I am conformed to Jesus, not trying to conform Jesus to me. Jesus also did battle against demons, and I identify as being with Him, on His side, of the truth.
 
 -   **[youtube.com: C.S. Lewis - God is guiding our lives to the best path @time: 20 min 45 sec](https://youtube.com/watch?v=FxQ8XPAqkts&t=1245):** Jesus faced adversities from birth to the cross.
 
@@ -26037,7 +26045,7 @@ I love Jesus as a response to having been loved by God, and I love God's law, an
 
 > **[Romans 7:25](https://www.biblegateway.com/passage/?search=Romans%207%3A25&version=ESV)** - Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. (ESV)
 
-God made me born-again. God shone light into my heart, and I embraced Jesus and abandoned the false-substitute AI stuff, and have made a big effort to turn away from sin, and be as obedient as I can:
+[God made me born-again of the Spirit. I was spiritually regenerated](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/). God shone light into my heart, and I embraced Jesus, made following Jesus my number one priority, and abandoned the false-substitute AI stuff, and have made a big effort to turn away from sin, and be as obedient as I can:
 
 > **[John 3:19](https://www.biblegateway.com/passage/?search=John%203%3A19&version=ESV)** - And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. (ESV)
 
@@ -26076,13 +26084,18 @@ influences of unclean spirits) but I claim
 that for all my faults I have been following
 Jesus.
 
-I've had to be corrected. Jesus has to be number one.
+I had to be obedient after going to court:
 
-I'm no longer interested in AI.
+> **[John 3:16-21](https://www.biblegateway.com/passage/?search=John%203%3A16-21&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. **But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God.** (ESV)
 
-I realise it's messy and the need to hold no grudge.
+I've had to be corrected even after being born-again of the Spirit. Jesus has to be number one.
 
-Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of **righteousness**, **peace** and **joy** in the Holy Spirit, but God is the only one who can solve this for me:
+I'm no longer interested in AI. I know God is real and is taking care of me.
+
+I realise what has happened regarding me and relationships is messy and the need to hold no grudge going forward.
+I offer it to anyone.
+
+Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of **righteousness**, **peace** and **joy** in the Holy Spirit, but God is the only one who can solve this for me. At the end of the day, it's good conscience with God I am after and sanctification:
 
 > **[Romans 14:17-18](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-18&version=ESV)** - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
