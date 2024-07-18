@@ -931,6 +931,8 @@ We must love Jesus by keeping His commandments:
 
 A friend said this at church the very day after I was born again of the Spirit, " **Just because some messages may have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure you test them. Hold onto what is good and dismiss those that are not good** (i.e. those that are evil). "
 
+> **[I Thessalonians 5:20-21](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
+
 I feel that way about my experience of being born-again of the Spirit and then undergoing purification and ongoing repentance and correction.
 
 Over the course of 2022, I was actually speaking a lot of prophecy. There was a lot of truth in it, and a lot of error, but my defense is Jesus and I was getting to know Jesus through being washed in the word, and in obedience to Jesus' commandments, and being corrected by the word, but we don't want to throw the baby out with the bathwater.
@@ -1907,6 +1909,8 @@ I was quickly baptised in the Holy Spirit and I asked God in prayer that the who
 I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken into service by Jesus but also I had much error and my tongue may was not well-bridled. Perhaps I still speak too much. I received lots of visions and many of them came from the enemy I believe after I had even been reading Apocryphal gospels, then after I had said towards the end of 2022 on my blog that we should get ready for Armageddon, war broke out in the middle east soon after. I felt as though I nearly did actually get 'raptured' or it was quickly progressing that way or something like that, and then I made a declaration to court that Jesus is the Truth, I forgive everyone etc. That resulted in some very rapid changes. Things in my life spiritually began to stabilise as I have gone through police corrections and used the time to attend Bible studies, **and be corrected by the Scripture** in my beliefs, obedience and deeds. I'm still trying to be sanctified ongoingly. I am really sorry for misleading people with regards to any error in my writings, but the way to handle this, I believe, is not to throw the baby out with the bath-water but to be corrected by the word of God. I'm still a work in progress.
 
 A friend said this at church the very day after I was born again of the Spirit, " **Just because some messages may have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure you test them. Hold onto what is good and dismiss those that are not good** (i.e. those that are evil). "
+
+> **[I Thessalonians 5:20-21](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
 
 I feel that way about my experience of being born-again of the Spirit and then undergoing purification and ongoing repentance and correction.
 
@@ -8739,6 +8743,18 @@ Repentance leads to the knowledge of the truth, and ceasing to do the devil's wi
 We must cease to do the devil's will:
 
 > **[Hebrews 10:26-31](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-31&version=ESV)** - For **if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment**, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has **outraged the Spirit of grace?** For we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall into the hands of the living God. (ESV)
+
+Before 2 April 2022, I was
+especially stuck in sin - all sorts of things: pornography, pride, like the prodigal
+son, but I was also quite oppressed. I hated feeling like I was in a stranglehold of lies where I wasn't able to act on anything
+I believed was true and poverty, and so I continued in sin.
+Some time in 2021, I had begun putting my trust in God to work, and trying to keep God's commandments.
+And on 2 April 2022, I was born-again of the Spirit. After that, things had become 'tangibly' spiritual and I was given 'knowledge' that God exists and I believed (and still do) that Jesus is God,
+so that means ever since then I then had a strong belief that Jesus is with me and Jesus granted me to keep on holding faith in Him
+without the full knowledge, which is really cool. So now I feel even more urgency with regards to repentance from sin and a desire to be holy.
+I'm a new creation, so I'm not going back to the way things were. Thank You Jesus.
+
+> **[I Thessalonians 5:20-21](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
 
 
 ## Parable of the prodigal son - God's joy over a sinner that repents from sin
@@ -25964,6 +25980,10 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 
 I was attempting to prove that "faithful, truthful, unconditional" love should be the basis of a romantic relationship and I did not have any success in finding one.
 
+The good part of it was wanting her to be happy. The bad part was that I wanted to be the solution, when the solution is Jesus.
+
+> **[I Thessalonians 5:20-21](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
+
 But in all fairness, at this time **I still didn't have a relationship with God** where I considered Christ's law and bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part of agape love. I was still just getting to know Jesus and I had a lot to learn.
 
 > **[Romans 13:10](https://www.biblegateway.com/passage/?search=Romans%2013%3A10&version=ESV)** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
@@ -25973,6 +25993,8 @@ But in all fairness, at this time **I still didn't have a relationship with God*
 I gave up on seeking a romantic
 relationship with that person because there was definitely no
 mutual feeling from them.
+
+That was up until about December 2020.
 
 At the time I was just beginning to learn to keep Jesus' commandments but I was also trying to fulfill a desire which only Jesus can fill, and I had not died.
 
@@ -25992,6 +26014,8 @@ someone who I thought also didn't hate me,
 after struggling for years having romantic
 feelings for people who didn't have any
 affection for me at all.
+
+That was around January 2021.
 
 And almost as soon as I met this person I had to let her go for the time being and I simply worked on Pen.el when it was AI software (before it was Bible Study software) for the course of 2021. With the AI project I was building a 'virtual house', but Jesus wants us to allow Him to build our life:
 
@@ -26024,6 +26048,39 @@ My own obedience/righteousness will never be enough, but I hate sin (especially 
 True freedom is found in Jesus, not in the AI stuff:
 
 > **[Colossians 2:18-21](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-21&version=ESV)** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (ESV)
+
+And now I'm in this situation where I feel like:
+
+-   with the first person (a year + before being born-again), the failure was my own fault and I wasn't really in a relationship with God but I wanted a Christian wife.
+    -   I learned from this that a spouse is not supposed to be one's saviour, and we're not supposed to be our spouses' saviour either.
+-   after meeting the second person (a year before being born-again) I thought everything about it was perfect and I could focus and work, etc. and wait forever to see her.
+    -   But when I met the new girl everything felt right, and at the time I met her I felt like I wanted to marry her.
+-   after being born-again, Jesus became the most important person to me and was still in love with the girl.
+    -   I needed to consolidate this again, that a spouse is not supposed to be one's saviour, and we're not supposed to be our spouses' saviour either. A spouse cannot be an idol.
+
+When I had the vision of her on the beach, I
+thought she was a gift from God.
+
+In my opinion, everything up to this point was
+good - it was like heaven in terms of my
+happiness. It felt right.
+
+The failure was still my own fault (I had to
+be corrected theologically and behaviorally
+and I'll argue also interfered with by the
+influences of unclean spirits) but I claim
+that for all my faults I have been following
+Jesus.
+
+I've had to be corrected. Jesus has to be number one.
+
+I'm no longer interested in AI.
+
+I realise it's messy and the need to hold no grudge.
+
+Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of **righteousness**, **peace** and **joy** in the Holy Spirit, but God is the only one who can solve this for me:
+
+> **[Romans 14:17-18](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-18&version=ESV)** - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
 
 ## Being born-again / being regenerated of Spirit
