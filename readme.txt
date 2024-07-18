@@ -36904,6 +36904,10 @@ But I am allowed to ask God for more grace:
   James 4:6-7 - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble.
   Submit yourselves therefore to God. Resist the devil, and he will flee from you. (ESV)
 
+And I'm allowed to speak the truth from my angle:
+
+  Isaiah 41:21 - Set forth your case, says the LORD; bring your proofs, says the King of Jacob. (ESV)
+
 I believe strongly that outlawing marriage proposal is very close to outlawing God, and outlawing my writing was
 punishing faith which is the way in which we are supposed to live.
 
@@ -36979,15 +36983,19 @@ thinking like the world thinks, and I've been living for Christ, and I've been l
 I had an out-of-body meeting with the Holy Spirit, and a dream on 3 May 2022 foreshadowing 1 year later on 3 May
 2023 when I ended up pleading guilty in court.
 
-I got angry and yelled at the judge in court saying he was a liar because the judge had made a remark against my
-water baptism which was an appeal to God for a good conscience:
+I got angry and yelled at the judge in court saying he was a liar because the judge had made a remark against what
+I assumed was my water baptism (saying, "he must have been baptised at midnight"), but my water baptism was an
+appeal to God for a good conscience:
 
 youtube.com: The Hidden Snare of Bitterness @time: 9 min 21 sec
 "anger at something because God's purposes are being resisted or God's character is being maligned not our
 purposes merely or our character good anger is targeting sin against God not just assaults against us"
 
-Well, all humans except for Jesus have broken God's law - we've all been liars, but God is true. And that is
-exactly the reason why I pleaded guilty, and the judge is also guilty:
+But maybe he was referring to me meeting the Holy Spirit in my sleep at 12.30am which may of course have been part
+of my Holy Spirit baptism - this is mysterious so we can only speculate.
+
+Well, whatever is the case, all humans except for Jesus have broken God's law - we've all been liars, but God is
+true. And that is exactly the reason why I pleaded guilty, and the judge is also guilty:
 
   Romans 3:4 - By no means! Let God be true though every one were a liar, as it is written, That you may be
   justified in your words, and prevail when you are judged. (ESV)
@@ -38798,7 +38806,7 @@ Date: 2024-07-18 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 18:29
+Created: 2024-07-18 Thu 18:43
 
 Validate
 
