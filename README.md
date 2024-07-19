@@ -718,9 +718,25 @@ And we should be building each other up, helping each other attain unity of fait
 
 > **[Ephesians 4:12-13](https://www.biblegateway.com/passage/?search=Ephesians%204%3A12-13&version=ESV)** - to equip the saints for the work of ministry, for building up the body of Christ, until we all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure of the stature of the fullness of Christ, (ESV)
 
+OK, so we accept forgiveness from God, we forgive others, and we then walk in that reality and don't turn back - we live that reality out.
+We accept that God has loved us by making atonement through Jesus' blood, and then we pass-forward that loving forgiveness to others and we walk in that reality and don't turn back.
+We also try to live holy lives - be holy as He is Holy.
+
+We put on Christ:
+
+> **[Galatians 3:27-28](https://www.biblegateway.com/passage/?search=Galatians%203%3A27-28&version=ESV)** - For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. (ESV)
+
+When the day of judgement comes, we must have accepted forgiveness from God, or face the wrath of God:
+
+> **[Romans 4:7-8](https://www.biblegateway.com/passage/?search=Romans%204%3A7-8&version=ESV)** - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not count his sin. (ESV)
+
 When the day of judgement comes, we should be loving our brother and sister in Christ, or we may face the wrath of God:
 
 > **[I John 4:17-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A17-21&version=ESV)** - By this is love perfected with us, so <ins>that we may have **confidence** for the day of judgment</ins>, because as he is so also are we in this world. There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And <ins>this commandment we have from him:</ins> whoever loves God **must** also love his brother. (ESV)
+
+Our sins are forgiven and we love one another the way Christ loved us. It should be our aim to have arrived at this point where we are living in this reality as soon as possible:
+
+> **[I John 2:11-12](https://www.biblegateway.com/passage/?search=1%20John%202%3A11-12&version=ESV)** - But whoever hates his brother is in the darkness and walks in the darkness, and does not know where he is going, because the darkness has blinded his eyes. I am writing to you, little children, because your sins are forgiven for his name's sake. (ESV)
 
 If we are merciful then we will receive mercy:
 

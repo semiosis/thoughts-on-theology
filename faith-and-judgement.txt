@@ -1127,6 +1127,22 @@ Christ, the Son of God:
   all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure
   of the stature of the fullness of Christ, (ESV)
 
+OK, so we accept forgiveness from God, we forgive others, and we then walk in that reality and don't turn back -
+we live that reality out. We accept that God has loved us by making atonement through Jesus' blood, and then we
+pass-forward that loving forgiveness to others and we walk in that reality and don't turn back. We also try to
+live holy lives - be holy as He is Holy.
+
+We put on Christ:
+
+  Galatians 3:27-28 - For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor
+  Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus.
+  (ESV)
+
+When the day of judgement comes, we must have accepted forgiveness from God, or face the wrath of God:
+
+  Romans 4:7-8 - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the
+  man against whom the Lord will not count his sin. (ESV)
+
 When the day of judgement comes, we should be loving our brother and sister in Christ, or we may face the wrath of
 God:
 
@@ -1136,6 +1152,13 @@ God:
   us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom
   he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God must
   also love his brother. (ESV)
+
+Our sins are forgiven and we love one another the way Christ loved us. It should be our aim to have arrived at
+this point where we are living in this reality as soon as possible:
+
+  I John 2:11-12 - But whoever hates his brother is in the darkness and walks in the darkness, and does not know
+  where he is going, because the darkness has blinded his eyes. I am writing to you, little children, because your
+  sins are forgiven for his name's sake. (ESV)
 
 If we are merciful then we will receive mercy:
 
@@ -39114,7 +39137,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 11:18
+Created: 2024-07-20 Sat 11:49
 
 Validate
 
