@@ -235,7 +235,7 @@ Our freedom is so that we might live to God:
   Galatians 2:19 - For through the law I died to the law, so that I might live to God. (ESV)
 
 God is our life. We must love, obey, and hold fast to Him. Faith is not without obedience, but we are to obey
-Jesus Christ:
+Jesus Christ and to believe in Jesus is to have begun to obey Him:
 
   Deuteronomy 30:20 - loving the LORD your God, obeying his voice and holding fast to him, for he is your life and
   length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to
@@ -253,8 +253,9 @@ Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus,
 
 In Christ Jesus seek to follow the pattern of His life to get to know Him, and He gave us commandments to follow
 to do that. Faith in Christ Jesus is not just a belief in the head but faith is trusting Him, and trusting in Him
-with all our heart, soul, mind and strength. Anyone who claims to know Jesus but does not do what Jesus says is a
-liar and they are not in the truth:
+with all our heart, soul, mind and strength. Both our belief in Him and obedience to Him flow from our trust in
+Him. Anyone who claims to have come to know Jesus but does not do what Jesus says is a liar and they are not in
+the truth:
 
   Galatians 2:1-5 - Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with
   me. I went up because of a revelation and set before them (though privately before those who seemed influential)
@@ -4674,8 +4675,16 @@ Sermon
 Seven Reasons We Must Pursue Supreme Satisfaction in God - YouTube
 
 We must get on the path of having faith in Jesus, believe in the name of Jesus, God's Son, and obey God to have
-confidence. I believe this is really talking about the commandments of Jesus and even of Father God. I personally
-believe this includes the 10 Commandments which I believe are still important for Christians to follow by faith:
+confidence:
+
+  Proverbs 10:17 - Whoever heeds instruction is on the path to life, but he who rejects reproof leads others
+  astray. (ESV)
+
+  I John 3:21-22 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
+  we receive from him, because we keep his commandments and do what pleases him. (ESV)
+
+I believe this is really talking about the commandments of Jesus and even of Father God. I personally believe this
+includes the 10 Commandments which I believe are still important for Christians to follow by faith:
 
   I John 3:21-24 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
   we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that
@@ -5339,9 +5348,16 @@ We must obey:
   commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it.
   (ESV)
 
+  Acts 5:29 - But Peter and the apostles answered, We must obey God rather than men. (ESV)
+
 We must obey Jesus and love one another:
 
   I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+  Luke 6:46-48 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
+  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
+  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
+  because it had been well built. (ESV)
 
 The knowledge comes from having obeyed God's voice. Love becomes perfected in us when we abide in God:
 
@@ -5894,6 +5910,40 @@ Thomas had extreme love towards Jesus and obedience to following Jesus:
   John 11:16 - So Thomas, called the Twin, said to his fellow disciples, Let us also go, that we may die with him.
   (ESV)
 
+Hearkening, listening and obeying seems to what we're called to do:
+
+  Deuteronomy 28:1 - "Now it shall be, if you diligently obey the LORD your God, being careful to do all His
+  commandments which I command you today, the LORD your God will set you high above all the nations of the earth.
+  (NASB)
+
+Interlinear of the initial part of Deuteronomy 28:1:
+
+|  1961                        518
+|  w?.ha.yah,                  'im-
+|  ????                        ???
+|  Now it shall come to pass   if
+|  Conj-w | V-Qal-ConjPerf-3ms Conj
+| 
+|  8085 [e]     8085 [e]         6963 [e]       3068 [e]
+|  sa.mo.w.a'   tis.ma'          b?.qo.wl       Yah.weh
+|  ????         ????             ????           ????
+|   diligently   you obey         the voice      of Yahweh
+|   V-Qal-InfAbs V-Qal-Imperf-2ms Prep-b | N-msc N-proper-ms
+
+Concordance:
+
+6963. qol
+sound, voice
+
+8085. shama
+to hear
+
+(no term)
+tis.ma' - heed/hearken/listen/obey/understand
+
+(no term)
+sa.mo.w.a' - diligently/truly/carefully/will indeed
+
 If a person continues to obey Jesus they will eventually, like Thomas, arrive at the Truth and believe Jesus is
 who He says He is.
 
@@ -5903,6 +5953,15 @@ who He says He is.
   many other signs in the presence of the disciples, which are not written in this book; but these are written so
   that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his
   name. (ESV)
+
+Here is another example where obeying Jesus led to belief:
+
+  John 21:4-7 - Just as day was breaking, Jesus stood on the shore; yet the disciples did not know that it was
+  Jesus. Jesus said to them, Children, do you have any fish? They answered him, No. He said to them, Cast the net
+  on the right side of the boat, and you will find some. So they cast it, and now they were not able to haul it
+  in, because of the quantity of fish. That disciple whom Jesus loved therefore said to Peter, It is the Lord!
+  When Simon Peter heard that it was the Lord, he put on his outer garment, for he was stripped for work, and
+  threw himself into the sea. (ESV)
 
 Both belief and obedience lead to a knowledge of the Truth, and I believe we must essentially arrive at belief and
 actual knowledge:
@@ -12345,7 +12404,7 @@ Our freedom is so that we might live to God:
   Galatians 2:19 - For through the law I died to the law, so that I might live to God. (ESV)
 
 God is our life. We must love, obey, and hold fast to Him. Faith is not without obedience, but we are to obey
-Jesus Christ:
+Jesus Christ and to believe in Jesus is to have begun to obey Him:
 
   Deuteronomy 30:20 - loving the LORD your God, obeying his voice and holding fast to him, for he is your life and
   length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to
@@ -12363,8 +12422,9 @@ Christ Jesus has set us free to serve God, living for Him. Obeying Christ Jesus,
 
 In Christ Jesus seek to follow the pattern of His life to get to know Him, and He gave us commandments to follow
 to do that. Faith in Christ Jesus is not just a belief in the head but faith is trusting Him, and trusting in Him
-with all our heart, soul, mind and strength. Anyone who claims to know Jesus but does not do what Jesus says is a
-liar and they are not in the truth:
+with all our heart, soul, mind and strength. Both our belief in Him and obedience to Him flow from our trust in
+Him. Anyone who claims to have come to know Jesus but does not do what Jesus says is a liar and they are not in
+the truth:
 
   Galatians 2:1-5 - Then after fourteen years I went up again to Jerusalem with Barnabas, taking Titus along with
   me. I went up because of a revelation and set before them (though privately before those who seemed influential)
@@ -12381,6 +12441,8 @@ liar and they are not in the truth:
   through me for mine to the Gentiles), and when James and Cephas and John, who seemed to be pillars, perceived
   the grace that was given to me, they gave the right hand of fellowship to Barnabas and me, that we should go to
   the Gentiles and they to the circumcised. (ESV)
+
+We must like, Paul, will to do the will of God:
 
   Galatians 2:10 - Only, they asked us to remember the poor, the very thing I was eager to do. (ESV)
 
@@ -23929,6 +23991,8 @@ Like a child of God:
 - obey like a child obeys their parents
 - follow like a child follows their parents
 
+  Colossians 3:20 - Children, obey your parents in everything, for this pleases the Lord. (ESV)
+
 The kingdom of God is all about serving Christ, and having righteousness, peace and joy in the Holy Spirit:
 
   Romans 14:17-22 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
@@ -26010,7 +26074,7 @@ not sin:
   another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
 
 If we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ)
-then we are not under the Mosaic law.:
+then we are not under the Mosaic law:
 
   Galatians 5:18-21 - But if you are led by the Spirit, you are not under the law. Now the works of the flesh are
   evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger,
@@ -28833,6 +28897,8 @@ the time we need it to endure the suffering:
 
 54.23.3. The upward call of God in Christ Jesus
 
+  Romans 12:11 - Do not be slothful in zeal, be fervent in spirit, serve the Lord. (ESV)
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -28962,7 +29028,7 @@ Being led by the spirit involves following Christ's law:
   another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
 
 If we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ)
-then we are not under the Mosaic law.:
+then we are not under the Mosaic law:
 
   Galatians 5:18-21 - But if you are led by the Spirit, you are not under the law. Now the works of the flesh are
   evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger,
@@ -36994,28 +37060,48 @@ We are required to:
 - be merciful to others as we have received mercy
 
 The failure to keep the police bail conditions was still potentially rooted in my own fault theologically
-speaking. I still needed ongoing repentance and sanctification (correction theologically and behaviorally), and I
-think that theological error most likely led to endorsing things which I later wanted to repent from. I felt like
-it was urgent to repent from heresy and from publicly affirming that I would not judge gay marriage, and my need
-to plead guilty was in the light of the knowledge of my error. Also, my attitude of wanting to remain faithful to
-the girl began to degrade my faithfulness to Jesus as I began to make compromises in my writing to continue
-affirming faithfulness to the girl. But ultimately, under test I felt the need to affirm Jesus as being the Truth
-and forsake all else, as from my perspective it looked like I was being tested on relationship idolatry. Part of
-why I could not resist but continue blogging, was because of the sheer injustice I felt regarding my freedom to
-write, and I felt like there was this relationship-destroying spirit sabotaging my relationships again, and
-whatever thing was completely against faith itself - I had already been writing on my blog very few times to
+speaking.
+
+I still needed ongoing repentance and sanctification (correction theologically and behaviorally), and I think that
+theological error most likely led to endorsing things which I later wanted to repent from. I felt like it was
+urgent to repent from heresy and from publicly affirming that I would not judge gay marriage, and my need to plead
+guilty was in the light of the knowledge of my error.
+
+Also, my attitude of wanting to remain faithful to the girl began to degrade my faithfulness to Jesus as I began
+to make compromises in my writing to continue affirming faithfulness to the girl.
+
+But ultimately, under test I felt the need to affirm Jesus as being the Truth and forsake all else, as from my
+perspective it looked like I was being tested on relationship idolatry.
+
+Part of why I could not resist but continue blogging, was because of the sheer injustice I felt regarding my
+freedom to write, and I felt like there was this relationship-destroying spirit sabotaging my relationships again,
+and whatever thing was completely against faith itself - I had already been writing on my blog very few times to
 demonstrate a track record of faithfulness, and another part was that after I proposed I wanted to demonstrate
 faithful waiting in way that was legal as the proposal had not been rejected, and as far as I knew at the time,
 copying Reformed Church Quiz Night results on my blog was not illegal, despite it having elements of her name
-dispersed in the result answers, or a picture of a flowerbed on my own Facebook page. I realise that by doing this
-I was also "poking the bear", but I'm a human being who proposed to someone, and I feel like I can in all honesty
-plead that I was just being human and I felt at the time like the system opposing me was an evil and graceless
-machine.
+dispersed in the result answers, or a picture of a flowerbed on my own Facebook page.
+
+I realise that by doing this I was also "poking the bear", but I'm a human being who proposed to someone, and I
+feel like I can in all honesty plead that I was just being human and I felt at the time like the system opposing
+me was an evil and graceless machine, but also I wasn't exercising perfect love because otherwise I would not have
+been resentful:
+
+  I Corinthians 13:4-8 - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It
+  does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but
+  rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love
+  never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will
+  pass away. (ESV)
+
+Jesus showed perfect love. We then strive to have love perfected with us:
+
+  I John 4:17 - By this is love perfected with us, so that we may have confidence for the day of judgment, because
+  as he is so also are we in this world. (ESV)
 
 I think the judiciary system should be careful not to infringe on basic human rights going forward with the
 AI-generated fiction which is now in the world, otherwise as I have said, robots may be taking human wives before
-poor people can, and that to God is an abomination I assure you - and I wouldn't want to tempt God. Tempting God
-with that seems a worse idea than "poking the bear".
+poor people can, and that to God is an abomination I assure you - and I wouldn't want to tempt God.
+
+Tempting God with that seems a worse idea than "poking the bear".
 
   II Samuel 12:1-25 - And the LORD sent Nathan to David. He came to him and said to him, There were two men in a
   certain city, the one rich and the other poor. The rich man had very many flocks and herds, but the poor man had
@@ -37054,11 +37140,39 @@ with that seems a worse idea than "poking the bear".
   and he called his name Solomon. And the LORD loved him and sent a message by Nathan the prophet. So he called
   his name Jedidiah, because of the LORD. (ESV)
 
-I consider myself to be the poor man in this situation and not like David. I believe I could have asked God to get
-justice with this. But I did give a letter of forgiveness, so there's no (even spiritual) legal obligation to have
-this amended.
+From my angle, I consider myself to be the poor man in this situation and not like David. I believe I could have
+asked God to get justice with this, but then it's better to show mercy even for my own sake, especially in the
+knowledge that I have been shown mercy by God. So I know I have been shown mercy, and I know I should pass forward
+mercy. Remember the parable of the unforgiving servant (Matthew 18:21-35):
 
-But I am allowed to ask God for more grace:
+  James 2:13 - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. (ESV)
+
+Despite having already been involved (while on earth) with the courts of heaven, I will also ultimately stand
+before God where He will see if I passed forward mercy after having received mercy:
+
+  II Corinthians 5:10-11 - For we must all appear before the judgment seat of Christ, so that each one may receive
+  what is due for what he has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we
+  persuade others. But what we are is known to God, and I hope it is known also to your conscience. (ESV)
+
+But I did give a letter of forgiveness in court, so there's no (even spiritual) legal obligation to have this
+amended. Also, perhaps to them I have been like David. Despite being made new I still have a "history" from
+others' point of view, and having received grace it makes sense to pass forward grace.
+
+I'm at peace with whatever happens next.
+
+Jesus emptied himself. So despite being born-again, it's right to do the same:
+
+  II Corinthians 8:9 - For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake
+  he became poor, so that you by his poverty might become rich. (ESV)
+
+We are supposed to have the same mind:
+
+  Philippians 2:5-8 - Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the
+  form of God, did not count equality with God a thing to be grasped, but made himself nothing, taking the form of
+  a servant, being born in the likeness of men. And being found in human form, he humbled himself by becoming
+  obedient to the point of death, even death on a cross. (ESV)
+
+But I am allowed to ask God for more grace, but that's between me and God:
 
   James 4:6-7 - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble.
   Submit yourselves therefore to God. Resist the devil, and he will flee from you. (ESV)
@@ -38979,7 +39093,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 08:19
+Created: 2024-07-20 Sat 10:17
 
 Validate
 
