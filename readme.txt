@@ -5910,7 +5910,7 @@ Thomas had extreme love towards Jesus and obedience to following Jesus:
   John 11:16 - So Thomas, called the Twin, said to his fellow disciples, Let us also go, that we may die with him.
   (ESV)
 
-Hearkening, listening and obeying seems to what we're called to do:
+Hearkening, listening and obeying seems to be what we're called to do:
 
   Deuteronomy 28:1 - "Now it shall be, if you diligently obey the LORD your God, being careful to do all His
   commandments which I command you today, the LORD your God will set you high above all the nations of the earth.
@@ -5930,19 +5930,17 @@ Interlinear of the initial part of Deuteronomy 28:1:
 |   diligently   you obey         the voice      of Yahweh
 |   V-Qal-InfAbs V-Qal-Imperf-2ms Prep-b | N-msc N-proper-ms
 
-Concordance:
-
 6963. qol
 sound, voice
 
 8085. shama
 to hear
 
-(no term)
-tis.ma' - heed/hearken/listen/obey/understand
+tis.ma'
+heed/hearken/listen/obey/understand
 
-(no term)
-sa.mo.w.a' - diligently/truly/carefully/will indeed
+sa.mo.w.a'
+diligently/truly/carefully/will indeed
 
 If a person continues to obey Jesus they will eventually, like Thomas, arrive at the Truth and believe Jesus is
 who He says He is.
@@ -5964,13 +5962,16 @@ Here is another example where obeying Jesus led to belief:
   threw himself into the sea. (ESV)
 
 Both belief and obedience lead to a knowledge of the Truth, and I believe we must essentially arrive at belief and
-actual knowledge:
+understanding in the heart and ultimately an actual knowledge:
 
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
   disciples, and you will know the truth, and the truth will set you free. (ESV)
 
   John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
   through me. (ESV)
+
+  I John 4:16 - So we have come to know and to believe the love that God has for us. God is love, and whoever
+  abides in love abides in God, and God abides in him. (ESV)
 
 And I believe too that we must arrive at willing to do the will of God:
 
@@ -39093,7 +39094,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 10:17
+Created: 2024-07-20 Sat 10:41
 
 Validate
 
