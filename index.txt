@@ -37416,7 +37416,7 @@ However graceless I thought the situation was, pleading not guilty from my persp
 - not putting God first before a girl I like,
 - and putting Christ to the test by saying I have not done anything wrong
 
-We must not put Christ tot he test:
+We must not put Christ to the test:
 
   I Corinthians 10:9-11 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
   nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
@@ -37493,7 +37493,21 @@ That's how it happened for the record.
 I felt as though I was carving out a piece of my heart because it felt as if I had said to God in my heart that I
 could only be happy while I held faith that I'd see her again.
 
-If I recall correctly, that was the night before May 3.
+If I recall correctly, that was the night before May 3. But I certainly felt that way after May 3. I kind-of
+doubled-down in my heart regarding that. Part of the reasoning behind that is the joy I had throughout 2021. At
+this stage (May 3, 2022) I did not know what the significance of the date was and had no idea what the dream of
+the policeman questioning me was about.
+
+  Romans 13:1-7 - Let every person be subject to the governing authorities. For there is no authority except from
+  God, and those that exist have been instituted by God. Therefore whoever resists the authorities resists what
+  God has appointed, and those who resist will incur judgment. For rulers are not a terror to good conduct, but to
+  bad. Would you have no fear of the one who is in authority? Then do what is good, and you will receive his
+  approval, for he is God's servant for your good. But if you do wrong, be afraid, for he does not bear the sword
+  in vain. For he is the servant of God, an avenger who carries out God's wrath on the wrongdoer. Therefore one
+  must be in subjection, not only to avoid God's wrath but also for the sake of conscience. For the same reason
+  you also pay taxes, for the authorities are ministers of God, attending to this very thing. Pay to all what is
+  owed to them: taxes to whom taxes are owed, revenue to whom revenue is owed, respect to whom respect is owed,
+  honor to whom honor is owed. (ESV)
 
 Still in May 2022 around Pentecost, God, gave me an immersive vision of healing people with compassion.
 
@@ -39100,7 +39114,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 10:51
+Created: 2024-07-20 Sat 11:18
 
 Validate
 

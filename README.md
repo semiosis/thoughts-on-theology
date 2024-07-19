@@ -2435,7 +2435,7 @@ We are instructed to work for God:
 
 In believing in Jesus, we are guaranteed an inheritance in heaven:
 
-> **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV),14** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
+> **[Ephesians 1:13,14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV)** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
 
 The inheritance is in heaven:
 
@@ -8547,7 +8547,7 @@ Jesus' words will not pass away:
 
 > **[I Peter 1:25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A25&version=ESV)** - but the word of the Lord remains forever. And this word is the good news that was preached to you.
 
-> **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV),14** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
+> **[Ephesians 1:13,14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV)** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
 
 Adhering strictly to the Mosaic law is not needed to be justified by God if we believe in and follow Jesus:
 
@@ -16420,7 +16420,7 @@ The followers of Paul the Apostle <ins>live by</ins> (walk by) faith; those are 
 
 In believing in Jesus, we are guaranteed an inheritance in heaven:
 
-> **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV),14** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
+> **[Ephesians 1:13,14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV)** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
 
 > **[I Peter 1:13](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV)** - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ. (ESV)
 
@@ -22459,7 +22459,7 @@ The Holy Spirit dwelling within us guarantees our imperishable inheritance:
 
 In believing in Jesus, we are guaranteed an inheritance in heaven:
 
-> **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV),14** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
+> **[Ephesians 1:13,14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV)** -  In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory.  (ESV)
 
 The inheritance is in heaven:
 
@@ -26510,7 +26510,7 @@ However graceless I thought the situation was, pleading not guilty from my persp
 -   not putting God first before a girl I like,
 -   and putting Christ to the test by saying I have not done anything wrong
 
-We must not put Christ tot he test:
+We must not put Christ to the test:
 
 > **[I Corinthians 10:9-11](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A9-11&version=ESV)** - **We must not put Christ to the test**, as some of them did and were destroyed by serpents, nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an example, but they were written down for our instruction, on whom the end of the ages has come. (ESV)
 
@@ -26558,7 +26558,9 @@ That's how it happened for the record.
 
 I felt as though I was carving out a piece of my heart because it felt as if I had said to God in my heart that I could only be happy while I held faith that I'd see her again.
 
-If I recall correctly, that was the night **before** May 3.
+**If** I recall correctly, that was the night **before** May 3. But I *certainly* felt that way **after** May 3. I kind-of doubled-down in my heart regarding that. Part of the reasoning behind that is the joy I had throughout 2021. At this stage (May 3, 2022) I did not know what the significance of the date was and had no idea what the dream of the policeman questioning me was about.
+
+> **[Romans 13:1-7](https://www.biblegateway.com/passage/?search=Romans%2013%3A1-7&version=ESV)** - Let every person be subject to the governing authorities. For there is no authority except from God, and those that exist have been instituted by God. Therefore whoever resists the authorities resists what God has appointed, and those who resist will incur judgment. For rulers are not a terror to good conduct, but to bad. Would you have no fear of the one who is in authority? Then do what is good, and you will receive his approval, for he is God's servant for your good. But if you do wrong, be afraid, for he does not bear the sword in vain. For he is the servant of God, an avenger who carries out God's wrath on the wrongdoer. Therefore one must be in subjection, not only to avoid God's wrath but also for the sake of conscience. For the same reason you also pay taxes, for the authorities are ministers of God, attending to this very thing. Pay to all what is owed to them: taxes to whom taxes are owed, revenue to whom revenue is owed, respect to whom respect is owed, honor to whom honor is owed. (ESV)
 
 Still in May 2022 around Pentecost, God, gave me an [immersive vision of healing people with compassion](https://web.archive.org/web/20220806085237/https://mullikine.github.io/posts/astral-projection-pt-3/).
 
