@@ -296,11 +296,15 @@ We need to receive the Holy Spirit:
 Quote by John Piper
 Hold fast in obedience to what you have heard and believed.
 
-Jesus manifests to those who keep His word and obey Him:
+Jesus and Father God manifest to those who keep His word and obey Him:
 
   John 14:22-23 - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not
   to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we
   will come to him and make our home with him.
+
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
 
 Quote by John Piper
 Hold fast in obedience to what you have heard and believed. John 14:22 really bothers some people. John 14:22,
@@ -4919,7 +4923,7 @@ He's the image of God:
   Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
 
 Song
-Let It Be Christ - The Sations - YouTube
+youtube.com: Let It Be Christ - The Sations
 
 5.3. Belief
 
@@ -5178,7 +5182,7 @@ Obeying Jesus should be impartial:
   John Piper - "Mercy means that our obedience doesn't have to be perfect, it has to be penitent."
 
 Sermon
-God's Delight in Obedience - YouTube @time: 24 min 19 sec
+youtube.com: God's Delight in Obedience @time: 24 min 19 sec
 
   II Corinthians 13:11 - Finally, brethren, rejoice, be made complete, be comforted, be like-minded, live in
   peace; and the God of love and peace will be with you. (NASB)
@@ -5365,7 +5369,7 @@ In order to know God we must love one another in the way that God has loved us:
 
 I agree whole heartedly with John Piper here:
 
-- The Blazing Center by John Piper - YouTube
+- youtube.com: The Blazing Center by John Piper
 
 Quote from John Piper:
 
@@ -5478,7 +5482,7 @@ Be convinced and keep having and doing faith in Jesus Christ. John uses the verb
   believing you may have life in his name. (ESV)
 
 Sermon
-His Voice in Yours: How Christ Wins the World - YouTube @time: 12 min 52 sec
+youtube.com: His Voice in Yours: How Christ Wins the World @time: 12 min 52 sec
 
   Jeremiah 23:5-6 - Behold, the days are coming, declares the LORD, when I will raise up for David a righteous
   Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land. In
@@ -5544,7 +5548,7 @@ was raised from the dead, and we should get a clearer picture of Jesus as we fol
 Let's not focus on minimums, but maximums:
 
 Sermon
-John Piper: How Much Error Can I Believe and Still Be Saved? - YouTube
+youtube.com: How Much Error Can I Believe and Still Be Saved?
 
 We must also accept that Jesus Christ, God's Only-Begotten Son was raised from the dead:
 
@@ -6024,7 +6028,7 @@ speak:
 
 Believing:
 
-- His Voice in Yours: How Christ Wins the World - YouTube
+- youtube.com: His Voice in Yours: How Christ Wins the World
 
 Our heart must be close to Jesus:
 
@@ -6683,7 +6687,7 @@ Following Jesus Christ is not having a religious spirit, but it's serving God in
   Galatians 3:26 - for in Christ Jesus you are all sons of God, through faith. (ESV)
 
 Bible study
-John Piper - Free from Judgment, Fighting Sin, Full Assurance - YouTube @time: 30 min 46 sec
+youtube.com: Free from Judgment, Fighting Sin, Full Assurance @time: 30 min 46 sec
 
 Jesus is asking of us to believe that He is the resurrection and the life; Coming to a belief which [in John's
 terminology] involves personally committing oneself to Jesus as Son of God, Saviour, Lord, Lamb of God and King:
@@ -6864,7 +6868,8 @@ We need all of these:
 - Obedience to Jesus' commandments
 - Obeying the law of Christ
 - Putting a stop to sin
-- You CANNOT Keep Living Like a DEVIL| {The Cheap Gospel EXPOSED!!} - YouTube
+
+youtube.com: Is Lordship Salvation Biblical? {The "Cheap Grace" Gospel EXPOSED!!}
 
   II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
   turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
@@ -7084,7 +7089,7 @@ Faith is obedient. Love is applied faith in Jesus:
   Galatians 6:15 - For neither circumcision counts for anything, nor uncircumcision, but a new creation. (ESV)
 
 Talk
-No changed life salvation? Refuting Free Grace and @jacksmack77 - YouTube
+youtube.com: No changed life salvation? Refuting Free Grace and @jacksmack77
 
 Grace is free, but a person must become obedient - God gives the heart to obey, but a person must desire to do
 God's will to receive it.
@@ -7249,7 +7254,7 @@ Sovereign God, looks into dead, glory-ignoring heart and says, "Let there be lig
   has shone in our hearts to give the light of the knowledge of the glory of God in the face of Jesus Christ.
   (ESV)
 
-The Gospel of the Glory of Christ - YouTube
+youtube.com: The Gospel of the Glory of Christ
 
 5.9. Gospel
 
@@ -7403,7 +7408,7 @@ We have always obeyed, participating in the Spirit, having one mind, that of a s
   with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
 Song
-John Fischer - Naphtali - 09 Live in the Power - YouTube
+youtube.com: John Fischer - Naphtali - 09 Live in the Power
 
 'Believing obedience' produces work.
 
@@ -7558,7 +7563,8 @@ Therefore, the grace given to Paul was not in vain, because Paul responded well 
   Acts 2:47 - Praising God, and having favour with all the people. And the Lord added to the church daily such as
   should be saved. (ESV)
 
-John Piper's Sermon with Scripture only - YouTube
+Sermon
+youtube.com: John Piper's Sermon with Scripture only
 
 5.9.1. Living a godly life in Christ Jesus is part of the gospel
 
@@ -7688,7 +7694,7 @@ See:
 Change your mind and He will change your heart
 
 Sermon
-The High Cost of Following Christ | Billy Graham Classic Sermon - YouTube
+youtube.com: The High Cost of Following Christ | Billy Graham Classic Sermon
 
   Luke 14:27-33 - Whoever does not bear his own cross and come after me cannot be my disciple. For which of you,
   desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it?
@@ -8232,7 +8238,7 @@ Judas betrayed Jesus after being chosen:
   bears thorns and thistles, it is worthless and near to being cursed, and its end is to be burned. (ESV)
 
 Sermon
-John Piper - God's Delight in Obedience - YouTube
+youtube.com: God's Delight in Obedience
 
   I Samuel 15:22-23 - And Samuel said, Has the LORD as great delight in burnt offerings and sacrifices, as in
   obeying the voice of the LORD? Behold, to obey is better than sacrifice, and to listen than the fat of rams. For
@@ -8740,7 +8746,7 @@ AMEN!!
   Spirit be with you all. (ESV)
 
 Song
-"Agnus Dei" with Michael W Smith & the First Dallas Choir & Orchestra - YouTube
+youtube.com: "Agnus Dei" with Michael W Smith & the First Dallas Choir & Orchestra
 
   Hebrews 1:3 - He is the radiance of the glory of God and the exact imprint of his nature, and he upholds the
   universe by the word of his power. After making purification for sins, he sat down at the right hand of the
@@ -8776,9 +8782,8 @@ Jesus is sitting in power.
   Hebrews 1:13 - And to which of the angels has he ever said, Sit at my right hand until I make your enemies a
   footstool for your feet?
 
-This video is pretty awesome:
-
-- Did Anyone Believe in the Trinity Before Nicea? - YouTube
+This video is pretty awesome
+youtube.com: Did Anyone Believe in the Trinity Before Nicea?
 
 I affirm the doctrine of the Trinity:
 
@@ -8841,7 +8846,7 @@ Jesus was with Father God in the beginning:
 AMEN!!
 
 Song
-He is Jehovah | by Betty Jean Robinson - YouTube
+youtube.com: He is Jehovah | by Betty Jean Robinson
 
 Jehovah is God Almighty:
 
@@ -9038,13 +9043,13 @@ Him.
   breathed into his nostrils the breath of life, and the man became a living creature. (ESV)
 
 Sermon
-John Piper - God's Own Name - YouTube
+youtube.com: God's Own Name
 
   II Timothy 2:19 - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and,
   Let everyone who names the name of the Lord depart from iniquity. (ESV)
 
 Sermon
-John Piper - The Superior Name of the Son - YouTube
+youtube.com: The Superior Name of the Son
 
 Jehovah God gave Jesus His name, Jesus Christ, Son of God:
 
@@ -9103,7 +9108,7 @@ My flock, And I have sought it out.
   will listen. (ESV)
 
 Video
-Gospel of Mark calls Jesus God in every chapter - YouTube
+youtube.com: Gospel of Mark calls Jesus God in every chapter
 
 God the Father and God the Son are one.
 
@@ -9260,7 +9265,7 @@ We, personally cry "Abba, Father!" We call to Father God.
   also be glorified with him. (ESV)
 
 Sermon
-The Spirit in Us Cries 'Abba Father': Galatians 4:1-7, Part 5 - YouTube
+youtube.com: The Spirit in Us Cries 'Abba Father': Galatians 4:1-7, Part 5
 
 I really want to hear the voice of the Holy Spirit cry 'Abba Father', and acknowledge to me in a voice that Jesus
 Christ has come in the flesh.
@@ -9478,7 +9483,7 @@ That's really good news for us:
 AMEN!!
 
 Song
-Darlene Zschech - In Jesus' Name | Official Live Video - YouTube
+youtube.com: Darlene Zschech - In Jesus' Name | Official Live Video
 
 6.2.2. Jesus is the Lamb of God who sits with God on God's throne
 
@@ -9583,7 +9588,7 @@ in the truth, which leads to eternal life:
   not believe me. Which one of you convicts me of sin? If I tell the truth, why do you not believe me? Whoever is
   of God hears the words of God. The reason why you do not hear them is that you are not of God.
 
-Look at Jesus! - YouTube
+youtube.com: Look at Jesus!
 
   John 1:1 - In the beginning was the Word, and the Word was with God, and the Word was God. (ESV)
 
@@ -9741,6 +9746,20 @@ From our perspective we are obedient as we are participating in the Spirit, but 
   with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
 We must obey! This obedience is being led by the Spirit.
+
+Sermon
+youtube.com: Love Is the Fruit of the Spirit
+
+Our freedom is for serving one another, and if we are not abiding by Christ's law, producing love which fulfills
+the law, then we can't say we are being led by the Spirit:
+
+  Galatians 5:13-16 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
+  the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your
+  neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one
+  another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
+
+  Galatians 5:22-23 - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness,
+  gentleness, self-control; against such things there is no law. (ESV)
 
  1. We must abide by his teaching
 
@@ -10094,9 +10113,8 @@ We must take heed of this, because we don't want to fall:
 
 Therefore, the way of truth involves following Jesus and putting a stop to sin.
 
-I agree with Billy Graham:
-
-- Billy Graham Classic Sermon - YouTube
+I agree with Billy Graham
+youtube.com: Billy Graham Classic Sermon
 
   Revelation of John 21:8 - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually
   immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
@@ -10564,7 +10582,8 @@ counted as righteousness:
 
   I Corinthians 6:14 - And God raised the Lord and will also raise us up by his power. (ESV)
 
-CHRIST IS ENOUGH - HILLSONG LIVE LYRIC VIDEO | GLORIOUS RUINS 2013 - YouTube
+Song
+youtube.com: CHRIST IS ENOUGH - HILLSONG LIVE LYRIC VIDEO | GLORIOUS RUINS 2013
 
 6.3. Obedience - A heart of obedience is the start of faith, and belief is the start of continued obedience
 
@@ -11701,7 +11720,7 @@ story should be taken to see how Good God is, but also taken as a warning agains
   he said to him, Rise and go your way; your faith has made you well. (ESV)
 
 Song
-Mercies {New Every Morning} {Live from Trafalgar Square} - Matt Redman - YouTube
+youtube.com: Mercies {New Every Morning} {Live from Trafalgar Square} - Matt Redman
 
 We are meant to exercise common grace to other people.
 
@@ -11743,7 +11762,7 @@ See, our actions reflect who our Father is:
   even as your Father is merciful. (ESV)
 
 Talk
-Christianity is God saves us & we respond to obey, not the other way - YouTube
+youtube.com: Christianity is God saves us & we respond to obey, not the other way
 
 11. Justification - declared 'not guilty', if in Christ Jesus
 
@@ -11940,7 +11959,7 @@ The same Apostle Paul wrote these:
   the wrath of God. (ESV)
 
 Song
-Lord, I Lift Your Name On High - Petra {Backtrack no guitar?} - YouTube
+youtube.com: Lord, I Lift Your Name On High - Petra {Backtrack no guitar?}
 
 The way that Jesus went is the way that we go. The new and living way is the Jesus way:
 
@@ -12132,7 +12151,7 @@ I enjoyed this video, but I still am of the opinion that following the full Mosa
 prohibited, so long as it is pursued by faith and submits to God's righteousness):
 
 Debate
-Public Debate - Should Christians Keep The Law? - YouTube
+youtube.com: Public Debate - Should Christians Keep The Law?
 
 Relying on the 'works of the law' for one's righteousness puts a person under a curse:
 
@@ -12559,7 +12578,7 @@ Faith receives and continues to receive the supply of the Spirit and we are led 
   you and works miracles among you do so by works of the law, or by hearing with faith- (ESV)
 
 Sermon
-The Law Refutes Justification by Law: Galatians 3:6, Part 1 - YouTube
+youtube.com: The Law Refutes Justification by Law: Galatians 3:6a??9, Part 1
 
 Faith receives and continues to receive the supply of the Spirit. So a person needs to be having faith in
 Jesus to be led by the Spirit.
@@ -12595,10 +12614,10 @@ We are made a new man in Christ Jesus by the power of the Holy Spirit.
   John 10:27 - My sheep hear my voice, and I know them, and they follow me. (ESV)
 
 Sermon
-Holiness Demanded - Charles Spurgeon Sermon - YouTube
+youtube.com: Holiness Demanded - Charles Spurgeon Sermon
 
 Sermon
-Eternal Security - Charles Spurgeon Sermon - YouTube
+youtube.com: Eternal Security - Charles Spurgeon Sermon
 
 11.8.11. Make the tree good and the fruit good
 
@@ -12764,7 +12783,7 @@ And when we are born-again and given a new heart we should continue in obedience
   in the marketplaces and being called rabbi by others. (ESV)
 
 Sermon
-How Preachers Grow Graceless - YouTube
+youtube.com: How Preachers Grow Graceless
 
 We should not live a double-life. We should not deny in our private life what we preach in public.
 
@@ -13567,7 +13586,8 @@ We are being prepared to be presented to Jesus:
 
 16.1.1. The Holy Spirit will teach you
 
-- Wilderness How To Come Out / New Wineskin New Season #2024 - YouTube
+Word of encouragedment
+youtube.com: Wilderness How To Come Out / New Wineskin New Season #2024
 
 16.2. Be corrected by the truth
 
@@ -14241,7 +14261,7 @@ We are not children of the slave woman but we are children of the free woman:
   with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
 
 Bible study
-You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 - YouTube @time: 2 min 6 sec
+youtube.com: You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 @time: 2 min 6 sec
 
 So John Piper is taking the Apostle John's writing in II John 1:9 and saying that Apostle John is warning against
 people talking about justification through works, but I don't think that's what the Apostle John is talking about.
@@ -14549,7 +14569,7 @@ Jesus is still working through us:
   Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
 Song
-Way Maker - Paul McClure | Moment - YouTube @time: 4 min 12 sec
+youtube.com: Way Maker - Paul McClure | Moment @time: 4 min 12 sec
 
 So when we obey Jesus' words and commandments, Jesus works in us:
 
@@ -14704,7 +14724,7 @@ AMEN!!
 
 Also, it looks like John Piper has another talk on this:
 
-- The Jerusalem Above Is Free: Galatians 4:21-31, Part 5 - YouTube
+- youtube.com: The Jerusalem Above Is Free: Galatians 4:21-31, Part 5
 
   Galatians 4:22-23 - For it is written that Abraham had two sons, one by a slave woman and one by a free woman.
   But the son of the slave was born according to the flesh, while the son of the free woman was born through
@@ -14835,7 +14855,7 @@ in Jesus:
   from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; (ESV)
 
 Sermon
-The Hands of Jesus | Billy Graham Classic - YouTube @time: 11 min 43 sec
+youtube.com: The Hands of Jesus | Billy Graham Classic @time: 11 min 43 sec
 
 We must be able to accept that our gifts which we give to God will never be good enough, and we need to receive
 the gift of Salvation which God has offered us. We need a penitent heart.
@@ -15041,7 +15061,7 @@ out of ongoing faith, ongoing obedience:
   (ESV)
 
 Talk by
-John Lennox - How Christianity Is Different From Every Religion - YouTube
+youtube.com: How Christianity Is Different From Every Religion
 
 youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec
 You've heard about my wife well over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to
@@ -15170,7 +15190,7 @@ all our conduct if we call on the LORD God who judges impartially according to e
   evil.
 
 Talk
-Ecclesiastes: fear God and obey His commandments- the only hope for a good life - YouTube
+youtube.com: Ecclesiastes: fear God and obey His commandments- the only hope for a good life
 
 We must follow the way righteousness, repenting from sin, and following Jesus Christ. Jesus Christ is Lord:
 
@@ -15653,7 +15673,7 @@ If you believe in Him, trust Him, embrace Him, receive Him.
   John Piper says, "If you believe, you are united with Him, and it's all yours."
 
 Talk
-2 Peter 2 Destructive Doctrines- guidance from the Word - YouTube
+youtube.com: 2 Peter 2 Destructive Doctrines- guidance from the Word
 
 I'd rather be a doer than merely a hearer.
 
@@ -15806,7 +15826,7 @@ he raise Lazarus from the dead, and many other people believed in Jesus and were
 And Jesus is able to save a person out of Jesus' own will, as he resurrected Lazarus.
 
 Sermon
-Where's the Arminian John Piper? - YouTube
+youtube.com: Where's the Arminian John Piper?
 
   John 11:43 - When He had said these things, He cried out with a loud voice, "Lazarus, come forth."
 
@@ -16646,7 +16666,7 @@ encouraged. I think we bear His reproach in order to be sanctified and then call
 
 18.11.9. Prayer by Isaiah Saldivar
 
-Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7} - YouTube
+youtube.com: Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7}
 
 18.12. Faith requires obedience - i.e. acting in faith / living by faith
 
@@ -17513,7 +17533,7 @@ to stop sinning.
 Therefore, the way of truth involves following Jesus and putting a stop to sin.
 
 Talk
-The Hidden Parable of Moses that Few Christians Understand - YouTube
+youtube.com: The Hidden Parable of Moses that Few Christians Understand
 
 19.4.3. With God, following the 10 commandments and to love God and our neighbour is possible
 
@@ -17535,7 +17555,7 @@ The guy was still coveting his possessions. To find life, one needs to let go of
   Luke 12:15 - And he said to them, Take care, and be on your guard against all covetousness, for one's life does
   not consist in the abundance of his possessions. (ESV)
 
-God is the Gospel - YouTube @time: 45 min 31 sec
+youtube.com: God is the Gospel @time: 45 min 31 sec
 
 Quote from John Piper
 The prosperity gospel is no gospel because what it does is offer to people what they want as natural people.
@@ -17544,7 +17564,7 @@ Amen to that.
 
 The reason we want to be righteous is so we get God.
 
-God is the Gospel - YouTube @time: 40 min 42 sec
+youtube.com: God is the Gospel @time: 40 min 42 sec
 
 19.5. Justifying faith should result in going from disobedient to obedient
 
@@ -18221,7 +18241,7 @@ requirement of the Law fulfilled in us.
 
 I'm with this guy:
 
-- DEBATE: Should a Christian Observe the Torah Today? - YouTube @time: 21 min 24 sec
+- youtube.com: DEBATE: Should a Christian Observe the Torah Today? @time: 21 min 24 sec
 
 The lawbreakers will be thrown into the fiery furnace:
 
@@ -18940,7 +18960,7 @@ heart, soul, mind and strength, and our neighbour as ourself.
   called rabbi by others. (ESV)
 
 Sermon
-How Preachers Grow Graceless - YouTube
+youtube.com: How Preachers Grow Graceless
 
   Proverbs 28:9 - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
@@ -18951,7 +18971,7 @@ under it (to adhere strictly to it) is contrary to grace, but following it by fa
 from Jesus by obedience to Jesus) is not prohibited, so long as it is pursued by faith and submitting to God's
 righteousness:
 
-- Public Debate - Should Christians Keep The Law? - YouTube
+- youtube.com: Public Debate - Should Christians Keep The Law?
 - The law is good and just and Jesus both obeyed it flawlessly, but He also fulfilled it like a prophesy:
 
   Acts 3:18 - But what God foretold by the mouth of all the prophets, that his Christ would suffer, he thus
@@ -20308,7 +20328,7 @@ Loving God is obeying His commandments.
 
 29. We must love God
 
-- Love Jesus More Than You Love Anything - YouTube
+- youtube.com: Love Jesus More Than You Love Anything
 
   Matthew 22:37-39 - And he said to him, You shall love the Lord your God with all your heart and with all your
   soul and with all your mind. This is the great and first commandment. And a second is like it: You shall love
@@ -21178,7 +21198,7 @@ Everything is put in subjection under Jesus and in subjection under Father God:
   all things in subjection under him, that God may be all in all.
 
 Song
-Victor's Crown - Darlene Zschech {Official Live Video} - YouTube
+youtube.com: Victor's Crown - Darlene Zschech {Official Live Video}
 
 30.4.4. The Kingdom of Heaven - is a kingdom of servants
 
@@ -21354,7 +21374,7 @@ We must be thinking as a person of Heaven.
 
 31.3. Pray for others to come into Jesus' Kingdom
 
-- Ducklings vs. Stairs - YouTube
+- youtube.com: Ducklings vs. Stairs
 
 As we come into Jesus' Kingdom, we should be praying for and trying to lead others to come into Jesus' Kingdom.
 
@@ -21679,7 +21699,7 @@ promises. We can believe those promises which we inherit.
   who dwell on the earth.
 
 Song
-Rich Mullins - Sometimes By Step - YouTube
+youtube.com: Sometimes By Step
 
 33.2.3. The repentance of turning away from sin is an act of faith / a work of faith and also essential for eternal
 life, I think
@@ -22965,7 +22985,7 @@ In Spyridon's words, "Paradise will not be filled with sinless people - it will 
 repented."
 
 Sermon
-DESPITE REPEATED SINS, DO NOT DESPAIR - YouTube
+youtube.com: DESPITE REPEATED SINS, DO NOT DESPAIR
 
 We must be repent from sinful practices:
 
@@ -24028,7 +24048,7 @@ Those in Christ Jesus have been set free from the law of sin and death, and we s
   deeds of the body, you will live. (ESV)
 
 Sermon
-Free from Judgment, Fighting Sin, Full Assurance - YouTube |
+youtube.com: Free from Judgment, Fighting Sin, Full Assurance |
 
 40.2.15. We must endure to enter the kingdom of God
 
@@ -24304,7 +24324,7 @@ At the end of sanctification is eternal life:
 
 Derek Prince may have an even better understanding of the Torah's (the Law's) role in Christianity:
 
-- The Way Into the Holiest - Four Great Blessings of the New Covenant Part 7 A {7:1} - YouTube
+- youtube.com: The Way Into the Holiest - Four Great Blessings of the New Covenant Part 7 A {7:1}
 
 We must obey Jesus:
 
@@ -24726,7 +24746,7 @@ We should be more confident with the light!
   give glory to your Father who is in heaven.
 
 Song
-This Is The Day {Garratt} - YouTube
+youtube.com: This Is The Day {Garratt}
 
   Romans 13:12-14 - The night is far gone; the day is at hand. So then let us cast off the works of darkness and
   put on the armor of light. Let us walk properly as in the daytime, not in orgies and drunkenness, not in sexual
@@ -25160,7 +25180,7 @@ So sometimes a person needs to choose Jesus over false teachers and blind guides
 - Immersion in a river, for example
 - Pouring is fine interestingly, also
 
-The Didache: The Earliest Christian Writing After the Bible - YouTube:
+youtube.com: The Didache: The Earliest Christian Writing After the Bible
 
 - The Holy Spirit poured out onto the people of God.
 
@@ -25731,9 +25751,6 @@ not take vengeance (Christ's law includes not rendering evil for evil):
   shall love your neighbor as yourself: I am the LORD. (ESV)
 
 51. Marriage
-
-Message
-Urgent, a very strong warning from Mar Mari Emmanuel to the whole world today - YouTube
 
 51.1. Marriage is between man and woman
 
@@ -27274,7 +27291,7 @@ Repentance is essential for eternal life.
   slave does not remain in the house forever; the son remains forever.
 
 Sermon
-Preparing to Meet God - YouTube
+youtube.com: Preparing to Meet God
 
 51.13.7. Practicing homosexuality is very sinful and so locking it in with a covenant is very self-destructive
 
@@ -27487,7 +27504,7 @@ People were being born of the Spirit for quite some time before Jesus was born o
   you. And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my
   Spirit within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
 
-Nicodemus by Pastor John Piper - YouTube @time: 4 min 49 sec
+youtube.com: Nicodemus by Pastor John Piper @time: 4 min 49 sec
 
  3. The truth is God made them male and female, but handed erroneous, rebellious people over to their lust in
 impurity
@@ -27734,7 +27751,7 @@ I believe that producing good fruit is necessary for being saved:
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
 
-What does it mean to be "in Christ"? - YouTube
+youtube.com: What does it mean to be "in Christ"?
 
 54.1. When it says 'hate' here, it means 'unfollow'
 
@@ -27762,7 +27779,7 @@ Like begets like:
   John 5:19 - So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but
   only what he sees the Father doing. For whatever the Father does, that the Son does likewise. (ESV)
 
-God sees what your going through and he wants you to hear this message ? - YouTube
+youtube.com: God sees what your going through and he wants you to hear this message
 
   Matthew 5:44-45 - But I say to you, love your enemies and pray for those who persecute you, so that you may be
   sons of your Father who is in heaven; for He causes His sun to rise on the evil and the good, and sends rain on
@@ -28463,7 +28480,7 @@ believing faith, Paul says it was actually God's doing:
 
 54.20. We in Christ, Christ in us
 
-What Does it Mean to be in Christ? - YouTube
+youtube.com: What Does it Mean to be in Christ?
 
   I Corinthians 3:23 - and you are Christ's, and Christ is God's. (ESV)
 
@@ -28758,7 +28775,7 @@ them, the righteousness of faith in Jesus Christ God's Son who has paid through 
 Imputed righteousness is important, but we need also personal holiness.
 
 Sermon
-Holiness Demanded - Charles Spurgeon Sermon - YouTube
+youtube.com: Holiness Demanded - Charles Spurgeon Sermon
 
 We must live in holiness. This is practical holiness, the opposite of impurity.
 
@@ -28861,7 +28878,7 @@ Mosaic law. The Mosaic law isn't a curse to us.
 Things like pornography probably attracts evil spirits which hinders finding a relationship, and obviously, we
 still want to obey God's precepts for our own good:
 
-- Prayers Against Evil Attacks During Sleep - Powerful Prayers Against Bad Dreams and Nightmares - YouTube
+- youtube.com: Prayers Against Evil Attacks During Sleep - Powerful Prayers Against Bad Dreams and Nightmares
 @time: 8 min 40 sec
 
 Of course we still need to be sanctified and stop sinning, following Jesus.
@@ -28933,7 +28950,7 @@ Belief in Jesus comes first but receiving the Holy Spirit and baptism may happen
 
 I think this is generally the order of things.
 
-The Person and Work of the Holy Spirit | Billy Graham - YouTube
+youtube.com: The Person and Work of the Holy Spirit | Billy Graham
 
 54.26. God is sovereign to reveal Himself, sovereign to save and sovereign to destroy
 
@@ -29510,7 +29527,7 @@ We must instead be led by the Spirit, and follow Christ Jesus:
   I Corinthians 15:50d - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor
   does the perishable inherit the imperishable.
 
-The Chosen scene: John 3:16 - YouTube @time: 2 min 8 sec
+youtube.com: The Chosen scene: John 3:16 @time: 2 min 8 sec
 
 54.38. There is no sexual immorality in Heaven, no violence, no sinners.
 
@@ -29928,7 +29945,7 @@ circumcised, I believe with having faith in Jesus Christ:
 How do we become sons of Abraham:
 
 Sermon
-How Do Gentiles Become Sons of Abraham? Galatians 3:6, Part 3 - YouTube
+youtube.com: How Do Gentiles Become Sons of Abraham? Galatians 3:6, Part 3
 
 I do believe that trusting inevitably bears fruit. Also Abraham obeyed God's commandments - that's all tied up
 inside the faith which Abraham had towards God. We must have faith in God, too, but with respect to having faith
@@ -30437,7 +30454,7 @@ baptised / born-again of the Spirit
 
 Well explained here:
 
-- Wilderness How To Come Out / New Wineskin New Season #2024 - YouTube
+- youtube.com: Wilderness How To Come Out / New Wineskin New Season #2024
 
   Matthew 3:15-17 - But Jesus answered him, Let it be so now, for thus it is fitting for us to fulfill all
   righteousness. Then he consented. And when Jesus was baptized, immediately he went up from the water, and
@@ -31510,7 +31527,7 @@ people stuck in sin, even without the awareness they are in sin, and makes it ha
 I feel like getting a person unstuck from sin is a bit like freeing an animal in that they are often not aware
 that they need freeing.
 
-Two men saving the life of a deer - YouTube
+youtube.com: Two men saving the life of a deer
 
 56.4.2. Endorsing sinful behavior welcomes demons
 
@@ -31902,7 +31919,7 @@ Jesus!
 
 John Piper's explanation of the rapture I affirm:
 
-- What Is the Rapture? - YouTube
+- youtube.com: What Is the Rapture?
 
 I'm a total believer in the rapture. In fact, I believe that a person can be raptured by faith. I really wouldn't
 mind being raptured today <2024-07-18 Thu>. The world lost its luster for me, and that is a good thing actually:
@@ -32630,7 +32647,7 @@ speak:
   therefore, I say as the Father has told me. (ESV)
 
 Video
-"These things I command you" Jesus' own words from the 4 Gospels - YouTube
+youtube.com: "These things I command you" Jesus' own words from the 4 Gospels
 
 62.1. From the gospel of Matthew
 
@@ -34606,7 +34623,7 @@ Nevertheless, if a person hears the word of Christ, and believes the word of Chr
 and a natural consequence of that should be the development of faith because while believing the truth, other
 things become more apparent:
 
-- Spiritual Warfare: How to Put on the Armor of God (Belt of Truth) - YouTube @time: 1 min 35 sec
+- youtube.com: Spiritual Warfare: How to Put on the Armor of God @time: 1 min 35 sec
 
   Romans 10:17 - So faith comes from hearing, and hearing through the word of Christ. (ESV)
 
@@ -34887,7 +34904,7 @@ salvation from Jesus:
   steadfast love with those who love him and keep his commandments, to a thousand generations, (ESV)
 
 Sermon
-John Piper - To Him Be Glory Forever - YouTube
+youtube.com: To Him Be Glory Forever
 
   Romans 11:33-36 - Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his
   judgments and how inscrutable his ways! For who has known the mind of the Lord, or who has been his counselor?
@@ -36541,7 +36558,7 @@ Jesus. Also, that means deepening my relationship with Jesus.
 
 72. I was dead and helpless before being made alive in Christ
 
-- Is the Calvinist-Arminian Debate Really Important? - YouTube @time: 4 min 38 sec
+- youtube.com: Is the Calvinist-Arminian Debate Really Important? @time: 4 min 38 sec
 
 72.1. Before being born-again of the spirit I was thinking worldly/materially
 
@@ -38529,7 +38546,10 @@ We are to be conformed into Christ's image:
   Romans 8:29 - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order
   that he might be the firstborn among many brothers. (ESV)
 
-74. Praising and thanking God in Heaven:
+74. Praising and thanking God in Heaven
+
+Sermon
+youtube.com: Christ Has Purchased Global Praise
 
 We should start now.
 
@@ -38569,7 +38589,7 @@ now.
 76. The close of the age
 
 Sermon
-His Voice in Yours: How Christ Wins the World - YouTube
+youtube.com: His Voice in Yours: How Christ Wins the World
 
   Revelation of John 14:7 - And he said with a loud voice, Fear God and give him glory, because the hour of his
   judgment has come, and worship him who made heaven and earth, the sea and the springs of water. (ESV)
@@ -38666,14 +38686,14 @@ God. Jesus is God the Son:
 78. AMEN!!
 
 Sermon
-There's Only One Acceptable Motive To Serve God - YouTube
+youtube.com: There's Only One Acceptable Motive To Serve God
 
 The motivation for everything must be to glorify God.
 
 78.1. Do the will of the Father - obey Jesus. It's not just the red letters either. We must keep God's commandments.
 AMEN!!
 
-The most terrifying passage in the Bible | Matthew 7:21-23 - YouTube
+youtube.com: The most terrifying passage in the Bible | Matthew 7:21-23
 
   Luke 8:21 - But He answered and said to them, "My mother and My brothers are these who hear the word of God and
   do it." (ESV)
@@ -38849,11 +38869,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-18 Thu 00:00
+Date: 2024-07-19 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-18 Thu 21:17
+Created: 2024-07-19 Fri 22:09
 
 Validate
 
