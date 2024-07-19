@@ -16361,6 +16361,10 @@ And is in line with what Jesus has said:
 
 There's so much stuff to do in obedience to enter the kingdom&#x2026; I feel entirely unworthy.
 
+At the same time, it's so simple and there is not a lot to do: just have a trusting heart towards Jesus and receive it:
+
+> **[Luke 18:17](https://www.biblegateway.com/passage/?search=Luke%2018%3A17&version=ESV)** - Truly, I say to you, whoever does not receive the kingdom of God like a child shall not enter it. (ESV)
+
 Firstly, it has been by grace because I asked God to save me, even when I was very much stuck in sin. And I still <ins>feel</ins> as though I am approaching it and haven't quite entered it (just being honest here), but I'm not turning back from the plow.
 
 Those who hunger and thirst for righteousness will be satisfied.
