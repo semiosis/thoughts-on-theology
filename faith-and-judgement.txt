@@ -6786,12 +6786,79 @@ The ones who are slaves to righteousness, following Jesus Christ, go to eternal 
   John 1:12 - But to all who did receive him, who believed in his name, he gave the right to become children of
   God, (ESV)
 
-OK, so how?
+OK, so how? We must continue in what we have learned from the Holy Scriptures and continue in what we have firmly
+believed:
 
-Believers who turn to the Lord. Here a great number of the total number of believers ended up turning to the
-Lord::
+  II Timothy 3:14-15 - But as for you, continue in what you have learned and have firmly believed, knowing from
+  whom you learned it and how from childhood you have been acquainted with the sacred writings, which are able to
+  make you wise for salvation through faith in Christ Jesus. (ESV)
+
+We hear the gospel and believe in Him:
+
+  Ephesians 1:13-14 - In him you also, when you heard the word of truth, the gospel of your salvation, and
+  believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
+  acquire possession of it, to the praise of his glory. (ESV)
+
+Believers then commit to the Lord:
+
+  Acts 14:23 - And when they had appointed elders for them in every church, with prayer and fasting they committed
+  them to the Lord in whom they had believed. (ESV)
+
+This commitment to the Lord I believe is having a love for Jesus, which shows itself in obedience:
+
+  John 16:27 - for the Father himself loves you, because you have loved me and have believed that I came from God.
+  (ESV)
+
+  John 15:10 - If you keep my commandments, you will abide in my love, just as I have kept my Father's
+  commandments and abide in his love. (ESV)
+
+To abiding in His word is to commit to Jesus:
+
+  John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
+  disciples, and you will know the truth, and the truth will set you free. (ESV)
+
+Believers are generally sealed with the Holy Spirit when they first believe:
+
+  Acts 11:17 - If then God gave the same gift to them as he gave to us when we believed in the Lord Jesus Christ,
+  who was I that I could stand in God's way? (ESV)
+
+  Acts 19:2 - And he said to them, Did you receive the Holy Spirit when you believed? And they said, No, we have
+  not even heard that there is a Holy Spirit. (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+  I Corinthians 15:1-2 - Now I would remind you, brothers, of the gospel I preached to you, which you received, in
+  which you stand, and by which you are being saved, if you hold fast to the word I preached to you-unless you
+  believed in vain. (ESV)
+
+We are saved as we are believing:
+
+  Romans 13:11 - Besides this you know the time, that the hour has come for you to wake from sleep. For salvation
+  is nearer to us now than when we first believed. (ESV)
+
+In this case, a great number of the total number of believers ended up turning to the Lord:
 
   Acts 11:21 - And the hand of the Lord was with them, and a great number who believed turned to the Lord. (ESV)
+
+In this case, the full number of the total believers had turned to the Lord:
+
+  Acts 4:32 - Now the full number of those who believed were of one heart and soul, and no one said that any of
+  the things that belonged to him was his own, but they had everything in common. (ESV)
+
+Father God who has spoken through the Prophets draws us to Jesus. We believe in Jesus and we are drawn to Jesus:
+
+  John 6:64-66 - But there are some of you who do not believe. (For Jesus knew from the beginning who those were
+  who did not believe, and who it was who would betray him.) And he said, This is why I told you that no one can
+  come to me unless it is granted him by the Father. After this many of his disciples turned back and no longer
+  walked with him. (ESV)
+
+  John 6:44-51 - No one can come to me unless the Father who sent me draws him. And I will raise him up on the
+  last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned
+  from the Father comes to me- not that anyone has seen the Father except he who is from God; he has seen the
+  Father. Truly, truly, I say to you, whoever believes has eternal life. I am the bread of life. Your fathers ate
+  the manna in the wilderness, and they died. This is the bread that comes down from heaven, so that one may eat
+  of it and not die. I am the living bread that came down from heaven. If anyone eats of this bread, he will live
+  forever. And the bread that I will give for the life of the world is my flesh. (ESV)
 
 Going forward, we must remain faithful to Jesus:
 
@@ -6799,10 +6866,14 @@ Going forward, we must remain faithful to Jesus:
   to the Lord with steadfast purpose, for he was a good man, full of the Holy Spirit and of faith. And a great
   many people were added to the Lord. (ESV)
 
-Believers who receive the Spirit:
+We receive the Holy Spirit after / at the same time as believing. We want to be found in Jesus:
 
   John 7:39 - Now this he said about the Spirit, whom those who believed in him were to receive, for as yet the
   Spirit had not been given, because Jesus was not yet glorified. (ESV)
+
+  I Peter 4:13-14 - But rejoice insofar as you share Christ's sufferings, that you may also rejoice and be glad
+  when his glory is revealed. If you are insulted for the name of Christ, you are blessed, because the Spirit of
+  glory and of God rests upon you. (ESV)
 
 In this situation, all of the believers were of one heart and mind:
 
@@ -6812,10 +6883,31 @@ In this situation, all of the believers were of one heart and mind:
 Song
 youtube.com: Who You Say I Am - Hillsong Worship
 
+We believe and then we come to know Jesus:
+
+  John 6:68-69 - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, and we
+  have believed, and have come to know, that you are the Holy One of God. (ESV)
+
+  John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
+  disciples, and you will know the truth, and the truth will set you free. (ESV)
+
 Receive Jesus, believing in His name:
 
   John 1:12 - But to all who did receive him, who believed in his name, he gave the right to become children of
   God, (ESV)
+
+We must abide by Jesus Christ's teaching. Whoever does not abide in Jesus Christ's teaching does not have God:
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son.
+
+  Matthew 4:17 - From that time Jesus began to preach, saying, Repent, for the kingdom of heaven is at hand. (ESV)
+
+We must obey righteousness. Yes, obey Jesus' commandments and obey Father God's commandments:
+
+  Romans 2:6-8 - He will render to each one according to his works: to those who by patience in well-doing seek
+  for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not
+  obey the truth, but obey unrighteousness, there will be wrath and fury. (ESV)
 
 The children of God are the ones who love other children of God by following God's commandments:
 
@@ -6823,6 +6915,18 @@ The children of God are the ones who love other children of God by following God
   does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
   I John 5:2 - By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
+
+Don't squabble about free-will and sit on the fence until the second coming. Just do it:
+
+  I Chronicles 28:20 - Then David said to Solomon his son, Be strong and courageous and do it. Do not be afraid
+  and do not be dismayed, for the LORD God, even my God, is with you. He will not leave you or forsake you, until
+  all the work for the service of the house of the LORD is finished. (ESV)
+
+  Ezra 10:4 - Arise, for it is your task, and we are with you; be strong and do it. (ESV)
+
+  Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+God loves us by allowing us to know Him and be called children of God:
 
   Romans 8:16 - The Spirit himself bears witness with our spirit that we are children of God, (ESV)
 
@@ -6836,6 +6940,8 @@ The children of God are the ones who love other children of God by following God
 
   Romans 8:21 - that the creation itself will be set free from its bondage to decay and obtain the freedom of the
   glory of the children of God. (ESV)
+
+God adopts us and cleans us up and puts us on display:
 
   Philippians 2:15 - that you may be blameless and innocent, children of God without blemish in the midst of a
   crooked and twisted generation, among whom you shine as lights in the world, (ESV)
@@ -9763,7 +9869,7 @@ the law, then we can't say we are being led by the Spirit:
 
  1. We must abide by his teaching
 
-We must abide by Jesus Christ's teaching. Whoever does not abide in Jesus Christ's teaching does not have God.
+We must abide by Jesus Christ's teaching. Whoever does not abide in Jesus Christ's teaching does not have God:
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son.
@@ -38869,11 +38975,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-19 Fri 00:00
+Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-19 Fri 22:09
+Created: 2024-07-20 Sat 08:19
 
 Validate
 
