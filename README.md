@@ -6176,6 +6176,10 @@ We can certainly "be obedient to God's commandments" and that is "doing":
 
 > **[Hebrews 11:31](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A31&version=ESV)** - By faith Rahab the prostitute did not perish with those who were disobedient, because she had given a friendly welcome to the spies. (ESV)
 
+-   **[Quote by John Piper](https://youtu.be/BQDRdC0h1mM?t=2433):** The only sin that you can conquer in life is a forgiven sin. The only sin that you can successfully strive against without incurring the judgement of God on your legalism is a forgiven sin. This is glorious. It's a glorious way to become holy.
+
+-   **[Quote by John Piper](https://www.desiringgod.org/messages/christ-died-to-make-us-holy):** Namely, that the only sin that can be successfully fought is a forgiven sin. And not only that, but also since the forgiveness has been secured infallibly by the blood of Jesus, the fight will be successful.
+
 Perfect obedience though is something Jesus reached but I certainly have not:
 
 > **[Philippians 2:8](https://www.biblegateway.com/passage/?search=Philippians%202%3A8&version=ESV)** - And being found in human form, he humbled himself by becoming obedient to the point of death, even death on a cross. (ESV)
