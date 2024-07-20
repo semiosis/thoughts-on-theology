@@ -14725,6 +14725,35 @@ imitate Christ, passing forward love and forgiveness and endeavoring to be holy.
     o 6th: Finally, that you would make clear the effective connection between the the tearing off of the flesh of
       Christ in crucifixion and the tearing out of your eye in the battle against lust.
 
+Referring to 1 Peter 1:18-20:
+
+Quote by John Piper
+"He does not say you were ransommed from guilt. He does not say you were ransommed from condemnation. He does not
+say you were ransommed from satan. He does not say you were ransommed from hell. He said you were ransommed from
+ways. Live in holy conduct because He bought it with blood."
+
+  I Peter 1:14-20 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
+  who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
+  holy. And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves
+  with fear throughout the time of your exile, knowing that you were ransomed from the futile ways inherited from
+  your forefathers, not with perishable things such as silver or gold, but with the precious blood of Christ, like
+  that of a lamb without blemish or spot. He was foreknown before the foundation of the world but was made
+  manifest in the last times for your sake, (ESV)
+
+Quote by John Piper
+"Conduct yourself in holiness because you know you were ransommed from unholiness. You were ransommed from futile
+ways into holy ways."
+
+Quote by John Piper
+It's not enough to say that God paid the ransom for His wife - so God's wife is kidnapped, she's across the plaza,
+and He's going to get her, for Himself, and he pays an infinite price, and it's not as though she steps out free
+from her captors and goes and shacks up with another man! That didn't happen at the cross. It doesn't happen. He
+doesn't fail in His purchases. He's not impotent. His blood is not ineffective. It was not in vain. The ransom
+bought a new life for His people, a new holiness for His people. They will walk in the way He bought. If they
+don't, they have no warrant to believe they're His.
+
+AMEN!!
+
 If we keep His commandments, keep His works we will reign with Him:
 
   II Timothy 2:12-13 - if we endure, we will also reign with him; if we deny him, he also will deny us; if we are
@@ -39375,7 +39404,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 20:08
+Created: 2024-07-20 Sat 20:38
 
 Validate
 
