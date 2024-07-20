@@ -37150,7 +37150,12 @@ poor people can, and that to God is an abomination I assure you - and I wouldn't
 
 Tempting God with that seems a worse idea than "poking the bear".
 
-  II Samuel 12:1-25 - And the LORD sent Nathan to David. He came to him and said to him, There were two men in a
+  II Samuel 11:3-5 - And David sent and inquired about the woman. And one said, Is not this Bathsheba, the
+  daughter of Eliam, the wife of Uriah the Hittite? So David sent messengers and took her, and she came to him,
+  and he lay with her. (Now she had been purifying herself from her uncleanness.) Then she returned to her house.
+  And the woman conceived, and she sent and told David, I am pregnant. (ESV)
+
+  II Samuel 12:1-18 - And the LORD sent Nathan to David. He came to him and said to him, There were two men in a
   certain city, the one rich and the other poor. The rich man had very many flocks and herds, but the poor man had
   nothing but one little ewe lamb, which he had bought. And he brought it up, and it grew up with him and with his
   children. It used to eat of his morsel and drink from his cup and lie in his arms, and it was like a daughter to
@@ -37175,17 +37180,25 @@ Tempting God with that seems a worse idea than "poking the bear".
   stood beside him, to raise him from the ground, but he would not, nor did he eat food with them. On the seventh
   day the child died. And the servants of David were afraid to tell him that the child was dead, for they said,
   Behold, while the child was yet alive, we spoke to him, and he did not listen to us. How then can we say to him
-  the child is dead? He may do himself some harm. But when David saw that his servants were whispering together,
-  David understood that the child was dead. And David said to his servants, Is the child dead? They said, He is
-  dead. Then David arose from the earth and washed and anointed himself and changed his clothes. And he went into
-  the house of the LORD and worshiped. He then went to his own house. And when he asked, they set food before him,
-  and he ate. Then his servants said to him, What is this thing that you have done? You fasted and wept for the
-  child while he was alive; but when the child died, you arose and ate food. He said, While the child was still
-  alive, I fasted and wept, for I said, Who knows whether the LORD will be gracious to me, that the child may
-  live? But now he is dead. Why should I fast? Can I bring him back again? I shall go to him, but he will not
-  return to me. Then David comforted his wife, Bathsheba, and went in to her and lay with her, and she bore a son,
-  and he called his name Solomon. And the LORD loved him and sent a message by Nathan the prophet. So he called
-  his name Jedidiah, because of the LORD. (ESV)
+  the child is dead? He may do himself some harm. (ESV)
+
+Because of the seriousness of the circumstances, and the fear of God, I'm prevented from doing much without
+specific and unambiguous instruction from God, like an angel:
+
+  Matthew 1:20 - But as he considered these things, behold, an angel of the Lord appeared to him in a dream,
+  saying, Joseph, son of David, do not fear to take Mary as your wife, for that which is conceived in her is from
+  the Holy Spirit. (ESV)
+
+  I John 4:1-3 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
+  many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that
+  confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is
+  not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already.
+  (ESV)
+
+It's right for me to focus on God right now.
+
+youtube.com: 'I Have Loved You'
+The revelation of the the Lord's love is unfolded in a way that makes us tremble.
 
 From my angle, I consider myself to be the poor man in this situation and not like David. I believe I could have
 asked God to get justice with this, but then it's better to show mercy even for my own sake, especially in the
@@ -39154,7 +39167,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 12:56
+Created: 2024-07-20 Sat 13:41
 
 Validate
 
