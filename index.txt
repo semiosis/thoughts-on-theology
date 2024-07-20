@@ -5536,6 +5536,9 @@ Quote from John Piper:
   when we're low. It seems like all the joy is gone we want to quit give up the ministry give up the faith, and at
   those moments we need to fight like heaven to hold on.
 
+Sermon
+youtube.com: Sustaining Joy in Christ
+
 5.4.3. We are bought with the precious blood of Christ and we should be obedient to God
 
   I Peter 1:17-19 - And if you call on him as Father who judges impartially according to each one's deeds, conduct
@@ -14707,6 +14710,20 @@ may be that this works like a blood transfusion, or a like Jesus' car battery re
 should be received by faith, faith which includes the belief of faith and the obedience of faith, such as
 obedience to the discipline of Christ, that should yield the peaceful fruit of righteousness as we then seek to
 imitate Christ, passing forward love and forgiveness and endeavoring to be holy.
+
+  John Piper's aim in this sermon is that:
+
+    o 1st: those of you who preach and teach the word of God would do so in a way that makes clear the effective
+      connection between the sin bearing work of Christ and the sin killing work of the Christian
+    o 2nd: that you would make clear the effective connection between canceled sin and conquered sin
+    o 3rd: that you would make clear the effective connection between the horrors of Christ's suffering and the
+      holiness of Christ's people
+    o 4th: that you would make clear the release of people from guilt and how it effectively connects with the
+      securing of their lives of righteousness
+    o 5th: that you would make clear the effective connection between justification by his blood and progressive
+      sanctification by that same blood, and
+    o 6th: Finally, that you would make clear the effective connection between the the tearing off of the flesh of
+      Christ in crucifixion and the tearing out of your eye in the battle against lust.
 
 If we keep His commandments, keep His works we will reign with Him:
 
@@ -37267,6 +37284,13 @@ Everything seemed to line up:
   would prefer if it could be mostly cake base and icing on the top. God doesn't want to be merely the icing on
   the cake but the foundation of our life.
 
+This sermon helps:
+
+youtube.com: Sustaining Joy in Christ
+#8 - "Spend time with God saturated people who will help you see God and fight the fight of faith." #9 "Read
+biographies of great Christian Saints." Now I mention this because it's biblical Hebrews 11 is all about heroes of
+the faith.
+
 I think the judiciary system should be careful not to infringe on basic human rights going forward with the
 AI-generated fiction which is now in the world, otherwise as I have said, robots may be taking human wives before
 poor people can, and that to God is an abomination I assure you - and I wouldn't want to tempt God.
@@ -39351,7 +39375,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 18:04
+Created: 2024-07-20 Sat 20:08
 
 Validate
 
