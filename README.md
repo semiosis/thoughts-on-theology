@@ -26292,9 +26292,11 @@ of faithfulness, and another part was that after I proposed I wanted to [demonst
 and as far as I knew at the time, copying Reformed Church Quiz Night results on my blog was not illegal, despite it having elements of her name dispersed in the result answers,
 or a picture of a flowerbed on my own Facebook page.
 
-I realise that by doing this I was also ["poking the bear"](https://dictionary.cambridge.org/dictionary/english/poke-the-bear),
-but I'm a human being who proposed to someone, and I feel like I can in all honesty plead that I was just being human
-and I felt at the time like the system opposing me was an evil and graceless machine, but also I wasn't exercising perfect love because otherwise I would not have been resentful:
+I realise that by doing this may have looked like ["poking the bear"](https://dictionary.cambridge.org/dictionary/english/poke-the-bear) and I was aware of that possibility,
+but my motivation wasn't to. I'm a human being who proposed to someone, and I feel like I can in all honesty plead that I was just being human
+who was making their first proposal and I felt at the time like the system opposing me was an evil
+and graceless machine that was punishing me for doing what felt right,
+but also I wasn't exercising perfect love because otherwise I would not have been even a tiny bit resentful:
 
 > **[I Corinthians 13:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A4-8&version=ESV)** - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It **does not insist on its own way; it is not irritable or resentful;** it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
 
