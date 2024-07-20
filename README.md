@@ -26287,7 +26287,8 @@ Part of why I could not resist but continue blogging,
 was because of the sheer injustice I felt regarding my freedom to write,
 and I felt like there was this relationship-destroying spirit sabotaging my relationships again,
 and whatever thing was completely against faith itself - I had already been writing on my blog very few times to demonstrate a track record
-of faithfulness, and another part was that after I proposed I wanted to demonstrate faithful waiting **in way that was legal** as the proposal had not been rejected,
+of faithfulness, and another part was that after I proposed I wanted to [demonstrate faithful waiting](https://youtu.be/OWNLVogchpU?t=117) in way that was legal
+(though it was grey, I guess) as the proposal had not been rejected,
 and as far as I knew at the time, copying Reformed Church Quiz Night results on my blog was not illegal, despite it having elements of her name dispersed in the result answers,
 or a picture of a flowerbed on my own Facebook page.
 

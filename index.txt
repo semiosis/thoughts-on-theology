@@ -37123,9 +37123,9 @@ Part of why I could not resist but continue blogging, was because of the sheer i
 freedom to write, and I felt like there was this relationship-destroying spirit sabotaging my relationships again,
 and whatever thing was completely against faith itself - I had already been writing on my blog very few times to
 demonstrate a track record of faithfulness, and another part was that after I proposed I wanted to demonstrate
-faithful waiting in way that was legal as the proposal had not been rejected, and as far as I knew at the time,
-copying Reformed Church Quiz Night results on my blog was not illegal, despite it having elements of her name
-dispersed in the result answers, or a picture of a flowerbed on my own Facebook page.
+faithful waiting in way that was legal (though it was grey, I guess) as the proposal had not been rejected, and as
+far as I knew at the time, copying Reformed Church Quiz Night results on my blog was not illegal, despite it
+having elements of her name dispersed in the result answers, or a picture of a flowerbed on my own Facebook page.
 
 I realise that by doing this I was also "poking the bear", but I'm a human being who proposed to someone, and I
 feel like I can in all honesty plead that I was just being human and I felt at the time like the system opposing
@@ -39153,7 +39153,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 12:10
+Created: 2024-07-20 Sat 12:46
 
 Validate
 
