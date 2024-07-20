@@ -37195,15 +37195,42 @@ specific and unambiguous instruction from God, like an angel:
   not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already.
   (ESV)
 
-It's right for me to focus on God right now.
+It's right for me to focus on God right now, and remain obedient to Jesus:
 
 youtube.com: 'I Have Loved You'
 The revelation of the the Lord's love is unfolded in a way that makes us tremble.
 
-From my angle, I consider myself to be the poor man in this situation and not like David. I believe I could have
-asked God to get justice with this, but then it's better to show mercy even for my own sake, especially in the
-knowledge that I have been shown mercy by God. So I know I have been shown mercy, and I know I should pass forward
-mercy. Remember the parable of the unforgiving servant (Matthew 18:21-35):
+  James 1:12-18 - Blessed is the man who remains steadfast under trial, for when he has stood the test he will
+  receive the crown of life, which God has promised to those who love him. Let no one say when he is tempted, I am
+  being tempted by God, for God cannot be tempted with evil, and he himself tempts no one. But each person is
+  tempted when he is lured and enticed by his own desire. Then desire when it has conceived gives birth to sin,
+  and sin when it is fully grown brings forth death. Do not be deceived, my beloved brothers. Every good gift and
+  every perfect gift is from above, coming down from the Father of lights with whom there is no variation or
+  shadow due to change. Of his own will he brought us forth by the word of truth, that we should be a kind of
+  firstfruits of his creatures. (ESV)
+
+youtube.com: The Fullest, Longest Happiness: For Those Who Pass the Test
+
+That lifestyle, that unselfish, other oriented, love your neighbor as yourself, sacrificial way of life, I'm
+telling you, is going to be required of you in the midst of lifelong miseries, which are God's tests.
+
+That's where the obedience of this book (James) is going to be required of you.
+
+There's no vacation time to do nice obedience and then you can suffer at another time...
+
+It is design in those tests is your deep and Lasting happiness and these tests provide circumstances through which
+you are found proven and fit for the crown of life.
+
+All God's tests are designed to make you deeply and lastingly happy.
+
+Everything else in the text is to help you believe that live that because life is going to be hard Joy is going to
+be serious.
+
+From my angle, I had considered myself as the poor man (II Samuel 12:1-18) in the situation of court and not like
+David who stole someone's wife, but I had a lot of repentance to do. I believe I could have asked God to get
+justice with this, but then it's better to show mercy even for my own sake, especially in the knowledge that I
+have been shown mercy by God. So I know I have been shown mercy, and I know I should pass forward mercy. Remember
+the parable of the unforgiving servant (Matthew 18:21-35):
 
   James 2:13 - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. (ESV)
 
@@ -39167,7 +39194,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 13:41
+Created: 2024-07-20 Sat 13:56
 
 Validate
 
