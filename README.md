@@ -2396,7 +2396,7 @@ Also, waiting on the LORD our strength is renewed:
 
 > **[Isaiah 40:31](https://www.biblegateway.com/passage/?search=Isaiah%2040%3A31&version=ESV)** - but they who wait for the LORD shall renew their strength; they shall mount up with wings like eagles; they shall run and not be weary; they shall walk and not faint. (ESV)
 
-We receive an anointing from God teaches us and we learn from it and abide in Him:
+We receive an anointing from God. God teaches us and we learn from it and abide in Him:
 
 > **[I John 2:27](https://www.biblegateway.com/passage/?search=1%20John%202%3A27&version=ESV)** - But the anointing that you received from him abides in you, and you have no need that anyone should teach you. But as his anointing teaches you about everything—and is true and is no lie, just as it has taught you—abide in him. (ESV)
 
@@ -2440,7 +2440,7 @@ See how we obey Him and he helps us:
 
 > **[I John 3:21-23](https://www.biblegateway.com/passage/?search=1%20John%203%3A21-23&version=ESV)** - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. (ESV)
 
-As obedient children of God we ask God in prayer and if it's according to His will He hears us he grants our requests:
+As obedient children of God we ask God in prayer and if it's according to His will He hears us and he grants us our requests:
 
 > **[I Peter 1:14](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A14&version=ESV)** - As obedient children, do not be conformed to the passions of your former ignorance, (ESV)
 
@@ -16196,9 +16196,19 @@ The persecution is for the cross of Christ - the offense of the cross:
 > **[Galatians 6:12](https://www.biblegateway.com/passage/?search=Galatians%206%3A12&version=ESV)** - It is those who want to make a good showing in the flesh who would force you to be circumcised, and only in order that they may not be persecuted for the cross of Christ. (ESV)
 
 
-### There are huge rewards for Christian persecution
+### There are huge rewards for following Jesus in this life and the one after
 
-> **[Mark 10:30](https://www.biblegateway.com/passage/?search=Mark%2010%3A30&version=ESV)** - who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with persecutions, and in the age to come eternal life. (ESV)
+In other words, by giving up your present life for being a disciple of Jesus, for obeying Jesus and for the sake of His gospel, we are rewarded in this life and the one after:
+
+> **[Mark 10:29-30](https://www.biblegateway.com/passage/?search=Mark%2010%3A29-30&version=ESV)** - Jesus said, Truly, I say to you, there is no one who has left house or brothers or sisters or mother or father or children or lands, for my sake and for the gospel, who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with persecutions, and in the age to come eternal life. (ESV)
+
+But it also makes me think that I really wish I had tried to follow Jesus years ago, especially before I was born-again:
+
+> **[John 20:29](https://www.biblegateway.com/passage/?search=John%2020%3A29&version=ESV)** - Jesus said to him, Have you believed because you have seen me? Blessed are those who have not seen and yet have believed. (ESV)
+
+And also, I can't really claim "Christian persecution", I don't think.
+People have generally respected me as a Christian.
+ALso, I live in New Zealand. I've had it quite good, to be honest.
 
 
 ### We bless back and endure
