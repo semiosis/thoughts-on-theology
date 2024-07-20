@@ -530,9 +530,17 @@ We are freed from, for example, making the worries of the world our first though
 
 -   **Lyrics:** Jesus, all for Jesus; All I am and have and ever hope to be; All of my ambitions, hopes and plans; I surrender these into your hands; **For it's only in your will that I am free**;
 
-I believe this. If anyone is trusting that Jesus is the Christ, the Son of God, then they have life in His name. That doesn't mean they have come to know Him yet.
+I believe this. If anyone is trusting that Jesus is the Christ, the Son of God, then they have life in His name. That doesn't mean they have come to know Him yet. But if they have just begun to trust that Jesus is the Christ, they have started on their journey to get to know Him. They are an infant in Christ:
 
 > **[John 20:31](https://www.biblegateway.com/passage/?search=John%2020%3A31&version=ESV)** - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name. (ESV)
+
+We must get on the path of having faith in Jesus, believe in the name of Jesus, God's Son, and obey God to have confidence:
+
+> **[Proverbs 10:17](https://www.biblegateway.com/passage/?search=Proverbs%2010%3A17&version=ESV)** - Whoever heeds instruction is on the path to life, but he who rejects reproof leads others astray. (ESV)
+
+> **[I John 3:21-22](https://www.biblegateway.com/passage/?search=1%20John%203%3A21-22&version=ESV)** - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask we receive from him, because **we keep his commandments and do what pleases him**. (ESV)
+
+As we hold our faith in God, we understand that He loved us first. As we hold our faith in God, we draw closer to God as we practice Christ's love towards others:
 
 > **[I John 4:8-11](https://www.biblegateway.com/passage/?search=1%20John%204%3A8-11&version=ESV)** - Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might **live through him**. In **this is love**, <ins>not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.</ins> Beloved, if God so loved us, we also ought to love one another.
 
@@ -26266,6 +26274,8 @@ I still needed ongoing repentance and sanctification (correction theologically a
 and I think that theological error most likely led to endorsing things which I later wanted
 to repent from. I felt like it was urgent to repent from heresy and from publicly affirming that I would not judge gay marriage,
 and my need to plead guilty was in the light of the knowledge of my error.
+
+I am not the judge of people. There is only one judge. But I am repentant from sin and affirm God's precepts, not sin.
 
 Also, my attitude of wanting to remain faithful to the girl began to degrade my faithfulness to Jesus as I began to make compromises in my writing
 to continue affirming faithfulness to the girl.

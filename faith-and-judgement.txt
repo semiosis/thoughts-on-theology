@@ -846,10 +846,23 @@ Jesus, all for Jesus; All I am and have and ever hope to be; All of my ambitions
 these into your hands; For it's only in your will that I am free;
 
 I believe this. If anyone is trusting that Jesus is the Christ, the Son of God, then they have life in His name.
-That doesn't mean they have come to know Him yet.
+That doesn't mean they have come to know Him yet. But if they have just begun to trust that Jesus is the Christ,
+they have started on their journey to get to know Him. They are an infant in Christ:
 
   John 20:31 - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by
   believing you may have life in his name. (ESV)
+
+We must get on the path of having faith in Jesus, believe in the name of Jesus, God's Son, and obey God to have
+confidence:
+
+  Proverbs 10:17 - Whoever heeds instruction is on the path to life, but he who rejects reproof leads others
+  astray. (ESV)
+
+  I John 3:21-22 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
+  we receive from him, because we keep his commandments and do what pleases him. (ESV)
+
+As we hold our faith in God, we understand that He loved us first. As we hold our faith in God, we draw closer to
+God as we practice Christ's love towards others:
 
   I John 4:8-11 - Anyone who does not love does not know God, because God is love. In this the love of God was
   made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is
@@ -37097,6 +37110,9 @@ theological error most likely led to endorsing things which I later wanted to re
 urgent to repent from heresy and from publicly affirming that I would not judge gay marriage, and my need to plead
 guilty was in the light of the knowledge of my error.
 
+I am not the judge of people. There is only one judge. But I am repentant from sin and affirm God's precepts, not
+sin.
+
 Also, my attitude of wanting to remain faithful to the girl began to degrade my faithfulness to Jesus as I began
 to make compromises in my writing to continue affirming faithfulness to the girl.
 
@@ -39137,7 +39153,7 @@ Date: 2024-07-20 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 11:49
+Created: 2024-07-20 Sat 12:10
 
 Validate
 
