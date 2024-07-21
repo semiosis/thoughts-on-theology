@@ -4427,6 +4427,11 @@ the Royal Law, that is to love one's neighbour as themself, even owing that to o
   Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
   law. (ESV)
 
+  Galatians 6:2-6 - Bear one another's burdens, and so fulfill the law of Christ. For if anyone thinks he is
+  something, when he is nothing, he deceives himself. But let each one test his own work, and then his reason to
+  boast will be in himself alone and not in his neighbor. For each will have to bear his own load. One who is
+  taught the word must share all good things with the one who teaches. (ESV)
+
   I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one
   another earnestly from a pure heart, (ESV)
 
@@ -27612,7 +27617,11 @@ spiritually that you do in bed with someone physically.
 I had considered that marriage should be laser precision close so that nothing is able to cause disunity, but
 that's actually what God wants us to be like with Him first and foremost.
 
-Marriage should be holy, it should be in the Lord and we are espoused to Christ.
+Marriage should be holy, it should be in the Lord and we are espoused to Christ. And this says that remarriage
+must be in the Lord:
+
+  I Corinthians 7:39 - A wife is bound to her husband as long as he lives. But if her husband dies, she is free to
+  be married to whom she wishes, only in the Lord. (ESV)
 
 This was a good sermon on the topic I watched today:
 
@@ -27631,16 +27640,11 @@ marriage partner:
   they shall become one flesh? So they are no longer two but one flesh. What therefore God has joined together,
   let not man separate. (ESV)
 
-Like getting all the air bubbles out of bubble wrap before getting married. It's a precision thing, I think. But
-the most important thing is it's in the Lord.
+The unbelieving spouse is sanctified because of the believing spouse. So it's not the end of the world having an
+unbelieving spouse, but what this says is that the unbeliever is made holy - they will come to believe:
 
   I Corinthians 7:14 - For the unbelieving husband is made holy because of his wife, and the unbelieving wife is
   made holy because of her husband. Otherwise your children would be unclean, but as it is, they are holy. (ESV)
-
-youtube.com: Building the ULTIMATE Vintage City Street DIORAMA
-Someone commented, "I'm still watching but I am taking a second to tell you that I think that your idea about
-using the spray glue to attach the windows is genius! You're right, no fingerprints, no glue smudges, just
-gorgeous!"
 
 51.5. Marriage is still good but so is singleness
 
@@ -39961,7 +39965,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 09:11
+Created: 2024-07-22 Mon 10:12
 
 Validate
 

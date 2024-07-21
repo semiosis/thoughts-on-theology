@@ -2858,7 +2858,9 @@ When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should 
 
 > **[Romans 13:8](https://www.biblegateway.com/passage/?search=Romans%2013%3A8&version=ESV)** - Owe no one anything, except to love each other, for the one who loves another has fulfilled the law. (ESV)
 
-> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
+> **[Galatians 6:2-6](https://www.biblegateway.com/passage/?search=Galatians%206%3A2-6&version=ESV)** - **Bear one another's burdens**, and so fulfill the law of Christ. For if anyone thinks he is something, when he is nothing, he deceives himself. But <ins>let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor.</ins> **For each will have to bear his own load.** One who is taught the word **must share** all good things with the one who teaches. (ESV)
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having **purified your souls by your obedience to the truth for a sincere brotherly love**, love one another earnestly from a pure heart, (ESV)
 
 The Golden Rule, I think explains that we should behave like a child of Father God who is by nature Good and gives good gifts to His children, and gifts that are truly good, far exceeding any amount of favour we might show our own children. As we behave like a child of Father God, believing the gospel of Jesus, and loving with Christ's love, we can really say our Father is God, as a child takes after their parents, and a child of Father God behaves like Jesus and follows Jesus. We try to follow Jesus, and imitate Christ's pattern, as Christ is **the** Son of God.
 
@@ -12622,7 +12624,7 @@ This is about being willing to work or unwilling. I'm definitely willing to work
 
 Being **willing** to work is important as we are not supposed to be a burden on others. 
 
-> **[Galatians 6:2-6](https://www.biblegateway.com/passage/?search=Galatians%206%3A2-6&version=ESV)** - Bear one another's burdens, and so fulfill the law of Christ. For if anyone thinks he is something, when he is nothing, he deceives himself. But let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor. For each will have to bear his own load. One who is taught the word must share all good things with the one who teaches. (ESV)
+> **[Galatians 6:2-6](https://www.biblegateway.com/passage/?search=Galatians%206%3A2-6&version=ESV)** - **Bear one another's burdens**, and so fulfill the law of Christ. For if anyone thinks he is something, when he is nothing, he deceives himself. But <ins>let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor.</ins> **For each will have to bear his own load.** One who is taught the word **must share** all good things with the one who teaches. (ESV)
 
 I'm willing to work and I would love to have a job and I would love to teach but I've been attacked a lot by demons, prevented from teaching due to a conviction, pushed out of churches for following Jesus, had the love of my life taken away from me, and been treated like absolute garbage, coming from such poverty that the poverty undermined my college degree, and my subsequent employment. For some reason it's been far too difficult. Although it is important to get a job, I have to be **fit** and prepared for work, and I'm doing battle against an anti-marriage spirit, and I'm like the person who was recovering at the inn (from the parable of the good Samaritan as Jesus has rescued me). Also, I'm in corrections (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-21 Sun&gt; </span></span> so I am being corrected by reading my Bible and studying the Word, so I still feel as though I am in the clear. I understand work is important, and I'm not exaggerating any of this. It will happen in the right order. And any spirit that puts having a job before having a wife I consider to be a spirit of prostitution / people trafficking. This antichrist spirit has also been attacking my family and manifesting within the household.
 
@@ -19076,7 +19078,9 @@ precision close so that nothing is able to
 cause disunity, but that's actually what God
 wants us to be like with Him first and foremost.
 
-Marriage should be holy, it should be in the Lord and we are espoused to Christ.
+Marriage should be holy, it should be in the Lord and we are espoused to Christ. And this says that remarriage must be in the Lord:
+
+> **[I Corinthians 7:39](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A39&version=ESV)** - A wife is bound to her husband as long as he lives. But if her husband dies, she is free to be married to whom she wishes, only in the Lord. (ESV)
 
 This was a good sermon on the topic I watched today:
 
@@ -19088,11 +19092,9 @@ In all honesty, I think it's valuable that a Christian marriage couple should st
 
 > **[Matthew 19:5-6](https://www.biblegateway.com/passage/?search=Matthew%2019%3A5-6&version=ESV)** - and said, Therefore a man shall leave his father and his mother and hold fast to his wife, and they shall become one flesh? So they are no longer two but one flesh. What therefore God has joined together, let not man separate. (ESV)
 
-Like getting all the air bubbles out of bubble wrap before getting married. It's a precision thing, I think. But the most important thing is it's in the Lord.
+**The unbelieving spouse is sanctified because of the believing spouse**. So it's not the end of the world having an unbelieving spouse, but what this says is that the unbeliever is **made holy** - they will come to believe:
 
 > **[I Corinthians 7:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A14&version=ESV)** - For the unbelieving husband is made holy because of his wife, and the unbelieving wife is made holy because of her husband. Otherwise your children would be unclean, but as it is, they are holy. (ESV)
-
--   **[youtube.com: Building the ULTIMATE Vintage City Street DIORAMA](https://www.youtube.com/watch?v=Vz8X_Ndnwl4):** Someone commented, "I’m still watching but I am taking a second to tell you that I think that your idea about using the spray glue to attach the windows is genius! You’re right, no fingerprints, no glue smudges, just gorgeous!"
 
 
 ## Marriage is still good but so is singleness
