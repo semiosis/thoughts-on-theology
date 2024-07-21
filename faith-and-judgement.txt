@@ -18739,10 +18739,17 @@ youtube.com: Hell and Heaven Are at Stake with Money: Galatians 6:6-10, Part 1 @
   thus forfeiting my ability to get suitable work easily, and I'm in a completely new season of my life where I am
   focusing on Jesus.
 
+  The conviction and press has made it more difficult to bear my neighbour's burdens because now, being more
+  difficult to earn money, makes it more difficult to give to those in need, and meet the needs of my family. For
+  the powers that be to force me into the situation to give me a criminal conviction was very anti-christ, and
+  what I mean by anti-christ is like "punishing Christ" or disciples of Christ for being Christlike, and
+  furthermore preventing them from continuing to spread love and mercy.
+
   So in Jesus Christ's name I rebuke the antichrist spirit which specifically has:
 
     o prevented me from marrying, before and after getting born-again
     o depriving me of suitable work, before and after getting born-again
+    o punishing me for acting in love
 
   I work very hard, and after being born-again I have encountered a lot of resistance by a spirit which keeps
   accusing me of needing to have a job, or I'm not a Christian, while being in corrections.
@@ -40054,7 +40061,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 11:26
+Created: 2024-07-22 Mon 11:50
 
 Validate
 
