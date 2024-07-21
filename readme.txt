@@ -26496,7 +26496,13 @@ For example:
 people around me, creating social anxiety, making it hard to socialise with people who would be good to talk
 to, or
 - spirits of gossip and slander, fear, disunity, grudges, antichrist, anti-Christ's-love, unforgiveness
-- Being kicked out of churches for following Jesus and obeying Jesus' commandments, for example
+- Being kicked out of churches for following Jesus and obeying Jesus' commandments, for example. We should
+certainly not withhold people from attending churches especially if they are doing good and wanting to
+learn from Jesus and follow Jesus. If they're opposing Jesus, that's a different story:
+- III John 1:10-11 - So if I come, I will bring up what he is doing, talking wicked nonsense against
+us. And not content with that, he refuses to welcome the brothers, and also stops those who want to
+and puts them out of the church. Beloved, do not imitate evil but imitate good. Whoever does good is
+from God; whoever does evil has not seen God. (ESV)
 - a spirit spouse which thinks it's my spouse
 - youtube.com: Prayer Against Spiritual Spouse <- Yeah, this.
 - if all of the above spirits start manifesting
@@ -26637,6 +26643,14 @@ fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead o
 born-again as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have
 not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the
 Word of God.
+
+We should certainly not withhold people from attending churches especially if they are doing good and wanting to
+learn from Jesus and follow Jesus. If they're opposing Jesus, that's a different story:
+
+  III John 1:10-11 - So if I come, I will bring up what he is doing, talking wicked nonsense against us. And not
+  content with that, he refuses to welcome the brothers, and also stops those who want to and puts them out of the
+  church. Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not
+  seen God. (ESV)
 
   Romans 14:17-18 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
   and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
@@ -37611,11 +37625,20 @@ I offer it to anyone.
 Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of
 righteousness, peace and joy in the Holy Spirit, and I have felt like I have had my blessings stolen from me by
 the enemy, but God is the only one who can solve this for me, but I do have peace and righteousness in the Holy
-Spirit, and baseline joy which is derived from a good conscience with God. At the end of the day, it's good
-conscience with God I am after and sanctification:
+Spirit, and baseline joy which is derived from a good conscience with God.
+
+At the end of the day, it's good conscience with God I am after and sanctification:
 
   Romans 14:17-18 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
   and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+A goal is to be content in any situation:
+
+  Philippians 4:11 - Not that I am speaking of being in need, for I have learned in whatever situation I am to be
+  content. (ESV)
+
+  Hebrews 13:5 - Keep your life free from love of money, and be content with what you have, for he has said, I
+  will never leave you nor forsake you. (ESV)
 
 72.7. Being born-again / being regenerated of Spirit
 
@@ -39561,7 +39584,7 @@ Date: 2024-07-21 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-21 Sun 16:03
+Created: 2024-07-21 Sun 16:39
 
 Validate
 

@@ -18298,7 +18298,8 @@ For example:
 -   worldly spirit through a person telling me I need to be financially successful first, or
 -   a spirit of slander or gossip which keeps me isolated, or a rejection-spirit spreading gossip/slander among people around me, creating social anxiety, making it hard to socialise with people who would be good to talk to, or
 -   spirits of gossip and slander, fear, disunity, grudges, antichrist, anti-Christ's-love, unforgiveness
-    -   Being kicked out of churches for following Jesus and obeying Jesus' commandments, for example
+    -   Being kicked out of churches for following Jesus and obeying Jesus' commandments, for example. We should certainly not withhold people from attending churches especially if they are doing good and wanting to learn from Jesus and follow Jesus. If they're opposing Jesus, that's a different story:
+        -   **[III John 1:10-11](https://www.biblegateway.com/passage/?search=3%20John%201%3A10-11&version=ESV)** - So if I come, I will bring up what he is doing, talking wicked nonsense against us. And not content with that, he refuses to welcome the brothers, and also stops those who want to and puts them out of the church. Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
 -   a spirit spouse which thinks it's my spouse
     -   [youtube.com: Prayer Against Spiritual Spouse](https://www.youtube.com/watch?v=Pqrd2ff8My0) <- Yeah, this.
 -   if all of the above spirits start manifesting
@@ -18391,6 +18392,10 @@ Also, I stress this verse again because if you're obeying God then the Mosaic la
 Not that I was or am perfect, but I have been following Jesus so I claim to be on Jesus' side. By the grace of God He made me born-again, washed, regenerated and [filled with the Holy Spirit in 2022](https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/) after I had begun to repent and seek Jesus.
 
 For many years before that I've had what I've felt was unreasonably difficulty with relationships, but it's after I was born-again and actively following Jesus that I was denied my first ever marriage proposal, and it was very obvious to me that what I have been fighting is an antichrist/antirelationship/slander spirit attacking me after I was born-again (only now I could easily see it working through people) and probably long before that, and I feel like the spiritual attack (i.e. spirit spouse, LGBT dreams etc., thrown out of churches) I have received as a fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead of using the [documented fact I was born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the Word of God.
+
+We should certainly not withhold people from attending churches especially if they are doing good and wanting to learn from Jesus and follow Jesus. If they're opposing Jesus, that's a different story:
+
+> **[III John 1:10-11](https://www.biblegateway.com/passage/?search=3%20John%201%3A10-11&version=ESV)** - So if I come, I will bring up what he is doing, talking wicked nonsense against us. And not content with that, he refuses to welcome the brothers, and also stops those who want to and puts them out of the church. Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
 
 > **[Romans 14:17-18](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-18&version=ESV)** - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
@@ -26571,9 +26576,16 @@ I offer it to anyone.
 
 Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of **righteousness**, **peace** and **joy** in the Holy Spirit, and I have felt like I have had my blessings stolen from me by the enemy,
 but God is the only one who can solve this for me, but I do have peace and righteousness in the Holy Spirit, and baseline joy which is derived from a good conscience with God.
+
 At the end of the day, it's good conscience with God I am after and sanctification:
 
 > **[Romans 14:17-18](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-18&version=ESV)** - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+A goal is to be content in any situation:
+
+> **[Philippians 4:11](https://www.biblegateway.com/passage/?search=Philippians%204%3A11&version=ESV)** - Not that I am speaking of being in need, for I have learned in whatever situation I am to be content. (ESV)
+
+> **[Hebrews 13:5](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A5&version=ESV)** - Keep your life free from love of money, and be content with what you have, for he has said, I will never leave you nor forsake you. (ESV)
 
 
 ## Being born-again / being regenerated of Spirit
