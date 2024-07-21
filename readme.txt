@@ -18562,6 +18562,89 @@ In my case I am in a season of focusing on Jesus after being born-again and obed
   and troubled about many things, but one thing is necessary. Mary has chosen the good portion, which will not be
   taken away from her. (ESV)
 
+  <2024-07-21 Sun> On the topic of Mary and Martha,
+
+  I have been attacked by "new-creation-denying" spirits which forget I was born-again to quickly remind me that
+  I'm not employed - I get this harassment from people from time to time.
+
+As the Apostle Paul asks, "Let no one cause me trouble, for I bear on my body the marks of Jesus." I had a
+stigmata too I believe. But this me begging for people to for the sake of the cross of Christ just let me have
+some grace, as I have almost traumatic graceless experiences exclusively for most of my life, so please for the
+sake of the cross and for love of Jesus cut me some slack as I have also cut others slack in obedience to Jesus as
+He made me born-again. It's my turn to get born-again; and I would appreciate not being crucified immediately. The
+reason I have experienced hostility is for following Jesus, repenting, etc. and being obedient to Jesus. Thanks.
+
+  Galatians 6:14-17 - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the
+  world has been crucified to me, and I to the world. For neither circumcision counts for anything, nor
+  uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon
+  the Israel of God. From now on let no one cause me trouble, for I bear on my body the marks of Jesus. (ESV)
+
+Look, here's a blessing for loving Jesus and not being an enemy of the cross:
+
+  Matthew 10:42 - And whoever gives one of these little ones even a cup of cold water because he is a disciple,
+  truly, I say to you, he will by no means lose his reward. (ESV)
+
+  It's a spirit of "getting a job" taking precedence over "focusing on Jesus and obeying Jesus spirit" right after
+  getting born-again, when Jesus wants me to focus on Him. I get this stuff attacking me in my sleep too, i.e.
+  mocking me too by suggesting working for Neuralink, for example.
+
+  I am very much all for getting a job and bearing my own load, however I'm definitely not in the season to get a
+  job.
+
+  As Paul said, "From now on let no one cause me trouble, for I bear on my body the marks of Jesus."
+
+  So have some respect, please people.
+
+  Me working right now would be like telling the person in the story of the good Samaritan who was beaten on the
+  side of the road, as he is still in recovery to get a job, which is pure insanity.
+
+  I had to receive a criminal conviction in obedience to Jesus, putting the needs of someone first who I love,
+  thus forfeiting my ability to get suitable work easily, and I'm in a completely new season of my life where I am
+  focusing on Jesus.
+
+  So in Jesus Christ's name I rebuke the antichrist spirit which specifically has:
+
+    o prevented me from marrying, before and after getting born-again
+    o depriving me of suitable work, before and after getting born-again
+
+  I work very hard, and after being born-again I have encountered a lot of resistance by a spirit which keeps
+  accusing me of needing to have a job, or I'm not a Christian, while being in corrections.
+
+  It's a very anti-Mary, pro-Martha spirit in a situation which is the same as the one Mary and Martha were in. In
+  that situation, Mary was in the right to listen to Jesus. That is my situation, so by focusing on Jesus, I am
+  doing the correct thing, but this antichrist spirit has been opposing that.
+
+  I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+  I would love to be working, but I was getting harassed by the work spirit even quickly after being born-again,
+  and the correct thing to do then is to be focused on Jesus, even giving away all possessions and following
+  Jesus, so to say, "Get a job and focus on making money" instead of focus on and follow Jesus is totally
+  antichrist.
+
+  Also, right now I'm in corrections on a sickness benefit as I have been getting harassed by demons nearly every
+  night, and tested throughout the day, as I try to do good works, and even harassed by demons through other
+  people very frequently.
+
+  Last year I had a vision last year of defending my house with Bible verses, so it's very clear to me that I'm in
+  a situation where I must be focused on being corrected theologically and behaviorally and a job will happen when
+  I'm ready for it, or when God wants me to get a job, since the Holy Spirit has taken over ownership of my life
+  and has started running my life.
+
+  So I just rebuke that antichrist spirit which has been harassing me regarding that in Jesus Christ's name, and
+  I'll get a job when I am delivered and fit for work.
+
+  It's literally satan attacking me, and I'm just sick and tired of it. I guess the reason I'm being attacked is
+  because God made me born-again, has me learning the Bible in corrections, focusing on Him and God has been
+  raising me up for His purposes.
+
+  The truth of the matter is I am not lazy. Leading up to being born-again, throughout 2021 I was extremely
+  productive doing what I thought at the time was important work for the good of society whilst being completely
+  content, having met the person I wanted to marry, I was in peace and joy.
+
+  There was a time for that research and my work served its purpose in its time.
+
+  Something the enemy has robbed from me is the ability to work contentedly, by undermining my joy.
+
   Galatians 1:8-9 - But even if we or an angel from heaven should preach to you a gospel contrary to the one we
   preached to you, let him be accursed. As we have said before, so now I say again: If anyone is preaching to you
   a gospel contrary to the one you received, let him be accursed. (ESV)
@@ -39781,7 +39864,7 @@ Date: 2024-07-21 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-21 Sun 21:40
+Created: 2024-07-21 Sun 23:16
 
 Validate
 
