@@ -18539,17 +18539,23 @@ stay busy. In my case I am in a season of focusing on Jesus after being born-aga
   not obey what we say in this letter, take note of that person, and have nothing to do with him, that he may be
   ashamed. (ESV)
 
-Being willing to work is important as we are not supposed to be a burden on others. I'm willing to work and I
-would love to have a job and I would love to teach but I've been attacked a lot by demons, pushed out of churches
-for following Jesus, had the love of my life taken away from me, and been treated like absolute garbage job-wise.
-Although it is important to get a job, I have to be fit for getting a job, and the person who was recovering at
-the inn (in the parable of the good Samaritan was resting). Also, I'm in corrections (<2024-07-21 Sun> so I am
-being corrected by reading my Bible and studying the Word, so I still feel as though I am in the clear:
+Being willing to work is important as we are not supposed to be a burden on others.
 
   Galatians 6:2-6 - Bear one another's burdens, and so fulfill the law of Christ. For if anyone thinks he is
   something, when he is nothing, he deceives himself. But let each one test his own work, and then his reason to
   boast will be in himself alone and not in his neighbor. For each will have to bear his own load. One who is
   taught the word must share all good things with the one who teaches. (ESV)
+
+I'm willing to work and I would love to have a job and I would love to teach but I've been attacked a lot by
+demons, pushed out of churches for following Jesus, had the love of my life taken away from me, and been treated
+like absolute garbage, coming from such poverty that the poverty undermined my college degree, and my subsequent
+employment. For some reason it's been far too difficult. Although it is important to get a job, I have to be fit
+and prepared for work, and I'm doing battle against an anti-marriage spirit, and I'm like the person who was
+recovering at the inn (from the parable of the good Samaritan as Jesus has rescued me). Also, I'm in corrections
+(<2024-07-21 Sun> so I am being corrected by reading my Bible and studying the Word, so I still feel as though I
+am in the clear. I understand work is important, and I'm not exaggerating any of this. It will happen in the right
+order. And any spirit that puts having a job before having a wife I consider to be a spirit of prostitution /
+people trafficking.
 
 On 2 Jan 2023 I had a dream of defending a house with Bible verses written on the doorposts.
 
@@ -39929,7 +39935,7 @@ Date: 2024-07-21 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-21 Sun 23:46
+Created: 2024-07-22 Mon 00:03
 
 Validate
 
