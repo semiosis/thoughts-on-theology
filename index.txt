@@ -3638,6 +3638,15 @@ It seems like we're saved (delivered) from (among other things):
 - [petty] disputing
 - sin that leads to death
 
+  Titus 3:1-7 - Remind them to be submissive to rulers and authorities, to be obedient, to be ready for every
+  good work, to speak evil of no one, to avoid quarreling, to be gentle, and to show perfect courtesy toward
+  all people. For we ourselves were once foolish, disobedient, led astray, slaves to various passions and
+  pleasures, passing our days in malice and envy, hated by others and hating one another. But when the
+  goodness and loving kindness of God our Savior appeared, he saved us, not because of works done by us in
+  righteousness, but according to his own mercy, by the washing of regeneration and renewal of the Holy
+  Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his
+  grace we might become heirs according to the hope of eternal life. (ESV)
+
 3.17.2. God working in us
 
 God loved us first. We must accept that:
@@ -4367,7 +4376,7 @@ When you do a sin, it has a powerful effect in which your own freedom - your fre
 good, to think the good or understand the good is being undermined so that you are more and more by sin losing
 your freedom. It undermines your mind, it undermines your emotions and it undermines your will.
 
-4.2.3. Subsequent behaviour - the Golden Rule and the Royal Law
+4.2.3. Subsequent behaviour - the Golden Rule and the Royal Law, faith working through love
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by
 grace through faith and they should also practice their righteousness and a person who has accepted forgiveness
@@ -4591,6 +4600,16 @@ Jesus, having been forgiven by Him, and after we are grafted into Christ, we now
 Almighty God as our Father, and Jesus is our Master and we seek to please our Master, like the All Blacks try to
 please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His
 Spirit, and His Spirit helps us to do this.
+
+  Titus 3:8-15 - The saying is trustworthy, and I want you to insist on these things, so that those who have
+  believed in God may be careful to devote themselves to good works. These things are excellent and profitable for
+  people. But avoid foolish controversies, genealogies, dissensions, and quarrels about the law, for they are
+  unprofitable and worthless. As for a person who stirs up division, after warning him once and then twice, have
+  nothing more to do with him, knowing that such a person is warped and sinful; he is self-condemned. When I send
+  Artemas or Tychicus to you, do your best to come to me at Nicopolis, for I have decided to spend the winter
+  there. Do your best to speed Zenas the lawyer and Apollos on their way; see that they lack nothing. And let our
+  people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All
+  who are with me send greetings to you. Greet those who love us in the faith. Grace be with you all. (ESV)
 
 4.2.4. God definitely disciplines us even if we love Jesus - every son he receives
 
@@ -18282,7 +18301,104 @@ Jesus' warning against forsaking the word of God, the Holy Scriptures, for tradi
 
 Sermon
 youtube.com: John Piper's Sermon with Scripture only
- 2. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
+ 2. Do not associate with people who do not abide in faith and sound doctrine
+
+Greet those who love us in the faith:
+
+  Titus 3:14-15 - And let our people learn to devote themselves to good works, so as to help cases of urgent
+  need, and not be unfruitful. All who are with me send greetings to you. Greet those who love us in the
+  faith. Grace be with you all. (ESV)
+
+Do not greet or associate with people who do not abide in the teaching of Christ:
+
+  II John 1:9-11 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring
+  this teaching, do not receive him into your house or give him any greeting, for whoever greets him takes
+  part in his wicked works. (ESV)
+
+What counts is faith working through love:
+
+  Titus 3:8-15 - The saying is trustworthy, and I want you to insist on these things, so that those who have
+  believed in God may be careful to devote themselves to good works. These things are excellent and profitable
+  for people. But avoid foolish controversies, genealogies, dissensions, and quarrels about the law, for they
+  are unprofitable and worthless. As for a person who stirs up division, after warning him once and then
+  twice, have nothing more to do with him, knowing that such a person is warped and sinful; he is
+  self-condemned. When I send Artemas or Tychicus to you, do your best to come to me at Nicopolis, for I have
+  decided to spend the winter there. Do your best to speed Zenas the lawyer and Apollos on their way; see that
+  they lack nothing. And let our people learn to devote themselves to good works, so as to help cases of
+  urgent need, and not be unfruitful. All who are with me send greetings to you. Greet those who love us in
+  the faith. Grace be with you all. (ESV)
+
+What counts is faith working through love:
+
+  Galatians 5:1-6 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a
+  yoke of slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage
+  to you. I testify again to every man who accepts circumcision that he is obligated to keep the whole law.
+  You are severed from Christ, you who would be justified by the law; you have fallen away from grace. For
+  through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus
+  neither circumcision nor uncircumcision counts for anything, but only faith working through love. (ESV)
+
+  Romans 16:17-18 - I appeal to you, brothers, to watch out for those who cause divisions and create obstacles
+  contrary to the doctrine that you have been taught; avoid them. For such persons do not serve our Lord
+  Christ, but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. (ESV)
+
+Avoid people who stubbornly oppose the teaching of Christ:
+
+  II Timothy 3:2-7 - For people will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient
+  to their parents, ungrateful, unholy, heartless, unappeasable, slanderous, without self-control, brutal, not
+  loving good, treacherous, reckless, swollen with conceit, lovers of pleasure rather than lovers of God,
+  having the appearance of godliness, but denying its power. Avoid such people. For among them are those who
+  creep into households and capture weak women, burdened with sins and led astray by various passions, always
+  learning and never able to arrive at a knowledge of the truth. (ESV)
+
+Avoid people who stubbornly oppose the teaching of Christ:
+
+  I Corinthians 5:11 - But now I am writing to you not to associate with anyone who bears the name of brother
+  if he is guilty of sexual immorality or greed, or is an idolater, reviler, drunkard, or swindler-not even to
+  eat with such a one. (ESV)
+
+This is about being willing to work or unwilling. I'm definitely willing to work. But not having a job doesn't
+mean being unwilling to work. Just stay busy. In my case I am in a season of focusing on Jesus after being
+born-again:
+
+  II Thessalonians 3:1-14 - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be
+  honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have
+  faith. But the Lord is faithful. He will establish you and guard you against the evil one. And we have
+  confidence in the Lord about you, that you are doing and will do the things that we command. May the Lord
+  direct your hearts to the love of God and to the steadfastness of Christ. Now we command you, brothers, in
+  the name of our Lord Jesus Christ, that you keep away from any brother who is walking in idleness and not in
+  accord with the tradition that you received from us. For you yourselves know how you ought to imitate us,
+  because we were not idle when we were with you, nor did we eat anyone's bread without paying for it, but
+  with toil and labor we worked night and day, that we might not be a burden to any of you. It was not because
+  we do not have that right, but to give you in ourselves an example to imitate. For even when we were with
+  you, we would give you this command: If anyone is not willing to work, let him not eat. For we hear that
+  some among you walk in idleness, not busy at work, but busybodies. Now such persons we command and encourage
+  in the Lord Jesus Christ to do their work quietly and to earn their own living. As for you, brothers, do not
+  grow weary in doing good. If anyone does not obey what we say in this letter, take note of that person, and
+  have nothing to do with him, that he may be ashamed. (ESV)
+
+On 2 Jan 2023 I had a dream of defending a house with Bible verses written on the doorposts.
+
+In my case I am in a season of focusing on Jesus after being born-again and obediently focusing on the
+Scriptures:
+
+  Luke 10:38-42 - Now as they went on their way, Jesus entered a village. And a woman named Martha welcomed
+  him into her house. And she had a sister called Mary, who sat at the Lord's feet and listened to his
+  teaching. But Martha was distracted with much serving. And she went up to him and said, Lord, do you not
+  care that my sister has left me to serve alone? Tell her then to help me. But the Lord answered her, Martha,
+  Martha, you are anxious and troubled about many things, but one thing is necessary. Mary has chosen the good
+  portion, which will not be taken away from her. (ESV)
+
+  Galatians 1:8-9 - But even if we or an angel from heaven should preach to you a gospel contrary to the one
+  we preached to you, let him be accursed. As we have said before, so now I say again: If anyone is preaching
+  to you a gospel contrary to the one you received, let him be accursed. (ESV)
+
+  I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+  John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+ 3. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
 
   John 7:17-19 - If anyone's will is to do God's will, he will know whether the teaching is from God or
   whether I am speaking on my own authority. The one who speaks on his own authority seeks his own glory, but
@@ -18319,7 +18435,7 @@ visions, dreams and the impulses of the Holy Spirit in your life.
 Woe to the shepherds who strengthen the hands of evildoers so that no one turns from his evil. They continually
 say to those who despise the word of the LORD, "It shall be well with you."
 
-They preach against repentance from sin.
+They preach against repentance from sin:
 
   Jeremiah 23:1-40 - Woe to the shepherds who destroy and scatter the sheep of my pasture! declares the LORD.
   Therefore thus says the LORD, the God of Israel, concerning the shepherds who care for my people: You have
@@ -23781,8 +23897,14 @@ We must be the good soil:
   soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a
   hundredfold, in another sixty, and in another thirty. (ESV)
 
+We do need a lot of faith (faith, faithfulness, obedience) in God to inherit the Kingdom of God:
+
+  James 2:5 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith
+  and heirs of the kingdom, which he has promised to those who love him? (ESV)
+
 It's received as an inheritance by being found in Christ. We believe we have it while we are found in Christ, and
-continue working it out, and we do need repentance from sin to inherit it.
+continue working it out, and we do need repentance from sin to inherit it. We need to be believing and obedient to
+Jesus. We need to be faithful to Jesus. We need to follow Jesus:
 
   Galatians 5:22-25 - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness,
   gentleness, self-control; against such things there is no law. And those who belong to Christ Jesus have
@@ -37804,6 +37926,16 @@ to external spiritual influences and ultimately God was overseeing it:
   Acts 27:24 - and he said, Do not be afraid, Paul; you must stand before Caesar. And behold, God has granted you
   all those who sail with you. (ESV)
 
+I guess it's quite important to forsake all else for Jesus:
+
+  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+  I John 2:15-17 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. For all that is in the world-the desires of the flesh and the desires of the eyes and
+  pride in possessions-is not from the Father but is from the world. And the world is passing away along with its
+  desires, but whoever does the will of God abides forever. (ESV)
+
 youtube.com: How God Uses Satan
 Every one of the sufferings that Jesus went through was lifting sin off of us and sin is the only thing Satan's
 got to kill us with. It's the only weapon he's got. Satan cannot hurt you without sin. If you solve your sin
@@ -38819,6 +38951,11 @@ Doing the will of God is important for inheriting the kingdom of God:
   Matthew 25:23 - His master said to him, Well done, good and faithful servant. You have been faithful over a
   little; I will set you over much. Enter into the joy of your master. (ESV)
 
+We do need a lot of faith (faith, faithfulness, obedience) in God to inherit the Kingdom of God:
+
+  James 2:5 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith
+  and heirs of the kingdom, which he has promised to those who love him? (ESV)
+
   Romans 6:22-23- But now that you have been set free from sin and have become slaves of God, the fruit you get
   leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
   eternal life in Christ Jesus our Lord. (ESV)
@@ -39409,11 +39546,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-20 Sat 00:00
+Date: 2024-07-21 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-20 Sat 20:51
+Created: 2024-07-21 Sun 15:40
 
 Validate
 

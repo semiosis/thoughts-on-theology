@@ -2309,6 +2309,8 @@ It's a '<sub>working</sub> out\_' of the salvation that is free-grace.
     -   grumbling
     -   [petty] disputing
     -   sin that leads to death
+    
+    > **[Titus 3:1-7](https://www.biblegateway.com/passage/?search=Titus%203%3A1-7&version=ESV)** - Remind them to be submissive to rulers and authorities, to be obedient, to be ready for every good work, to speak evil of no one, to avoid quarreling, to be gentle, and to show perfect courtesy toward all people. For we ourselves were once foolish, disobedient, led astray, slaves to various passions and pleasures, passing our days in malice and envy, hated by others and hating one another. But when the goodness and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness, but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life. (ESV)
 
 
 ### God working in us
@@ -2829,7 +2831,7 @@ Sin enslaves. We're supposed to stop doing it. Jesus payed the price of sin for 
 -   **[Quote by Tim Keller](https://www.youtube.com/watch?v=SDuXlGSV7l4):** When you do a sin, it has a powerful effect in which your own freedom - your freedom to want the good, to will the good, to think the good or understand the good is being undermined so that you are more and more by sin losing your freedom. It undermines your mind, it undermines your emotions and it undermines your will.
 
 
-### Subsequent behaviour - the Golden Rule and the Royal Law
+### Subsequent behaviour - the Golden Rule and the Royal Law, faith working through love
 
 When it comes to 'works' and 'law-keeping', I believe disciples of Jesus should know they have been forgiven by grace through faith and they should also practice their righteousness and a person who has accepted forgiveness for their sin by the atonement made in Jesus' blood should certainly endeavour after that to fulfill practically the Royal Law, that is to love one's neighbour as themself, even owing that to other people:
 
@@ -2980,6 +2982,8 @@ bearing their neighbours burdens and forgiving one another, but who has done tha
 As Christians we were at one time disobedient, and were not able to do this perfectly, and we have been saved by Jesus, having been forgiven by Him,
 and after we are grafted into Christ, we now have His righteousness and Almighty God as our Father, and Jesus is our Master and we seek to please our Master,
 like the All Blacks try to please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His Spirit, and His Spirit helps us to do this.
+
+> **[Titus 3:8-15](https://www.biblegateway.com/passage/?search=Titus%203%3A8-15&version=ESV)** - The saying is trustworthy, and I want you to insist on these things, so that **those who have believed in God may be careful to devote themselves to good works**. These things are excellent and profitable for people. But <ins>avoid foolish controversies, genealogies, dissensions, and quarrels about the law, for they are unprofitable and worthless.</ins> As for a person who stirs up division, after warning him once and then twice, have nothing more to do with him, knowing that such a person is warped and sinful; he is self-condemned. When I send Artemas or Tychicus to you, do your best to come to me at Nicopolis, for I have decided to spend the winter there. Do your best to speed Zenas the lawyer and Apollos on their way; see that they lack nothing. And let our people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All who are with me send greetings to you. **Greet those who love us in the faith**. Grace be with you all. (ESV)
 
 
 ### God definitely disciplines us even if we love Jesus - **every** son he receives
@@ -12474,7 +12478,51 @@ Yup, this has been real for me in seeking to be obedient to the promptings of th
     
     -   **Sermon:** [youtube.com: John Piper's Sermon with Scripture only](https://www.youtube.com/watch?v=ldag_fIFnqg)
 
-2.  Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
+2.  Do not associate with people who do not abide in faith and sound doctrine
+
+    Greet those who love us in the faith:
+    
+    > **[Titus 3:14-15](https://www.biblegateway.com/passage/?search=Titus%203%3A14-15&version=ESV)** - And let our people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All who are with me send greetings to you. Greet those who love us in the faith. Grace be with you all. (ESV)
+    
+    Do not greet or associate with people who do not abide in the teaching of Christ:
+    
+    > **[II John 1:9-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-11&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works. (ESV)
+    
+    What counts is faith working through love:
+    
+    > **[Titus 3:8-15](https://www.biblegateway.com/passage/?search=Titus%203%3A8-15&version=ESV)** - The saying is trustworthy, and I want you to insist on these things, so that **those who have believed in God may be careful to devote themselves to good works**. These things are excellent and profitable for people. But <ins>avoid foolish controversies, genealogies, dissensions, and quarrels about the law, for they are unprofitable and worthless.</ins> As for a person who stirs up division, after warning him once and then twice, have nothing more to do with him, knowing that such a person is warped and sinful; he is self-condemned. When I send Artemas or Tychicus to you, do your best to come to me at Nicopolis, for I have decided to spend the winter there. Do your best to speed Zenas the lawyer and Apollos on their way; see that they lack nothing. And let our people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All who are with me send greetings to you. **Greet those who love us in the faith**. Grace be with you all. (ESV)
+    
+    What counts is faith working through love:
+    
+    > **[Galatians 5:1-6](https://www.biblegateway.com/passage/?search=Galatians%205%3A1-6&version=ESV)** - **For freedom Christ has set us free**; stand firm therefore, and do not submit again to a yoke of slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed from Christ, you who would be justified by the law; you have fallen away from grace. For **through the Spirit, by faith**, we ourselves eagerly <ins>wait for the hope of righteousness.</ins> For **in Christ Jesus** neither circumcision nor uncircumcision counts for anything, but **only faith working through love**. (ESV)
+    
+    > **[Romans 16:17-18](https://www.biblegateway.com/passage/?search=Romans%2016%3A17-18&version=ESV)** - I appeal to you, brothers, to watch out for those who cause divisions and create obstacles contrary to the doctrine that you have been taught; avoid them. For such persons do not serve our Lord Christ, but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. (ESV)
+    
+    Avoid people who stubbornly oppose the teaching of Christ:
+    
+    > **[II Timothy 3:2-7](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A2-7&version=ESV)** - For people will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient to their parents, ungrateful, unholy, heartless, unappeasable, slanderous, without self-control, brutal, not loving good, treacherous, reckless, swollen with conceit, lovers of pleasure rather than lovers of God, having the appearance of godliness, but denying its power. **Avoid such people**. For among them are those who creep into households and capture weak women, burdened with sins and led astray by various passions, always learning and never able to arrive at a knowledge of the truth. (ESV)
+    
+    Avoid people who stubbornly oppose the teaching of Christ:
+    
+    > **[I Corinthians 5:11](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A11&version=ESV)** - But now I am writing to you not to associate with anyone who bears the name of brother if he is guilty of sexual immorality or greed, or is an idolater, reviler, drunkard, or swindler—not even to eat with such a one. (ESV)
+    
+    This is about being willing to work or unwilling. I'm definitely willing to work. But not having a job doesn't mean being unwilling to work. Just stay busy. In my case I am in a season of focusing on Jesus after being born-again:
+    
+    > **[II Thessalonians 3:1-14](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A1-14&version=ESV)** - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith. But the Lord is faithful. He will establish you and guard you against the evil one. And we have confidence in the Lord about you, that you are doing and will do the things that we command. May the Lord direct your hearts to the love of God and to the steadfastness of Christ. Now we command you, brothers, in the name of our Lord Jesus Christ, that you keep away from any brother who is walking in idleness and not in accord with the tradition that you received from us. For you yourselves know how you ought to imitate us, because we were not idle when we were with you, nor did we eat anyone's bread without paying for it, but with toil and labor we worked night and day, that we might not be a burden to any of you. It was not because we do not have that right, but to give you in ourselves an example to imitate. For even when we were with you, we would give you this command: If anyone is not willing to work, let him not eat. For we hear that some among you walk in idleness, not busy at work, but busybodies. Now such persons we command and encourage in the Lord Jesus Christ to do their work quietly and to earn their own living. As for you, brothers, do not grow weary in doing good. If anyone does not obey what we say in this letter, take note of that person, and have nothing to do with him, that he may be ashamed. (ESV)
+    
+    On 2 Jan 2023 I had a dream of defending a house with Bible verses written on the doorposts.
+    
+    In my case I am in a season of focusing on Jesus after being born-again and obediently focusing on the Scriptures:
+    
+    > **[Luke 10:38-42](https://www.biblegateway.com/passage/?search=Luke%2010%3A38-42&version=ESV)** - Now as they went on their way, Jesus entered a village. And a woman named Martha welcomed him into her house. And she had a sister called Mary, who sat at the Lord's feet and listened to his teaching. But Martha was distracted with much serving. And she went up to him and said, Lord, do you not care that my sister has left me to serve alone? Tell her then to help me. But the Lord answered her, Martha, Martha, you are anxious and troubled about many things, but one thing is necessary. Mary has chosen the good portion, which will not be taken away from her. (ESV)
+    
+    > **[Galatians 1:8-9](https://www.biblegateway.com/passage/?search=Galatians%201%3A8-9&version=ESV)** - But even if we or an angel from heaven should preach to you a gospel contrary to the one we preached to you, let him be accursed. As we have said before, so now I say again: If anyone is preaching to you a gospel contrary to the one you received, let him be accursed. (ESV)
+    
+    > **[I Corinthians 16:22](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A22&version=ESV)** - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+    
+    > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+3.  Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
 
     > **[John 7:17-19](https://www.biblegateway.com/passage/?search=John%207%3A17-19&version=ESV)** - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am speaking on my own authority. The one who speaks on his own authority seeks his own glory, but the one who seeks the glory of him who sent him is true, and in him there is no falsehood. Has not Moses given you the law? Yet none of you keeps the law. Why do you seek to kill me? (ESV)
 
@@ -12502,7 +12550,7 @@ Yup, this has been real for me in seeking to be obedient to the promptings of th
 Woe to the shepherds who strengthen the hands of evildoers so that no one turns from his evil.
 They continually say to those who despise the word of the LORD, "It shall be well with you."
 
-They preach against repentance from sin.
+They preach against repentance from sin:
 
 > **[Jeremiah 23:1-40](https://www.biblegateway.com/passage/?search=Jeremiah%2023%3A1-40&version=ESV)** - <ins>Woe to the shepherds who destroy and scatter the sheep of my pasture!</ins> declares the LORD. Therefore thus says the LORD, the God of Israel, concerning the shepherds who care for my people: You have scattered my flock and have driven them away, and you have not attended to them. Behold, I will attend to you for your evil deeds, declares the LORD. Then I will gather the remnant of my flock out of all the countries where I have driven them, and I will bring them back to their fold, and they shall be fruitful and multiply. <ins>I will set shepherds over them who will care for them, and they shall fear no more, nor be dismayed, neither shall any be missing, declares the LORD.</ins> Behold, the days are coming, declares the LORD, when I will raise up for David a righteous Branch, and he shall reign as king and deal wisely, and shall execute justice and righteousness in the land. In his days Judah will be saved, and Israel will dwell securely. And this is the name by which he will be called: The LORD is our righteousness. Therefore, behold, the days are coming, declares the LORD, when they shall no longer say, As the LORD lives who brought up the people of Israel out of the land of Egypt, but As the LORD lives who brought up and led the offspring of the house of Israel out of the north country and out of all the countries where he had driven them. Then they shall dwell in their own land. Concerning the prophets: My heart is broken within me; all my bones shake; I am like a drunken man, like a man overcome by wine, because of the LORD and because of his holy words. For <ins>the land is full of adulterers;</ins> because of the curse the land mourns, and the pastures of the wilderness are dried up. Their course is evil, and their might is not right. Both prophet and priest are ungodly; <ins>even in my house I have found their evil,</ins> declares the LORD. Therefore their way shall be to them like slippery paths in the darkness, into which they shall be driven and fall, for I will bring disaster upon them in the year of their punishment, declares the LORD. In the prophets of Samaria I saw an unsavory thing: they prophesied by Baal and led my people Israel astray. But in the prophets of Jerusalem I have seen a horrible thing: **they commit adultery and walk in lies; they strengthen the hands of evildoers, so that no one turns from his evil;** all of them have become like Sodom to me, and its inhabitants like Gomorrah. Therefore thus says the LORD of hosts concerning the prophets: Behold, I will feed them with bitter food and give them poisoned water to drink, for from the prophets of Jerusalem ungodliness has gone out into all the land. Thus says the LORD of hosts: <ins>Do not listen to the words of the prophets who prophesy to you, filling you with vain hopes. They speak visions of their own minds, not from the mouth of the LORD.</ins> **They say continually to those who despise the word of the LORD, It shall be well with you; and to everyone who stubbornly follows his own heart, they say, No disaster shall come upon you.** For who among them has stood in the council of the LORD to see and to hear his word, or who has paid attention to his word and listened? Behold, the storm of the LORD! Wrath has gone forth, a whirling tempest; it will burst upon the head of the wicked. The anger of the LORD will not turn back until he has executed and accomplished the intents of his heart. In the latter days you will understand it clearly. <ins>I did not send the prophets, yet they ran; I did not speak to them, yet they prophesied.</ins> But if they had stood in my council, then they would have proclaimed my words to my people, and they would have turned them from their evil way, and from the evil of their deeds. Am I a God at hand, declares the LORD, and not a God afar off? Can a man hide himself in secret places so that I cannot see him? declares the LORD. Do I not fill heaven and earth? declares the LORD. <ins>I have heard what the prophets have said who prophesy lies in my name, saying, I have dreamed, I have dreamed! How long shall there be lies in the heart of the prophets who prophesy lies, and who prophesy the deceit of their own heart,</ins> who think to make my people forget my name by their dreams that they tell one another, even as their fathers forgot my name for Baal? **Let the prophet who has a dream tell the dream, but let him who has my word speak my word faithfully.** What has straw in common with wheat? declares the LORD. Is not my word like fire, declares the LORD, and like a hammer that breaks the rock in pieces? Therefore, behold, I am against the prophets, declares the LORD, who steal my words from one another. Behold, I am against the prophets, declares the LORD, who use their tongues and declare, declares the LORD. <ins>Behold, I am against those who prophesy lying dreams, declares the LORD, and who tell them and lead my people astray by their lies and their recklessness, when I did not send them or charge them.</ins> So they do not profit this people at all, declares the LORD. When one of this people, or a prophet or a priest asks you, What is the burden of the LORD? you shall say to them, You are the burden, and I will cast you off, declares the LORD. And as for the prophet, priest, or one of the people who says, The burden of the LORD, I will punish that man and his household. Thus shall you say, every one to his neighbor and every one to his brother, What has the LORD answered? or What has the LORD spoken? But the burden of the LORD you shall mention no more, for the burden is every man's own word, and <ins>you pervert the words of the living God,</ins> the LORD of hosts, our God. Thus you shall say to the prophet, What has the LORD answered you? or What has the LORD spoken? But if you say, The burden of the LORD, thus says the LORD, Because you have said these words, The burden of the LORD, when I sent to you, saying, You shall not say, The burden of the LORD, therefore, behold, I will surely lift you up and cast you away from my presence, you and the city that I gave to you and your fathers. And I will bring upon you everlasting reproach and perpetual shame, which shall not be forgotten. (ESV)
 
@@ -16413,7 +16461,11 @@ We must be the good soil:
 
 > **[Matthew 13:22-23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A22-23&version=ESV)** - As for what was sown among thorns, this is the one who hears the word, but the cares of the world and the deceitfulness of riches choke the word, and it proves unfruitful. As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
 
-It's received as an inheritance by being found **in Christ**. We believe we have it while we are found **in Christ**, and continue working it out, and we do need repentance from sin to inherit it.
+We do need a lot of faith (faith, faithfulness, obedience) in God to **inherit** the Kingdom of God:
+
+> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? (ESV)
+
+It's received as an inheritance by being found **in Christ**. We believe we have it while we are found **in Christ**, and continue working it out, and we do need repentance from sin to inherit it. We need to be believing and obedient to Jesus. We need to be faithful to Jesus. We need to follow Jesus:
 
 > **[Galatians 5:22-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A22-25&version=ESV)** - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires**. If we live by the Spirit, let us also walk by the Spirit. (ESV)
 
@@ -26760,6 +26812,12 @@ The question is, "Is joy over a wife and a family even something that is allowed
 
 > **[Acts 27:24](https://www.biblegateway.com/passage/?search=Acts%2027%3A24&version=ESV)** - and he said, Do not be afraid, Paul; you must stand before Caesar. And behold, God has granted you all those who sail with you. (ESV)
 
+I guess it's quite important to forsake all else for Jesus:
+
+> **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+> **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
+
 -   **[youtube.com: How God Uses Satan](https://www.youtube.com/watch?v=y4-C_oMg11E):** Every one of the sufferings that Jesus went through was lifting sin off of us and sin is the only thing Satan's got to kill us with. It's the only weapon he's got. Satan cannot hurt you without sin. If you solve your sin problem, you solve your Satan problem. He can show you green things in the middle of the night and terrify you but he cannot hurt you.
 
 > **[John 10:10](https://www.biblegateway.com/passage/?search=John%2010%3A10&version=ESV)** - The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly. (ESV)
@@ -27487,6 +27545,10 @@ Doing the will of God is still extremely important for **inheriting** the kingdo
 Doing the will of God is important for **inheriting** the kingdom of God:
 
 > **[Matthew 25:23](https://www.biblegateway.com/passage/?search=Matthew%2025%3A23&version=ESV)** - His master said to him, Well done, good and faithful servant. You have been faithful over a little; I will set you over much. Enter into the joy of your master. (ESV)
+
+We do need a lot of faith (faith, faithfulness, obedience) in God to **inherit** the Kingdom of God:
+
+> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? (ESV)
 
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)**- But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification **and its end, eternal life.** For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
