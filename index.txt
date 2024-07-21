@@ -18579,10 +18579,35 @@ reason I have experienced hostility is for following Jesus, repenting, etc. and 
   uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon
   the Israel of God. From now on let no one cause me trouble, for I bear on my body the marks of Jesus. (ESV)
 
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
+
 Look, here's a blessing for loving Jesus and not being an enemy of the cross:
 
-  Matthew 10:42 - And whoever gives one of these little ones even a cup of cold water because he is a disciple,
-  truly, I say to you, he will by no means lose his reward. (ESV)
+  Matthew 10:40-42 - Whoever receives you receives me, and whoever receives me receives him who sent me. The one
+  who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a
+  righteous person because he is a righteous person will receive a righteous person's reward. And whoever gives
+  one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no
+  means lose his reward. (ESV)
+
+Disciples of Jesus carry their cross and face tribulation:
+
+  Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
+  that through many tribulations we must enter the kingdom of God. (ESV)
+
+Jesus, on His cross said, "I thirst.":
+
+  John 19:28 - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst.
+  (ESV)
 
   It's a spirit of "getting a job" taking precedence over "focusing on Jesus and obeying Jesus spirit" right after
   getting born-again, when Jesus wants me to focus on Him. I get this stuff attacking me in my sleep too, i.e.
@@ -22045,7 +22070,47 @@ Love does not turn away. Love doesn't sweep it under the rug." - Rather, you who
 Spirit) should restore him in a spirit of gentleness. The spiritual person is bearing fruit of the Spirit. They
 are walking by the Spirit. They are keeping in step with the Spirit.
 
-31.2. A person who is mature in Christ
+31.2. A disciple of Jesus - someone who has been obedient to Jesus
+
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
+
+Look, here's a blessing for loving Jesus and not being an enemy of the cross:
+
+  Matthew 10:40-42 - Whoever receives you receives me, and whoever receives me receives him who sent me. The one
+  who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a
+  righteous person because he is a righteous person will receive a righteous person's reward. And whoever gives
+  one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no
+  means lose his reward. (ESV)
+
+Disciples of Jesus carry their cross and face tribulation:
+
+  Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
+  that through many tribulations we must enter the kingdom of God. (ESV)
+
+Jesus, on His cross said, "I thirst.":
+
+  John 19:28 - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst.
+  (ESV)
+
+Paul the Apostle asked for mercy - "From now on let no one cause me trouble" - he might have been at little bit
+stressed. Paul most surely was carrying His cross:
+
+  Galatians 6:14-17 - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the
+  world has been crucified to me, and I to the world. For neither circumcision counts for anything, nor
+  uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon
+  the Israel of God. From now on let no one cause me trouble, for I bear on my body the marks of Jesus. (ESV)
+
+31.3. A person who is mature in Christ
 
 Mature and stable. Grown beyond fleshly things. Not sucked into the old ways of vainglory and provocation and
 envy.
@@ -22080,7 +22145,7 @@ to make this transition:
 
 And they will know the Truth.
 
-31.2.1. Don't be an enemy of the cross to others - Don't allow enemies of the cross to deter you
+31.3.1. Don't be an enemy of the cross to others - Don't allow enemies of the cross to deter you
 
 We must be thinking as a person of Heaven.
 
@@ -22096,7 +22161,7 @@ We must be thinking as a person of Heaven.
   your eyes on those who walk according to the example you have in us. For many, of whom I have often told you and
   now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
 
-31.3. Pray for others to come into Jesus' Kingdom
+31.4. Pray for others to come into Jesus' Kingdom
 
 - youtube.com: Ducklings vs. Stairs
 
@@ -39864,7 +39929,7 @@ Date: 2024-07-21 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-21 Sun 23:16
+Created: 2024-07-21 Sun 23:46
 
 Validate
 

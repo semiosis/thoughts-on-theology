@@ -12639,9 +12639,21 @@ As the Apostle Paul asks, "Let no one cause me trouble, for I bear on my body th
 
 > **[Galatians 6:14-17](https://www.biblegateway.com/passage/?search=Galatians%206%3A14-17&version=ESV)** - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the world has been crucified to me, and I to the world. For neither circumcision counts for anything, nor uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon the Israel of God. From now on **let no one cause me trouble**, for I bear on my body the marks of Jesus. (ESV)
 
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
+
 Look, here's a blessing for loving Jesus and not being an enemy of the cross:
 
-> **[Matthew 10:42](https://www.biblegateway.com/passage/?search=Matthew%2010%3A42&version=ESV)** - And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward. (ESV)
+> **[Matthew 10:40-42](https://www.biblegateway.com/passage/?search=Matthew%2010%3A40-42&version=ESV)** - Whoever receives you receives me, and whoever receives me receives him who sent me. The one who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a righteous person because he is a righteous person will receive a righteous person's reward. And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward. (ESV)
+
+Disciples of Jesus carry their cross and face tribulation:
+
+> **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that through many tribulations we must enter the kingdom of God. (ESV)
+
+Jesus, on His cross said, "I thirst.":
+
+> **[John 19:28](https://www.biblegateway.com/passage/?search=John%2019%3A28&version=ESV)** - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. (ESV)
 
 > It's a spirit of "getting a job" taking precedence over "focusing on Jesus and obeying Jesus spirit"
 > right after getting born-again, when Jesus wants me to focus on Him. I get this stuff attacking me in my sleep too,
@@ -14907,6 +14919,29 @@ Potentially still driven by:
 > **[I Corinthians 3:1](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A1&version=ESV)** - But I, brothers, could not address you as spiritual people, but as people of the flesh, as infants in Christ. (ESV)
 
 -   **[youtube.com: How to Restore a Sinning Saint: Galatians 6:1-5, Part 1 @time: 4 min 54 sec](https://youtube.com/watch?v=U7v13scZqN0&t=294):** This is an illustration of why we need specific commandments. Remember last time I argued that it's not enough to say, "Walk by the Spirit." You need specific illustrations, and this ([Galatians 6:1-5](https://www.biblegateway.com/passage/?search=Galatians%206%3A1-5&version=ESV)) is a good example of that. Suppose somebody said, "No, the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, meekness, gentleness, self-control. If we live by those, we wont get in other people's lives and make lives miserable for them, and bring out their sin into the open. How would you answer that? We would answer it by saying, "Look, the Holy Spirit Himself in chapter 6, verse 1 of Galatians has told us that is not a right application of the fruit of the Spirit. You are drawing inferences from the fruit of the Spirit that are unbiblical; They're unfaithful. That's why we need the whole Scripture, not just vague statements about walking according to the Spirit or walking in love. We need specifics, and this is a specific. If you find somebody in transgression, love is not passive. Love does not turn away. Love doesn't sweep it under the rug." - Rather, you who are **spiritual** (walking by the Spirit) should restore him in a spirit of gentleness. The spiritual person is bearing fruit of the Spirit. They are walking by the Spirit. They are keeping in step with the Spirit.
+
+
+## A disciple of Jesus - someone who has been obedient to Jesus
+
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
+
+Look, here's a blessing for loving Jesus and not being an enemy of the cross:
+
+> **[Matthew 10:40-42](https://www.biblegateway.com/passage/?search=Matthew%2010%3A40-42&version=ESV)** - Whoever receives you receives me, and whoever receives me receives him who sent me. The one who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a righteous person because he is a righteous person will receive a righteous person's reward. And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward. (ESV)
+
+Disciples of Jesus carry their cross and face tribulation:
+
+> **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that through many tribulations we must enter the kingdom of God. (ESV)
+
+Jesus, on His cross said, "I thirst.":
+
+> **[John 19:28](https://www.biblegateway.com/passage/?search=John%2019%3A28&version=ESV)** - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. (ESV)
+
+Paul the Apostle asked for mercy - "From now on **let no one cause me trouble**" - he might have been at little bit stressed. Paul most surely was carrying His cross:
+
+> **[Galatians 6:14-17](https://www.biblegateway.com/passage/?search=Galatians%206%3A14-17&version=ESV)** - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the world has been crucified to me, and I to the world. For neither circumcision counts for anything, nor uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon the Israel of God. From now on **let no one cause me trouble**, for I bear on my body the marks of Jesus. (ESV)
 
 
 ## A person who is mature in Christ
