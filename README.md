@@ -12761,6 +12761,19 @@ Jesus, on His cross said, "I thirst.":
 > 
 > Something the enemy has robbed from me is the ability to work contentedly, by undermining my joy.
 
+    1  Dear Heavenly Father, Jehovah God,
+    2  please, God, in Jesus Christ's name please help me.
+    3  Please, God, actually prevent people from heaping heavy burdens on me which I can't carry.
+    4  I'm inundated, as this antichrist spirit continues to attack me, steal from me, take my joy, make things harder, and tries to take my eyes away from You, God.
+    5  Please help me and those around me to fulfill Christ's law, which is to bear one another's burdens and not to lay up burdens on others.
+    6  Please help people to learn from Jesus as He carried our burdens to the end, so that we can be strong and ought to carry one others' burdens, and instead of giving each other sour wine when we thirst, to give one another water out of mercy.
+    7  In Jesus Christ's name, I ask,
+    8  AMEN!!
+
+> **[John 19:28](https://www.biblegateway.com/passage/?search=John%2019%3A28&version=ESV)** - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. (ESV)
+
+> **[Psalms 69:21](https://www.biblegateway.com/passage/?search=Psalms%2069%3A21&version=ESV)** - They gave me poison for food, and for my thirst they gave me sour wine to drink. (ESV)
+
 > **[Galatians 1:8-9](https://www.biblegateway.com/passage/?search=Galatians%201%3A8-9&version=ESV)** - But even if we or an angel from heaven should preach to you a gospel contrary to the one we preached to you, let him be accursed. As we have said before, so now I say again: If anyone is preaching to you a gospel contrary to the one you received, let him be accursed. (ESV)
 
 > **[I Corinthians 16:22](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A22&version=ESV)** - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
