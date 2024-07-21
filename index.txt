@@ -18547,15 +18547,31 @@ Being willing to work is important as we are not supposed to be a burden on othe
   taught the word must share all good things with the one who teaches. (ESV)
 
 I'm willing to work and I would love to have a job and I would love to teach but I've been attacked a lot by
-demons, pushed out of churches for following Jesus, had the love of my life taken away from me, and been treated
-like absolute garbage, coming from such poverty that the poverty undermined my college degree, and my subsequent
-employment. For some reason it's been far too difficult. Although it is important to get a job, I have to be fit
-and prepared for work, and I'm doing battle against an anti-marriage spirit, and I'm like the person who was
-recovering at the inn (from the parable of the good Samaritan as Jesus has rescued me). Also, I'm in corrections
-(<2024-07-21 Sun> so I am being corrected by reading my Bible and studying the Word, so I still feel as though I
-am in the clear. I understand work is important, and I'm not exaggerating any of this. It will happen in the right
-order. And any spirit that puts having a job before having a wife I consider to be a spirit of prostitution /
-people trafficking.
+demons, prevented from teaching due to a conviction, pushed out of churches for following Jesus, had the love of
+my life taken away from me, and been treated like absolute garbage, coming from such poverty that the poverty
+undermined my college degree, and my subsequent employment. For some reason it's been far too difficult. Although
+it is important to get a job, I have to be fit and prepared for work, and I'm doing battle against an
+anti-marriage spirit, and I'm like the person who was recovering at the inn (from the parable of the good
+Samaritan as Jesus has rescued me). Also, I'm in corrections (<2024-07-21 Sun> so I am being corrected by reading
+my Bible and studying the Word, so I still feel as though I am in the clear. I understand work is important, and
+I'm not exaggerating any of this. It will happen in the right order. And any spirit that puts having a job before
+having a wife I consider to be a spirit of prostitution / people trafficking. This antichrist spirit has also been
+attacking my family and manifesting within the household.
+
+  Jehovah God please grant us deliverance from this spirit of antichrist in Jesus Christ's name I ask.
+
+  Galatians 6:1-10 - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him
+  in a spirit of gentleness. Keep watch on yourself, lest you too be tempted. Bear one another's burdens, and so
+  fulfill the law of Christ. For if anyone thinks he is something, when he is nothing, he deceives himself. But
+  let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor.
+  For each will have to bear his own load. One who is taught the word must share all good things with the one who
+  teaches. Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who
+  sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the
+  Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not
+  give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
+
+What matters is a "new creation", faith working through love and keeping the commandments of God. Amen.
 
 On 2 Jan 2023 I had a dream of defending a house with Bible verses written on the doorposts.
 
@@ -18614,6 +18630,16 @@ Jesus, on His cross said, "I thirst.":
 
   John 19:28 - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst.
   (ESV)
+
+  Matthew 5:12 - Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who
+  were before you. (ESV)
+
+  Galatians 6:2-6 - Bear one another's burdens, and so fulfill the law of Christ. For if anyone thinks he is
+  something, when he is nothing, he deceives himself. But let each one test his own work, and then his reason to
+  boast will be in himself alone and not in his neighbor. For each will have to bear his own load. One who is
+  taught the word must share all good things with the one who teaches. (ESV)
+
+youtube.com: Hell and Heaven Are at Stake with Money: Galatians 6:6-10, Part 1 @time: 5 min 5 sec
 
   It's a spirit of "getting a job" taking precedence over "focusing on Jesus and obeying Jesus spirit" right after
   getting born-again, when Jesus wants me to focus on Him. I get this stuff attacking me in my sleep too, i.e.
@@ -39931,11 +39957,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-21 Sun 00:00
+Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 00:03
+Created: 2024-07-22 Mon 09:11
 
 Validate
 
