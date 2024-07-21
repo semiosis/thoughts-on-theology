@@ -2,6 +2,7 @@ This document has been a work in progress. I have been born-again and have done 
 I'm trying to speak the truth in mercy. This document shows my current understanding at the time of writing. I'm not judging people. This is just
 a Bible study. I have just wanted to read the Bible for myself to understand and apply the Scriptures, come into agreement with God's Truth and share my understanding it with others for accountability purposes,
 and also [affirm truth as I am renewed in mind by it](https://youtu.be/IAgmQ-c4QYc?t=795). I don't presume to be always right.
+I want to [let the Bible smash bad theology](https://www.youtube.com/watch?v=N2aJ1q-SBr4&t=55s).
 I've also added parts of my own testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in God through Jesus Christ.
 
 > **[Psalms 119:105](https://www.biblegateway.com/passage/?search=Psalms%20119%3A105&version=ESV)** - Your word is a lamp to my feet and a light to my path. (ESV)
@@ -2813,6 +2814,8 @@ We are supposed to have a response of love for Jesus. God's forgiveness should l
 It's for our own good that we stop sinning. Sin is burdensome:
 
 > **[II Timothy 3:6-9](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A6-9&version=ESV)** - For among them are those who creep into households and capture weak women, **burdened with sins** and led astray by various passions, always learning and never able to arrive at a knowledge of the truth. Just as Jannes and Jambres opposed Moses, so these men also oppose the truth, men corrupted in mind and disqualified regarding the faith. But they will not get very far, for their folly will be plain to all, as was that of those two men. (ESV)
+
+> **[Hebrews 12:1](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, (ESV)
 
 Sin made against our own body is really bad for us. This is a warning:
 
@@ -25715,6 +25718,8 @@ We use scripture to demolish strongholds and take every thought captive for Chri
 
 > **[II Corinthians 10:4-5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-5&version=ESV)** - For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, (ESV)
 
+I want to [let the Bible smash bad theology](https://www.youtube.com/watch?v=N2aJ1q-SBr4&t=55s) - not just my own bad theology.
+
 Not by our own strength, but by God's power.
 God equips and enables us to stand firm so in
 the midst of every spiritual battle, let us
@@ -26817,6 +26822,12 @@ I guess it's quite important to forsake all else for Jesus:
 > **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
+
+We should forsake:
+
+-   the desires of the flesh, and
+-   the desires of the eyes,
+-   and pride in possessions
 
 -   **[youtube.com: How God Uses Satan](https://www.youtube.com/watch?v=y4-C_oMg11E):** Every one of the sufferings that Jesus went through was lifting sin off of us and sin is the only thing Satan's got to kill us with. It's the only weapon he's got. Satan cannot hurt you without sin. If you solve your sin problem, you solve your Satan problem. He can show you green things in the middle of the night and terrify you but he cannot hurt you.
 

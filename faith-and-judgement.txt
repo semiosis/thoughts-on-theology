@@ -6,8 +6,9 @@ anything in error I pray that it would be corrected. I'm trying to speak the tru
 my current understanding at the time of writing. I'm not judging people. This is just a Bible study. I have just
 wanted to read the Bible for myself to understand and apply the Scriptures, come into agreement with God's Truth
 and share my understanding it with others for accountability purposes, and also affirm truth as I am renewed in
-mind by it. I don't presume to be always right. I've also added parts of my own testimony. It's my hope that this
-Bible study helps other people to come to the obedience of faith in God through Jesus Christ.
+mind by it. I don't presume to be always right. I want to let the Bible smash bad theology. I've also added parts
+of my own testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in
+God through Jesus Christ.
 
   Psalms 119:105 - Your word is a lamp to my feet and a light to my path. (ESV)
 
@@ -4347,6 +4348,9 @@ It's for our own good that we stop sinning. Sin is burdensome:
   as Jannes and Jambres opposed Moses, so these men also oppose the truth, men corrupted in mind and disqualified
   regarding the faith. But they will not get very far, for their folly will be plain to all, as was that of those
   two men. (ESV)
+
+  Hebrews 12:1 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every
+  weight, and sin which clings so closely, and let us run with endurance the race that is set before us, (ESV)
 
 Sin made against our own body is really bad for us. This is a warning:
 
@@ -36456,6 +36460,8 @@ and take every thought captive for Christ as mentioned in 2 Corinthians 10:4-5
   strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every
   thought captive to obey Christ, (ESV)
 
+I want to let the Bible smash bad theology - not just my own bad theology.
+
 Not by our own strength, but by God's power. God equips and enables us to stand firm so in the midst of every
 spiritual battle, let us stand strong with the armour He has provided.
 
@@ -37936,8 +37942,13 @@ I guess it's quite important to forsake all else for Jesus:
   pride in possessions-is not from the Father but is from the world. And the world is passing away along with its
   desires, but whoever does the will of God abides forever. (ESV)
 
-youtube.com: How God Uses Satan
-Every one of the sufferings that Jesus went through was lifting sin off of us and sin is the only thing Satan's
+We should forsake:
+
+- the desires of the flesh, and
+- the desires of the eyes,
+- and pride in possessions
+- youtube.com: How God Uses Satan
+">Every one of the sufferings that Jesus went through was lifting sin off of us and sin is the only thing Satan's
 got to kill us with. It's the only weapon he's got. Satan cannot hurt you without sin. If you solve your sin
 problem, you solve your Satan problem. He can show you green things in the middle of the night and terrify you but
 he cannot hurt you.
@@ -39550,7 +39561,7 @@ Date: 2024-07-21 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-21 Sun 15:40
+Created: 2024-07-21 Sun 16:03
 
 Validate
 
