@@ -4657,7 +4657,79 @@ Spirit, and His Spirit helps us to do this.
   people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All
   who are with me send greetings to you. Greet those who love us in the faith. Grace be with you all. (ESV)
 
-4.2.4. God definitely disciplines us even if we love Jesus - every son he receives
+4.2.4. Anti-christ-like behaviour - Making money or some other thing more important than God to "get ahead"
+materially, placing burdens on others, especially those who have their priorities in the correct order (they are
+obeying God) and not lifting a finger to help them but actually make things more difficult (think of the Romans
+soldier offering vinegar to Jesus instead of water while Jesus was saying, "I thirst.")
+
+  Psalms 69:21 - They gave me poison for food, and for my thirst they gave me sour wine to drink. (ESV)
+
+It's not loving to make life harder on people by placing higher standards of exterior 'cleanliness' without
+helping them to achieve it, when in reality the way to achieve it is to clean the inside first:
+
+  Matthew 23:4 - They tie up heavy burdens, hard to bear, and lay them on people's shoulders, but they themselves
+  are not willing to move them with their finger. (ESV)
+
+  Matthew 23:25-29 - Woe to you, scribes and Pharisees, hypocrites! For you clean the outside of the cup and the
+  plate, but inside they are full of greed and self-indulgence. You blind Pharisee! First clean the inside of the
+  cup and the plate, that the outside also may be clean. Woe to you, scribes and Pharisees, hypocrites! For you
+  are like whitewashed tombs, which outwardly appear beautiful, but within are full of dead people's bones and all
+  uncleanness. So you also outwardly appear righteous to others, but within you are full of hypocrisy and
+  lawlessness. Woe to you, scribes and Pharisees, hypocrites! For you build the tombs of the prophets and decorate
+  the monuments of the righteous, (ESV)
+
+  Luke 11:39 - And the Lord said to him, Now you Pharisees cleanse the outside of the cup and of the dish, but
+  inside you are full of greed and wickedness. (ESV)
+
+Specific example:
+
+  Let's say there is a poor by appearances (but rich in God) person on the street who loves God with all His heart
+  but has a rough outward appearance and the reason they have a rough outwards appearance is because the world
+  hates them as a result of their faith in Jesus, being obedient to Jesus. Now along comes a worldly person who
+  loves money, the pride of life and the pride of their possessions, who's gospel is the prosperity gospel, and
+  they love money more than they love God. This worldly person goes up to the poor person on the street and says
+  they must be burdened with sin because of their appearance, that they must take their eyes away from following
+  God and focus on worldly things, that they have demons and need to clean up their appearance to be a real
+  Christian, and they don't lift a finger to help the poor person meet their standard of exterior wellbeing. The
+  worldly ignorant person has just acted like the blind Pharisees.
+
+  John 15:18-20 - If the world hates you, know that it has hated me before it hated you. If you were of the world,
+  the world would love you as its own; but because you are not of the world, but I chose you out of the world,
+  therefore the world hates you. Remember the word that I said to you: A servant is not greater than his master.
+  If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. (ESV)
+
+The one worrying about the material things doesn't actually have the love of the Father in them but the poor
+person who loves God does - the materially poor but rich in faith person has their priorities in order and doesn't
+need correction from the natural, worldly person, but rather needs mercy from the materialistic worldly person.
+And the materialistic, worldly person needs to learn from the poor person so they can put God first. This is not
+glorifying poverty, but rather is about the truth of the matter that we must have God as our top love in our
+heart:
+
+  I John 2:15 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. (ESV)
+
+  Matthew 6:21 - For where your treasure is, there your heart will be also. (ESV)
+
+  James 2:5-8 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in
+  faith and heirs of the kingdom, which he has promised to those who love him? But you have dishonored the poor
+  man. Are not the rich the ones who oppress you, and the ones who drag you into court? Are they not the ones who
+  blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the
+  Scripture, You shall love your neighbor as yourself, you are doing well. (ESV)
+
+  Matthew 6:25-34 - Therefore I tell you, do not be anxious about your life, what you will eat or what you will
+  drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing?
+  Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father
+  feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his
+  span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they
+  neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if
+  God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not
+  much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What
+  shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father
+  knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will
+  be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient
+  for the day is its own trouble. (ESV)
+
+4.2.5. God definitely disciplines us even if we love Jesus - every son he receives
 
 The ones who love Jesus, keep His teachings:
 
@@ -4696,7 +4768,7 @@ Whoever loves with Christ's love knows Father God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-4.2.5. Christians should live fulfilling the Royal Law
+4.2.6. Christians should live fulfilling the Royal Law
 
 Those walking (living) according to Jesus' Spirit should be able to do this:
 
@@ -4718,7 +4790,7 @@ Whoever loves with Christ's love knows Father God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-4.2.6. Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus,
+4.2.7. Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus,
 Jesus having fulfilled the entire law and prophets
 
   John 15:25 - But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)
@@ -39965,7 +40037,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 10:12
+Created: 2024-07-22 Mon 11:02
 
 Validate
 
