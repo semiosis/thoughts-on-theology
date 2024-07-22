@@ -117,9 +117,12 @@ Jesus Christ has reached, was able to reach and was destined to reach:
 
 We obey the truth. We believe the gospel and obey the truth. We live according to the truth. In my view it's all
 obedience to the truth and essentially means accepting the gospel and letting it work in your life through
-belief-obedience. They're not separate things in my opinion but we must have both obedience and belief in the
-heart - we must agree that gospel of Jesus is Truth and live in that reality holding faith and being obedient to
-Jesus and God will make it happen:
+belief-obedience. When we are living in faith in God for His promises we living in an obedient way. Belief and
+obedience are not separate things in my opinion, but we must have both obedience and belief in the heart - we must
+agree that gospel of Jesus is Truth and live in that reality holding faith and being obedient to Jesus and God
+will make it happen. So living by faith walks according to the will of God with hope in His promises, trust in
+Jesus and faithfulness-obedience to His commandments, walking in the ways of God seeking God's commendation,
+trusting in God, and living as though He exists:
 
   I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one
   another earnestly from a pure heart, (ESV)
@@ -40349,7 +40352,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 16:44
+Created: 2024-07-22 Mon 16:50
 
 Validate
 
