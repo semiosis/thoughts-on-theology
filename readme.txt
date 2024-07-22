@@ -977,7 +977,8 @@ Talk by John Piper
 youtube.com: You Cannot Obey God Without God
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -2138,7 +2139,8 @@ in Him we have obeyed Him, but belief doesn't end there:
   Me. (NASB)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -6848,7 +6850,8 @@ follower of Jesus.
   forever.
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -10610,7 +10613,8 @@ etc.
   the Son of God that you may know that you have eternal life. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -13996,7 +14000,9 @@ and remember the words of the Lord Jesus:
   remember the words of the Lord Jesus, how he himself said, It is more blessed to give than to receive. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah
-God), and God is love and love comes from God:
+God), and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good.
+Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement
+that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring
@@ -14758,7 +14764,9 @@ youtube.com: You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 @time:
 
 So John Piper is taking the Apostle John's writing in II John 1:9 and saying that Apostle John is warning against
 people talking about justification through works, but I don't think that's what the Apostle John is talking about.
-But I think it's important to affirm Lord Jesus's teaching.
+But I think it's important to affirm Lord Jesus's teaching. And we should be corrected by the Lord's teaching. For
+example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified
+by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -15684,7 +15692,8 @@ We don't want lazy, cowardly, disobedient faith:
   will demand the more. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -22376,6 +22385,51 @@ of God:
   all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure
   of the stature of the fullness of Christ, (ESV)
 
+31.5. Don't abandon but support born-again, obedient, faithful disciples of Jesus, not pushing them back to worldly
+thinking
+
+Support and encourage them for correction with regards to sound doctrine that is Scriptural, bearing their burdens
+as a disciple bears others' burdens, because it's a profound a real thing to be born-again of the Spirit and walk
+in obedience to Jesus, and the teachings of Christ are supposed to be followed by Christians.
+
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
+
+Look, here's a blessing for loving Jesus and not being an enemy of the cross:
+
+  Matthew 10:40-42 - Whoever receives you receives me, and whoever receives me receives him who sent me. The one
+  who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a
+  righteous person because he is a righteous person will receive a righteous person's reward. And whoever gives
+  one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no
+  means lose his reward. (ESV)
+
+Disciples of Jesus carry their cross and face tribulation:
+
+  Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
+  that through many tribulations we must enter the kingdom of God. (ESV)
+
+Jesus, on His cross said, "I thirst.":
+
+  John 19:28 - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst.
+  (ESV)
+
+  Matthew 5:12 - Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who
+  were before you. (ESV)
+
+  Galatians 6:2-6 - Bear one another's burdens, and so fulfill the law of Christ. For if anyone thinks he is
+  something, when he is nothing, he deceives himself. But let each one test his own work, and then his reason to
+  boast will be in himself alone and not in his neighbor. For each will have to bear his own load. One who is
+  taught the word must share all good things with the one who teaches. (ESV)
+
 32. Faith
 
 One must have faith to receive the gift of salvation. Faith is belief and obedience. "By faith_ Abraham obeyed".
@@ -23995,7 +24049,8 @@ I confess that Jesus is the Son of God:
   I John 4:15 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -35457,7 +35512,8 @@ born-again:
   does not come into judgment, but has passed from death to life. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God:
+and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
+when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -40139,7 +40195,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 13:15
+Created: 2024-07-22 Mon 14:32
 
 Validate
 

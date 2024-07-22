@@ -272,7 +272,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org322d8e5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6710c1b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -608,7 +608,7 @@ The Jesus which the Apostles proclaimed is the same Jesus we need to proclaim in
 
 -   **Talk by John Piper:** [youtube.com: You Cannot Obey God Without God](https://www.youtube.com/watch?v=mqlCjq60ogg&t=203s)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -1359,7 +1359,7 @@ Believing in your heart is an initial act of obedience before continuing in the 
 
 > **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=NASB)** - “Do not let your heart be troubled; believe (G4100 **pisteuo**) in God, believe (G4100 **pisteuo**) also in Me. (NASB)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -4641,7 +4641,7 @@ I believe in 'once saved, always saved, <ins>while doing the will of God</ins>'.
 
 > **[I John 2:17](https://www.biblegateway.com/passage/?search=1%20John%202%3A17&version=ESV)** - And the world is passing away along with its desires, but <ins>whoever does the will of God abides forever.</ins>
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -7077,7 +7077,7 @@ I know I can testify to this fiery trial being a real thing:
 
 > **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -9412,7 +9412,7 @@ This is what we must come to know in truth - that Jesus came from Father God, an
     
     > **[Acts 20:35](https://www.biblegateway.com/passage/?search=Acts%2020%3A35&version=ESV)** - In all things I have shown you that by working hard in this way we **must** <ins>help the weak</ins> and <ins>remember the words of the Lord Jesus, how he himself said,</ins> **It is more blessed to give than to receive.** (ESV)
     
-    It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+    It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
     
     > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
     
@@ -9893,7 +9893,7 @@ As a result of being born of the Spirit and subsequent obedience to Jesus' comma
 
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=NASB)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
 
-Connecting **[Romans 6:22](https://www.biblegateway.com/passage/?search=Romans%206%3A22&version=ESV)** to **Hebrews 13:12**, the result of being enslaved to God, obeying God and Christian suffering, results in our sanctification.
+Connecting **[Romans 6:22](https://www.biblegateway.com/passage/?search=Romans%206%3A22&version=ESV)** to **[Hebrews 13:12](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12&version=ESV)**, the result of being enslaved to God, obeying God and Christian suffering, results in our sanctification.
 
 Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's encouraged. I think we bear His reproach in order to be sanctified and then call Jerusalem our home:
 
@@ -9913,7 +9913,7 @@ We are not children of the slave woman but we are children of the free woman:
 
 -   **Bible study:** [youtube.com: You Are a Child of the Free Woman: Galatians 4:21-31, Part 8 @time: 2 min 6 sec](https://youtube.com/watch?v=mUnh98bcLek&t=126)
 
-So John Piper is taking the Apostle John's writing in **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** and saying that Apostle John is warning against people talking about justification through works, but I don't think that's what the Apostle John is talking about. But I think it's important to affirm Lord Jesus's teaching.
+So John Piper is taking the Apostle John's writing in **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** and saying that Apostle John is warning against people talking about justification through works, but I don't think that's what the Apostle John is talking about. But I think it's important to affirm Lord Jesus's teaching. And we should be corrected by the Lord's teaching. For example, in **Mark 10:18**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -10526,7 +10526,7 @@ We don't want lazy, cowardly, disobedient faith:
 
 > **[Luke 12:48](https://www.biblegateway.com/passage/?search=Luke%2012%3A48&version=ESV)** - But the one who did not know, and did what deserved a beating, will receive a light beating. Everyone to whom much was given, of him much will be required, and from him to whom they entrusted much, they will demand the more. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -16536,7 +16536,7 @@ I confess that Jesus is the Son of God:
 
 > **[I John 4:15](https://www.biblegateway.com/passage/?search=1%20John%204%3A15&version=ESV)** - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -24983,7 +24983,7 @@ If you hear Jesus' word and believe Father God, then you have eternal life, and 
 
 > **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2011%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
