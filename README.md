@@ -272,7 +272,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org61ee35a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2e950c4) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23023,6 +23023,16 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     Because truth is truth, it is imperishable.
     
     > **[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this word is the good news that was preached to you. (ESV)
+    
+    -   **[youtube.com: Hope and the Fruit of Love @time: 5 min 10 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=310):** The Word is not perishable.
+        What's the point? It lasts and lasts, well what's the point of that? Hope!
+        If the word of God by which you were born again dies, you die.
+        Jesus said, "We live by every word that comes out of the mouth of God."
+        
+        If those words someday die, if they cease to be true, if they cease to have power, we're dead.
+        If they live forever, if those words go
+        on, and they're imperishable, we carried
+        by them, standing on them are imperishing.
     
     > **[II John 1:1-2](https://www.biblegateway.com/passage/?search=2%20John%201%3A1-2&version=ESV)** - The elder to the elect lady and her children, whom I love in truth, and not only I, but also all who know the truth, because of the truth that abides in us and will be with us forever:
     
