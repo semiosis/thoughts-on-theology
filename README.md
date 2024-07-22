@@ -272,7 +272,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or salvation by obedience and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org322d8e5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -15097,6 +15097,32 @@ As we come into Jesus' Kingdom, we should be praying for and trying to lead othe
 And build each other up to help each other attain unity of faith and knowledge of the Lord Jesus Christ, the Son of God:
 
 > **[Ephesians 4:12-13](https://www.biblegateway.com/passage/?search=Ephesians%204%3A12-13&version=ESV)** - to equip the saints for the work of ministry, for building up the body of Christ, until we all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure of the stature of the fullness of Christ, (ESV)
+
+
+## Don't abandon but support born-again, obedient, faithful disciples of Jesus, not pushing them back to worldly thinking
+
+Support and encourage them for correction with regards to sound doctrine that is Scriptural, bearing their burdens as a disciple bears others' burdens, because it's a profound a real thing to be born-again of the Spirit and walk in obedience to Jesus, and the teachings of Christ
+are supposed to be followed by Christians.
+
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
+
+Look, here's a blessing for loving Jesus and not being an enemy of the cross:
+
+> **[Matthew 10:40-42](https://www.biblegateway.com/passage/?search=Matthew%2010%3A40-42&version=ESV)** - Whoever receives you receives me, and whoever receives me receives him who sent me. The one who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a righteous person because he is a righteous person will receive a righteous person's reward. And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward. (ESV)
+
+Disciples of Jesus carry their cross and face tribulation:
+
+> **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that through many tribulations we must enter the kingdom of God. (ESV)
+
+Jesus, on His cross said, "I thirst.":
+
+> **[John 19:28](https://www.biblegateway.com/passage/?search=John%2019%3A28&version=ESV)** - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. (ESV)
+
+> **[Matthew 5:12](https://www.biblegateway.com/passage/?search=Matthew%205%3A12&version=ESV)** - Rejoice and be glad, for your reward is great in heaven, for so they persecuted the prophets who were before you. (ESV)
+
+> **[Galatians 6:2-6](https://www.biblegateway.com/passage/?search=Galatians%206%3A2-6&version=ESV)** - **Bear one another's burdens, and so fulfill the law of Christ.** For if anyone thinks he is something, when he is nothing, he deceives himself. But let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor. For each will have to bear his own load. **One who is taught the word must share all good things with the one who teaches.** (ESV)
 
 
 # Faith
