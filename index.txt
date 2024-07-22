@@ -1539,23 +1539,28 @@ light-body.
 Sermon
 youtube.com: Be Who You Are: Living Out Identity in Christ, Part 1
 
-I don't really know what this is. It was something like a singularity event and my perception of the world is now
-spiritual. Most of my life I have not been a very faithful Christian. I was a 'nominal' Christian but I didn't
-really have a lot of faith or knowledge of God. I had not been seeking out Jesus. For the 2 years leading up to 2
-April 2022, I can tell now in retrospect that God was working in my life. So when was I born-again? Was it when I
-first believed as a child, or when I was baptised as a teenager? Not in the same way I was born-again on 2 April
-2022. On 2 April 2022 I was truly born-again of the Spirit, and my best explanation as to what had changed was
-that I had begun to authentically seek God and to be obedient to Jesus, accountable to God who sees in secret, and
-not to man, and that activated a real prayer life, and I had asked God to give me His Holy Spirit. Even though I
-could not yet hear His voice, I was praying and seeking and beginning to repent. On the 2 April 2022 I was
-born-again the Spirit - I was spiritually regenerated - whatever it was that happened which I described. When that
-happened God had put the fear of Him in my heart so that I would not turn from Him. When I first 'believed' the
-gospel, this had not happened yet, but I had the testimony I guess. This event, what I experienced on 2 April 2022
-I consider to me being born of 'water and the Spirit'. But hearing and keeping the gospel of Jesus, and asking God
-to receive the Holy Spirit, or seeking God I guess they will have some events, probably different to my 2 April
-2022 event something similar happen then or in their future some time, I assume, or perhaps it is 'entering the
-Kingdom of God'. I don't know exactly how it works. I'm retroactively trying to figure things out by reading the
-Scriptures.
+Being born-again of the spirit was a total gift received through faith in Jesus, none of my own merit at all -
+simple very imperfect repentance from sin and faith in God exercising faithfulness:
+
+  I don't really know what this is. It was something like a singularity event and my perception of the world is
+  now spiritual. Most of my life I have not been a very faithful Christian. I was a 'nominal' Christian but I
+  didn't really have a lot of faith or knowledge of God. I had not been seeking out Jesus. For the 2 years leading
+  up to 2 April 2022, I can tell now in retrospect that God was working in my life, and I had begun seeking Jesus,
+  and trying out repentance, and eventually arrived at the point where I was crying to God for help. So when was I
+  born-again? Was it when I first believed as a child, or when I was baptised as a teenager? Not in the same way I
+  was born-again on 2 April 2022. On 2 April 2022 I was truly born-again of the Spirit, and my best explanation as
+  to what had changed was that I had begun to authentically seek God and to be obedient to Jesus, accountable to
+  God who sees in secret, and not to man, and that activated a real prayer life, and actively believing God exists
+  and sees, and I had asked God to give me His Holy Spirit. Even though I could not yet hear His voice, I was
+  praying and seeking and beginning to repent. On the 2 April 2022 I was born-again the Spirit - I was spiritually
+  regenerated - whatever it was that happened which I described. When that happened God had put the fear of Him in
+  my heart so that I would not turn from Him, and it was receiving a new spiritual light-body like being birthed
+  from a womb. When I first 'believed' the gospel, this had not happened yet, but I had the testimony I guess.
+  This event, what I experienced on 2 April 2022 I consider to me being born of 'water and the Spirit'. But
+  hearing and keeping the gospel of Jesus, and asking God to receive the Holy Spirit, or seeking God I guess they
+  will have some events, probably different to my 2 April 2022 event something similar happen then or in their
+  future some time, I assume, or perhaps it is 'entering the Kingdom of God'. I don't know exactly how it works.
+  I'm retroactively trying to figure things out by reading the Scriptures.
 
 As I understand it, if someone is "born of God", they would love Jesus. If someone loves with Christ's love then
 they are "born of God and know God" and they would love Jesus if presented with Jesus. If someone is "born of the
@@ -15904,8 +15909,18 @@ walking in the footsteps of the faith that our father Abraham had before he was 
   make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the
   faith that our father Abraham had before he was circumcised.
 
-So what Jesus is saying is quite similar - we must have the faith that Abraham had when he put Isaac on the Altar,
-but in regards to following Jesus:
+So what Jesus is saying is quite similar, I think. We must have the faith of Abraham, but in regards to following
+Jesus. That being said, around when I was born-again of the spirit, I had only exercised very simple faith -
+believing God exists, Jesus exists, and exercising faithfulness and obedience to Jesus, believing God sees in
+secret, and after being like that, struggling with sin, I called out to God for help, and He made me born-again of
+the Spirit. It was a total gift and rescue. However, faith continues. We should not repent from sin and be
+corrected by the word and Sanctified in the Word of God and carry out the good works which God lines up for us
+which He had planned for us. And faith continues, and we seek to come after Jesus. A similar situation happened to
+me like the situation of when Abraham put Isaac on the Altar, and like Abraham I had to give up something I really
+wanted and it meant obeying Jesus, exercising trusting faith and obedience to Jesus, forgiving and becoming a
+scapegoat. So I still say that believers who have been born of promise, born of the Spirit, should continue in the
+faith of Abraham. Obedience leads to reward, commendation, being a friend of God. But to be a disciple of Jesus we
+should count the cost, because it can be very difficult:
 
   Luke 9:23-24 - And he said to all, If anyone would come after me, let him deny himself and take up his cross
   daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will
@@ -40223,7 +40238,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 15:21
+Created: 2024-07-22 Mon 15:52
 
 Validate
 
