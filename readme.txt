@@ -14474,6 +14474,13 @@ True faith is always obedient; faith is always prepared to obey more:
   John 7:17- If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am
   speaking on my own authority.
 
+Through faith in Jesus / obedience to Jesus we can have faith in Father God:
+
+  I Peter 1:20-22 - He was foreknown before the foundation of the world but was made manifest in the last times
+  for your sake, who through him are believers in God, who raised him from the dead and gave him glory, so that
+  your faith and hope are in God. Having purified your souls by your obedience to the truth for a sincere
+  brotherly love, love one another earnestly from a pure heart, (ESV)
+
 You can't even have faith in God without obeying Jesus because the one who has faith in God has already obeyed
 Jesus whether they know about Mark 11:22 or not. So it's not a dead work.
 
@@ -14486,6 +14493,21 @@ trust Him:
 
   John 13:6-7 - He came to Simon Peter, who said to him, Lord, do you wash my feet? Jesus answered him, What I am
   doing you do not understand now, but afterward you will understand. (ESV)
+
+Quote by John Piper
+
+God is saying, "I have done everything from eternity past in the for knowing of my son to eternity future in the
+glorifying of my son that you might hope in Me, God!" So that you might not hope in what sin can offer you, but
+hope in what God can offer you.
+
+The wages of sin is death but the free gift of God is eternal life. Therefore, he who hopes in sin dies, and he
+who hopes in God lives forever.
+
+Everything has been done for you that you might escape from the futile way of sin and put your hope in God
+forever.
+
+I close by calling you to wake up to the folly of hoping in sin and to stop trying to satisfy your hearts with sin
+and to start satisfying your hearts with God.
 
 And justifying faith is having obedient faith in God with regards to the promise given to Abraham.
 
@@ -14528,6 +14550,28 @@ but in regards to following Jesus:
 17.0.1. Salvation by obedience
 
 Since Jesus commanded us to have faith in Him, to trust in Jesus is to have obeyed Him.
+
+Quote by John Piper
+
+God is saying, "I have done everything from eternity past in the for knowing of my son to eternity future in the
+glorifying of my son that you might hope in Me, God!" So that you might not hope in what sin can offer you, but
+hope in what God can offer you.
+
+The wages of sin is death but the free gift of God is eternal life. Therefore, he who hopes in sin dies, and he
+who hopes in God lives forever.
+
+Everything has been done for you that you might escape from the futile way of sin and put your hope in God
+forever.
+
+I close by calling you to wake up to the folly of hoping in sin and to stop trying to satisfy your hearts with sin
+and to start satisfying your hearts with God.
+
+Through faith in Jesus, and obedience to Jesus we can have faith in Father God:
+
+  I Peter 1:20-22 - He was foreknown before the foundation of the world but was made manifest in the last times
+  for your sake, who through him are believers in God, who raised him from the dead and gave him glory, so that
+  your faith and hope are in God. Having purified your souls by your obedience to the truth for a sincere
+  brotherly love, love one another earnestly from a pure heart, (ESV)
 
 Have faith in God:
 
@@ -15083,6 +15127,23 @@ So we are saved by obeying Jesus:
   obey him. (ESV)
 
   Hebrews 5:9 - And being made perfect, he became the source of eternal salvation to all who obey him, (ESV)
+
+Quote from John Piper
+
+Jesus has done everything necessary: He was loved and foreknown and chosen, He appeared at the end of the times,
+He was crucified for sins, He was raised from the dead, He was glorified at the Father's right hand, and now He is
+sent by his Spirit into this world and he is doing his purposes to gather his people and through him you have
+become believers in God.
+
+You've been ransomed from a futile way of life by an infinitely valuable price: namely, the blood of Jesus.
+
+The command to lead your life in fear rises with the value of the ransom paid to rescue you from the sin that some
+people try to fund with the ransom.
+
+He was born to die and he died to rescue you from this afternoon's sinning. And tomorrow's, as well as all the
+ones in the past.
+
+We should not treat that ransom with contempt.
 
 But I feel like a lot of people have a problem with salvation by obedience, but it's totally Scriptural. Noah and
 the Israelites through the Red Sea and the Apostle Thomas after following Jesus around for ages and finally
@@ -33010,6 +33071,23 @@ And then it's possible to inherit the imperishable:
 
  3. Victory over sin and death through Jesus
 
+youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec
+I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked
+down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus
+said, "It is finished.", the Father said, "It is finished." Then He raised him from the dead to say to all the
+world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid.
+Once for all, it is done." I think that's what the resurrection is like - a big exclamation point at the end
+of Christ's blood is enough. Boof! Exclamation point. Up out of the grave! And the second thing it does is
+say, "Death is defeated." Death is defeated. So that, this afternoon, when sin comes to you, and this is the
+way he comes, and he says, "You know, life is short, my pleasures are large, and then you die. Maximize. Eat,
+drink and be merry, for tomorrow you die." To which, you, now after this morning's message, will say, " And
+the day after that, I will live again, forever, and therefore you're a liar! You're a liar! You're telling me
+that this life is all I've got, and I should follow you because you can maximize it for me? Well, I'll tell
+you what I'm going to rise from the dead with Jesus and then I live 10 million million Ages of Ages, and if I
+were to choose your way now and go to hell rather than Jesus' way and go to heaven I would be an absolute
+fool. Out of here, sin! That's the way you argue with sin. It's the only way you can defeat sin. Righteousness
+is not automatic, folks. It is won by warfare with Truth from the Bible.
+
 Because truth is truth, it is imperishable.
 
   I Peter 1:22-25 - Having purified your souls by your obedience to the truth for a sincere brotherly love,
@@ -40061,7 +40139,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 11:50
+Created: 2024-07-22 Mon 13:15
 
 Validate
 
