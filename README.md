@@ -272,7 +272,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge01ea58) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org61ee35a) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -8504,6 +8504,23 @@ We must love (not just any way you believe it's defined) but in the same way tha
 
 > **[I John 4:19](https://www.biblegateway.com/passage/?search=1%20John%204%3A19&version=ESV)** - We love <ins>because he first loved us.</ins> (ESV)
 
+-   **[youtube.com: Hope and the Fruit of Love @time: 2 min 0 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=120):** Since you have in obedience to the truth
+    purified your souls for a sincere love
+    of the brethren -  there's there's the
+    pillar - therefore, fervently love one another.
+    
+    So, the first pillar is
+    Soul purifying obedience to the truth.
+    Do we all see that? Since you have purified
+    your souls by obedience to the truth,
+    love.
+    
+    If you do this you can love. If you don't
+    do this, love falls. If you do this, love
+    stands. So there's pillar number one.
+    
+    **Since there is a soul purifying obedience to the truth, you can love each other.**
+
 
 ### Christians are not <ins>under</ins> the Mosaic law because **we are under grace as we are under Christ's law**, but we don't despise the Torah, nor annul it, nor teach others to annul it
 
@@ -8569,6 +8586,23 @@ Our freedom is so that we might live to God:
 God is our life. We must love, **obey**, and hold fast to Him. Faith is not without obedience, but we are to obey Jesus Christ and to believe in Jesus is to have begun to obey Him:
 
 > **[Deuteronomy 30:20](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A20&version=ESV)** - **loving the LORD your God, obeying his voice and holding fast to him, for <ins>he is your life</ins>** and length of days, that you may dwell in the land that the LORD swore to your fathers, to Abraham, to Isaac, and to Jacob, to give them. (ESV)
+
+-   **[youtube.com: Hope and the Fruit of Love @time: 2 min 0 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=120):** Since you have in obedience to the truth
+    purified your souls for a sincere love
+    of the brethren -  there's there's the
+    pillar - therefore, fervently love one another.
+    
+    So, the first pillar is
+    Soul purifying obedience to the truth.
+    Do we all see that? Since you have purified
+    your souls by obedience to the truth,
+    love.
+    
+    If you do this you can love. If you don't
+    do this, love falls. If you do this, love
+    stands. So there's pillar number one.
+    
+    **Since there is a soul purifying obedience to the truth, you can love each other.**
 
 To get to know Jesus, we **must obey** His commandments:
 
@@ -10650,9 +10684,38 @@ To be justified, a person must have the faith of Abraham. By faith Abraham obeye
 
 > **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
-So what Jesus is saying is quite similar, I think. We must have the faith of Abraham, but in regards to following Jesus. That being said, around when I was born-again of the spirit, I had only exercised very simple faith - believing God exists, Jesus exists, and exercising faithfulness and obedience to Jesus, believing God sees in secret, and after being like that, struggling with sin, I called out to God for help, and He made me born-again of the Spirit. It was a total gift and rescue. However, faith continues. We should not repent from sin and be corrected by the word and Sanctified in the Word of God and carry out the good works which God lines up for us which He had planned for us. And faith continues, and we seek to come after Jesus. A similar situation happened to me like the situation of when Abraham put Isaac on the Altar, and like Abraham I had to give up something I really wanted and it meant obeying Jesus, exercising trusting faith and obedience to Jesus, forgiving and becoming a scapegoat. So I still say that believers who have been born of promise, born of the Spirit, should continue in the faith of Abraham. Obedience leads to reward, commendation, being a friend of God. But to be a disciple of Jesus we should count the cost, because it can be very difficult:
+So what Jesus is saying is quite similar, I think. We must have the faith of Abraham, but in regards to following Jesus. That being said, around when I was born-again of the spirit, I had only exercised very simple faith - believing God exists, Jesus exists, and exercising faithfulness and obedience to Jesus, believing God sees in secret, and after being like that, struggling with sin, I called out to God for help, and He made me born-again of the Spirit. It was a **total gift and a rescue**:
+
+> **[I Peter 1:23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23&version=ESV)** - since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; (ESV)
+
+-   **[youtube.com: Hope and the Fruit of Love @time: 2 min 43 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=163):** New Birth by the word of God.
+    So you got the act of God in causing us
+    to be born again and you've got the
+    active man in obedience to that truth,
+    purifying his heart.
+
+However, faith continues. We should [repent from sin](https://youtu.be/bZ18ECfRKJc?t=120) and be corrected by the word and Sanctified in the Word of God and carry out the good works which God lines up for us which He had planned for us. And faith continues, and we seek to come after Jesus. A similar situation happened to me like the situation of when Abraham put Isaac on the Altar, and like Abraham I had to give up something I really wanted and it meant obeying Jesus, exercising trusting faith and obedience to Jesus, forgiving and becoming a scapegoat. So I still say that believers who have been born of promise, born of the Spirit, should continue in the faith of Abraham. Obedience leads to reward, commendation, being a friend of God. But to be a disciple of Jesus we should count the cost, because it can be very difficult:
 
 > **[Luke 9:23-24](https://www.biblegateway.com/passage/?search=Luke%209%3A23-24&version=ESV)** - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will save it. (ESV)
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
+
+-   **[youtube.com: Hope and the Fruit of Love @time: 2 min 0 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=120):** Since you have in obedience to the truth
+    purified your souls for a sincere love
+    of the brethren -  there's there's the
+    pillar - therefore, fervently love one another.
+    
+    So, the first pillar is
+    Soul purifying obedience to the truth.
+    Do we all see that? Since you have purified
+    your souls by obedience to the truth,
+    love.
+    
+    If you do this you can love. If you don't
+    do this, love falls. If you do this, love
+    stands. So there's pillar number one.
+    
+    **Since there is a soul purifying obedience to the truth, you can love each other.**
 
 Even the demons believe God is one and they shudder. The faithful believe God and love God (a totally different response). Love is obedience to God, and includes accepting and having faith in the one who God sent, Jesus.
 
@@ -22950,7 +23013,12 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished." Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done." I think that's what the resurrection is like - a big exclamation point at the end of **Christ's blood is enough**. <ins>*Boof! Exclamation point. Up out of the grave!*</ins> And the second thing it does is say, "Death is defeated." Death **is** defeated. So that, this afternoon, when sin comes to you, and this is the way he comes, and he says, "You know, life is short, my pleasures are large, and then you die. Maximize. Eat, drink and be merry, for tomorrow you die." To which, you, now after this morning's message, will say, " And the day after that, I will live again, forever, and therefore you're a liar! You're a liar! You're telling me that this life is all I've got, and I should follow you because you can maximize it for me? Well, I'll tell you what I'm going to rise from the dead with Jesus and then I live 10 million million Ages of Ages, and if I were to choose your way now and go to hell rather than Jesus' way and go to heaven I would be an absolute fool. Out of here, sin! That's the way you argue with sin. It's the only way you can defeat sin. Righteousness is not automatic, folks. It is won by warfare with Truth from the Bible.
+    -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
+        Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
+        
+        I think that's what the resurrection is like - a big exclamation point at the end of **Christ's blood is enough**. <ins>*Boof! Exclamation point. Up out of the grave!*</ins> And the second thing it does is say, "Death is defeated." Death **is** defeated.
+        
+        So that, this afternoon, when sin comes to you, and this is the way he comes, and he says, "You know, life is short, my pleasures are large, and then you die. Maximize. Eat, drink and be merry, for tomorrow you die." To which, you, now after this morning's message, will say, " And the day after that, I will live again, forever, and therefore you're a liar! You're a liar! You're telling me that this life is all I've got, and I should follow you because you can maximize it for me? Well, I'll tell you what I'm going to rise from the dead with Jesus and then I live 10 million million Ages of Ages, and if I were to choose your way now and go to hell rather than Jesus' way and go to heaven I would be an absolute fool. Out of here, sin! That's the way you argue with sin. It's the only way you can defeat sin. Righteousness is not automatic, folks. It is won by warfare with Truth from the Bible.
     
     Because truth is truth, it is imperishable.
     
