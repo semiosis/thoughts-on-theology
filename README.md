@@ -72,6 +72,23 @@ It's <ins>perfect</ins> self-humbling obedience throughout His sinless life as H
 
 > **[I Corinthians 15:45](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A45&version=ESV)** - Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. (ESV)
 
+We obey the truth. We believe the gospel and obey the truth. We live according to the truth. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience. They're not separate things in my opinion but we must have both obedience and belief in the heart - we must agree that gospel of Jesus is Truth and live in that reality holding faith and being obedient to Jesus and God will make it happen:
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
+
+> **[Acts 15:9](https://www.biblegateway.com/passage/?search=Acts%2015%3A9&version=ESV)** - and he made no distinction between us and them, having cleansed their hearts by faith. (ESV)
+
+-   **[youtube.com: Hope and the Fruit of Love @time: 13 min 58 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=838):** "You have cleansed your heart by
+    obedience to the truth." **[Acts 15:9](https://www.biblegateway.com/passage/?search=Acts%2015%3A9&version=ESV)** says,
+    "God cleansed their hearts by faith."
+    The gospel demands faith. Therefore,
+    obedience to the gospel is faith
+    and faith is hope -
+    faith in the future that God is
+    providing. Faith in all these truths of
+    chapter 1 (i.e. [I Peter 1]), means "hoping faith is the
+    assurance of things hoped for."
+
 We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
 > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
@@ -272,7 +289,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2e950c4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5ba5c27) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -5665,7 +5682,58 @@ Christ's Spirit is selfless and bears one another's burdens, and considers other
 
 > **[Philippians 2:3](https://www.biblegateway.com/passage/?search=Philippians%202%3A3&version=ESV)** - Do nothing from rivalry or conceit, but **in humility count others more significant than yourselves.** (ESV)
 
-In order to avoid another fear pandemic like the one in 2020-2021, we should not cease to maintain freedom, faith in God, peace, forgiveness, and love for people:
+-   **[youtube.com: Hope and the Fruit of Love @time: 10 min 14 sec](https://youtube.com/watch?v=bZ18ECfRKJc&t=614):** One of the great obstacles to love is
+    fear &#x2013;
+    that if you pay the price of love,
+    you won't get the flower of the world.
+    
+    I mean the flowers of the world are very
+    pretty. Money is pretty, and power is pretty, and
+    sex is pretty, and reputation is pretty,
+    and leisure is pretty, and comfort is pretty.
+    
+    The world has lots to offer. There's a lot
+    of flowers out there.
+    
+    There are grassy meadows in the world
+    that are tremendously attractive, and this feeling rises up in our hearts:
+    If you pay the price
+    to love you won't get as many flowers,
+    you won't get as much grass.
+    
+    And therefore we resist loving.
+    
+    If you endure wrong meekly,
+    if you renounce boasting, don't call attention to yourselves,
+    if we spend time and energy supplying the needs of others without fretting
+    over our own, if we risk making necessary reproofs
+    that are almost surely to be interpreted
+    as unloving, if we receive reproofs
+    without animosity and defensiveness, if
+    we cover a multitude of sins and put
+    away our list of grievances, if we
+    rejoice when others prosper while we
+    don't, if we bless those who curse us, and
+    do good to those who despise us,
+    if we love each other earnestly from the
+    heart, the fear is we won't get any
+    flowers; our grassy Fields will turn brown on us.
+    
+    And the way we are freed from that fear
+    is to hear God say, "the flower
+    falls and the grass fades but my word
+    that gave you life lasts forever and leads to an
+    inheritance that is unfading, imperishable,
+    undefiled, kept in heaven for you. You are free
+    go ahead pay the price.
+    It doesn't matter what they think. It
+    doesn't matter whether you get the
+    flowers. If you're born of God you are alive
+    and you will last forever.
+
+Amen.
+
+In order to avoid another situation with the pandemic where there was a lack of love (people making decisions on fear instead of on love) like the one in 2020-2021, we should not cease to maintain freedom, faith in God, peace, forgiveness, and love for people:
 
 > **[II Timothy 1:7](https://www.biblegateway.com/passage/?search=2%20Timothy%201%3A7&version=ESV)** - for **God gave us a spirit not of fear but of power and love and self-control.** (ESV)
 
