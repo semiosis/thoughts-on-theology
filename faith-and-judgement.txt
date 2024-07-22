@@ -1413,7 +1413,8 @@ youtube.com: Pat Barrett - Build My Life {feat. Chris Tomlin} {Live}
 
 3.1. Being born-again of the Spirit
 
-People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary:
+People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary but it
+has been restricted to the children of promise i.e. Abraham's descendants through Isaac:
 
   Galatians 4:28-31 - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was
   born according to the flesh persecuted him who was born according to the Spirit, so also it is now. But what
@@ -1436,7 +1437,30 @@ was made to Christ. Now we must be found in Christ. Amen:
   to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one,
   And to your offspring, who is Christ. (ESV)
 
-We are found in Christ by having faith in Christ and putting on Christ:
+  As interesting as the parallels (similitudes or anti-similitudes) are with my own testimony, I believe there are
+  distortions in the Mormon interpretation. Even in here, the Mormans have suggested faith like Isaac's. Now I had
+  gone into court willingly after being born-again as I held my faith in Jesus and submitted to the authorities,
+  but not perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not
+  man, the whole thing felt outside of my control (extremely graceless), and I was under clear impression
+  especially later in 2022 that I was battling an antichrist spirit:
+
+  I think this Mormon doctrine shows interesting parallels (similitudes or anti-similitudes) with my own testimony
+  but I disagree with their way of interpreting this
+  thechurchnews.com: Isaac: Child of the promise and heir of the promises - Church News (Mormonism)
+
+  So through obedience to the gospel, I came into the light, I pleaded guilty, I made testimony of Jesus, etc.
+  "whoever would save his life will lose it, but whoever loses his life for my sake will find it." This is
+  Biblical gospel teaching, that through faith in Jesus we may be saved, and I disagree with the Mormans'
+  interpretation.
+
+    o John 3:21 - But whoever does what is true comes to the light, so that it may be clearly seen that his deeds
+      have been carried out in God. (ESV)
+    o Matthew 16:25 - For whoever would save his life will lose it, but whoever loses his life for my sake will
+      find it. (ESV)
+
+We are found in Christ by having faith in Christ and putting on Christ. This was my behaviour during 2022 after
+being born-again. I was acting obediently and in faith knowing I was born-again and saved already and had to pass
+on love and forgiveness, and also repent from error - all of these:
 
   Galatians 3:22-29 - But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus
   Christ might be given to those who believe. Now before faith came, we were held captive under the law,
@@ -1496,7 +1520,8 @@ don't know where it comes form or where it goes:
   and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is
   born of the Spirit. (ESV)
 
-People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary:
+People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary but it
+has been restricted to the children of promise i.e. Abraham's descendants through Isaac:
 
   Galatians 4:28-31 - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was
   born according to the flesh persecuted him who was born according to the Spirit, so also it is now. But what
@@ -4688,15 +4713,17 @@ helping them to achieve it, when in reality the way to achieve it is to clean th
 
 Specific example:
 
-  Let's say there is a poor by appearances (but rich in God) person on the street who loves God with all His heart
-  but has a rough outward appearance and the reason they have a rough outwards appearance is because the world
-  hates them as a result of their faith in Jesus, being obedient to Jesus. Now along comes a worldly person who
-  loves money, the pride of life and the pride of their possessions, who's gospel is the prosperity gospel, and
-  they love money more than they love God. This worldly person goes up to the poor person on the street and says
-  they must be burdened with sin because of their appearance, that they must take their eyes away from following
-  God and focus on worldly things, that they have demons and need to clean up their appearance to be a real
-  Christian, and they don't lift a finger to help the poor person meet their standard of exterior wellbeing. The
-  worldly ignorant person has just acted like the blind Pharisees.
+  Let's say there is a poor by appearances (but rich in God) person on the street who loves God with all their
+  heart but has a rough outward appearance and the reason they have a rough outwards appearance is because the
+  world hates them as a result of their faith in Jesus, being obedient to Jesus. Now along comes a worldly person
+  who loves money, the pride of life and the pride of their possessions, and they love and desire money more than
+  they love God (this is one reason why I don't like the prosperity gospel). This worldly person goes up to the
+  poor person on the street and says they must be burdened with sin because of their outward appearance, that they
+  are poor because of sin, rather than because of obedience, that must should their eyes away from following God
+  and focus on worldly things, that they have demons and need to clean up their appearance to be a real Christian,
+  and they don't lift a finger to help the poor person meet their standard of exterior wellbeing. The worldly
+  ignorant person has just acted like the blind Pharisees, and not like the good Samaritan. The materially poor
+  person may be in that situation because they were the good Samaritan to someone and saved someone's life.
 
   John 15:18-20 - If the world hates you, know that it has hated me before it hated you. If you were of the world,
   the world would love you as its own; but because you are not of the world, but I chose you out of the world,
@@ -28573,7 +28600,8 @@ It gave me insight:
 
  2. Born of water and the spirit
 
-People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary:
+People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary
+but it has been restricted to the children of promise i.e. Abraham's descendants through Isaac:
 
   Galatians 4:28-31 - Now you, brothers, like Isaac, are children of promise. But just as at that time he who
   was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. But
@@ -40195,7 +40223,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 14:40
+Created: 2024-07-22 Mon 15:21
 
 Validate
 
