@@ -135,6 +135,21 @@ The gospel demands faith. Therefore, obedience to the gospel is faith and faith 
 God is providing. Faith in all these truths of chapter 1 (i.e. [I Peter 1]), means "hoping faith is the assurance
 of things hoped for."
 
+Our faith should be in God and our hope should be for God's promises. God has spoken a lot already in the
+Scriptures and about how we should listen to Jesus. Saving faith trusts God. Both belief and obedience come out of
+a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the
+truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
+
+The Apostle Paul was obedient to God. This is Paul exercising his faith in God through obedience. Also, this was
+obedience to a heavenly vision - a vision in which Jesus was confessed (I John 4:3) - and it was a truthful vision
+that is in accordance with the gospel which the earlier Apostles were teaching:
+
+  Acts 26:14-15 - And when we had all fallen to the ground, I heard a voice saying to me in the Hebrew language,
+  Saul, Saul, why are you persecuting me? It is hard for you to kick against the goads. And I said, Who are you,
+  Lord? And the Lord said, I am Jesus whom you are persecuting. (ESV)
+
+  Acts 26:19 - Therefore, O King Agrippa, I was not disobedient to the heavenly vision, (ESV)
+
 We abide in Jesus when He washes us. When the Holy Spirit washes us, the Holy Spirit helps us to put sin to death:
 
   John 13:8 - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have
@@ -197,9 +212,26 @@ Jesus follows us and supports us:
 Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. Jesus
 wants us to practice His love, His faith, His commandments:
 
+  Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
+  every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
+  looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
+  cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
+  sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
+
 This is Christ's law:
 
   John 15:12 - This is my commandment, that you love one another as I have loved you. (ESV)
+
+We must fulfill Christ's law to be justified. God justifies the person who trusts in Jesus and does Christ's law,
+and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who
+justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our
+faith in Jesus:
+
+  Romans 2:13-16 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
+  will be justified. For when Gentiles, who do not have the law, by nature do what the law requires, they are a
+  law to themselves, even though they do not have the law. They show that the work of the law is written on their
+  hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on
+  that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
 
 God's strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the
 power at the time we need it to endure the suffering:
@@ -2361,8 +2393,9 @@ In Jesus Christ we have redemption, the forgiveness of sins, and are transferred
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
 obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
-  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
-  blood of Jesus his Son cleanses us from all sin. (ESV)
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
 
 We are sanctified in the Spirit for obedience to Jesus Christ, and for sprinkling with His blood:
 
@@ -3845,6 +3878,13 @@ Also I conclude that obeying Jesus Christ is having faith in Him.
 
 God wants to be our strength. AMEN!!
 
+What we should do now is acknowledge the LORD, keep our eyes on Jesus, and live godly lives (godliness is
+behaviour in accordance with the knowledge of God, believe the truth and walk in that truth, love the light, walk
+in the light, walk in the truth). Trust in the LORD to save us as we walk in the light (in obedience):
+
+  Proverbs 3:5-6 - Trust in the LORD with all your heart, and do not lean on your own understanding. In all your
+  ways acknowledge him, and he will make straight your paths. (ESV)
+
 God acts for those who wait for Him:
 
   Isaiah 64:4 - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts
@@ -4173,7 +4213,10 @@ Eternal Security - Charles Spurgeon Sermon - YouTube @time: 25 min 13 sec
 
 I simply see no enmity between trusting God for justification through the finished work of the cross by Jesus
 Christ and trusting God by obeying Jesus Christ. I believe that is a false dichotomy. While faith alone saves, I
-believe that both belief and obedience (willingness to do the will of God) are intrinsic qualities of faith.
+believe that both belief and obedience (willingness to do the will of God) are intrinsic qualities of faith. God
+justifies the one who places their faith in Jesus. Having faith in Jesus looks like believing Him and obeying Him.
+Faith in Jesus looks like trusting Jesus. Therefore, I just focus on trusting Jesus in belief and obedience, and
+assume God is taking care of the justification issue.
 
 Christian love:
 
@@ -5305,8 +5348,9 @@ God, to be born of God.
   to them He gave the right to become children of God, even to those who believe (G4100 pisteuo) in His name, who
   were born, not of blood nor of the will of the flesh nor of the will of man, but of God.
 
-  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
-  blood of Jesus his Son cleanses us from all sin. (ESV)
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
 
   I John 2:10 - Whoever loves his brother abides in the light, and in him there is no cause for stumbling. (ESV)
 
@@ -10947,6 +10991,22 @@ Follow Jesus through the new and living Way:
   the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment,
   and a fury of fire that will consume the adversaries.
 
+We are ransommed by the blood of Jesus and the blood of Jesus continues to cleanse us as we walk in the light, as
+we obey the truth:
+
+  I Peter 1:16-22 - since it is written, You shall be holy, for I am holy. And if you call on him as Father who
+  judges impartially according to each one's deeds, conduct yourselves with fear throughout the time of your
+  exile, knowing that you were ransomed from the futile ways inherited from your forefathers, not with perishable
+  things such as silver or gold, but with the precious blood of Christ, like that of a lamb without blemish or
+  spot. He was foreknown before the foundation of the world but was made manifest in the last times for your sake,
+  who through him are believers in God, who raised him from the dead and gave him glory, so that your faith and
+  hope are in God. Having purified your souls by your obedience to the truth for a sincere brotherly love, love
+  one another earnestly from a pure heart, (ESV)
+
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
+
 6.2.19. Everyone needs saving
 
   Romans 3:1-19 - Then what advantage has the Jew? Or what is the value of circumcision? Much in every way. To
@@ -11428,6 +11488,17 @@ We are under Christ's law, not the Mosaic law:
 
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law.
+
+We must fulfill Christ's law to be justified. God justifies the person who trusts in Jesus and does Christ's law,
+and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who
+justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our
+faith in Jesus:
+
+  Romans 2:13-16 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
+  will be justified. For when Gentiles, who do not have the law, by nature do what the law requires, they are a
+  law to themselves, even though they do not have the law. They show that the work of the law is written on their
+  hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on
+  that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
 
 In His flesh the emnity, which is the Law of commandments contained in ordinances is abolished:
 
@@ -13648,6 +13719,14 @@ It involves:
 - becoming holy
 - being a slave to righteousness, obeying Jesus
 - being obedient to Jesus, instead of being obedient to the world
+- I Peter 1:16-22 - since it is written, You shall be holy, for I am holy. And if you call on him as Father
+who judges impartially according to each one's deeds, conduct yourselves with fear throughout the time of
+your exile, knowing that you were ransomed from the futile ways inherited from your forefathers, not with
+perishable things such as silver or gold, but with the precious blood of Christ, like that of a lamb
+without blemish or spot. He was foreknown before the foundation of the world but was made manifest in the
+last times for your sake, who through him are believers in God, who raised him from the dead and gave him
+glory, so that your faith and hope are in God. Having purified your souls by your obedience to the truth
+for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
 - loving selflessly as Jesus loved
 
 Also, through perfect obedience, Jesus has spoken Father God's commandment of eternal life, which is what He has
@@ -14738,6 +14817,14 @@ In obeying God, God helps us:
   Joshua 1:9 - Have I not commanded you? Be strong and courageous. Do not be frightened, and do not be dismayed,
   for the LORD your God is with you wherever you go. (ESV)
 
+God gave Moses conditional power to split the sea if Moses was obedient. I believe that's what God wants to do
+with us in terms of abiding in Christ and God working through us. Jesus just wants us to believe Him and obey Him.
+I believe Jesus wants us to both believe Him and obey Him:
+
+  Exodus 14:14-16 - The LORD will fight for you, and you have only to be silent. The LORD said to Moses, Why do
+  you cry to me? Tell the people of Israel to go forward. Lift up your staff, and stretch out your hand over the
+  sea and divide it, that the people of Israel may go through the sea on dry ground. (ESV)
+
 I just want to be clear that good works we do in obedience to Jesus are still considered a gift to us. We work out
 what God has worked for. It's even a gift to be in position of being able to do good works in service to Jesus
 after He has washed us:
@@ -15167,10 +15254,20 @@ belief in the truth:
   Jesus Christ.
 
 We seek the glory of our Lord Jesus Christ, not our own glory. We should aim not to speak on our own authority,
-but instead to speak the Truth from God. That's interesting to me:
+but instead to speak the Truth from God:
 
   John 7:18 - The one who speaks on his own authority seeks his own glory, but the one who seeks the glory of him
   who sent him is true, and in him there is no falsehood. (ESV)
+
+  I don't want to speak about things I am not confident in affirming, such as monergism because I haven't even
+  scratched the surface of the doctrines surrounding that -it's beyond my study. But I have a childlike trusting,
+  obedient faith in Jesus, which is what Jesus wants of us I think. Something that gives me confidence before God
+  is that I have been brought into obedience to Jesus' commandments in word and deed. Not just intellectually
+  knowledgeable, and I have confidence because I have confidence that Jesus is working in my life). Yes, I believe
+  that we should desire to cooperate with God and do the word of God. We want to be obedient and believing. We
+  trust God. God's faithfulness is greater than our own. That's how it works. God is our life. God works through
+  us and His love is made perfect in us and we love with the same love that Jesus loved us with. Love comes from
+  God. Christ's love is not vain philosophy.
 
 For sure, I just want to speak the truth from God, and I want to be sanctified by the Truth, and I want to be
 corrected by the Truth:
@@ -15447,7 +15544,9 @@ first. Therefore, be holy! Obey God:
   hope are in God. Having purified your souls by your obedience to the truth for a sincere brotherly love, love
   one another earnestly from a pure heart, (ESV)
 
-Believing in Jesus and obeying Jesus go hand in hand:
+Believing in Jesus and obeying Jesus go hand in hand. Believing in Jesus, obeying Jesus, trusting in Jesus, His
+words and promises, are all in the heart and not the head. I'm going to keep trying to do all of those things, and
+not make any sweeping statements about free will:
 
   John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but
   the wrath of God remains on him. (ESV)
@@ -15463,7 +15562,8 @@ and walking according to Jesus' commandments go hand in hand:
   Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in
   the teaching has both the Father and the Son. (ESV)
 
-17.1. You can't work for justification. We must have faith on God justifying us even though we are ungodly
+17.1. You can't work for justification. We must have faith in God justifying us even though we are ungodly by having
+faith in Jesus. God justifies who has faith in Jesus. God justifies even ungodly people who have faith in Jesus
 
 Firstly, God owns everything. Whatever we give God, he already owned. Neither do we give God wages as if we were
 the previous owner of our gift. And we don't give God advice:
@@ -15472,7 +15572,9 @@ the previous owner of our gift. And we don't give God advice:
   to him that he might be repaid? For from him and through him and to him are all things. To him be glory forever.
   Amen. (ESV)
 
-We just depend on and trust and hope on God to justify us, to commend us, to give us mercy:
+We just depend on and trust and hope on God to justify us, to commend us, to give us mercy, and we simply follow
+Jesus and have peace with God because we believe in Jesus, and in believing and obeying Jesus we have the hope of
+being justified by faith in Jesus:
 
   Romans 9:16 - So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
 
@@ -15489,6 +15591,17 @@ shedding of Jesus Christ's blood.
 However, the work we produce doesn't justify us before God (it doesn't clear us from being guilty of sin before
 God). We still need to have faith on God to justify us even though we are ungodly, due to the atonement for our
 sin by Christ's blood.
+
+We must fulfill Christ's law to be justified. God justifies the person who trusts in Jesus and does Christ's law,
+and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who
+justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our
+faith in Jesus:
+
+  Romans 2:13-16 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
+  will be justified. For when Gentiles, who do not have the law, by nature do what the law requires, they are a
+  law to themselves, even though they do not have the law. They show that the work of the law is written on their
+  hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on
+  that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
 
 God justifies the person who has faith in Jesus:
 
@@ -15507,7 +15620,7 @@ that God may justify us, no good work of ours could atone for our sin:
   Isaiah 64:6 - We have all become like one who is unclean, and all our righteous deeds are like a polluted
   garment. We all fade like a leaf, and our iniquities, like the wind, take us away. (ESV)
 
-The "Our Father" prayer applies to those who are actually children of God, but it's a good :
+The "Our Father" prayer applies to those who are actually children of God:
 
   Matthew 6:8-15 - Do not be like them, for your Father knows what you need before you ask him. Pray then like
   this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in
@@ -15543,8 +15656,14 @@ For the person who does not work but trusts God who justifies the ungodly, his f
 
 I'm trusting God wholeheartedly to be justified because of Christ's finished work on the cross. And this type of
 justification by faith is for anyone who trusts God for the forgiveness of their sins through Jesus' finished work
-on the cross. I don't deny that to other people. But we are trusting God, not trusting on the work alone without
-trusting/believing/obeying/loving God.
+on the cross as they place their faith in Jesus and follow Jesus by belief and obedience. I don't deny that to
+other people. But we are trusting God, not trusting on the work alone without trusting/believing/obeying/loving
+God. What I mean is, God justifies the one who has faith in Jesus. We believe and obey Jesus, loving one another
+as He loved us, but in the knowledge that God has loved us first by paying the price for our sin with Jesus'
+blood:
+
+  Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
+  of the one who has faith in Jesus. (ESV)
 
 I'm unsure if the following applies for justification (it may be that it is meant in a different context), but in
 some sense, forgiving others is still required if someone wants God to forgive them:
@@ -16473,13 +16592,39 @@ Actually practice faith, and don't over-intellectualise God:
   Proverbs 3:5-6 - Trust in the LORD with all your heart, and do not lean on your own understanding. In all your
   ways acknowledge him, and he will make straight your paths. (ESV)
 
+We seek the glory of our Lord Jesus Christ, not our own glory. We should aim not to speak on our own authority,
+but instead to speak the Truth from God:
+
+  John 7:18 - The one who speaks on his own authority seeks his own glory, but the one who seeks the glory of him
+  who sent him is true, and in him there is no falsehood. (ESV)
+
+For sure, I just want to speak the truth from God, and I want to be sanctified by the Truth, and I want to be
+corrected by the Truth:
+
+  Ephesians 4:15-19 - Rather, speaking the truth in love, we are to grow up in every way into him who is the head,
+  into Christ, from whom the whole body, joined and held together by every joint with which it is equipped, when
+  each part is working properly, makes the body grow so that it builds itself up in love. Now this I say and
+  testify in the Lord, that you must no longer walk as the Gentiles do, in the futility of their minds. They are
+  darkened in their understanding, alienated from the life of God because of the ignorance that is in them, due to
+  their hardness of heart. They have become callous and have given themselves up to sensuality, greedy to practice
+  every kind of impurity. (ESV)
+
+Seeking God in truth and not seeking glory from one another is a good place to start in coming to believe. I guess
+that seeking the glory that comes from the only God involves seeking to glorify God:
+
+  John 5:44 - How can you believe, when you receive glory from one another and do not seek the glory that comes
+  from the only God? (ESV)
+
+Come to Jesus:
+
   John 5:39-44 - You search the Scriptures because you think that in them you have eternal life; and it is they
   that bear witness about me, yet you refuse to come to me that you may have life. I do not receive glory from
   people. But I know that you do not have the love of God within you. I have come in my Father's name, and you do
   not receive me. If another comes in his own name, you will receive him. How can you believe, when you receive
   glory from one another and do not seek the glory that comes from the only God? (ESV)
 
-Yield to God:
+Yield to God. Let His will be done in us. If I do not fight against obedience to Jesus' commandments but are
+willing to do them then I am willing for God's will to be done in me. That is obedience:
 
   Isaiah 45:9 - Woe to him who strives with him who formed him, a pot among earthen pots! Does the clay say to him
   who forms it, What are you making? or Your work has no handles? (ESV)
@@ -17771,7 +17916,7 @@ of [the] glory of the Lord of us Jesus Christ:
 |  N-GFS          Art-GMS  N-GMS    PPro-G1P N-GMS    N-GMS
 
 We seek the glory of our Lord Jesus Christ, not our own glory. We should aim not to speak on our own authority,
-but instead to speak the Truth from God. That's interesting to me:
+but instead to speak the Truth from God:
 
   John 7:18 - The one who speaks on his own authority seeks his own glory, but the one who seeks the glory of him
   who sent him is true, and in him there is no falsehood. (ESV)
@@ -19299,8 +19444,9 @@ abounded all the more, (ESV)
 - Galatians 5:18 - But if you are led by the Spirit, you are not under the law. (ESV)
 - the law of Christ
 - a law of faith
-- I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one
-another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
+- I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do
+not practice the truth. But if we walk in the light, as he is in the light, we have fellowship
+with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
 - Acts 13:38-39 - Let it be known to you therefore, brothers, that through this man forgiveness
 of sins is proclaimed to you, and by him everyone who believes is freed from everything from
 which you could not be freed by the law of Moses. (ESV)
@@ -19436,12 +19582,34 @@ We must forgive our family in Christ:
   Colossians 3:13 - bearing with one another and, if one has a complaint against another, forgiving each other; as
   the Lord has forgiven you, so you also must forgive. (ESV)
 
+It's obedience which leads to righteousness, even the righteousness of faith:
+
+  Romans 6:16 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the
+  one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
+
 Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to be conformed to His image. Jesus
 wants us to practice His love, His faith, His commandments:
+
+  Hebrews 12:1-3 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
+  every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
+  looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
+  cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
+  sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
 
 This is Christ's law:
 
   John 15:12 - This is my commandment, that you love one another as I have loved you. (ESV)
+
+We must fulfill Christ's law to be justified. God justifies the person who trusts in Jesus and does Christ's law,
+and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who
+justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our
+faith in Jesus:
+
+  Romans 2:13-16 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
+  will be justified. For when Gentiles, who do not have the law, by nature do what the law requires, they are a
+  law to themselves, even though they do not have the law. They show that the work of the law is written on their
+  hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on
+  that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
 
 The faith that justifies works through love. Real saving faith that justifies and shows its reality; It has in it
 the power to produce love.
@@ -19930,8 +20098,9 @@ Without atonement, the law will begin to hurt us as we sin. We need to hold fait
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
 obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
-  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
-  blood of Jesus his Son cleanses us from all sin. (ESV)
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
 
 There's nothing wrong with doing what the law requires (God can see):
 
@@ -20847,6 +21016,11 @@ It's obedience which leads to righteousness, even the righteousness of faith:
   Romans 6:16 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the
   one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
 
+Obedience here led to faith:
+
+  Exodus 14:31 - Israel saw the great power that the LORD used against the Egyptians, so the people feared the
+  LORD, and they believed in the LORD and in his servant Moses. (ESV)
+
 Faith eclipses the law:
 
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
@@ -20862,7 +21036,8 @@ process of being saved. But keep in mind that someone who truly trusts Jesus wil
 
 Abraham's faith was both obedient and believing.
 
-God is the judge of what saving faith looks like, and how long the process of 'being saved' takes.
+God is the judge of what saving faith looks like, and how long the process of 'being saved' takes, and God is the
+justifier.
 
 We must receive Jesus' words, walk in them and come to know in truth (we must truly know) that Jesus came from
 God.
@@ -24008,7 +24183,7 @@ A work of faith could indeed be following the law in faith (as opposed to follow
 
 For example, keeping your integrity, remaining faithful to God and not lying to God.
 
-Patient endurance is a 'work of faith'.
+Patient endurance is a 'work of faith'. It may involve waiting on God to act:
 
   Revelation of John 3:8 - I know your works. Behold, I have set before you an open door, which no one is able to
   shut. I know that you have but little power, and yet you have kept my word and have not denied my name. Behold,
@@ -24381,8 +24556,9 @@ Inheriting the Kingdom, however, appears to be reigning with Christ:
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
 obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
-  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
-  blood of Jesus his Son cleanses us from all sin. (ESV)
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
 
 We are the light of the world. Yes, we must do good:
 
@@ -27207,7 +27383,7 @@ hopelessness, and not in the freedom of Jesus' Spirit:
   Romans 15:13 - May the God of hope fill you with all joy and peace in believing, so that by the power of the
   Holy Spirit you may abound in hope. (ESV)
 
-I feel like sometimes demon spirits deny relationships that would be good:
+I feel like sometimes demon spirits deny relationships that would be good.
 
 For example:
 
@@ -27417,8 +27593,6 @@ me.
 What I'm experiencing is certainly not the kingdom of God, and the Holy Spirit certainly doesn't steal kill and
 destroy.
 
-I'm going to claim this:
-
 Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into
 Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's
 encouraged. I think we bear His reproach in order to be sanctified and then call Jerusalem our home:
@@ -27427,9 +27601,26 @@ encouraged. I think we bear His reproach in order to be sanctified and then call
   blood. Therefore let us go to him outside the camp and bear the reproach he endured. For here we have no lasting
   city, but we seek the city that is to come. (ESV)
 
+I'm going to claim this:
+
+Read
+ligonier.org: Outside the Camp | Reformed Bible Studies & Devotionals at Ligonier.org | Reformed Bible Studies &
+Devotionals at Ligonier.org
+
   I Peter 4:12-13 - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though
   something strange were happening to you. But rejoice insofar as you share Christ's sufferings, that you may also
   rejoice and be glad when his glory is revealed. (ESV)
+
+Being a disciple of Jesus means bearing His reproach:
+
+  John 16:2 - They will put you out of the synagogues. Indeed, the hour is coming when whoever kills you will
+  think he is offering service to God. (ESV)
+
+Count the cost:
+
+  Luke 14:28,29 - For which of you, desiring to build a tower, does not first sit down and count the cost, whether
+  he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it
+  begin to mock him, (ESV)
 
 I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these
 demons:
@@ -27481,9 +27672,40 @@ the one that gets you started, it's the one that gets you there, and it's the fi
 what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
 year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation. I do
-believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully
-sinning. Committing sin against our own bodies is very, very unwise.
+AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation.
+
+It's a serious act of treason when you love other things more than God; When you love something else more than
+God, and do not obey God, and do not believe God and do not turn from doing the will of satan to doing the will of
+God:
+
+  John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but
+  the wrath of God remains on him. (ESV)
+
+We are instructed to do good, and to stop doing evil. We're supposed to repent from doing evil:
+
+  Romans 2:5-11 - But because of your hard and impenitent heart you are storing up wrath for yourself on the day
+  of wrath when God's righteous judgment will be revealed. He will render to each one according to his works: to
+  those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for
+  those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury.
+  There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek,
+  but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no
+  partiality. (ESV)
+
+We must love the light which Jesus has shone into the world, and we must prefer to do good over evil. We must to
+practice the truth. We must agree with doing good rather than with doing evil:
+
+  John 3:19-21 - And this is the judgment: the light has come into the world, and people loved the darkness rather
+  than the light because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that
+  it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+I also believe that in order to be saved after being born-again for 2 years I need to become as skilled a
+theologian as John Piper, say, in order to be saved from the wrath of God. I only need to obey Jesus. I simply do
+not have 33 years of experience in the area of theology to be saved from the wrath of God. I only have about 5
+months of Bible studying.
+
+I do believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop
+willfully sinning. Committing sin against our own bodies is very, very unwise.
 
   Romans 8:13 - For if you live according to the flesh you will die, but if by the Spirit you put to death the
   deeds of the body, you will live. (ESV)
@@ -30904,8 +31126,9 @@ It's the Kingdom of Christ and God:
 As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
 obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
 
-  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
-  blood of Jesus his Son cleanses us from all sin. (ESV)
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
 
 We are the light of the world. Yes, we must do good:
 
@@ -35462,7 +35685,9 @@ We should not lean on our own understanding:
   Isaiah 55:9 - For as the heavens are higher than the earth, so are my ways higher than your ways and my thoughts
   than your thoughts.
 
-What we should do now is acknowledge the LORD, keep our eyes on Jesus, and live godly lives:
+What we should do now is acknowledge the LORD, keep our eyes on Jesus, and live godly lives (godliness is
+behaviour in accordance with the knowledge of God, believe the truth and walk in that truth, love the light, walk
+in the light, walk in the truth). Trust in the LORD to save us as we walk in the light (in obedience):
 
   Proverbs 3:5-6 - Trust in the LORD with all your heart, and do not lean on your own understanding. In all your
   ways acknowledge him, and he will make straight your paths. (ESV)
@@ -37219,7 +37444,7 @@ peace that comes with knowing Christ as mentioned in Philippians 4:7.
   Philippians 4:7 - And the peace of God, which surpasses all understanding, will guard your hearts and your minds
   in Christ Jesus. (ESV)
 
-69.9.4. Shied of Faith
+69.9.4. Shield of Faith
 
 Faith comes in as our shield against the fiery darts of the enemy. It is not just a passive belief but an active
 trust in God's promises. With faith, we can extinguish every arrow of doubt, fear and temptation. We hold our
@@ -40358,7 +40583,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-22 Mon 22:11
+Created: 2024-07-23 Tue 18:47
 
 Validate
 
