@@ -6,9 +6,10 @@ anything in error I pray that it would be corrected. I'm trying to speak the tru
 my current understanding at the time of writing. I'm not judging people. This is just a Bible study. I have just
 wanted to read the Bible for myself to understand and apply the Scriptures, come into agreement with God's Truth
 and share my understanding it with others for accountability purposes, and also affirm truth as I am renewed in
-mind by it. I don't presume to be always right. I want to let the Bible smash bad theology. I've also added parts
-of my own testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in
-God through Jesus Christ.
+mind by it. I don't presume to be always right. Also, just because I have quoted some pastors and authors does not
+mean that I affirm everything they have ever said, but I have selected quotes which I have found to be relevant
+and helpful. I want to let the Bible smash bad theology. I've also added parts of my own testimony. It's my hope
+that this Bible study helps other people to come to the obedience of faith in God through Jesus Christ.
 
   Psalms 119:105 - Your word is a lamp to my feet and a light to my path. (ESV)
 
@@ -40645,11 +40646,11 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-22 Mon 00:00
+Date: 2024-07-23 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-23 Tue 20:00
+Created: 2024-07-23 Tue 20:11
 
 Validate
 

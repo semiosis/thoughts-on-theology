@@ -1,7 +1,7 @@
 This document has been a work in progress. I have been born-again and have done my own Bible study to be taught and be [corrected by the word of God](https://davidkitz.blog/2018/09/05/the-need-for-correction/), and I'm feeling confident with what I have written here, if I have said anything in error I pray that it would be corrected.
 I'm trying to speak the truth in mercy. This document shows my current understanding at the time of writing. I'm not judging people. This is just
 a Bible study. I have just wanted to read the Bible for myself to understand and apply the Scriptures, come into agreement with God's Truth and share my understanding it with others for accountability purposes,
-and also [affirm truth as I am renewed in mind by it](https://youtu.be/IAgmQ-c4QYc?t=795). I don't presume to be always right.
+and also [affirm truth as I am renewed in mind by it](https://youtu.be/IAgmQ-c4QYc?t=795). I don't presume to be always right. Also, just because I have quoted some pastors and authors does not mean that I affirm everything they have ever said, but I have selected quotes which I have found to be relevant and helpful.
 I want to [let the Bible smash bad theology](https://www.youtube.com/watch?v=N2aJ1q-SBr4&t=55s).
 I've also added parts of my own testimony. It's my hope that this Bible study helps other people to come to the obedience of faith in God through Jesus Christ.
 
@@ -303,7 +303,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org153ae48) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd170ce8) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
