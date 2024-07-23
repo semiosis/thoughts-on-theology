@@ -1034,8 +1034,10 @@ Talk by John Piper
 youtube.com: You Cannot Obey God Without God
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -2226,8 +2228,10 @@ in Him we have obeyed Him, but belief doesn't end there:
   Me. (NASB)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -6951,8 +6955,10 @@ follower of Jesus.
   forever.
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -10763,8 +10769,10 @@ etc.
   the Son of God that you may know that you have eternal life. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -14211,9 +14219,10 @@ and remember the words of the Lord Jesus:
   remember the words of the Lord Jesus, how he himself said, It is more blessed to give than to receive. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah
-God), and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good.
-Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement
-that God is Good:
+God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by
+obedience. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must
+also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded
+us to love one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring
@@ -15980,8 +15989,10 @@ We don't want lazy, cowardly, disobedient faith:
   will demand the more. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -24439,8 +24450,10 @@ I confess that Jesus is the Son of God:
   I John 4:15 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -25126,7 +25139,7 @@ We must remain faithful to God:
   of God. (ESV)
 
 We must not short-sightedly exchange our invaluable inheritance for immediate relief as Esau did, and do our best
-to not allow bitterness to damage us going through the trial:
+to not allow bitterness to damage us going through the fiery trial:
 
   Hebrews 12:15-17 - See to it that no one fails to obtain the grace of God; that no root of bitterness springs up
   and causes trouble, and by it many become defiled; that no one is sexually immoral or unholy like Esau, who sold
@@ -27437,9 +27450,8 @@ Light and darkness do not gel:
 
 This is why light and darkness do not go together because the whole point is to turn away from darkness:
 
-    o Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
-      God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me.
-      (ESV)
+  Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
+  God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
 
 Another reason would be that there is resistance to be expected when wanting to live faithfully to God in Christ,
 and I was being saved, and the devil didn't want me to be saved, and wanted to keep me in darkness, and in
@@ -29187,6 +29199,22 @@ Jesus Christ is our Lord and Teacher - that means we believe and obey Him:
 
   John 13:13-14 - You call me Teacher and Lord, and you are right, for so I am. If I then, your Lord and Teacher,
   have washed your feet, you also ought to wash one another's feet. (ESV)
+
+It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
+
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. (ESV)
+
+  John 13:34 - A new commandment I give to you, that you love one another: just as I have loved you, you also are
+  to love one another. (ESV)
 
 We both practice and observe. We serve God in word and deed:
 
@@ -35967,8 +35995,10 @@ born-again:
   does not come into judgment, but has passed from death to life. (ESV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
-and God is love and love comes from God. For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore
-when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good:
+and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
+For example, in Mark 10:18, Jesus affirmed that God is Good. Therefore when we read this, we must also be
+sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love
+one another as He loved us John 13:34-35:
 
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
@@ -38912,7 +38942,7 @@ We must remain faithful to God:
   of God. (ESV)
 
 We must not short-sightedly exchange our invaluable inheritance for immediate relief as Esau did, and do our best
-to not allow bitterness to damage us going through the trial:
+to not allow bitterness to damage us going through the fiery trial:
 
   Hebrews 12:15-17 - See to it that no one fails to obtain the grace of God; that no root of bitterness springs up
   and causes trouble, and by it many become defiled; that no one is sexually immoral or unholy like Esau, who sold
@@ -40650,7 +40680,7 @@ Date: 2024-07-23 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-23 Tue 20:11
+Created: 2024-07-23 Tue 20:50
 
 Validate
 
