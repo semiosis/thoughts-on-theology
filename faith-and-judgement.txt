@@ -15629,12 +15629,33 @@ The "Our Father" prayer applies to those who are actually children of God:
   Father will also forgive you, but if you do not forgive others their trespasses, neither will your Father
   forgive your trespasses. (ESV)
 
-You will never be able to return enough stolen goods to God to ever be justified. Nor would you ever be able to
-forgive enough other people to attain that justification. We ultimately need God's forgiveness through faith in
-Jesus, and so we need to come to realise our spiritual bankruptcy before God and cry out to Him to forgive us.
+If a son of Abraham repents from sin and forgives (return stolen goods) they can have salvation:
 
-Self-righteousness has no place in asking God to be forgiven and justified by faith in the atonement made by God
-in Jesus:
+  Luke 19:1-10 - He entered Jericho and was passing through. And there was a man named Zacchaeus. He was a chief
+  tax collector and was rich. And he was seeking to see who Jesus was, but on account of the crowd he could not,
+  because he was small of stature. So he ran on ahead and climbed up into a sycamore tree to see him, for he was
+  about to pass that way. And when Jesus came to the place, he looked up and said to him, Zacchaeus, hurry and
+  come down, for I must stay at your house today. So he hurried and came down and received him joyfully. And when
+  they saw it, they all grumbled, He has gone in to be the guest of a man who is a sinner. And Zacchaeus stood and
+  said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of
+  anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is
+  a son of Abraham. For the Son of Man came to seek and to save the lost. (ESV)
+
+We can be sons of Abraham through faith in Jesus. So if we believe in Jesus, repent and forgive, we can have
+salvation:
+
+  Galatians 3:6-9 - just as Abraham believed God, and it was counted to him as righteousness? Know then that it is
+  those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by
+  faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed. So then,
+  those who are of faith are blessed along with Abraham, the man of faith. (ESV)
+
+We ultimately need God's forgiveness through faith in Jesus, and so we need to come to realise our spiritual
+bankruptcy before God and cry out to Him to forgive us as we desire to turn a new leaf and walk in the truth, and
+God can save us.
+
+Self-righteousness has no place in asking God to be forgiven and justified by faith in Jesus. The atonement made
+by God with Jesus' blood is what has purchased God to be the justifier of the one who has faith in Jesus. God does
+the justification. We do the "having faith in Jesus". God does the grafting (the vineyard work):
 
   Romans 4:5-7 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
   as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
@@ -15643,8 +15664,10 @@ in Jesus:
 Sermon
 youtube.com: The Hands of Jesus | Billy Graham Classic @time: 11 min 43 sec
 
-We must be able to accept that our gifts which we give to God will never be good enough, and we need to receive
-the gift of Salvation which God has offered us. We need a penitent heart.
+We must be able to accept that our gifts which we give to God will never be good enough without the atoning
+sacrifice of Jesus, and we need to receive the gift of Salvation which God has offered us. God gives that
+justification and grants repentance to life for those put their faith in Jesus. We need a penitently obedient
+heart,. We just put our faith in Jesus and continue in faith in Jesus.
 
   I John 1:9 - If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
   unrighteousness. (ESV)
@@ -15654,13 +15677,25 @@ For the person who does not work but trusts God who justifies the ungodly, his f
   Mark 11:25 - And whenever you stand praying, forgive, if you have anything against anyone, so that your Father
   also who is in heaven may forgive you your trespasses. (ESV)
 
-I'm trusting God wholeheartedly to be justified because of Christ's finished work on the cross. And this type of
-justification by faith is for anyone who trusts God for the forgiveness of their sins through Jesus' finished work
-on the cross as they place their faith in Jesus and follow Jesus by belief and obedience. I don't deny that to
-other people. But we are trusting God, not trusting on the work alone without trusting/believing/obeying/loving
-God. What I mean is, God justifies the one who has faith in Jesus. We believe and obey Jesus, loving one another
-as He loved us, but in the knowledge that God has loved us first by paying the price for our sin with Jesus'
-blood:
+I'm trusting God wholeheartedly to be justified because of Christ's finished work on the cross, and placing my
+faith in Jesus (obedient, trusting, believing faith in Jesus) and hoping for God's justification.
+
+However, who am I to restrict God? God may justify and save whom He will:
+
+  Acts 2:21 - And it shall come to pass that everyone who calls upon the name of the Lord shall be saved. (ESV)
+
+  Romans 10:20 - Then Isaiah is so bold as to say, I have been found by those who did not seek me; I have shown
+  myself to those who did not ask for me. (ESV)
+
+  Romans 2:13 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
+  will be justified. (ESV)
+
+There is justification by faith is for anyone who trusts God for the forgiveness of their sins through Jesus'
+finished work on the cross as they place their faith in Jesus and follow Jesus by belief and obedience. I don't
+deny that to other people. But we are trusting God, not trusting on the work alone without
+trusting/believing/obeying/loving God. What I mean is, God justifies the one who has faith in Jesus. We believe
+and obey Jesus, loving one another as He loved us, but in the knowledge that God has loved us first by paying the
+price for our sin with Jesus' blood:
 
   Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
   of the one who has faith in Jesus. (ESV)
@@ -23217,6 +23252,18 @@ included within.
   those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by
   faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed. So then,
   those who are of faith are blessed along with Abraham, the man of faith. (ESV)
+
+If a son of Abraham repents from sin and forgives (return stolen goods) they can have salvation:
+
+  Luke 19:1-10 - He entered Jericho and was passing through. And there was a man named Zacchaeus. He was a chief
+  tax collector and was rich. And he was seeking to see who Jesus was, but on account of the crowd he could not,
+  because he was small of stature. So he ran on ahead and climbed up into a sycamore tree to see him, for he was
+  about to pass that way. And when Jesus came to the place, he looked up and said to him, Zacchaeus, hurry and
+  come down, for I must stay at your house today. So he hurried and came down and received him joyfully. And when
+  they saw it, they all grumbled, He has gone in to be the guest of a man who is a sinner. And Zacchaeus stood and
+  said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of
+  anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is
+  a son of Abraham. For the Son of Man came to seek and to save the lost. (ESV)
 
 We can start by believing what God told us through Jesus:
 
@@ -40583,7 +40630,7 @@ Date: 2024-07-22 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-23 Tue 18:47
+Created: 2024-07-23 Tue 19:15
 
 Validate
 
