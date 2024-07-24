@@ -305,7 +305,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7b135bc) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb5cb650) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -7845,6 +7845,14 @@ Sinners:
 
 ### Transgressing the 10 Commandments
 
+The way to keep the 10 commandments properly is to love your neighbour as yourself. It's lawful to love. It's lawful to save life. It's overarchingly lawful to do good. If we endeavour to keep the 10 commandments, then that is how we should keep them; the way Jesus did and described:
+
+> **[Galatians 5:13-14](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-14&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but **through love serve one another.** For the whole law is fulfilled in one word: **You shall love your neighbor as yourself.** (ESV)
+
+It's lawful to love:
+
+> **[Luke 6:9-10](https://www.biblegateway.com/passage/?search=Luke%206%3A9-10&version=ESV)** - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save life or to destroy it? And after looking around at them all he said to him, Stretch out your hand. And he did so, and his hand was restored. (ESV)
+
 Slaves worship idols. Christians obey God, and in obeying God we are free:
 
 > **[Exodus 20:2-3](https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&version=ESV)** - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)
@@ -10261,6 +10269,12 @@ We seek the glory of our Lord Jesus Christ, not our own glory. We should aim not
 > **[John 7:18](https://www.biblegateway.com/passage/?search=John%207%3A18&version=ESV)** - The one who speaks on his own authority seeks his own glory, but <ins>the one who seeks the glory of him who sent him is true</ins>, and in him there is no falsehood. (ESV)
 
 > I don't want to speak about things I am not confident in affirming, such as monergism because I haven't even scratched the surface of the doctrines surrounding that -it's beyond my study. But I have a childlike trusting, obedient faith in Jesus, which is what Jesus wants of us I think. Something that gives me confidence before God is that I have been brought into obedience to Jesus' commandments in word and deed. Not just intellectually knowledgeable, and I have confidence because I have confidence that Jesus is working in my life). Yes, I believe that we should desire to cooperate with God and do the word of God. We want to be obedient and believing. We trust God. God's faithfulness is greater than our own. That's how it works. God is our life. God works through us and His love is made perfect in us and we love with the same love that Jesus loved us with. Love comes from God. Christ's love is not vain philosophy.
+
+I believe the Holy Spirit can absolutely take over as this evangelist puts it:
+
+-   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
+
+> **[I Corinthians 3:9](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A9&version=ESV)** - For we are God's fellow workers. You are God's field, God's building. (ESV)
 
 For sure, I just want to speak the truth from God, and I want to be sanctified by the Truth, and I want to be corrected by the Truth:
 
@@ -18844,7 +18858,9 @@ I forgive everyone.
 
 ### Marriage is good
 
-Without following Christ's law, the fruit of the Spirit cannot be used to justify yourself of why you should be allowed to marry someone (just because it feels right, that's still not good enough).
+-   **<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-24 Wed&gt;</span></span>:** I forgive everyone. I've been under stress. I'm just seeking peace with God currently and sanctification, and no more spiritual attack / fiery trial / testing. I'm just trying to get to the finish line. I don't know everything. It's above my head. I just feel like a foot soldier in God's army, not the General. I hold no grudges towards anyone, and I'm confident that God will restore me in His own way.
+
+I really think that the fruit of the Spirit is desirable in marriage and for choosing a marriage partner but what's essential is that the love has the characteristics of Christ's love. What I mean is, just because there is joy for the person wanting to propose, that's still not good enough because it's even more important that they are showing Christ's love. If the love produced as the fruit of the Spirit is truly Christ's love then that should comply with Christ's law. What I mean is, we have to bear our burdens and when it comes to spouses we need to be willing to bear theirs too.
 
 We must love our wives as Christ loved the church and gave himself up for her. We must love as Christ loved us:
 
