@@ -27,6 +27,8 @@ I'm trying to side with Jesus over issues regarding the evil which is still pres
 
 > **[John 7:6-8](https://www.biblegateway.com/passage/?search=John%207%3A6-8&version=ESV)** - Jesus said to them, My time has not yet come, but your time is always here. The world cannot hate you, but it hates me because I testify about it that its works are evil. You go up to the feast. I am not going up to this feast, for my time has not yet fully come. (ESV)
 
+-   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
+
 > I agree whole heartedly with Keith Green here:
 > 
 > -   [youtube.com: Keith Green 1978 : Make My Life A Prayer to You {live}](https://www.youtube.com/watch?v=z7oCa9BvO9g)
@@ -303,7 +305,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org26118cd) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7b135bc) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -5223,6 +5225,8 @@ Sovereign God, looks into dead, glory-ignoring heart and says, "Let there be lig
 
 ## Gospel
 
+-   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
+
 We are being saved by the gospel as we hold fast to the word:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
@@ -5429,6 +5433,16 @@ The grace given to Paul allowed him to turn from his evil ways and pursue Jesus,
 
 
 ### Living a godly life in Christ Jesus is part of the gospel
+
+We are freely forgiven that we may freely forgive others out of an existing righteous standing we have with God thanks to God paying the price of our sin with Jesus' blood, and we may thus become the righteousness of God.
+
+We are freely given mercy that we may freely give mercy to others out of an existing righteous standing we have with God thanks to God paying the price of our sin with Jesus' blood, and we may thus become the righteousness of God.
+
+I think that believers in Jesus Christ, those that have faith in Jesus, arrive at doing Christ's love, fulfilling Christ's law,
+while affirming a certain standard of judgement to which they are also held accountable, derived from the original standing being God's Law, and
+affirming the precepts of God are a good thing where the most important matters are justice, mercy and faithfulness and Jesus' blood sanctifies us.
+
+-   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
 
 > **[II Timothy 3:1-7](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A1-7&version=ESV)** - But understand this, that in the last days there will come times of difficulty. For people will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient to their parents, ungrateful, unholy, heartless, unappeasable, slanderous, without self-control, brutal, not loving good, treacherous, reckless, swollen with conceit, lovers of pleasure rather than lovers of God, <ins>having the appearance of godliness, but denying its power</ins>. Avoid such people. For among them are those who creep into households and capture weak women, burdened with sins and led astray by various passions, always learning and never able to arrive at a **knowledge of the truth**. (ESV)
 
@@ -19182,7 +19196,9 @@ What I mean by this, is "having a job" or "owning a house" must never become a p
 
 We shouldn't fight against God by making Him out to be not enough because God is all we need, and at the start of a marriage, it should really be founded on that type of faith.
 
-Otherwise, at its essence, getting marriage security from a job is essentially encouraging prostitution and divorce. To make a person think they need money or a job before they can marry is to attack their faith. Satan can use money and his servants (anyone who isn't doing the will of God) to control people and manipulate marriage, and would rather see chatbots and robots marrying' human beings, open-marriage, interspecies, whatever, and satan would prefer more and more child trafficking as there is increasing wealth inequality. Following Jesus would increasingly mean not being able to marry because no-one would marry a poor person, even someone who obeyed Jesus command to give their possessions to those in need and follow Him, and I believe that to get marriage security through a job or through material possessions, is an attack against God's design and is faithless to God at its very essence and sets the stage for a divorce when there is a financial crisis because trust must be in God not money, and it's best to establish that trust in God at the very beginning.
+Opinionated statements:
+
+> Otherwise, at its essence, getting marriage security from a job is essentially encouraging prostitution and divorce. To make a person think they need money or a job before they can marry is to attack their faith. Satan can use money and his servants (anyone who isn't doing the will of God) to control people and manipulate marriage, and would rather see chatbots and robots marrying' human beings, open-marriage, interspecies, whatever, and satan would prefer more and more child trafficking as there is increasing wealth inequality. Following Jesus would increasingly mean not being able to marry because no-one would marry a poor person, even someone who obeyed Jesus command to give their possessions to those in need and follow Him, and I believe that to get marriage security through a job or through material possessions, is an attack against God's design and is faithless to God at its very essence and sets the stage for a divorce when there is a financial crisis because trust must be in God not money, and it's best to establish that trust in God at the very beginning.
 
 -   **Sermon :: [youtube.com: The Battle for Sexual Purity](https://www.youtube.com/watch?v=92JXBog4DtM):** And it came out that he was fasting and
     praying to Satan, and the conversation
@@ -28645,6 +28661,15 @@ It should be:
 I am really sorry for any hurt I have been the cause of to anyone, and making frustrated prayers to God, like Job did, except for many reasons I deserve the tribulation which I have faced.
 
 Please, God, forgive us for our blind spots and errors and continue to sanctify us.
+
+I forgive everyone <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-24 Wed&gt;</span></span>.
+
+Please, God, continue to sanctify us. 
+
+
+## Gospel
+
+-   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
 
 
 ## Prayer of thanks
