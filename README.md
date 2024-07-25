@@ -305,7 +305,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgc1d2381) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org12a7642) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -6091,9 +6091,13 @@ We are implored to strive to follow Jesus to our best ability:
 
 > **[I Peter 4:12-19](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A12-19&version=ESV)** - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though something strange were happening to you. But rejoice insofar as you share Christ's sufferings, that you may also rejoice and be glad when his glory is revealed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory and of God rests upon you. But let none of you suffer as a murderer or a thief or an evildoer or as a meddler. Yet if anyone suffers as a Christian, let him not be ashamed, but let him glorify God in that name. <ins>For it is time for judgment to begin at the household of God; and if it begins with us, what will be the outcome for those who do not obey the gospel of God?</ins> And If the righteous is scarcely saved, what will become of the ungodly and the sinner? Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good.
 
-Where there is perfect belief, I think there is perfect obedience:
+Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
+
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
 
 -   **[Bonhoeffer seems to have a very similar view](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/) to my own:** Though we are not saved by our works, Bonhoeffer believes that there is a great peril in ascribing “chronological distinctions” between belief (faith) and obedience as some often do. He believes that if we divorce the two (faith/obedience) we will inevitably overlook their essential unity to our detriment. **You cannot have one without the other.** Bonhoeffer says it like this, *“Only he who believes is obedient, and only he who is obedient believes.”*
 
@@ -9965,6 +9969,14 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 
 
 ### Salvation by obedience
+
+Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
+
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
+
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
 
 Since Jesus commanded us to have faith in Him, to trust in Jesus is to have obeyed Him.
 
