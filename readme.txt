@@ -341,6 +341,7 @@ there should be a change of behaviour. We should have changed to serve God:
 
 Bonhoeffer says it like this, "Only he who believes is obedient, and only he who is obedient believes."
 
+Read
 gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary
 
 We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
@@ -4829,6 +4830,17 @@ heart:
   blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the
   Scripture, You shall love your neighbor as yourself, you are doing well. (ESV)
 
+It's the ones who serve Jesus who God delights in their prosperity:
+
+  Psalms 35:27 - Let those who delight in my righteousness shout for joy and be glad and say evermore, Great is
+  the LORD, who delights in the welfare of his servant! (ESV)
+
+Servants serve:
+
+  Mark 10:43-45 - But it shall not be so among you. But whoever would be great among you must be your servant, and
+  whoever would be first among you must be slave of all. For even the Son of Man came not to be served but to
+  serve, and to give his life as a ransom for many. (ESV)
+
   Matthew 6:25-34 - Therefore I tell you, do not be anxious about your life, what you will eat or what you will
   drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing?
   Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father
@@ -8609,7 +8621,9 @@ Amen.
 
 In order to avoid another situation with the pandemic where there was a lack of love (people making decisions on
 fear instead of on love) like the one in 2020-2021, we should not cease to maintain freedom, faith in God, peace,
-forgiveness, and love for people:
+forgiveness, and love for people. Let our decisions be based on love and not fear:
+
+  I Corinthians 16:14 - Let all that you do be done in love. (ESV)
 
   II Timothy 1:7 - for God gave us a spirit not of fear but of power and love and self-control. (ESV)
 
@@ -9527,6 +9541,20 @@ Quote by John Piper
 The only sin that you can conquer in life is a forgiven sin. The only sin that you can successfully strive against
 without incurring the judgement of God on your legalism is a forgiven sin. This is glorious. It's a glorious way
 to become holy.
+
+That's really cool. I think what John Piper says here using the word 'legalism' is that upon confessing a sin and
+affirming the sinfulness of that sin (if I were to confess that I consider X to be sinful), and I want to repent
+from the sin, if Jesus has forgiven it, Jesus has also given us the grace to be healed and set free from it.
+
+  Acts 13:39 - from which you could not be freed by the law of Moses. (ESV)
+
+  Romans 6:16-18 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of
+  the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But
+  thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of
+  teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness.
+  (ESV)
+
+Remember that sin enslaves. Jesus' blood sets us free from sin. Jesus sets us free.
 
 Quote by John Piper
 Namely, that the only sin that can be successfully fought is a forgiven sin. And not only that, but also since the
@@ -11882,23 +11910,24 @@ the beast and worshiped its image. (ESV)
 
 
 
-#                      Bible reference                          Verses to show these commandments are still
-important
+#                  Bible reference                      Verses to show these commandments are still important
 
-Exodus 20:7 - You shall not take the name of the LORD    James 5:12 - But above all, my brothers, do not
-3  your God in vain, for the LORD will not hold him         swear, either by heaven or by earth or by any other
-guiltless who takes his name in vain. (ESV)              oath, but let your yes be yes and your no be no, so
-that you may not fall under condemnation. (ESV)
-Exodus 20:8-11 - Remember the Sabbath day, to keep it    Genesis 2:3 - So God blessed the seventh day and
-holy. Six days you shall labor, and do all your work,    made it holy, because on it God rested from all his
-but the seventh day is a Sabbath to the LORD your God.   work that he had done in creation. (ESV) Luke 23:56
-On it you shall not do any work, you, or your son, or    - Then they returned and prepared spices and
-4  your daughter, your male servant, or your female         ointments. On the Sabbath they rested according to
-servant, or your livestock, or the sojourner who is      the commandment. (ESV) Mark 2:27-28 - And he said to
-within your gates. For in six days the LORD made heaven  them, The Sabbath was made for man, not man for the
-and earth, the sea, and all that is in them, and rested  Sabbath. So the Son of Man is lord even of the
-the seventh day. Therefore the LORD blessed the Sabbath  Sabbath. (ESV)
-day and made it holy. (ESV)
+Exodus 20:7 - You shall not take the name of the  James 5:12 - But above all, my brothers, do not swear,
+3  LORD your God in vain, for the LORD will not      either by heaven or by earth or by any other oath, but let
+hold him guiltless who takes his name in vain.    your yes be yes and your no be no, so that you may not fall
+(ESV)                                             under condemnation. (ESV)
+Exodus 20:8-11 - Remember the Sabbath day, to     Genesis 2:3 - So God blessed the seventh day and made it
+keep it holy. Six days you shall labor, and do    holy, because on it God rested from all his work that he
+all your work, but the seventh day is a Sabbath   had done in creation. (ESV) Luke 23:56 - Then they returned
+to the LORD your God. On it you shall not do any  and prepared spices and ointments. On the Sabbath they
+work, you, or your son, or your daughter, your    rested according to the commandment. (ESV) Mark 2:27-28 -
+4  male servant, or your female servant, or your     And he said to them, The Sabbath was made for man, not man
+livestock, or the sojourner who is within your    for the Sabbath. So the Son of Man is lord even of the
+gates. For in six days the LORD made heaven and   Sabbath. (ESV) Colossians 2:16-17 - Therefore let no one
+earth, the sea, and all that is in them, and      pass judgment on you in questions of food and drink, or
+rested the seventh day. Therefore the LORD        with regard to a festival or a new moon or a Sabbath. These
+blessed the Sabbath day and made it holy. (ESV)   are a shadow of the things to come, but the substance
+belongs to Christ. (ESV)
 
 
 
@@ -27512,7 +27541,7 @@ die a death, carrying my cross, and to be faithful to Jesus first and foremost, 
 like in my case I was led to kill my Isaac on the altar. I'm a little bit confused about why I was drawn into this
 situation, but I believe the reasons will be in part that I was attacked by the enemy after being born-again, but
 God has been using me as I have confidence before God because I've been keeping Jesus' sayings and commandments.
-God sees it all. I think God just has been working in the kingdom as a disciple:
+God sees it all. I think God just has been working on me as a disciple in the kingdom:
 
   Luke 14:33 - So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
 
@@ -27919,9 +27948,9 @@ practice the truth. We must agree with doing good rather than with doing evil:
   come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that
   it may be clearly seen that his deeds have been carried out in God. (ESV)
 
-I also believe that in order to be saved after being born-again for 2 years I need to become as skilled a
+I also believe that in order to be saved after being born-again for 2 years I do not need to become as skilled a
 theologian as John Piper, say, in order to be saved from the wrath of God. I only need to obey Jesus. I simply do
-not have 33 years of experience in the area of theology to be saved from the wrath of God. I only have about 5
+not need 33 years of experience in the area of theology to be saved from the wrath of God. I only have about 5
 months of Bible studying.
 
 I do believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop
@@ -40838,7 +40867,7 @@ Date: 2024-07-25 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-25 Thu 14:02
+Created: 2024-07-25 Thu 17:43
 
 Validate
 

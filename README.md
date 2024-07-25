@@ -218,7 +218,7 @@ In believing we have eternal life, but we need to continue in obedience to Jesus
 
 Bonhoeffer says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
 
-[gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
+-   **Read:** [gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
 
 We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
 
@@ -305,7 +305,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org12a7642) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org115f5c1) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -645,7 +645,7 @@ The Jesus which the Apostles proclaimed is the same Jesus we need to proclaim in
 
 -   **Talk by John Piper:** [youtube.com: You Cannot Obey God Without God](https://www.youtube.com/watch?v=mqlCjq60ogg&t=203s)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -1407,7 +1407,7 @@ Believing in your heart is an initial act of obedience before continuing in the 
 
 > **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=NASB)** - “Do not let your heart be troubled; believe (G4100 **pisteuo**) in God, believe (G4100 **pisteuo**) also in Me. (NASB)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -3089,6 +3089,14 @@ The one worrying about the material things doesn't actually have the love of the
 
 > **[James 2:5-8](https://www.biblegateway.com/passage/?search=James%202%3A5-8&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? But you have dishonored the poor man. Are not the rich the ones who oppress you, and the ones who drag you into court? Are they not the ones who blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. (ESV)
 
+It's the ones who serve Jesus who God delights in their prosperity:
+
+> **[Psalms 35:27](https://www.biblegateway.com/passage/?search=Psalms%2035%3A27&version=ESV)** - Let those who delight in my righteousness shout for joy and be glad and say evermore, Great is the LORD, who delights in the welfare of his servant! (ESV)
+
+Servants serve:
+
+> **[Mark 10:43-45](https://www.biblegateway.com/passage/?search=Mark%2010%3A43-45&version=ESV)** - But it shall not be so among you. But whoever would be great among you must be your servant, and whoever would be first among you must be slave of all. For even the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
+
 > **[Matthew 6:25-34](https://www.biblegateway.com/passage/?search=Matthew%206%3A25-34&version=ESV)** - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
 
 
@@ -4693,7 +4701,7 @@ I believe in 'once saved, always saved, <ins>while doing the will of God</ins>'.
 
 > **[I John 2:17](https://www.biblegateway.com/passage/?search=1%20John%202%3A17&version=ESV)** - And the world is passing away along with its desires, but <ins>whoever does the will of God abides forever.</ins>
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -5769,7 +5777,9 @@ Christ's Spirit is selfless and bears one another's burdens, and considers other
 
 Amen.
 
-In order to avoid another situation with the pandemic where there was a lack of love (people making decisions on fear instead of on love) like the one in 2020-2021, we should not cease to maintain freedom, faith in God, peace, forgiveness, and love for people:
+In order to avoid another situation with the pandemic where there was a lack of love (people making decisions on fear instead of on love) like the one in 2020-2021, we should not cease to maintain freedom, faith in God, peace, forgiveness, and love for people. Let our decisions be based on love and not fear:
+
+> **[I Corinthians 16:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A14&version=ESV)** - Let all that you do be done in love. (ESV)
 
 > **[II Timothy 1:7](https://www.biblegateway.com/passage/?search=2%20Timothy%201%3A7&version=ESV)** - for **God gave us a spirit not of fear but of power and love and self-control.** (ESV)
 
@@ -6361,7 +6371,15 @@ We can certainly "be obedient to God's commandments" and that is "doing":
 
 > **[Hebrews 11:31](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A31&version=ESV)** - By faith Rahab the prostitute did not perish with those who were disobedient, because she had given a friendly welcome to the spies. (ESV)
 
--   **[Quote by John Piper](https://youtu.be/BQDRdC0h1mM?t=2433):** The only sin that you can conquer in life is a forgiven sin. The only sin that you can successfully strive against without incurring the judgement of God on your legalism is a forgiven sin. This is glorious. It's a glorious way to become holy.
+-   **[Quote by John Piper](https://youtu.be/BQDRdC0h1mM?t=2433):** The only sin that you can conquer in life is a forgiven sin. **The only sin that you can successfully strive against without incurring the judgement of God on your legalism is a forgiven sin**. This is glorious. It's a glorious way to become holy.
+
+That's really cool. I think what John Piper says here using the word 'legalism' is that upon confessing a sin and affirming the sinfulness of that sin (if I were to confess that I consider X to be sinful), and I want to repent from the sin, if Jesus has forgiven it, Jesus has also given us the grace to be healed and set free from it.
+
+> **[Acts 13:39](https://www.biblegateway.com/passage/?search=Acts%2013%3A39&version=ESV)** - from which you could not be freed by the law of Moses. (ESV)
+
+> **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+Remember that sin enslaves. Jesus' blood sets us free from sin. Jesus sets us free.
 
 -   **[Quote by John Piper](https://www.desiringgod.org/messages/christ-died-to-make-us-holy):** Namely, that the only sin that can be successfully fought is a forgiven sin. And not only that, but also since the forgiveness has been secured infallibly by the blood of Jesus, the fight will be successful.
 
@@ -7204,7 +7222,7 @@ I know I can testify to this fiery trial being a real thing:
 
 > **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -7960,7 +7978,7 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <td class="org-left"><b>4</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A8-11&amp;version=ESV">Exodus 20:8-11</a></b> - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)</td>
-<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Genesis%202%3A3&amp;version=ESV">Genesis 2:3</a></b> - So God blessed the seventh day and made it holy, because on it God rested from all his work that he had done in creation. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Luke%2023%3A56&amp;version=ESV">Luke 23:56</a></b> - Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Mark%202%3A27-28&amp;version=ESV">Mark 2:27-28</a></b> - And he said to them, The Sabbath was made for man, not man for the Sabbath. So the Son of Man is lord even of the Sabbath. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Genesis%202%3A3&amp;version=ESV">Genesis 2:3</a></b> - So God blessed the seventh day and made it holy, because on it God rested from all his work that he had done in creation. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Luke%2023%3A56&amp;version=ESV">Luke 23:56</a></b> - Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Mark%202%3A27-28&amp;version=ESV">Mark 2:27-28</a></b> - And he said to them, The Sabbath was made for man, not man for the Sabbath. So the Son of Man is lord even of the Sabbath. (ESV) <b>Colossians 2:16-17</b> - Therefore let no one pass judgment on you in questions of food and drink, or with regard to a festival or a new moon or a Sabbath. These are a shadow of the things to come, but the substance belongs to Christ. (ESV)</td>
 </tr>
 </tbody>
 </table>
@@ -9592,7 +9610,7 @@ This is what we must come to know in truth - that Jesus came from Father God, an
     
     > **[Acts 20:35](https://www.biblegateway.com/passage/?search=Acts%2020%3A35&version=ESV)** - In all things I have shown you that by working hard in this way we **must** <ins>help the weak</ins> and <ins>remember the words of the Lord Jesus, how he himself said,</ins> **It is more blessed to give than to receive.** (ESV)
     
-    It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+    It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
     
     > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
     
@@ -10752,7 +10770,7 @@ We don't want lazy, cowardly, disobedient faith:
 
 > **[Luke 12:48](https://www.biblegateway.com/passage/?search=Luke%2012%3A48&version=ESV)** - But the one who did not know, and did what deserved a beating, will receive a light beating. Everyone to whom much was given, of him much will be required, and from him to whom they entrusted much, they will demand the more. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -16823,7 +16841,7 @@ I confess that Jesus is the Son of God:
 
 > **[I John 4:15](https://www.biblegateway.com/passage/?search=1%20John%204%3A15&version=ESV)** - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
@@ -18913,7 +18931,7 @@ In the case of the marriage proposal I made, I must hold faith in God which incl
 
 > **[Hebrews 13:12-14](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12-14&version=ESV)** - So Jesus also suffered outside the gate in order to sanctify the people through his own blood. Therefore let us go to him outside the camp and bear the reproach he endured. For here we have no lasting city, but we seek the city that is to come. (ESV)
 
-In my situation I had to put faithfulness to Jesus over faithfulness to the girl I wanted to marry and I had to die a death, carrying my cross, and to be faithful to Jesus first and foremost, and it was not fun, and it felt like in my case I was led to kill my Isaac on the altar. I'm a little bit confused about why I was drawn into this situation, but I believe the reasons will be in part that I was attacked by the enemy after being born-again, but God has been using me as I have confidence before God because I've been keeping Jesus' sayings and commandments. God sees it all. I think God just has been working in the kingdom as a disciple:
+In my situation I had to put faithfulness to Jesus over faithfulness to the girl I wanted to marry and I had to die a death, carrying my cross, and to be faithful to Jesus first and foremost, and it was not fun, and it felt like in my case I was led to kill my Isaac on the altar. I'm a little bit confused about why I was drawn into this situation, but I believe the reasons will be in part that I was attacked by the enemy after being born-again, but God has been using me as I have confidence before God because I've been keeping Jesus' sayings and commandments. God sees it all. I think God just has been working on me as a disciple in the kingdom:
 
 > **[Luke 14:33](https://www.biblegateway.com/passage/?search=Luke%2014%3A33&version=ESV)** - So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
 
@@ -19115,7 +19133,7 @@ Being a disciple of Jesus means bearing His reproach:
 
 Count the cost:
 
-> **[Luke 14:28](https://www.biblegateway.com/passage/?search=Luke%2014%3A28&version=ESV),29** - For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, (ESV)
+> **[Luke 14:28,29](https://www.biblegateway.com/passage/?search=Luke%2014%3A28&version=ESV)** - For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, (ESV)
 
 I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these demons:
 
@@ -19157,9 +19175,9 @@ We must love the light which Jesus has shone into the world, and we must prefer 
 
 > **[John 3:19-21](https://www.biblegateway.com/passage/?search=John%203%3A19-21&version=ESV)** - And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
 
-I also believe that in order to be saved after being born-again for 2 years I need to become as skilled a theologian as John Piper, say, in order to be saved from the wrath of God.
+I also believe that in order to be saved after being born-again for 2 years I do not need to become as skilled a theologian as John Piper, say, in order to be saved from the wrath of God.
 I only need to obey Jesus.
-I simply do not have 33 years of experience in the area of theology to be saved from the wrath of God. I only have about 5 months of Bible studying.
+I simply do not need 33 years of experience in the area of theology to be saved from the wrath of God. I only have about 5 months of Bible studying.
 
 I do believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully sinning. Committing sin against our own bodies is very, very unwise.
 
@@ -19192,7 +19210,7 @@ What I mean is we should not steal from God, even when Jesus has made us born-ag
 
 > **[John 10:10](https://www.biblegateway.com/passage/?search=John%2010%3A10&version=ESV)** - The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly. (ESV)
 
-> **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV),4,7-9** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. When he has brought out all his own, he goes before them, and the sheep follow him, for they know his voice. So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. All who came before me are thieves and robbers, but the sheep did not listen to them. I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture. (ESV)
+> **[John 10:1,4,7-9](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. When he has brought out all his own, he goes before them, and the sheep follow him, for they know his voice. So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. All who came before me are thieves and robbers, but the sheep did not listen to them. I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture. (ESV)
 
 > **[John 8:44](https://www.biblegateway.com/passage/?search=John%208%3A44&version=ESV)** - You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
@@ -25353,7 +25371,7 @@ If you hear Jesus' word and believe Father God, then you have eternal life, and 
 
 > **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
 
-It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **John 13:34-35**:
+It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
