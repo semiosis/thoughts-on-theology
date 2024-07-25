@@ -305,7 +305,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org115f5c1) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf5764ea) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2027,7 +2027,7 @@ Over the course of 2022, I was actually speaking a lot of prophecy. There was a 
 
 > **[Mark 13:20](https://www.biblegateway.com/passage/?search=Mark%2013%3A20&version=ESV)** - And if the Lord had not cut short the days, no human being would be saved. But for the sake of the elect, whom he chose, he shortened the days. (ESV)
 
-Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely new heavens and earth (not just a renewal, although I do believe God is still taking care of and reigning on the earth), so I think that whatever Paul the Apostle is referring to here, *well I have my speculatinons*, is something more imminent, and perhaps more to do with God's kingdom work on the earth, but I still hold the eschatological view that there is ultimately an entirely new heavens and earth without any corruption:
+Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely new heavens and earth (not just a renewal, although **I do believe God is still taking care of and reigning on the earth**), so I think that whatever Paul the Apostle is referring to here, *well I have my speculatinons*, is something more imminent, and perhaps more to do with **God's kingdom work on the earth**, but I still hold the eschatological view that there is ultimately an entirely new heavens and earth without any corruption:
 
 > **[I Corinthians 7:29-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A29-31&version=ESV)** - This is what I mean, brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For the present form of this world is passing away. (ESV)
 
@@ -4038,9 +4038,9 @@ I agree whole heartedly with this guy:
 
 -   [Are All Christians Disciples? (Lordship Salvation)](https://www.youtube.com/watch?v=BCQX4R1mFAk)
 
-I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian.
+I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian:
 
-> **II Corinthians 3:18** - And we all, with unveiled face, beholding the glory of the Lord, are being transformed into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
+> **[II Corinthians 3:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%203%3A18&version=ESV)** - And we all, with unveiled face, beholding the glory of the Lord, are being transformed into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
 Jesus said to these believers that if they abide in His word (and I believe that means keep His word, even in obedience), they are His disciples - so a person can be a believer before they are a disciple. But we're supposed to make this transition:
 
@@ -4059,7 +4059,7 @@ After believing in Him we must go ahead in the teaching of Christ:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
-> **Romans 6:17-19** - But thanks be to God, that you who were once slaves of sin have <ins>become **obedient** from the heart</ins> to the <ins>standard of **teaching** to which you were committed</ins>, and, having been **set free from sin**, have **become slaves of righteousness.** I am speaking in human terms, because of your natural limitations. For just as you once presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading to sanctification. (ESV)
+> **[Romans 6:17-19](https://www.biblegateway.com/passage/?search=Romans%206%3A17-19&version=ESV)** - But thanks be to God, that you who were once slaves of sin have <ins>become **obedient** from the heart</ins> to the <ins>standard of **teaching** to which you were committed</ins>, and, having been **set free from sin**, have **become slaves of righteousness.** I am speaking in human terms, because of your natural limitations. For just as you once presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading to sanctification. (ESV)
 
 Jesus' disciples (who had made Jesus their Lord) heard his words and were developing their belief for a while:
 
@@ -7978,7 +7978,7 @@ The righteousness in the actual doing of the law above is still upheld but there
 <tr>
 <td class="org-left"><b>4</b></td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Exodus%2020%3A8-11&amp;version=ESV">Exodus 20:8-11</a></b> - Remember the Sabbath day, to keep it holy. Six days you shall labor, and do all your work, but the seventh day is a Sabbath to the LORD your God. On it you shall not do any work, you, or your son, or your daughter, your male servant, or your female servant, or your livestock, or the sojourner who is within your gates. For in six days the LORD made heaven and earth, the sea, and all that is in them, and rested the seventh day. Therefore the LORD blessed the Sabbath day and made it holy. (ESV)</td>
-<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Genesis%202%3A3&amp;version=ESV">Genesis 2:3</a></b> - So God blessed the seventh day and made it holy, because on it God rested from all his work that he had done in creation. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Luke%2023%3A56&amp;version=ESV">Luke 23:56</a></b> - Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Mark%202%3A27-28&amp;version=ESV">Mark 2:27-28</a></b> - And he said to them, The Sabbath was made for man, not man for the Sabbath. So the Son of Man is lord even of the Sabbath. (ESV) <b>Colossians 2:16-17</b> - Therefore let no one pass judgment on you in questions of food and drink, or with regard to a festival or a new moon or a Sabbath. These are a shadow of the things to come, but the substance belongs to Christ. (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Genesis%202%3A3&amp;version=ESV">Genesis 2:3</a></b> - So God blessed the seventh day and made it holy, because on it God rested from all his work that he had done in creation. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Luke%2023%3A56&amp;version=ESV">Luke 23:56</a></b> - Then they returned and prepared spices and ointments. On the Sabbath they rested according to the commandment. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Mark%202%3A27-28&amp;version=ESV">Mark 2:27-28</a></b> - And he said to them, The Sabbath was made for man, not man for the Sabbath. So the Son of Man is lord even of the Sabbath. (ESV) <b><a href="https://www.biblegateway.com/passage/?search=Colossians%202%3A16-17&amp;version=ESV">Colossians 2:16-17</a></b> - Therefore let no one pass judgment on you in questions of food and drink, or with regard to a festival or a new moon or a Sabbath. These are a shadow of the things to come, but the substance belongs to Christ. (ESV)</td>
 </tr>
 </tbody>
 </table>
@@ -8475,6 +8475,17 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 
 > **[Luke 9:23-24](https://www.biblegateway.com/passage/?search=Luke%209%3A23-24&version=ESV)** - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will save it. (ESV)
 
+-   **[youtube.com: The Golden Stitches of Sovereignty: What Holds Our Gospel Together @time: 39 min 22 sec](https://youtube.com/watch?v=sMwMooCSjos&t=2362):** So the first self, Jesus says, is going to
+    be lost forever. Whoever would save his
+    life will lose it. And the second self is
+    gonna live forever. Whoever loses his
+    life for me, for me, because you fall in love
+    with me, you've seen me, you love me,
+    you're satisfied with me, your treasuring
+    me. I'm everything to you. You live forever.
+    You're on the road. And you stay on it through
+    death and resurrection and we live together, forever.
+
 
 ## Justified by our words
 
@@ -8672,6 +8683,8 @@ We must love (not just any way you believe it's defined) but in the same way tha
     stands. So there's pillar number one.
     
     **Since there is a soul purifying obedience to the truth, you can love each other.**
+
+> **[Ephesians 5:25-27](https://www.biblegateway.com/passage/?search=Ephesians%205%3A25-27&version=ESV)** - Husbands, love your wives, as Christ loved the church and gave himself up for her, that he might sanctify her, having cleansed her by the washing of water with the word, so that he might present the church to himself in splendor, without spot or wrinkle or any such thing, that she might be holy and without blemish.
 
 
 ### Christians are not <ins>under</ins> the Mosaic law because **we are under grace as we are under Christ's law**, but we don't despise the Torah, nor annul it, nor teach others to annul it
@@ -9009,9 +9022,13 @@ I still think the 10 commandments are special, and following them in truth is re
 
 ### Judgement
 
-I certainly affirm that Jesus will return to save those waiting for Him, and I currently am waiting for His return.
+I certainly affirm that Jesus will return to save those waiting for Him, and I currently am waiting for His return:
 
 > **[Hebrews 9:27-28](https://www.biblegateway.com/passage/?search=Hebrews%209%3A27-28&version=ESV)** - And just as **it is appointed for man to die once, and after that comes judgment**, so Christ, <ins>having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save those who are eagerly waiting for him.</ins> (ESV)
+
+Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely new heavens and earth (not just a renewal, although **I do believe God is still taking care of and reigning on the earth**), so I think that whatever Paul the Apostle is referring to here, *well I have my speculatinons*, is something more imminent, and perhaps more to do with **God's kingdom work on the earth**, but I still hold the eschatological view that there is ultimately an entirely new heavens and earth without any corruption:
+
+> **[I Corinthians 7:29-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A29-31&version=ESV)** - This is what I mean, brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For the present form of this world is passing away. (ESV)
 
 Also, I do not affirm reincarnation, but I think the truth is that it is appointed for man to die once, and after that, judgement, and the LORD creates an **entirely new** heavens and a new earth. No recycling. No reincarnation. I await the second coming of Christ. AMEN!
 
@@ -9065,7 +9082,11 @@ If people including free-grace Christians do not repent from sin, they may still
     6   see GREEK for 2229
     7   see GREEK for 1211
 
+Do not be an enemy of the cross of Christ, submit to the righteousness of God - we needed Jehovah God, Father of Jesus Christ, to pay for our sin - and we must imitate Christ, passing forward Christ's love and forgiving as we have been forgiven, and repenting from sin:
+
 > **[John 3:19](https://www.biblegateway.com/passage/?search=John%203%3A19&version=ESV)** - This is the judgment, that the Light has come into the world, and men loved the darkness rather than the Light, for their deeds were evil. (ESV)
+
+> **[I Peter 4:17](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A17&version=ESV)** - For **it is time for judgment to begin at the household of God**; and if it begins with us, what will be the outcome for those who do not obey the gospel of God? (ESV)
 
 > **[Matthew 12:36-37](https://www.biblegateway.com/passage/?search=Matthew%2012%3A36-37&version=ESV)** - I tell you, on the day of judgment people will give account for every careless word they speak, for by your words you will be justified, and by your words you will be condemned.
 
@@ -9222,7 +9243,7 @@ We must cease to do the devil's will:
 Before 2 April 2022, I was
 especially stuck in sin - all sorts of things: pornography, pride, like the prodigal
 son, but I was also quite oppressed. I hated feeling like I was in a stranglehold of lies where I wasn't able to act on anything
-I believed was true and poverty, and so I continued in sin.
+I believed was true, and in poverty, and so I continued in sin.
 Some time in 2021, I had begun putting my trust in God to work, and trying to keep God's commandments.
 And on 2 April 2022, I was born-again of the Spirit. After that, things had become 'tangibly' spiritual and I was given 'knowledge' that God exists and I believed (and still do) that Jesus is God,
 so that means ever since then I then had a strong belief that Jesus is with me and Jesus granted me to keep on holding faith in Him
@@ -9839,16 +9860,23 @@ The [1689 Baptist confession](https://www.the1689confession.com/1689/chapter-6) 
      6  mortified, yet both itself, and the first
      7  motions thereof, are truly and properly sin.14
      8  
-     9  13 [[https://www.biblegateway.com/passage/?search=Romans%207%3A18&version=ESV][Rom. 7:18]],23; Eccles. 7:20; 1 John 1:8
+     9  13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
     10  14 Rom. 7:23–25; Gal. 5:17
+
+> **[Romans 7:23-25](https://www.biblegateway.com/passage/?search=Romans%207%3A23-25&version=ESV)** - but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. (ESV)
 
 I affirm that even after regeneration and being healed, corruption has remained a problem for me mainly because of the world I live in, but also because I need to be renewed in mind:
 
 -   the influences of worldly people, and
     -   **[I Corinthians 15:33](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A33&version=ESV)** - Do not be deceived: Bad company ruins good morals. (ESV)
--   the influences of demons.
+-   the influences of demons
+-   I need to just focus on Jesus more
 
-But for the person born of God, they have died to sin, it no longer has a legal over them, they cannot keep on doing it, they absolutely hate the sin.
+But for the person born of God, they have died to sin, it no longer has a legal hold over them, they cannot keep on doing it, they absolutely hate the sin, we are being sanctified.
+
+> **Romans 8:1-4** - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, **he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit.** (ESV)
+
+> **[I John 1:9](https://www.biblegateway.com/passage/?search=1%20John%201%3A9&version=ESV)** - If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. (ESV)
 
 > **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
 
@@ -28623,6 +28651,8 @@ Do not be an enemy of the cross of Christ, submit to the righteousness of God - 
 > **[Hebrews 13:7](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A7&version=ESV)** - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way of life, and imitate their faith. (ESV)
 
 > **[III John 1:11](https://www.biblegateway.com/passage/?search=3%20John%201%3A11&version=ESV)** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
+
+> **[John 3:19](https://www.biblegateway.com/passage/?search=John%203%3A19&version=ESV)** - This is the judgment, that the Light has come into the world, and men loved the darkness rather than the Light, for their deeds were evil. (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
