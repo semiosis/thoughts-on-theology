@@ -19531,6 +19531,34 @@ Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
   pisteuo) him who justifies the ungodly, his faith is counted as
   righteousness, (ESV)
 
+Learning to trust in Jesus, learning to trust Jesus, as we obey Him and
+witness His glory:
+
+  John 2:7-11 - Jesus said to the servants, Fill the jars with water. And
+  they filled them up to the brim. And he said to them, Now draw some out
+  and take it to the master of the feast. So they took it. When the
+  master of the feast tasted the water now become wine, and did not know
+  where it came from (though the servants who had drawn the water knew),
+  the master of the feast called the bridegroom and said to him, Everyone
+  serves the good wine first, and when people have drunk freely, then the
+  poor wine. But you have kept the good wine until now. This, the first
+  of his signs, Jesus did at Cana in Galilee, and manifested his glory.
+  And his disciples (G3101 mathetes) believed (G4100 pisteuo) in him.
+  (ESV)
+
+|  :  3101  mathetes  math-ay-tes'
+| 
+|   from 3129; a learner, i.e. pupil:--disciple.
+|   see GREEK for 3129
+
+As we see trusting in Jesus and trusting Jesus go hand-in-hand. Jesus has
+already spoken, and Jesus' words still speak and are active. Do we trust
+His words? Trusting His words and trusting Him go hand it hand. If we
+trust Jesus, we will obey Him. If we obey Jesus, we will see His glory.
+If we see see His glory, our faith in Him will increase.
+
+We trust in God to take care of us, as He leads us.
+
 Having believed in Jesus, having begun to trust in Jesus, we have become
 obedient to Jesus. Jesus works on us as we trust in Him even before we
 understand what He's doing, and we have become obedient because he
@@ -51038,12 +51066,6 @@ We should forsake:
 - the desires of the flesh, and
 - the desires of the eyes,
 - and pride in possessions
-- youtube.com: How God Uses Satan
-">Every one of the sufferings that Jesus went through was lifting sin off
-of us and sin is the only thing Satan's got to kill us with. It's the
-only weapon he's got. Satan cannot hurt you without sin. If you solve
-your sin problem, you solve your Satan problem. He can show you green
-things in the middle of the night and terrify you but he cannot hurt you.
 
   John 10:10 - The thief comes only to steal and kill and destroy. I came
   that they may have life and have it abundantly. (ESV)
@@ -51132,6 +51154,13 @@ but there are external spiritual influences:
   against the rulers, against the authorities, against the cosmic powers
   over this present darkness, against the spiritual forces of evil in the
   heavenly places. (ESV)
+
+youtube.com: How God Uses Satan
+Every one of the sufferings that Jesus went through was lifting sin off
+of us and sin is the only thing Satan's got to kill us with. It's the
+only weapon he's got. Satan cannot hurt you without sin. If you solve
+your sin problem, you solve your Satan problem. He can show you green
+things in the middle of the night and terrify you but he cannot hurt you.
 
 Jesus commands us to love our enemies:
 
@@ -53154,7 +53183,7 @@ Date: 2024-07-26 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-26 Fri 01:25
+Created: 2024-07-26 Fri 12:54
 
 Validate
 
