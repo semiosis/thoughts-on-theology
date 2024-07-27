@@ -40993,11 +40993,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-07-26 Fri 00:00
+Date: 2024-07-27 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-07-27 Sat 13:34
+Created: 2024-07-27 Sat 13:45
 
 Validate
 
