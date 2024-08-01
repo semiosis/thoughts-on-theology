@@ -2751,7 +2751,17 @@ If you hear Jesus' words which came from God and trust God then you have eternal
   *[[https://www.biblegateway.com/passage/?search=1%20Peter%204%3A7-11&version=ESV][I Peter 4:7-11]]* - *The end of all things is at hand;* therefore be self-controlled and sober-minded for the sake of your prayers. Above all, keep loving one another earnestly, since love covers a multitude of sins. Show hospitality to one another without grumbling. As each has received a gift, use it to serve one another, as good stewards of God's varied grace: whoever speaks, as one who speaks oracles of God; whoever serves, as one who serves by the strength that God supplies—in order that in everything God may be glorified through Jesus Christ. To him belong glory and dominion forever and ever. Amen. (ESV)
 #+END_QUOTE
 
-God wants as many people as possible to be saved (I think of this a bit like as 'delaying' second coming - my own speculation on eschatology is just me speculating):
+Jesus doesn't delay. We must be vigilant and ready to serve Jesus:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37&version=ESV][Hebrews 10:37]]* - For, Yet a little while, and the coming one will come and will not delay; (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%2024%3A48&version=ESV][Matthew 24:48]]* - But if that wicked servant says to himself, My master is delayed, (ESV)
+#+END_QUOTE
+
+God wants as many people as possible to be saved (I think of this a bit like as 'delaying' the second coming - my own speculation on eschatology is just me speculating), but not like delaying Jesus' work. Jesus literally visits people imminently in this life time:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=John%201%3A12-13&version=ESV][John 1:12-13]]* - But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (NASB)
@@ -4431,9 +4441,43 @@ the person of Jesus Christ
   *[[https://www.biblegateway.com/passage/?search=Titus%203%3A8-15&version=ESV][Titus 3:8-15]]* - The saying is trustworthy, and I want you to insist on these things, so that *those who have believed in God may be careful to devote themselves to good works*. These things are excellent and profitable for people. But _avoid foolish controversies, genealogies, dissensions, and quarrels about the law, for they are unprofitable and worthless._ As for a person who stirs up division, after warning him once and then twice, have nothing more to do with him, knowing that such a person is warped and sinful; he is self-condemned. When I send Artemas or Tychicus to you, do your best to come to me at Nicopolis, for I have decided to spend the winter there. Do your best to speed Zenas the lawyer and Apollos on their way; see that they lack nothing. And let our people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All who are with me send greetings to you. *Greet those who love us in the faith*. Grace be with you all. (ESV)
 #+END_QUOTE
 
-*** Anti-christ-like behaviour
+*** God's name must be hallowed. We should not take it in vain
 
-Making money or some other thing more important than God to "get ahead" materially, placing burdens on others to fulfill the same material standard, especially on those who have their priorities already in the correct order (they are obeying God, and are keeping their heart clean) and not lifting a finger to help them but actually make things more difficult (think of the Romans soldier offering vinegar to Jesus instead of water while Jesus was saying, "I thirst."):
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%206%3A9&version=ESV][Matthew 6:9]]* - Pray then like this: Our Father in heaven, hallowed be your name. (ESV)
+#+END_QUOTE
+
+#+BEGIN_SRC text -n :async :results verbatim code :lang text
+  Dear Heavenly Father,
+  hallowed be Your name.
+  Please forgive me, Father God, for using Your name where it ought not to be used,
+  and for any misrepresentation I have made.
+  In Jesus Christ's name I ask,
+  AMEN!!
+#+END_SRC
+
+For this reason, I think that Bible translations such as the ESV, correctly are reserved about printing the LORD's name inline throughout the whole Bible.
+
+*** Christ-like humility
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Philippians%202%3A5-6&version=ESV][Philippians 2:5-6]]* - Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the form of God, did not count equality with God a thing to be grasped, (ESV)
+#+END_QUOTE
+
+And God in His mercy saves us and brings us to Himself through Jesus His Son:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-5&version=ESV][Ephesians 2:1-5]]* - And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved— (ESV)
+#+END_QUOTE
+
+*** Anti-christ-like behaviour
+Pride and insubordination against God is antichrist-like behaviour:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A3-4&version=ESV][II Thessalonians 2:3-4]]* - Let no one deceive you in any way. For that day will not come, unless the rebellion comes first, and the man of lawlessness is revealed, the son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he takes his seat in the temple of God, proclaiming himself to be God. (ESV)
+#+END_QUOTE
+
+Now with regards to Christlike behaviour,
+making money or some other thing more important than God to "get ahead" materially, placing burdens on others to fulfill the same material standard, especially on those who have their priorities already in the correct order (they are obeying God, and are keeping their heart clean) and not lifting a finger to help them but actually make things more difficult (think of the Romans soldier offering vinegar to Jesus instead of water while Jesus was saying, "I thirst."). Where Jesus came to help us, and to bring us to God:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Psalms%2069%3A21&version=ESV][Psalms 69:21]]* - They gave me poison for food, and for my thirst they gave me sour wine to drink. (ESV)
@@ -8618,10 +8662,86 @@ Jesus knows Father God, and Jesus keeps His word. Likewise, we must follow Jesus
 #+END_QUOTE
 
 *** Jesus is Almighty God's Son and is sitting in Power next to His Father
-Jesus is One with Almighty God and their will is in perfect alignment.
+Jesus obeyed His Father - He willed to do His Father's will:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Luke%2022%3A41-42&version=ESV][Luke 22:41-42]]* - And he withdrew from them about a stone's throw, and knelt down and prayed, saying, Father, if you are willing, remove this cup from me. Nevertheless, not my will, but yours, be done. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%206%3A38&version=ESV][John 6:38]]* - For I have come down from heaven, not to do my own will but the will of him who sent me. (ESV)
+#+END_QUOTE
+
+Jesus obeyed Father God perfectly and became the source of salvation to all who obey Him:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2015%3A10&version=ESV][John 15:10]]* - If you keep my commandments, you will abide in my love, just as I have kept my Father's commandments and abide in his love. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2017%3A19&version=ESV][John 17:19]]* - And for their sake I consecrate myself, that they also may be sanctified in truth. (ESV)
+#+END_QUOTE
+
+We serve Jesus so Jesus is our Master:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2013%3A16&version=ESV][John 13:16]]* - Truly, truly, I say to you, a servant is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
+#+END_QUOTE
+
+Serving Jesus brings Father God glory:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2015%3A8&version=ESV][John 15:8]]* - By this my Father is glorified, that you bear much fruit and so prove to be my disciples. (ESV)
+#+END_QUOTE
+
+Jesus *being in the form of God* took the form of the likeness of men:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Philippians%202%3A5-7&version=ESV][Philippians 2:5-7]]* - Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the form of God, did not count equality with God a thing to be grasped, but made himself nothing, taking the form of a servant, being born in the likeness of men. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=2%20Corinthians%208%3A9&version=ESV][II Corinthians 8:9]]* - For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you by his poverty might become rich. (ESV)
+#+END_QUOTE
+
+Jesus was appointed by God, learned obedience and made a priest forever, after the order of Melchizedek:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Hebrews%205%3A5-10&version=ESV][Hebrews 5:5-10]]* - So also Christ did not exalt himself to be made a high priest, but was appointed by him who said to him, You are my Son, today I have begotten you; as he says also in another place, You are a priest forever, after the order of Melchizedek. In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and tears, to him who was able to save him from death, and he was heard because of his reverence. Although he was a son, he learned obedience through what he suffered. And being made perfect, he became the source of eternal salvation to all who obey him, being designated by God a high priest after the order of Melchizedek. (ESV)
+#+END_QUOTE
+
+Jesus is One with Almighty God and their will is in perfect alignment. Jesus demonstrated perfect obedience to Father God:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=John%2010%3A30&version=ESV][John 10:30]]* - I and the Father are one.
+#+END_QUOTE
+
+Father God has been working through Jesus, His Son:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2014%3A8-10&version=ESV][John 14:8-10]]* - Philip said to him, Lord, show us the Father, and it is enough for us. Jesus said to him, Have I been with you so long, and you still do not know me, Philip? Whoever has seen me has seen the Father. How can you say, Show us the Father? Do you not believe that I am in the Father and the Father is in me? The words that I say to you I do not speak on my own authority, but the Father who dwells in me does his works. (ESV)
+#+END_QUOTE
+
+Even throughout His ministry on earth, He had power over nature - the power of Father God:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Mark%204%3A35-41&version=ESV][Mark 4:35-41]]* - On that day, when evening had come, he said to them, Let us go across to the other side. And leaving the crowd, they took him with them in the boat, just as he was. And other boats were with him. And a great windstorm arose, and the waves were breaking into the boat, so that the boat was already filling. But he was in the stern, asleep on the cushion. And they woke him and said to him, Teacher, do you not care that we are perishing? And he awoke and rebuked the wind and said to the sea, Peace! Be still! And the wind ceased, and there was a great calm. He said to them, Why are you so afraid? Have you still no faith? And they were filled with great fear and said to one another, Who then is this, that even wind and sea obey him? (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2017%3A4&version=ESV][John 17:4]]* - I glorified you on earth, having accomplished the work that you gave me to do. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2017%3A7&version=ESV][John 17:7]]* - Now they know that everything that you have given me is from you. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%2028%3A16-20&version=ESV][Matthew 28:16-20]]* - Now the eleven disciples went to Galilee, to the mountain to which Jesus had directed them. And when they saw him they worshiped him, but some doubted. And Jesus came and said to them, All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Revelation%203%3A12&version=ESV][Revelation of John 3:12]]* - The one who conquers, I will make him a pillar in the temple of my God. Never shall he go out of it, and I will write on him the name of my God, and the name of the city of my God, the new Jerusalem, which comes down from my God out of heaven, and my own new name. (ESV)
 #+END_QUOTE
 
 Father God keeps us in His name so that we may be one with Them:
@@ -8630,7 +8750,7 @@ Father God keeps us in His name so that we may be one with Them:
   *[[https://www.biblegateway.com/passage/?search=John%2017%3A10-11&version=ESV][John 17:10-11]]* - All mine are yours, and yours are mine, and _I am glorified in them_. And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have given me, that they may be one, even as we are one. (ESV)
 #+END_QUOTE
 
-By posing the question, Jesus doesn't deny that he is good:
+By posing the question, Jesus doesn't deny that he is good. But we agree, affirming what Jesus has spoken that God is good:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV][Mark 10:18]]* - And Jesus said to him, Why do you call me good? _No one is good except God alone._ (ESV)
@@ -24475,26 +24595,61 @@ The new self should be _Christ formed in you:_
   *[[https://www.biblegateway.com/passage/?search=Ephesians%203%3A9-11&version=ESV][Ephesians 3:9-11]]* - and to bring to light for everyone what is the plan of the mystery hidden for ages in God who created all things, so that through the church the manifold wisdom of God might now be made known to the rulers and authorities in the heavenly places. This was according to _the eternal purpose that he has realized in Christ Jesus_ our Lord,
 #+END_QUOTE
 
-*By* him all things were created. Firstborn here _does not mean_ 'created first':
+*By* him all things were created. Firstborn here _does not mean_ 'created first', but it means _pre-eminent_:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Isaiah%2043%3A10&version=ESV][Isaiah 43:10]]* - You are my witnesses, declares the LORD, and my servant whom I have chosen, that you may know and believe me and understand that I am he. *Before me no god was formed, nor shall there be any after me.* (ESV)
 #+END_QUOTE
 
-#+BEGIN_QUOTE
-  *[[https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV][Colossians 1:15-20]]* - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities—all things were created through him and for him. And he is before all things, and in him all things hold together. And he is the head of the body, the church. He is the beginning, the firstborn from the dead, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
-#+END_QUOTE
+Jesus is pre-eminent, one with God in the beginning:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=John%201%3A2&version=ESV][John 1:2]]*: He was in the beginning with God.
 #+END_QUOTE
 
 #+BEGIN_QUOTE
-  *[[https://www.biblegateway.com/passage/?search=Psalms%202%3A7&version=ESV][Psalms 2:7]]* - I will tell of the decree: The Lord said to me, You are my Son; today I have begotten you.
+  *[[https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV][Colossians 1:15-20]]* - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities—all things were created through him and for him. And he is before all things, and in him all things hold together. And he is the head of the body, the church. He is the beginning, the firstborn from the dead, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
+#+END_QUOTE
+
+Being _pre-emintent_ one with God in the beginning, Jesus washes us first. Jesus acts first that we may abide in Him, that our works may abide in Him:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%2013%3A8-10&version=ESV][John 13:8-10]]* - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. Simon Peter said to him, Lord, not my feet only but also my hands and my head! Jesus said to him, The one who has bathed does not need to wash, except for his feet, but is completely clean. And you are clean, but not every one of you. (ESV)
 #+END_QUOTE
 
 #+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=1%20John%204%3A19&version=ESV][I John 4:19]]* - We love because he first loved us. (ESV)
+#+END_QUOTE
+
+Jesus was birthed from God:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Psalms%202%3A7&version=ESV][Psalms 2:7]]* - I will tell of the decree: The Lord said to me, You are my Son; today I have begotten (*[[https://biblehub.com/hebrew/3205.htm][3205. yalad]]*) you.
+#+END_QUOTE
+
+#+BEGIN_SRC text -n :async :results verbatim code :lang text
+  Strong's Concordance
+  yalad: to bear, bring forth, beget
+  Original Word: יָלַד
+  Part of Speech: Verb
+  Transliteration: yalad
+  Phonetic Spelling: (yaw-lad')
+  Definition: to bear, bring forth, beget
+  NAS Exhaustive Concordance
+  Word Origin
+  a prim. root
+  Definition
+  to bear, bring forth, beget
+#+END_SRC
+
+#+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Acts%2013%3A33&version=ESV][Acts 13:33]]* - this he has fulfilled to us their children by raising Jesus, as also it is written in the second Psalm, You are my Son, today I have begotten you.
+#+END_QUOTE
+
+God is knowable through revealing Himself through Jesus Christ, His eternal word, even made flesh:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=John%201%3A18&version=ESV][John 1:18]]* - No one has ever seen God; the only God, who is at the Father's side, he has made him known. (ESV)
 #+END_QUOTE
 
 #+BEGIN_QUOTE
@@ -28931,6 +29086,74 @@ Not just by hearing but by hearing with faith.
 #+END_QUOTE
 
 I was born-again on 2 April 2022. On 1 April 2022 (one day before) I was wearing a pendant which on one side I had written 1023 which is decimal for the binary 1111111111 - which are ten ones. I was trying hard to follow the ten commandments *from the heart*, like Jesus teaches. I was doing this to seek Jesus. Then I was born-again. What a mystery.
+
+The *day of the Lord* (as in the second-coming of Jesus Christ) has not happened yet:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A1-4&version=ESV][II Thessalonians 2:1-4]]* - Now concerning *the coming of our Lord Jesus Christ* and our being gathered together to him, we ask you, brothers, not to be quickly shaken in mind or alarmed, either by a spirit or a spoken word, or a letter seeming to be from us, to the effect that the day of the Lord has come. Let no one deceive you in any way. For that day will not come, unless the rebellion comes first, and the man of lawlessness is revealed, the son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he takes his seat in the temple of God, proclaiming himself to be God. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%2024%3A36&version=ESV][Matthew 24:36]]* - But concerning that day and hour no one knows, not even the angels of heaven, nor the Son, but the Father only. (ESV)
+#+END_QUOTE
+
+But I consider that Jesus may have visited me personally to make me born-again and bring me into His service:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Mark%2013%3A32-37&version=ESV][Mark 13:32-37]]* - But concerning that day or that hour, no one knows, not even the angels in heaven, nor the Son, but only the Father. Be on guard, keep awake. For you do not know when the time will come. It is like a man going on a journey, when he leaves home and puts his servants in charge, each with his work, and commands the doorkeeper to stay awake. Therefore stay awake—for you do not know when the master of the house will come, in the evening, or at midnight, or when the cock crows, or in the morning— lest he come suddenly and find you asleep. And what I say to you I say to all: Stay awake. (ESV)
+#+END_QUOTE
+
+Although it happened around midday, I was lying down on my bed very peacefully with my cat and took a nap during the day. And when I was born-again in this way I asked Jesus to save me because I didn't know what was going on. So Like Paul the Apostle and the heavenly vision he received, the idea is to be taken into service by Jesus and continue in obedient faithfulness to Jesus. I also recognise we still wait for the eschatological "Day of the Lord" - the second coming of Jesus has not yet happened:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%2024%3A41-44&version=ESV][Matthew 24:41-44]]* - Two women will be grinding at the mill; one will be taken and one left. Therefore, stay awake, for you do not know on what day your Lord is coming. But know this, that if the master of the house had known in what part of the night the thief was coming, he would have stayed awake and would not have let his house be broken into. Therefore *you also must be ready, for the Son of Man is coming at an hour you do not expect*. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A2-5&version=ESV][I Thessalonians 5:2-5]]* - For you yourselves are fully aware that the day of the Lord will come like a thief in the night. While people are saying, There is peace and security, then sudden destruction will come upon them as labor pains come upon a pregnant woman, and they will not escape. But you are not in darkness, brothers, for that day to surprise you like a thief. For you are all children of light, children of the day. We are not of the night or of the darkness. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=NASB][Romans 4:20-22]]* - yet, with respect to the promise of God, he did not waver in unbelief (*[[https://biblehub.com/greek/570.htm][570. apistia]]*) but grew strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to perform. Therefore it was also credited to him as righteousness. (NASB)
+#+END_QUOTE
+
+#+BEGIN_SRC text -n :async :results verbatim code :lang text
+  apistia: unbelief
+  Original Word: ἀπιστία, ας, ἡ
+  Part of Speech: Noun, Feminine
+  Transliteration: apistia
+  Phonetic Spelling: (ap-is-tee'-ah)
+  Definition: unbelief
+  Usage: unbelief, unfaithfulness, distrust.
+#+END_SRC
+
+Remain faithful to Jesus:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Acts%2026%3A19&version=ESV][Acts 26:19]]* - Therefore, O King Agrippa, I was not disobedient to the heavenly vision, (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Hebrews%205%3A9-14&version=ESV][Hebrews 5:9-14]]* - And being made perfect, he became the source of eternal salvation to all who obey him, being designated by God a high priest after the order of Melchizedek. About this we have much to say, and it is hard to explain, since you have become dull of hearing. For though by this time you ought to be teachers, you need someone to teach you again the basic principles of the oracles of God. You need milk, not solid food, for everyone who lives on milk is unskilled in the word of righteousness, since he is a child. But solid food is for the mature, for those who have their powers of discernment trained by constant practice to distinguish good from evil. (ESV)
+#+END_QUOTE
+
+Have your mind renewed:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%2012%3A1-2&version=ESV][Romans 12:1-2]]* - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Hebrews%205%3A14&version=ESV][Hebrews 5:14]]* - But solid food is for the mature, for those who have their powers of discernment trained by constant practice to distinguish good from evil. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-21&version=ESV][I Thessalonians 5:20-21]]* - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Isaiah%207%3A14-15&version=ESV][Isaiah 7:14-15]]* - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. He shall eat curds and honey when he knows how to refuse the evil and choose the good. (ESV)
+#+END_QUOTE
 
 Since then I've been trying to follow Jesus' commandments to get to know Him out of love for God, and because He has commanded His disciples to be fruitful for Him, and to abide in Him.
 
