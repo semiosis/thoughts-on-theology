@@ -4830,8 +4830,16 @@ everything you hope to be to the person of Jesus Christ.
 
 For this reason, I think that Bible translations such as the ESV, correctly are reserved about printing the LORD's
 name inline throughout the whole Bible. The JW, as they consolidate their Bible translation (NWT) using the LORD's
-name, seems to me like an effort to try to engineer God, or self-affirm their own understanding, which is
-self-exalting. I do not affirm the NWT translation, but I do affirm the doctrine of Sola Scriptura.
+name, seems to me either like an effort to try to engineer God, or self-affirm their own understanding, which is
+self-exalting but may (especially by those in their congregation) be done in ignorance. I do not affirm the NWT
+translation, but I do affirm the doctrine of Sola Scriptura.
+
+These Scriptures refers to Jesus' name:
+
+  Matthew 18:20 - For where two or three are gathered in my name, there am I among them. (ESV)
+
+  Matthew 18:19-20 - Again I say to you, if two of you agree on earth about anything they ask, it will be done for
+  them by my Father in heaven. For where two or three are gathered in my name, there am I among them. (ESV)
 
 However, I also neither like the way in which the names of other so-called gods are used in other translations of
 Scriptures and I can understand the concern about that:
@@ -4862,13 +4870,24 @@ Pride and insubordination against God is antichrist-like behaviour:
   against every so-called god or object of worship, so that he takes his seat in the temple of God, proclaiming
   himself to be God. (ESV)
 
-Now with regards to the way people should (or shouldn't) act, making money or some other thing more important than
-God to "get ahead" materially, placing burdens on others to fulfill the same material standard, especially on
-those who have their priorities already in the correct order (they are obeying God, and are keeping their heart
-clean) and not lifting a finger to help them but actually make things more difficult (think of the Romans soldier
-offering vinegar to Jesus instead of water while Jesus was saying, "I thirst."). Where Jesus came to help us, shed
-His blood for us as atonement, and to bring us to God. Jesus certainly has made it easier for us to obey God, and
-we can be sanctified by His blood:
+Now with regards to the way people should (or shouldn't) act:
+
+Quote by Tim Keller
+Know what the Bible says: Sin is craving something more than God. Sin is making something more important than God.
+Sin is is living for something more than God. If God is at the periphery of your life, if you're just religious
+occasionally, if God [is] sort of on the outskirts of your life, that is sin. That's the essence of sin.
+
+Bad or anti-christ-like behaviour would be making money or some other thing more important than God to "get ahead"
+materially, placing burdens on others to fulfill the same material standard, especially on those who have their
+priorities already in the correct order (they are obeying God, and are keeping their heart clean) and not lifting
+a finger to help them but actually make things more difficult (think of the Romans soldier offering vinegar to
+Jesus instead of water while Jesus was saying, "I thirst.").
+
+  Luke 23:36-37 - The soldiers also mocked him, coming up and offering him sour wine and saying, If you are the
+  King of the Jews, save yourself! (ESV)
+
+Where Jesus came to help us, shed His blood for us as atonement, and to bring us to God. Jesus certainly has made
+it easier for us to obey God, and we can be sanctified by His blood:
 
   Psalms 69:21 - They gave me poison for food, and for my thirst they gave me sour wine to drink. (ESV)
 
@@ -18920,6 +18939,35 @@ youtube.com: God is the Gospel @time: 45 min 31 sec
 
 Quote from John Piper
 The prosperity gospel is no gospel because what it does is offer to people what they want as natural people.
+
+Amen to that.
+
+The reason we want to be righteous is so we get God, not that we become God but that we abide in God.
+
+God is the Gospel - YouTube @time: 40 min 42 sec
+
+Yes, we must be obedient as He is obedient, but that first act of obedience and the most important one is that we
+allow Jesus to wash us. We must believe, Jesus, trust in Jesus:
+
+  Philippians 2:5-11 - Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the
+  form of God, did not count equality with God a thing to be grasped, but made himself nothing, taking the form of
+  a servant, being born in the likeness of men. And being found in human form, he humbled himself by becoming
+  obedient to the point of death, even death on a cross. Therefore God has highly exalted him and bestowed on him
+  the name that is above every name, so that at the name of Jesus every knee should bow, in heaven and on earth
+  and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+We must accept this teaching:
+
+  John 6:40-47 - For this is the will of my Father, that everyone who looks on the Son and believes in him should
+  have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I
+  am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and
+  mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among
+  yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last
+  day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from
+  the Father comes to me- not that anyone has seen the Father except he who is from God; he has seen the Father.
+  Truly, truly, I say to you, whoever believes has eternal life. (ESV)
+
+AMEN!!
 
 Amen to that.
 
@@ -41442,7 +41490,7 @@ Date: 2024-08-01 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-01 Thu 16:05
+Created: 2024-08-01 Thu 16:38
 
 Validate
 
