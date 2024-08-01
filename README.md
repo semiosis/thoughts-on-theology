@@ -332,7 +332,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga94523d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd1fb4c5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3162,13 +3162,17 @@ like the All Blacks try to please their coach, and we seek to follow the Royal L
 
 For this reason, I think that Bible translations such as the ESV, correctly are reserved about printing the LORD's name inline throughout the whole Bible. The JW, as they consolidate their Bible translation (NWT) using the LORD's name, seems to me either like an effort to try to engineer God, or self-affirm their own understanding, which is self-exalting but may (especially by those in their congregation) be done in ignorance. I do not affirm the NWT translation, but I do affirm the doctrine of [Sola Scriptura](https://www.reformationbiblecollege.org/blog/the-five-solas).
 
+However, I also neither like the way in which the names of other so-called gods are used in other translations of Scriptures and I can understand the concern about that:
+
+> **[Exodus 23:13](https://www.biblegateway.com/passage/?search=Exodus%2023%3A13&version=ESV)** - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor let it be heard on your lips. (ESV)
+
 These Scriptures refers to Jesus' name:
 
 > **[Matthew 18:20](https://www.biblegateway.com/passage/?search=Matthew%2018%3A20&version=ESV)** - For where two or three are gathered in my name, there am I among them. (ESV)
 
 > **[Matthew 18:19-20](https://www.biblegateway.com/passage/?search=Matthew%2018%3A19-20&version=ESV)** - Again I say to you, if two of you agree on earth about anything they ask, it will be done for them by my Father in heaven. For where two or three are gathered in my name, there am I among them. (ESV)
 
-They are right to assert that we must remember God's name. These refer to God's name, Yhvh, and Christians within the English speaking world generally affirm the name is spoken as Jehovah or Yahweh. It's right that we must affirm God's name and remember God's name:
+The JW are right to affirm that we must remember God's name. **[Exodus 3:15](https://www.biblegateway.com/passage/?search=Exodus%203%3A15&version=ESV)** and **Malachi 3:16** refer to God's name, Yhvh, and Christians within the English speaking world generally affirm the name is spoken as Jehovah or Yahweh. It's right that we must affirm God's name and remember God's name:
 
 > **[Exodus 3:15](https://www.biblegateway.com/passage/?search=Exodus%203%3A15&version=ESV)** - God also said to Moses, Say this to the people of Israel, The LORD ([3068. Yhvh](https://biblehub.com/hebrew/3068.htm)), the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. **This is my name forever, and thus I am to be remembered throughout all generations.** (ESV)
 
@@ -3181,9 +3185,11 @@ They are right to assert that we must remember God's name. These refer to God's 
 
 > **[Malachi 3:16](https://www.biblegateway.com/passage/?search=Malachi%203%3A16&version=ESV)** - Then those who feared the LORD spoke with one another. The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. (ESV)
 
-However, I also neither like the way in which the names of other so-called gods are used in other translations of Scriptures and I can understand the concern about that:
+Father God has given Jesus Christ all authority in heaven and on earth. In other words, Jesus Christ is God, just as Jehovah is God and Holy Spirit is God:
 
-> **[Exodus 23:13](https://www.biblegateway.com/passage/?search=Exodus%2023%3A13&version=ESV)** - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor let it be heard on your lips. (ESV)
+> **[Philippians 2:9-10](https://www.biblegateway.com/passage/?search=Philippians%202%3A9-10&version=ESV)** - Therefore God has highly exalted him and bestowed on him the name that is above every name, so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, (ESV)
+
+> **[Matthew 28:18-20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A18-20&version=ESV)** - And Jesus came and said to them, All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
 
 
 ### Christ-like humility
