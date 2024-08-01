@@ -3188,14 +3188,19 @@ Jesus doesn't delay. We must be vigilant and ready to serve Jesus:
   Matthew 24:48 - But if that wicked servant says to himself, My master is delayed, (ESV)
 
 God wants as many people as possible to be saved (I think of this a bit like as 'delaying' the second coming - my
-own speculation on eschatology is just me speculating), but not like delaying Jesus' work. Jesus literally visits
-people imminently in this life time:
+own speculation on eschatology is just me speculating), but not like delaying Jesus' work, as we should be
+vigilant about anticipating Jesus. Jesus does not delay. Jesus literally visits people imminently in this life
+time, and we should also consider the second coming of the Lord Jesus Christ to be imminent:
 
   John 1:12-13 - But as many as received Him, to them He gave the right to become children of God, even to those
   who believe in His name, who were born, not of blood nor of the will of the flesh nor of the will of man, but of
   God. (NASB)
 
   I Timothy 2:4 - who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+
+hymnary.org: All People That on Earth Do Dwell | Hymnary.org
+All people that on earth do dwell, sing to the LORD with cheerful voice; Him serve with mirth, His praise
+forth-tell; come ye before Him and rejoice!
 
   II Peter 3:9 - The Lord is not slow to fulfill his promise as some count slowness, but is patient toward you,
   not wishing that any should perish, but that all should reach repentance. (ESV)
@@ -4824,7 +4829,15 @@ everything you hope to be to the person of Jesus Christ.
 |  AMEN!!
 
 For this reason, I think that Bible translations such as the ESV, correctly are reserved about printing the LORD's
-name inline throughout the whole Bible.
+name inline throughout the whole Bible. The JW, as they consolidate their Bible translation (NWT) using the LORD's
+name, seems to me like an effort to try to engineer God, or self-affirm their own understanding, which is
+self-exalting. I do not affirm the NWT translation, but I do affirm the doctrine of Sola Scriptura.
+
+However, I also neither like the way in which the names of other so-called gods are used in other translations of
+Scriptures and I can understand the concern about that:
+
+  Exodus 23:13 - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor
+  let it be heard on your lips. (ESV)
 
 4.2.5. Christ-like humility
 
@@ -41346,7 +41359,7 @@ Date: 2024-08-01 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-01 Thu 13:12
+Created: 2024-08-01 Thu 13:35
 
 Validate
 
