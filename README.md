@@ -332,7 +332,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7107c66) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga94523d) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3167,6 +3167,19 @@ These Scriptures refers to Jesus' name:
 > **[Matthew 18:20](https://www.biblegateway.com/passage/?search=Matthew%2018%3A20&version=ESV)** - For where two or three are gathered in my name, there am I among them. (ESV)
 
 > **[Matthew 18:19-20](https://www.biblegateway.com/passage/?search=Matthew%2018%3A19-20&version=ESV)** - Again I say to you, if two of you agree on earth about anything they ask, it will be done for them by my Father in heaven. For where two or three are gathered in my name, there am I among them. (ESV)
+
+They are right to assert that we must remember God's name. These refer to God's name, Yhvh, and Christians within the English speaking world generally affirm the name is spoken as Jehovah or Yahweh. It's right that we must affirm God's name and remember God's name:
+
+> **[Exodus 3:15](https://www.biblegateway.com/passage/?search=Exodus%203%3A15&version=ESV)** - God also said to Moses, Say this to the people of Israel, The LORD ([3068. Yhvh](https://biblehub.com/hebrew/3068.htm)), the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. **This is my name forever, and thus I am to be remembered throughout all generations.** (ESV)
+
+    1  Yhvh: the proper name of the God of Israel
+    2  Original Word: יְהוָֹה
+    3  Part of Speech: Proper Name
+    4  Transliteration: Yhvh
+    5  Phonetic Spelling: (yeh-ho-vaw')
+    6  Definition: the proper name of the God of Israel
+
+> **[Malachi 3:16](https://www.biblegateway.com/passage/?search=Malachi%203%3A16&version=ESV)** - Then those who feared the LORD spoke with one another. The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. (ESV)
 
 However, I also neither like the way in which the names of other so-called gods are used in other translations of Scriptures and I can understand the concern about that:
 
