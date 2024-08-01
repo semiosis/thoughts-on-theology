@@ -332,7 +332,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd1fb4c5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org95ac24d) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -19038,15 +19038,69 @@ The new self should be <ins>Christ formed in you:</ins>
 
 > **[Ephesians 3:9-11](https://www.biblegateway.com/passage/?search=Ephesians%203%3A9-11&version=ESV)** - and to bring to light for everyone what is the plan of the mystery hidden for ages in God who created all things, so that through the church the manifold wisdom of God might now be made known to the rulers and authorities in the heavenly places. This was according to <ins>the eternal purpose that he has realized in Christ Jesus</ins> our Lord,
 
-**By** him all things were created. Firstborn here <ins>does not mean</ins> 'created first', but it means <ins>pre-eminent</ins>:
+**By** him all things were created. Firstborn here <ins>does not mean</ins> 'created first', but it means <ins>pre-eminent</ins> and firstborn of the dead:
+
+> **[Colossians 1:15-20](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities — **all things were created through him and for him**. And he is before all things, and **in him all things hold together**. And he is the head of the body, the church. He is the beginning, **the firstborn from the dead**, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
+
+When people say "God can't die, so Jesus is not God" the explanation is that Jesus conquered and sat down with His Father Jehovah on His throne.
+
+Thomas saw God in Jesus Christ, or Jesus Christ as God:
+
+> **[John 20:28](https://www.biblegateway.com/passage/?search=John%2020%3A28&version=ESV)** - Thomas answered him, My Lord and my God! (ESV)
+
+It's very clear that there is some distinction between Father and Son:
+
+> **[John 20:17](https://www.biblegateway.com/passage/?search=John%2020%3A17&version=ESV)** - Jesus said to her, Do not cling to me, for I have not yet ascended to the Father; but go to my brothers and say to them, I am ascending to my Father and your Father, to my God and your God. (ESV)
+
+But Jesus Christ is our Mediator:
+
+> **[I Timothy 2:5](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A5&version=ESV)** - For there is one God, and there is one mediator between God and men, the man Christ Jesus, (ESV)
+
+Jesus still refers to Father God as His God:
+
+> **[Revelation of John 3:12](https://www.biblegateway.com/passage/?search=Revelation%203%3A12&version=ESV)** - The one who conquers, I will make him a pillar in the temple of my God. Never shall he go out of it, and I will write on him the name of my God, and the name of the city of my God, the new Jerusalem, which comes down from my God out of heaven, and my own new name. (ESV)
+
+I think this really clears things up a little bit:
+
+> **[Revelation of John 3:21](https://www.biblegateway.com/passage/?search=Revelation%203%3A21&version=ESV)** - The one who conquers, I will grant him to sit with me on my throne, as I also conquered and sat down with my Father on his throne. (ESV)
+
+We serve the Most High God, Jehovah and Jesus Christ who He has sent:
+
+> **[I Corinthians 8:5-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A5-7&version=ESV)** - For although <ins>there may be so-called gods in heaven or on earth</ins> — *as indeed there are many gods and many lords* — yet **for us there is one God, the Father, from whom are all things and for whom we exist, and one Lord, Jesus Christ, through whom are all things and through whom we exist**. However, not all possess this knowledge. But some, through former association with idols, eat food as really offered to an idol, and their conscience, being weak, is defiled. (ESV)
+
+Jesus has defeated death for himself and all who receive eternal life from Him:
+
+> **[John 3:16](https://www.biblegateway.com/passage/?search=John%203%3A16&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. (ESV)
+
+AMEN!!
+
+That's why we can say that Jesus who his God died and defeated death and sits with His Father who is God. We can still say that God doesn't die because Jesus defeated death:
+
+> **[Revelation of John 1:18](https://www.biblegateway.com/passage/?search=Revelation%201%3A18&version=ESV)** - and the living one. I died, and behold I am alive forevermore, and I have the keys of Death and Hades. (ESV)
+
+But from the perspective of those being made perfect, it may still seem to be rolling out. Jesus from His perspective has already won though and defeated first:
+
+> **[Romans 6:9](https://www.biblegateway.com/passage/?search=Romans%206%3A9&version=ESV)** - We know that **Christ being raised from the dead will never die again; death no longer has dominion over him.** (ESV)
+
+Death will be destroyed for all those who abide in Jesus:
+
+> **[I Corinthians 15:26](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A26&version=ESV)** - The last enemy to be destroyed is death. (ESV)
+
+> **[Hebrews 10:14](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A14&version=ESV)** - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
+
+By faith I believe that Jesus even from my perspective has defeated death because Jesus will never let me go:
+
+> **[John 6:37-39](https://www.biblegateway.com/passage/?search=John%206%3A37-39&version=ESV)** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. For I have come down from heaven, not to do my own will but the will of him who sent me. And this is the will of him who sent me, that I should lose nothing of all that he has given me, but raise it up on the last day. (ESV)
+
+-   **See this:** [youtube.com: Derek Prince - Jesus Is Not Just A Prophet Or A Guru](https://www.youtube.com/watch?v=sRUp1nqIV-w)
 
 > **[Isaiah 43:10](https://www.biblegateway.com/passage/?search=Isaiah%2043%3A10&version=ESV)** - You are my witnesses, declares the LORD, and my servant whom I have chosen, that you may know and believe me and understand that I am he. **Before me no god was formed, nor shall there be any after me.** (ESV)
+
+> **[Colossians 1:18](https://www.biblegateway.com/passage/?search=Colossians%201%3A18&version=ESV)** - And he is the head of the body, the church. He is the beginning, the firstborn from the dead, that in everything he might be preeminent. (ESV)
 
 Jesus is pre-eminent, one with God in the beginning:
 
 > **[John 1:2](https://www.biblegateway.com/passage/?search=John%201%3A2&version=ESV)**: He was in the beginning with God.
-
-> **[Colossians 1:15-20](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities—all things were created through him and for him. And he is before all things, and in him all things hold together. And he is the head of the body, the church. He is the beginning, the firstborn from the dead, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
 
 Being <ins>pre-emintent</ins> one with God in the beginning, Jesus washes us first. Jesus acts first that we may abide in Him, that our works may abide in Him:
 
