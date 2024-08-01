@@ -332,7 +332,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org95ac24d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9de911e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -9903,6 +9903,20 @@ This is what we must come to know in truth - that Jesus came from Father God, an
     
     > **[Hebrews 10:26-29](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-29&version=ESV)** - For if we go on sinning deliberately **after receiving the knowledge of the truth**, there no longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? (ESV)
     
+    Don't live in fear over the warning in **[Hebrews 10:26-29](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-29&version=ESV)**, just continue confessing sin and continue being sanctified:
+    
+    > **[I Corinthians 13:12](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A12&version=ESV)** - For now we see in a mirror dimly, but then face to face. Now I know in part; then I shall know fully, even as I have been fully known. (ESV)
+    
+    Continue to be sanctified by faith in Jesus:
+    
+    > **[Acts 26:18](https://www.biblegateway.com/passage/?search=Acts%2026%3A18&version=ESV)** - to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a place among those who are **sanctified by faith in me.** (ESV)
+    
+    Continue to confess sin:
+    
+    > **[I John 1:9](https://www.biblegateway.com/passage/?search=1%20John%201%3A9&version=ESV)** - If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. (ESV)
+    
+    > **[Hebrews 10:14](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A14&version=ESV)** - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
+    
     To **know** if Jesus' teaching comes from God, one must desire to do God's will.
     
     > **[John 7:17](https://www.biblegateway.com/passage/?search=John%207%3A17&version=ESV)** -  If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am speaking on my own authority.  (ESV)
@@ -16886,7 +16900,7 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 <tbody>
 <tr>
 <td class="org-left">Messiah would resurrect from the dead.</td>
-<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Psalms%2016%3A10&amp;version=ESV">Psalms 16:10</a></b> - For you will not abandon my soul to Sheol, or let your holy one see corruption. (ESV), <b><a href="https://www.biblegateway.com/passage/?search=Psalms%2049%3A15&amp;version=ESV">Psalms 49:15</a></b> - But God will ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)</td>
+<td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Psalms%2016%3A10&amp;version=ESV">Psalms 16:10</a></b> - For <b>you will not abandon my soul to Sheol, or let your holy one see corruption.</b> (ESV), <b><a href="https://www.biblegateway.com/passage/?search=Psalms%2049%3A15&amp;version=ESV">Psalms 49:15</a></b> - But God will ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)</td>
 <td class="org-left"><b><a href="https://www.biblegateway.com/passage/?search=Matthew%2028%3A2-7&amp;version=ESV">Matthew 28:2-7</a></b> - And behold, there was a great earthquake, for an angel of the Lord descended from heaven and came and rolled back the stone and sat on it. His appearance was like lightning, and his clothing white as snow. And for fear of him the guards trembled and became like dead men. But the angel said to the women, Do not be afraid, for I know that you seek Jesus who was crucified. He is not here, for he has risen, as he said. Come, see the place where he lay. Then go quickly and tell his disciples that he has risen from the dead, and behold, he is going before you to Galilee; there you will see him. See, I have told you. (ESV), <b><a href="https://www.biblegateway.com/passage/?search=Acts%202%3A22-32&amp;version=ESV">Acts 2:22-32</a></b> - Men of Israel, hear these words: Jesus of Nazareth, a man attested to you by God with mighty works and wonders and signs that God did through him in your midst, as you yourselves know— this Jesus, delivered up according to the definite plan and foreknowledge of God, you crucified and killed by the hands of lawless men. God raised him up, loosing the pangs of death, because it was not possible for him to be held by it. For David says concerning him, I saw the Lord always before me, for he is at my right hand that I may not be shaken; therefore my heart was glad, and my tongue rejoiced; my flesh also will dwell in hope. For you will not abandon my soul to Hades, or let your Holy One see corruption. You have made known to me the paths of life; you will make me full of gladness with your presence. Brothers, I may say to you with confidence about the patriarch David that he both died and was buried, and his tomb is with us to this day. Being therefore a prophet, and knowing that God had sworn with an oath to him that he would set one of his descendants on his throne, he foresaw and spoke about the resurrection of the Christ, that he was not abandoned to Hades, nor did his flesh see corruption. This Jesus God raised up, and of that we all are witnesses. (ESV)</td>
 </tr>
 </tbody>
@@ -19074,11 +19088,15 @@ Jesus has defeated death for himself and all who receive eternal life from Him:
 
 AMEN!!
 
-That's why we can say that Jesus who his God died and defeated death and sits with His Father who is God. We can still say that God doesn't die because Jesus defeated death:
+That's why we can say that Jesus who is God the Son died and defeated death and sits with His Father who is God the Father, and they are One. We can still say that God doesn't die because Jesus defeated death:
 
 > **[Revelation of John 1:18](https://www.biblegateway.com/passage/?search=Revelation%201%3A18&version=ESV)** - and the living one. I died, and behold I am alive forevermore, and I have the keys of Death and Hades. (ESV)
 
-But from the perspective of those being made perfect, it may still seem to be rolling out. Jesus from His perspective has already won though and defeated first:
+> **[Romans 8:11-13](https://www.biblegateway.com/passage/?search=Romans%208%3A11-13&version=ESV)** - If **the Spirit of him who raised Jesus from the dead** dwells in you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you. So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. (ESV)
+
+> **[Psalms 16:10](https://www.biblegateway.com/passage/?search=Psalms%2016%3A10&version=ESV)** - For **you will not abandon my soul to Sheol, or let your holy one see corruption.** (ESV)
+
+But from the perspective of those currently being sanctified, things may still seem to be rolling out. Jesus, from His perspective, though has already won though and defeated first:
 
 > **[Romans 6:9](https://www.biblegateway.com/passage/?search=Romans%206%3A9&version=ESV)** - We know that **Christ being raised from the dead will never die again; death no longer has dominion over him.** (ESV)
 
