@@ -332,7 +332,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org75017cd) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org78186a7) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -609,9 +609,9 @@ As we hold our faith in God, we understand that He loved us first. As we hold ou
 
 While obedience exists in the heart, as belief does, as **faith is** <ins>believing and obedient</ins> **trust**, works are the actions we do out of that obedience, that love for Jesus, and out of ongoing believing, obedient faith, out of obedience to the Holy Spirit.
 
-The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver. Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
+The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness, believing the word of God, and in obedience we are saved from sinning and try to fulfill the Royal Law, and even using our freedom in Christ to do good works that are pleasing to God:
 
@@ -1904,7 +1904,7 @@ We ***endeavour*** to be justified in Christ - in Christ means abiding in Christ
 
 Abraham's **trusting** faith was counted to him as righteousness. I guess it was counted because he was **fully conviced**, and trusting God. This same justification **will be** counted to those who trust in Go who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification:
 
-> **[Romans 4:20-25](https://www.biblegateway.com/passage/?search=Romans%204%3A20-25&version=ESV)** - No distrust made him waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was counted to him as righteousness. But the words it was counted to him were not written for his sake alone, but for ours also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification. (ESV)
+> **[Romans 4:20-25](https://www.biblegateway.com/passage/?search=Romans%204%3A20-25&version=ESV)** - No distrust (**[apistia](https://biblehub.com/greek/570.htm)**) made him waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was counted to him as righteousness. But the words it was counted to him were not written for his sake alone, but for ours also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification. (ESV)
 
 We believe that our justification comes by faith so we place our trust in God and continue trusting; we just get on with living for God and serving God and trusting in God for that justification as we serve God and live in the peace of God. We don't justify ourselves. We have faith in God that He will/does justify us, and we get on with living for and serving God:
 
@@ -3164,7 +3164,7 @@ For this reason, I think that Bible translations such as the ESV, correctly are 
 
 However, I also neither like the way in which the names of other so-called gods are used in other translations of Scriptures and I can understand the concern about that:
 
-> **Exodus 23:13** - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor let it be heard on your lips. (ESV)
+> **[Exodus 23:13](https://www.biblegateway.com/passage/?search=Exodus%2023%3A13&version=ESV)** - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor let it be heard on your lips. (ESV)
 
 
 ### Christ-like humility
@@ -4747,15 +4747,26 @@ glory to God.
 That's right, and Abraham's faith included:
 
 -   faithfulness
+    -   [No apistia](https://biblehub.com/greek/570.htm)
 -   giving glory to God
 -   obedience
 -   works of faith
 
-What I mean to say is, the trust in God that Abraham had concerning the promise
+What I mean to say is, the faithful trust in God that Abraham had concerning the promise
 of God is exhibited plainly in Abraham's action, and was faithful, enduring,
 unwavering, over an amount of time.
 
-> **[Romans 4:20-25](https://www.biblegateway.com/passage/?search=Romans%204%3A20-25&version=ESV)** - No distrust made him waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was counted to him as righteousness. But the words it was counted to him were not written for his sake alone, but for ours also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification.
+> **[Romans 4:20-25](https://www.biblegateway.com/passage/?search=Romans%204%3A20-25&version=ESV)** - No distrust (**[apistia](https://biblehub.com/greek/570.htm)**) made him waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was counted to him as righteousness. But the words it was counted to him were not written for his sake alone, but for ours also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification.
+
+-   **Interlinear:** [biblehub.com 4-20.htm: Romans 4:20 Interlinear: and at the promise of God did not stagger in unbelief, but was strengthened in faith, having given glory to God,](https://biblehub.com/interlinear/romans/4-20.htm)
+
+    1  apistia: unbelief
+    2  Original Word: ἀπιστία, ας, ἡ
+    3  Part of Speech: Noun, Feminine
+    4  Transliteration: apistia
+    5  Phonetic Spelling: (ap-is-tee'-ah)
+    6  Definition: unbelief
+    7  Usage: unbelief, unfaithfulness, distrust.
 
 Therefore, when we trust wholeheartedly in God who has raised from the dead Jesus Christ (who is our Lord, meaning we obey Him),
 and because we believe, we then inevitably produce working faith.
@@ -7723,7 +7734,7 @@ Confess:
     
     Abraham had **trust**. Abraham had **obedience**. I believe that **trust** is very important to have for faith to be counted as righteousness:
     
-    > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+    > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
     
     > **[I Corinthians 6:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A14&version=ESV)** - And God raised the Lord and will also raise us up by his power. (ESV)
     
@@ -14703,13 +14714,35 @@ AMEN!!
 
 **True** faith (does a person actually believe) is enough, but that means that **no distrust** would cause the person to unwaver. I still think that trust itself elicits obedience. Since God commanded us to place our faith in Him, then to have faith itself is to have begun to obey God.
 
-The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver. Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
+The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (\*apistia**) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
-However, I still think that inheriting the Kingdom and inheriting eternal life involves being obedient to Jesus which leads to true knowledge.
+    1  apistia: unbelief
+    2  Original Word: ἀπιστία, ας, ἡ
+    3  Part of Speech: Noun, Feminine
+    4  Transliteration: apistia
+    5  Phonetic Spelling: (ap-is-tee'-ah)
+    6  Definition: unbelief
+    7  Usage: unbelief, unfaithfulness, distrust.
 
-There is still obedience required. Obedience is intrinsic to faith. Obedience leads to knowledge of Jesus:
+However, I still think that inheriting the Kingdom and inheriting eternal life involves being obedient to Jesus which leads to true knowledge. Obedience to God should naturally flow from faithful trusting in God.
+
+There is still obedience required but to have placed one's trust in God that God will fulfill His promises is sufficient obedience. God works for those who wait on Him:
+
+> **[Isaiah 64:4](https://www.biblegateway.com/passage/?search=Isaiah%2064%3A4&version=ESV)** - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts for those who wait for him. (ESV)
+
+At the end of the day it's what God has done for us and what God does for us, not what we do for Him:
+
+> **[I John 4:10](https://www.biblegateway.com/passage/?search=1%20John%204%3A10&version=ESV)** - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. (ESV)
+
+Love is passed forward. Those who are truly obedient, keep His commandments, but that also means accepting that God loved us first. God is pre-eminent:
+
+> **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
+
+> **[I John 4:19](https://www.biblegateway.com/passage/?search=1%20John%204%3A19&version=ESV)** - We love because he first loved us. (ESV)
+
+Obedience is intrinsic to faith, but the obedient also recognise that love comes from God and God has loved us first through sending His Son to be the propitiation for our sins. Obedience leads to knowledge of Jesus:
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=NASB)** - So Jesus was saying to those Jews who had believed Him, “If you **continue in My word**, then you are truly disciples of Mine; and **you will know the truth**, and the truth will make you free.” (NASB)
 
@@ -14898,7 +14931,7 @@ A person must be at least willing to do His will - obedience is at the essence o
 
 > **[John 7:17](https://www.biblegateway.com/passage/?search=John%207%3A17&version=ESV)** - If anyone is willing to do His will, he will know of the teaching, whether it is of God or whether I speak from Myself.
 
-There is still obedience required. Obedience is intrinsic to faith. Obedience leads to knowledge of Jesus:
+There is still obedience required but to have placed one's trust in God that God will fulfill His promises is sufficient obedience. God works for those who wait on Him:Obedience is intrinsic to faith, but the obedient also recognise that love comes from God and God has loved us first through sending His Son to be the propitiation for our sins. Obedience leads to knowledge of Jesus:
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=NASB)** - So Jesus was saying to those Jews who had believed Him, “If you **continue in My word**, then you are truly disciples of Mine; and **you will know the truth**, and the truth will make you free.” (NASB)
 
@@ -17043,7 +17076,7 @@ Doubt is very contrary to faith, even contrary to obedient faith. Ask in obedien
 
 Abraham had **trust**. Abraham had **obedience**. I believe that **trust** is very important to have for faith to be counted as righteousness:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 Peter's demonstration of obedient faith. Doubt inhibits faith:
 
@@ -17582,7 +17615,7 @@ We must not short-sightedly exchange our invaluable inheritance for immediate re
 
 Trust in God and His promises:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 [oneplace.com why-the-believer-doubts-part-1-1-1172653.html: Why the Believer Doubts, Part 1 {#1} - Listen to Grace to You with John MacArthur, Jul 1, 2024](https://www.oneplace.com/ministries/grace-to-you/listen/why-the-believer-doubts-part-1-1-1172653.html)
 
@@ -28869,7 +28902,7 @@ Jesus Christ is the Word of God who became flesh - this is what I believe - not 
 
 > **[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)** - And **the Word became flesh and dwelt among us**, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (ESV)
 
-> **[Romans 4:20-25](https://www.biblegateway.com/passage/?search=Romans%204%3A20-25&version=ESV)** - No distrust made him waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was counted to him as righteousness. But the words it was counted to him were not written for his sake alone, but for ours also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification. (ESV)
+> **[Romans 4:20-25](https://www.biblegateway.com/passage/?search=Romans%204%3A20-25&version=ESV)** - No distrust (**[apistia](https://biblehub.com/greek/570.htm)**) made him waver concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was counted to him as righteousness. But the words it was counted to him were not written for his sake alone, but for ours also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification. (ESV)
 
 AMEN!!
 
