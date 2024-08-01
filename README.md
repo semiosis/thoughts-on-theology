@@ -332,7 +332,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9e8445c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdb38cfe) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14360,6 +14360,34 @@ I believe though, that the LORD is making an entirely new heavens and a new eart
 > **[Revelation of John 21:1-7](https://www.biblegateway.com/passage/?search=Revelation%2021%3A1-7&version=ESV)** - Then I saw a new heaven and a new earth, for the first heaven and the first earth had passed away, and the sea was no more. And I saw the holy city, new Jerusalem, coming down out of heaven from God, prepared as a bride adorned for her husband. And I heard a loud voice from the throne saying, Behold, the dwelling place of God is with man. He will dwell with them, and they will be his people, and God himself will be with them as their God. He will wipe away every tear from their eyes, and death shall be no more, neither shall there be mourning nor crying nor pain anymore, for the former things have passed away. And he who was seated on the throne said, Behold, I am making all things new. Also he said, Write this down, for these words are trustworthy and true. And he said to me, It is done! I am the Alpha and the Omega, the beginning and the end. To the thirsty I will give from the spring of the water of life without payment. The one who conquers will have this heritage, and I will be his God and he will be my son.
 
 > **[Revelation of John 22:12-14](https://www.biblegateway.com/passage/?search=Revelation%2022%3A12-14&version=ESV)** - Behold, I am coming soon, bringing my recompense with me, to repay everyone for what he has done. I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may enter the city by the gates. (ESV)
+
+
+### Being sanctified in the Truth
+
+Within Christ, Jesus, the head of the body of Christ, has the perfect vision:
+
+> **[Matthew 7:3-5](https://www.biblegateway.com/passage/?search=Matthew%207%3A3-5&version=ESV)** - Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye. (ESV)
+
+Then You have Father God, who as Jesus was in the flesh and at that time, Jesus referred to as having knowledge of the end, which Jesus, God's Son, didn't have in that moment:
+
+> **[Matthew 24:36](https://www.biblegateway.com/passage/?search=Matthew%2024%3A36&version=ESV)** - But concerning that day and hour no one knows, not even the angels of heaven, nor the Son, but the Father only. (ESV)
+
+I believe that Jesus is the Alpha and the Omega. This declaration in Revelation shows that Jesus now sees the end:
+
+> **[Revelation of John 22:13-15](https://www.biblegateway.com/passage/?search=Revelation%2022%3A13-15&version=ESV)** - I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may enter the city by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and everyone who loves and practices falsehood. (ESV)
+
+> **[Acts 7:56](https://www.biblegateway.com/passage/?search=Acts%207%3A56&version=ESV)** - And he said, Behold, I see the heavens opened, and the Son of Man standing at the right hand of God. (ESV)
+
+-   **Song:** [youtube.com: Chris Tomlin - How Great Is Our God {Live In Nashville 2022} ft. Hillsong UNITED](https://youtube.com/watch?v=XV4nOVmWW2A)
+
+> **[Philippians 2:9-11](https://www.biblegateway.com/passage/?search=Philippians%202%3A9-11&version=ESV)** - Therefore God has highly exalted him and bestowed on him **the name that is above every name, so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God the Father.** (ESV)
+
+AMEN!!
+
+Jesus Christ has the name above all names. Jesus Christ is Lord!
+Jesus Christ is Jehovah.
+Jesus Christ is Immanuel.
+AMEN!!
 
 
 ### The Mosaic law is not abolished but Jesus fulfilled it like a prophesy
