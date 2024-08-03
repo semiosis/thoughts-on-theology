@@ -342,7 +342,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7d192fc) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3a75aff) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -7000,6 +7000,35 @@ Also, I have had as of 28 May '24 in my dreams:
 Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God and is Love. I will be still waiting for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God **in the flesh** from heaven to earth". Otherwise I'm simply not going to trust the spirit sending dreams/visions. They can get very tactical sometimes, so I have to be very discerning. Though I will test them because I still get some true visions/dreams sometimes.
 
 > **[I John 4:2-3](https://www.biblegateway.com/passage/?search=1%20John%204%3A2-3&version=ESV)** - By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. (ESV)
+
+Mari Mari Emmanuel loves Jesus and this is a great sermon. I wish I heard and understood this earlier. Mari is speaking a lot of truth here. I can't fact-check the entire thing but it could have brought me up to speed a bit faster I think if I watched it earlier:
+
+-   **[youtube.com: Part 1 Of Works Of The Holy Spirit | Bishop Mari Mari Emmanuel](https://youtube.com/watch?v=MZeznN9yDFY&t=3067):** He (Jesus Christ) is the only one who fulfilled all God's Commandments and laws He is the perfect human, like the Lord said in **[Matthew 5:48](https://www.biblegateway.com/passage/?search=Matthew%205%3A48&version=ESV)** be as perfect as your Heavenly Father is.
+    
+    This man is the perfect one like his Heavenly Father.
+    
+    Therefore this human being can be the
+    Son for God. This human only can be the
+    Son - qualifies to be the Son because he
+    has fulfilled all God's demands, requests,
+    criterias. That's why, lawfully, he
+    qualifies to be the Son. Not in any other
+    way but by law, by law. So no one can challenge his
+    authenticity in any court of law
+    because he has fulfilled all laws.
+    
+    So whenever he stands in any court of law
+    he can stand with his head up, high up,
+    and can say, "Anyone of you can convict me of sin?"
+    No-one. He's the only human being who never
+    broke God's word, because everything in
+    Him was the yes and the AMEN!!
+    
+    We are talking here about the Lord's humanity, not divinity.
+    Divinity is God. He's the perfect God. We're talking
+    about the human being, perfect like God.
+
+> **[Hebrews 7:26-28](https://www.biblegateway.com/passage/?search=Hebrews%207%3A26-28&version=ESV)** - For it was indeed fitting that we should have such a high priest, holy, innocent, unstained, separated from sinners, and exalted above the heavens. He has no need, like those high priests, to offer sacrifices daily, first for his own sins and then for those of the people, since he did this once for all when he offered up himself. For the law appoints men in their weakness as high priests, but the word of the oath, which came later than the law, appoints a Son who has been made perfect forever. (ESV)
 
 > **[I Thessalonians 5:20-22](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A20-22&version=ESV)** - Do not despise prophecies, but test everything; hold fast what is good. Abstain from every form of evil. (ESV)
 
@@ -19808,10 +19837,12 @@ I want to continue in the process of sanctification, and holiness in body and sp
 > **[I Corinthians 9:25-27](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A25-27&version=ESV)** - Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable. So I do not run aimlessly; I do not box as one beating the air. But I discipline my body and keep it under control, lest after preaching to others I myself should be disqualified. (ESV)
 
 
-### We should pick a marriage partner who is in the Lord Jesus and who loves the Lord Jesus
+### Choosing a marriage partner in the Lord Jesus and who loves the Lord Jesus
 
-At this point I just am thankful that Jesus has saved my life, and has been sanctifying me.
-That's what matters.
+At this point I just am thankful that Jesus has saved my life, and has been sanctifying me. That's what matters.
+I kinda want to just develop my relationship with Jesus right now. I desire that for anyone.
+
+> **[Romans 6:4](https://www.biblegateway.com/passage/?search=Romans%206%3A4&version=ESV)** - We were buried therefore with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, we too might walk in **newness of life**. (ESV)
 
 -   **[Quote from Mar Mari Emmanuel](https://youtu.be/11z22HR1KHo?t=3192):** Whenever there is a couple coming for marital
     counseling, I always refer to the Book of
@@ -19871,40 +19902,11 @@ That's what matters.
     8  AMEN!!
 
 The New Covenant is much better than the first covenant, so I'm sure Jesus is enough to sanctify me completely,
-The obvious thing to do right now when my dreams / visions and circumstances are giving me ambiguous and unclear stuff is to do is just choose Jesus, to not lose faith in Jesus, because Jesus is the only one that matters. We're getting married to Jesus after all.
+The obvious thing to do right now when my dreams / visions and circumstances are giving me ambiguous and unclear stuff is to do is just choose Jesus, to not lose faith in Jesus, because keeping faith with Jesus is the most important thing. We're getting married to Jesus after all.
 
 > **[I Corinthians 7:29-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A29-31&version=ESV)** - This is what I mean, brothers: **the appointed time has grown very short. From now on, let those who have wives live as though they had none,** and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and <ins>those who deal with the world as though they had no dealings with it.</ins> For **the present form of this world is passing away**. (ESV)
 
 > **[John 14:23](https://www.biblegateway.com/passage/?search=John%2014%3A23&version=ESV)** - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. (ESV)
-
-Mari Mari Emmanuel loves Jesus and this is a great sermon. I wish I heard and understood this earlier. Mari is speaking a lot of truth here:
-
--   **[youtube.com: Part 1 Of Works Of The Holy Spirit | Bishop Mari Mari Emmanuel](https://youtube.com/watch?v=MZeznN9yDFY&t=3067):** He (Jesus Christ) is the only one who fulfilled all God's Commandments and laws He is the perfect human, like the Lord said in **[Matthew 5:48](https://www.biblegateway.com/passage/?search=Matthew%205%3A48&version=ESV)** be as perfect as your Heavenly Father is.
-    
-    This man is the perfect one like his Heavenly Father.
-    
-    Therefore this human being can be the
-    Son for God. This human only can be the
-    Son - qualifies to be the Son because he
-    has fulfilled all God's demands, requests,
-    criterias. That's why, lawfully, he
-    qualifies to be the Son. Not in any other
-    way but by law, by law. So no one can challenge his
-    authenticity in any court of law
-    because he has fulfilled all laws.
-    
-    So whenever he stands in any court of law
-    he can stand with his head up, high up,
-    and can say, "Anyone of you can convict me of sin?"
-    No-one. He's the only human being who never
-    broke God's word, because everything in
-    Him was the yes and the AMEN!!
-    
-    We are talking here about the Lord's humanity, not divinity.
-    Divinity is God. He's the perfect God. We're talking
-    about the human being, perfect like God.
-
-> **Hebrews 7:26-28** - For it was indeed fitting that we should have such a high priest, holy, innocent, unstained, separated from sinners, and exalted above the heavens. He has no need, like those high priests, to offer sacrifices daily, first for his own sins and then for those of the people, since he did this once for all when he offered up himself. For the law appoints men in their weakness as high priests, but the word of the oath, which came later than the law, appoints a Son who has been made perfect forever. (ESV)
 
 
 ### It's extremely important to respect the institution of marriage, and of marriage proposal
