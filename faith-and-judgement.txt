@@ -314,9 +314,9 @@ God is our life because Christ is our life. Our life is hidden with Christ in Go
   you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also
   will appear with him in glory. (ESV)
 
-Obey God, obey Jesus. This doesn't say that obeying the 10 commandments (to love God and your neighbour in truth
-from the heart is the way to do this) is not important, but it does say that following Jesus (treasuring Jesus,
-His words and putting them into practice) is vitally important:
+Obey God, obey Jesus. This doesn't say that obeying the 10 commandments is not important. To love God and your
+neighbour in truth from the heart is the way to do this. But Mark 10:17-21 does say that following Jesus
+(treasuring Jesus, His words and putting them into practice) is vitally important:
 
   Mark 10:17-21 - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good
   Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good
@@ -8031,9 +8031,9 @@ We don't try to save our worldly life. We seek the Kingdom of God:
 
 AMEN!!
 
-Obey God, obey Jesus. This doesn't say that obeying the 10 commandments (to love God and your neighbour in truth
-from the heart is the way to do this) is not important, but it does say that following Jesus (treasuring Jesus,
-His words and putting them into practice) is vitally important:
+Obey God, obey Jesus. This doesn't say that obeying the 10 commandments is not important. To love God and your
+neighbour in truth from the heart is the way to do this. But Mark 10:17-21 does say that following Jesus
+(treasuring Jesus, His words and putting them into practice) is vitally important:
 
   Mark 10:17-21 - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good
   Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good
@@ -41733,7 +41733,7 @@ Date: 2024-08-03 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-03 Sat 17:50
+Created: 2024-08-03 Sat 18:09
 
 Validate
 
