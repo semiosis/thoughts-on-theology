@@ -3079,7 +3079,7 @@ obedient faith:
   died to the law, so that I might live to God. (ESV)
 
 Abraham's trusting faith was counted to him as righteousness. I guess it was counted because he was fully
-conviced, and trusting God. This same justification will be counted to those who trust in Go who raised from the
+conviced, and trusting God. This same justification will be counted to those who trust in God who raised from the
 dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification:
 
   Romans 4:20-25 - No distrust (apistia) made him waver concerning the promise of God, but he grew strong in his
@@ -20072,13 +20072,114 @@ I'm not exaggerating any of this. It will happen in the right order. And any spi
 especially forces having assets before having a wife I consider to be a spirit of prostitution / people
 trafficking. It's an abomination to me. This antichrist spirit has also been attacking my family and manifesting
 within the household. I feel safe calling it an antichrist spirit because as far as I can tell it's trying to
-eliminate marriage and make it so with money a person can have whatever they want, no matter how depraved:
+eliminate marriage (i.e. rewrite the law of God) and make it so with money a person can have whatever they want,
+no matter how depraved:
 
   Daniel 7:25 - He shall speak words against the Most High, and shall wear out the saints of the Most High, and
   shall think to change the times and the law; and they shall be given into his hand for a time, times, and half a
   time. (ESV)
 
+It's very unbiblical and is a heinous lie that in pleading guilty that the person is surely admitting blame for
+all accusations made against them, especially when I was not allowed barely any input leading right up to the
+court date. It seemed like I was only allowed one of two options "take the conviction (and from the court's eyes
+admit all the slander against me is true) or dishonour Jesus by not obeying Jesus" and I chose to obey Jesus.
+
+God sees the heart and the true reasons, and I was aware God was in the situation with me. A big reason that I
+pleaded guilty was that I can't plead innocence to accusations about how someone felt harassed - who am I to say
+they didn't feel harassed? But I still plead guilty because even 1% guilt regarding the charge is not perfect
+innocence. Only Jesus in that situation could have pleaded totally not guilty, and instead of retaliating Jesus
+let his accusers rend his body on the cross:
+
+  I Samuel 16:7 - But the LORD said to Samuel, Do not look on his appearance or on the height of his stature,
+  because I have rejected him. For the LORD sees not as man sees: man looks on the outward appearance, but the
+  LORD looks on the heart. (ESV)
+
+A quick search of "pleading guilty in New Zealand" will tell you that it is an admission of guilt to the charge -
+well, it might be or it might not be because that depends on what the person's reason for pleading guilty really
+was, and there are reasons a person pleads guilty outside of believing they are guilty of the charge). When I
+pleaded guilty to the charge of harassment I am still in the right to plead guilty - I might be almost entirely
+innocent, but I'm still not committing perjury in pleading guilty because I had insufficient information to plead
+not guilty because pleading not guilty would be pleading perfect innocence and would be selfish, not selfless, and
+Jesus has called His disciples to be selfless.
+
+But to say that pleading guilty is an admission that the full set of facts in the 'summary of facts' is true is, I
+think a heinous lie, and my guilty plea was not an endorsement of the slander against me. There's something very
+antichrist about how the opportunity for "forgiveness" and the opportunity to choose to "take the penalty without
+accepting the truth of the summary of so-called facts" (i.e. being a scapegoat) had been squashed out of the court
+system. But when the judge read my leader which said that I believe the words of Jesus Christ and that Jesus
+Christ is the Truth and that I forgive everyone, and want to be forgiven myself, the judge said, "that is your
+opinion" and spoke a lot of evil slander at me while he was the only one allowed to speak - well I pray God has
+mercy on him when he answers to the Lord for that.
+
+To say that pleading guilty is an admission of all of the accusations against you and accepting the validity of
+the summary of facts is a heinous lie unless it is actually true, and for me it is not true that the reason I
+pleaded guilty is because I believe the summary of facts. I believe the summary of facts was incredibly false, but
+that is just my perspective, and yet I still believe I was right in God's sight to plead guilty.
+
+There was an almost complete absence of truth from my perspective in the accusations made against me, and in the
+unlawful slander made against me after I was convicted was definitely not warranted - it was just pure slander.
+For the summary of facts had been updated when the judge read them out against me, and I had not even seen it had
+been updated, even if my lawyer had access to them, there's no way I could truthfully say that "pleading guilty is
+an admission of guilt to the full set of accusations and an admission that the summary of facts is true". I do not
+want to be a liar or a spreader of slander, so I cannot say the lies were true, and I also want people to stop
+slandering each other. I guess I had to become a bit of a scapegoat:
+
+  John 8:55 - But you have not known him. I know him. If I were to say that I do not know him, I would be a liar
+  like you, but I do know him and I keep his word. (ESV)
+
+Pleading guilty to a charge can be for the sole reason that a person cannot claim perfect innocence:
+
+  Romans 3:23 - for all have sinned and fall short of the glory of God, (ESV)
+
+  I John 1:8 - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+Also, the reason can also be to simply not drag things out!
+
+  Matthew 5:25 - Come to terms quickly with your accuser while you are going with him to court, lest your accuser
+  hand you over to the judge, and the judge to the guard, and you be put in prison. (ESV)
+
+Senselessly hated and persecuted for correct thinking because I've been taken from the world and belong to Jesus
+now:
+
+  John 15:25 - But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)
+
+  John 15:18-20 - If the world hates you, know that it has hated me before it hated you. If you were of the world,
+  the world would love you as its own; but because you are not of the world, but I chose you out of the world,
+  therefore the world hates you. Remember the word that I said to you: A servant is not greater than his master.
+  If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. (ESV)
+
+Our adversary, the accuser, is literally the devil and the devil working through people, not the people
+themselves:
+
+  I Peter 5:8 - Be sober-minded; be watchful. Your adversary the devil prowls around like a roaring lion, seeking
+  someone to devour. (ESV)
+
+  Ephesians 6:12 - For we do not wrestle against flesh and blood, but against the rulers, against the authorities,
+  against the cosmic powers over this present darkness, against the spiritual forces of evil in the heavenly
+  places. (ESV)
+
+Also, the summary of facts was conveniently changed when I made new appearances in court, and the judge spun huge
+amounts of slander against me in court, the slander then became international news. He'll have to answer to God
+for that. The whole thing was antichrist, so I simply made testimony of Jesus in court. There are other reasons a
+person pleads guilty, and one is that the person is abiding by Christ's law to do no harm against their neighbour,
+and another reason is to not put Christ to the test by claiming perfect innocence. I was born-again of Jesus'
+spirit in 2 April 2022, and subsequently charged with a conviction after making a marriage proposal, so the
+conviction now makes it now more difficult to love my neighbour because it's more difficult for me to provide
+financial assistance for my neighbour if it is more difficult to have a job thanks to having a conviction. Satan
+would happily like it if servants of Jesus are deprived of financial income and a bad public image because then
+they're less able to help their neighbour or support themself and their family:
+
   Jehovah God please grant us deliverance from this spirit of antichrist in Jesus Christ's name I ask.
+
+God will give justice for his servants:
+
+  Luke 18:7-8 - And will not God give justice to his elect, who cry to him day and night? , Will he delay long
+  over them? I tell you, he will give justice to them speedily. Nevertheless, when the Son of Man comes, will he
+  find faith on earth? (ESV)
+
+We must obey God first and be faithful to God first rather than men.
+
+  Acts 5:29 - But Peter and the apostles answered, We must obey God rather than men. (ESV)
 
   Galatians 6:1-10 - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him
   in a spirit of gentleness. Keep watch on yourself, lest you too be tempted. Bear one another's burdens, and so
@@ -42587,11 +42688,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-07 Wed 00:00
+Date: 2024-08-09 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-07 Wed 18:12
+Created: 2024-08-09 Fri 12:54
 
 Validate
 
