@@ -20166,8 +20166,8 @@ and another reason is to not put Christ to the test by claiming perfect innocenc
 spirit in 2 April 2022, and subsequently charged with a conviction after making a marriage proposal, so the
 conviction now makes it now more difficult to love my neighbour because it's more difficult for me to provide
 financial assistance for my neighbour if it is more difficult to have a job thanks to having a conviction. Satan
-would happily like it if servants of Jesus are deprived of financial income and a bad public image because then
-they're less able to help their neighbour or support themself and their family:
+would happily like it if servants of Jesus are deprived of financial income and given a bad public image because
+then they're less able to help their neighbour or support themself and their family:
 
   Jehovah God please grant us deliverance from this spirit of antichrist in Jesus Christ's name I ask.
 
@@ -42692,7 +42692,7 @@ Date: 2024-08-09 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-09 Fri 12:54
+Created: 2024-08-09 Fri 13:08
 
 Validate
 
