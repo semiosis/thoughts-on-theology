@@ -5883,7 +5883,9 @@ book Putting Jesus in His Place:The Case for the Deity of Christ published by Kr
 memorable way to do this. Using the acronym H.A.N.D.S., they reason that the Bible teaches that Jesus shares the
 Honour due only to God, that Jesus shares the Attributes of God, that Jesus shares the Names ascribed to God, that
 Jesus does the Deeds that only God can do, and that Jesus is Seated on the throne of God. Here are a few of the
-lines of evidence from the Scriptures that we can draw on. Honour
+lines of evidence from the Scriptures that we can draw on.
+
+H - Honour:
 
 Scripture indicates that God alone is to be worshipped (Deut 6:13; Matt 4:9-10), yet Jesus is worshipped and
 accepts such worship (Matt 14:33; Heb 1:6; Rev 1:17), so who does that mean Jesus truly is? If Jesus were merely
@@ -5893,7 +5895,7 @@ Testament bowed down and worshipped Jesus (i.e. "doubting" Thomas in John 20:28)
 If Jesus were merely human it would be wrong to honour Him as God. Yet devout Jews in the New Testament bowed down
 and worshipped Jesus
 
-Attributes
+A - Attributes:
 
 The Bible tells us that Jesus has the same attributes as God, being: eternal (John 1:1-3; 8:58), all-powerful
 (Matt. 28:18), all-knowing (John 21:17), and loving (Rom 8:35-39). If someone possessed the same characteristics,
@@ -5905,7 +5907,7 @@ Jesus is said to have been given the name that is above every other name (Phil. 
 about who He is. Deeds
 
 Who can do the things that God alone does? Jesus is said to be the creator (John 1:3), the sustainer of all things
-(Heb. 1:2-3), He is sovereign over the forces of nature (Matt. 8:2327), the one who forgives sins (Matt 9:1-8),
+(Heb. 1:2-3), He is sovereign over the forces of nature (Matt. 8:23-27), the one who forgives sins (Matt 9:1-8),
 and even the one who gives life (John 1:4; 5:21). In fact it could be said that everything that God does for us,
 Jesus does for us. How should one respond to such blessings? Seat
 
@@ -20094,32 +20096,115 @@ let his accusers rend his body on the cross:
   because I have rejected him. For the LORD sees not as man sees: man looks on the outward appearance, but the
   LORD looks on the heart. (ESV)
 
-A quick search of "pleading guilty in New Zealand" will tell you that it is an admission of guilt to the charge -
-well, it might be or it might not be because that depends on what the person's reason for pleading guilty really
-was, and there are reasons a person pleads guilty outside of believing they are guilty of the charge). When I
-pleaded guilty to the charge of harassment I am still in the right to plead guilty - I might be almost entirely
-innocent, but I'm still not committing perjury in pleading guilty because I had insufficient information to plead
-not guilty because pleading not guilty would be pleading perfect innocence and would be selfish, not selfless, and
-Jesus has called His disciples to be selfless.
+Firstly, I will say that I pleaded guilty believing I was guilty of the charge in a strict sense, and I still
+think I did the right thing pleading guilty.
 
-But to say that pleading guilty is an admission that the full set of facts in the 'summary of facts' is true is, I
-think a heinous lie, and my guilty plea was not an endorsement of the slander against me. There's something very
-antichrist about how the opportunity for "forgiveness" and the opportunity to choose to "take the penalty without
-accepting the truth of the summary of so-called facts" (i.e. being a scapegoat) had been squashed out of the court
-system. But when the judge read my leader which said that I believe the words of Jesus Christ and that Jesus
-Christ is the Truth and that I forgive everyone, and want to be forgiven myself, the judge said, "that is your
-opinion" and spoke a lot of evil slander at me while he was the only one allowed to speak - well I pray God has
-mercy on him when he answers to the Lord for that.
+- I was guilty of the charge of harassment as far as giving to Caesar that which belongs to Caesar goes (God as
+my witness).
+- Jesus caused offense too to people who wanted to put Him to death, and if He were to admit offense, then
+He would have truthfully admitted offense.
+- I was guilty of other things as far as giving to God that which belongs to God goes (God as my witness).
+- I was taken to court while I was repenting from heresy, repenting from sin and trying to do good. In
+other words I was punished while I had the mindset of doing good and repenting.
+- I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love,
+love one another earnestly from a pure heart, (ESV)
+- It was a good opportunity and natural next step to make testimony of Jesus after being born-again, and also
+Jesus prophetically said this would happen to His disciples:
+- Matthew 10:17-23 - Beware of men, for they will deliver you over to courts and flog you in their
+synagogues, and you will be dragged before governors and kings for my sake, to bear witness before them
+and the Gentiles. When they deliver you over, do not be anxious how you are to speak or what you are to
+say, for what you are to say will be given to you in that hour. For it is not you who speak, but the
+Spirit of your Father speaking through you. Brother will deliver brother over to death, and the father
+his child, and children will rise against parents and have them put to death, and you will be hated by
+all for my name's sake. But the one who endures to the end will be saved. When they persecute you in one
+town, flee to the next, for truly, I say to you, you will not have gone through all the towns of Israel
+before the Son of Man comes. (ESV)
 
-To say that pleading guilty is an admission of all of the accusations against you and accepting the validity of
-the summary of facts is a heinous lie unless it is actually true, and for me it is not true that the reason I
-pleaded guilty is because I believe the summary of facts. I believe the summary of facts was incredibly false, but
-that is just my perspective, and yet I still believe I was right in God's sight to plead guilty.
+I was prepared to serve my sentence when I pleaded guilty, and I had selected community service, but was given
+corrections instead - regardless, the sentence I had accepted in pleading guilty. I was not aware that I would be
+publicly unlawfully slandered, the slander from the press not being anything to do with my sentence.
+
+A quick search of "pleading guilty in New Zealand" will tell you that it is an admission of committing the offence
+charged with - well, the reason might be or it might not be that because it depends on what the person's real
+reason for pleading guilty really was, and there are reasons a person pleads guilty outside of believing they are
+entirely guilty of the charge along with all the so-called facts, and outside of what Community law NZ says). Also
+God's Word is much sharper than man's law, so it's to be expected that NZ law cannot model the justice of God's
+law perfectly, and Christians are supposed to model Christ's love and bear witness of Jesus, not take vengeance
+for themselves, but to pass forward grace and forgiveness.
+
+Community law NZ
+Quote "If you plead guilty it means you agree that you did everything the police say you did, as set out in the
+police "summary of facts", and that you're ready to be sentenced by a judge for it. If you agree with some of
+what's in the summary of facts but not all of it, make sure you tell your lawyer - they might be able to get the
+charges or the summary of facts changed."
+
+Community law NZ
+Quote: "If you plead guilty, this means that you admit committing the offence you have been charged with."
+
+When I pleaded guilty to the charge of harassment I am still in the right to plead guilty - I might be almost
+entirely innocent of the accusations made against me, but I'm still not committing perjury in pleading guilty
+because I had other reasons to plead guilty, and insufficient information to plead not guilty because pleading not
+guilty would be pleading perfect innocence and would be selfish, not selfless, and Jesus has called His disciples
+to be selfless.
+
+Other reasons I had to plead guilty:
+
+- I was remaining faithful to Jesus
+- I was asked a week before Easter if I would plead guilty or not guilty after someone had sent me a
+picture depicting Jesus breaking Himself off the cross, and I don't plan on dishonouring Jesus right
+after being born-again and becoming a disciple of Jesus.
+- I was trying to fulfill Christ's law, bearing the burdens of the other people who had taken me to court.
+- I was seeking to do no harm to my neighbour.
+- I was seeking to be a peacemaker / take the fall for my neighbour.
+- I was repenting from erroneous theology after getting born-again.
+- I was repenting from any public endorsement of gay marriage.
+- I was seeking to emulate Christ's love to the person I wanted to marry instead of do what is antithetical to
+Christian marriage, and I felt like that also meant reneging on the marriage proposal and carrying my cross.
+- Doing what is antithetical to Christian marriage would prove me to be not exercising Christ's love, and
+so, sadly, I had to give up on the prospect of marrying the person I wanted to marry in order to serve
+Jesus most faithfully and love my neighbour as Jesus loved me.
+- What is not done in faith is sin. I could not plead "not guilty" as I could not do so confidently thinking it
+was the right thing to do. To plead not-guilty felt like vindictive behaviour. Blessed are the merciful for
+they will receive meryc.
+- I was not without fault.
+
+But to say that pleading guilty is an admission that the full set of facts in the 'summary of facts' which came
+out the day I pleaded guilty is true is, I think a heinous lie, and my guilty plea was not an endorsement of the
+slander against me. There's something very antichrist about how the opportunity for "forgiveness" and the
+opportunity to choose to "take the penalty without accepting the truth of the summary of so-called facts" (i.e.
+taking the fall) had been squashed out of the court system which was looking to paint one person as entirely
+innocent and one person as guilty (without a trial). But when the judge read my leader which said that I believe
+the words of Jesus Christ which He received from Almighty God and that Jesus Christ is the Truth and that I
+forgive everyone, and want to be forgiven myself, and I want to move on from the person I proposed to and put the
+past behind me, and I pray she recovers completely, the judge said, "that is your opinion" and spoke a lot of evil
+slander at me while he was the only one allowed to speak - well I pray God has mercy on him when he answers to the
+Lord for that. I forgive the judge and everyone involved and ask for forgiveness.
+
+To say that pleading guilty means that the person admits of all of the accusations against them and accepts the
+validity of the summary of facts is a heinous lie unless it is actually true, and for me it cannot be said that I
+had accepted the validity of the summary of facts. I believe the summary of facts was laden with falsehood, and I
+was not given enough opportunity to have my side of events entered into court - I was practically silenced, as I
+was deprived of phone, computer, etc. and deprived of leaving my house almost right up to pleading guilty. Yet I
+still believe that I was right in God's sight and even with regards to the charge to plead guilty, but it was so
+blown out of proportion and there was so much falsehood in the accusations against me that it was sometimes very
+alluring to plead for my innocence.
 
 There was an almost complete absence of truth from my perspective in the accusations made against me, and in the
-unlawful slander made against me after I was convicted was definitely not warranted - it was just pure slander.
-For the summary of facts had been updated when the judge read them out against me, and I had not even seen it had
-been updated, even if my lawyer had access to them, there's no way I could truthfully say that "pleading guilty is
+unlawful slander made against me after I was convicted was definitely not warranted - it was just pure slander,
+and very unhelpful. We are commanded to overcome evil with good and love your enemies. But they were not even my
+enemies. I only ever held love for them:
+
+  Romans 12:21 - Do not be overcome by evil, but overcome evil with good. (ESV)
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+The summary of facts had been updated when the judge read it out against me, and I did not know what it was
+updated with. Even if my lawyer had access to them, there's no way I could truthfully say that "pleading guilty is
 an admission of guilt to the full set of accusations and an admission that the summary of facts is true". I do not
 want to be a liar or a spreader of slander, so I cannot say the lies were true, and I also want people to stop
 slandering each other. I guess I had to become a bit of a scapegoat:
@@ -42692,7 +42777,7 @@ Date: 2024-08-09 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-09 Fri 13:08
+Created: 2024-08-09 Fri 15:12
 
 Validate
 
