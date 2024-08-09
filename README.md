@@ -370,7 +370,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7f6bc53) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb123971) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -10541,6 +10541,8 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 
 ### Salvation by obedience
 
+> **[Acts 5:29-32](https://www.biblegateway.com/passage/?search=Acts%205%3A29-32&version=ESV)** - But Peter and the apostles answered, We must obey God rather than men. The God of our fathers raised Jesus, whom you killed by hanging him on a tree. God exalted him at his right hand as Leader and Savior, to give repentance to Israel and forgiveness of sins. And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey him. (ESV)
+
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
@@ -13668,6 +13670,10 @@ Other reasons I had to plead guilty:
     -   Doing what is antithetical to Christian marriage would prove me to be not exercising Christ's love, and so, sadly, I had to give up on the prospect of marrying the person I wanted to marry in order to serve Jesus most faithfully and love my neighbour as Jesus loved me.
 -   What is not done in faith is sin. I could not plead "not guilty" as I could not do so confidently thinking it was the right thing to do. To plead not-guilty felt like vindictive behaviour. Blessed are the merciful for they will receive meryc.
 -   I was not without fault.
+
+I must obey God rather than obey Christ-denying lawlessness. God as my witness:
+
+> **[Acts 5:29-32](https://www.biblegateway.com/passage/?search=Acts%205%3A29-32&version=ESV)** - But Peter and the apostles answered, **We must obey God rather than men.** The God of our fathers raised Jesus, whom you killed by hanging him on a tree. God exalted him at his right hand as Leader and Savior, to give repentance to Israel and forgiveness of sins. And **we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey him.** (ESV)
 
 But to say that pleading guilty is an admission that the full set of facts in the 'summary of facts' which came out the day I pleaded guilty is true is, I think a heinous lie, and my guilty plea was not an endorsement of the slander against me. There's something very antichrist about how the opportunity for "forgiveness" and the opportunity to choose to "take the penalty without accepting the truth of the summary of so-called facts" (i.e. taking the fall) had been squashed out of the court system which was looking to paint one person as entirely innocent and one person as guilty (without a trial). But when the judge read my letter which said that <ins>I believe the words of Jesus Christ which He received from Almighty God and that Jesus Christ is the Truth and that I forgive everyone</ins>, and want to be forgiven myself, and I want to move on from the person I proposed to and put the past behind me, and I pray she recovers completely, the judge said, "that is your opinion" and spoke a lot of evil slander at me while he was the only one allowed to speak - well I pray God has mercy on him when he answers to the Lord for that. I forgive the judge and everyone involved and ask for forgiveness.
 
@@ -20220,6 +20226,10 @@ Jesus' friends do what Jesus' commands them. Jesus' friends hear His voice:
 > **[John 3:29](https://www.biblegateway.com/passage/?search=John%203%3A29&version=ESV)** - The one who has the bride is the bridegroom. The friend of the bridegroom, who stands and hears him, rejoices greatly at the bridegroom's voice. Therefore this joy of mine is now complete. (ESV)
 
 > **[John 15:14](https://www.biblegateway.com/passage/?search=John%2015%3A14&version=ESV)** - You are my friends if you do what I command you. (ESV)
+
+> **[John 14:15-17](https://www.biblegateway.com/passage/?search=John%2014%3A15-17&version=ESV)** - If you love me, you will keep my commandments. And I will ask the Father, and he will give you another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he dwells with you and will be in you. (ESV)
+
+> **[John 10:5](https://www.biblegateway.com/passage/?search=John%2010%3A5&version=ESV)** - A stranger they will not follow, but they will flee from him, for they do not know the voice of strangers. (ESV)
 
 
 ## Sheep vs goats: Sheep inherit the kingdom of God, goats do not
@@ -28992,6 +29002,8 @@ I believe strongly that outlawing marriage proposal is very close to outlawing G
 and outlawing my writing was punishing faith which is the way in which we are supposed to live.
 
 > **[Hebrews 10:38](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A38&version=ESV)** - but my righteous one shall live by faith, and if he shrinks back, my soul has no pleasure in him. (ESV)
+
+> **[I Corinthians 7:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A1-2&version=ESV)** - Now concerning the matters about which you wrote: It is good for a man not to have sexual relations with a woman. But because of the temptation to sexual immorality, **each man should have his own wife and each woman her own husband.** (ESV)
 
 I also believe that the situation was interfered with by the
 influences of unclean spirits.
