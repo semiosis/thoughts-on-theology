@@ -370,7 +370,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb123971) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd9fc97e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12196,7 +12196,24 @@ Likewise, we should have compassion:
 
 ## Deliverance
 
-Conditions:
+Faith in God is ultimately all you need, like Jesus.
+
+
+### A simple command should work, with faith
+
+> **[Mark 9:25](https://www.biblegateway.com/passage/?search=Mark%209%3A25&version=ESV)** - And when Jesus saw that a crowd came running together, he rebuked the unclean spirit, saying to it, You mute and deaf spirit, I command you, come out of him and never enter him again. (ESV)
+
+
+### Christians can be afflicted by demons
+
+This is a demon of harassment. I've also seemed to be afflicted with a demon of harassment (harassing dreams) and potentially others quite often during the last 2 years as I've become vocal about my testimony of Jesus and trying to follow Jesus. But I'll be getting some deliverance tonight. I command all unclean spirits to come out of me, stay away from me, to leave me and never return or enter me again in Jesus Christ's name:
+
+> **[II Corinthians 12:7](https://www.biblegateway.com/passage/?search=2%20Corinthians%2012%3A7&version=ESV)** - So to keep me from being too elated by the surpassing greatness of the revelations, a thorn was given me in the flesh, a messenger of Satan to harass me, to keep me from being too elated. (ESV)
+
+
+### Deliverance on oneself (according to Derek Prince)
+
+Try to meet these conditions:
 
 1.  Be humble
 2.  Be honest
@@ -12210,11 +12227,17 @@ Conditions:
 > **[Proverbs 28:13](https://www.biblegateway.com/passage/?search=Proverbs%2028%3A13&version=ESV)** - Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them will obtain mercy. (ESV)
 
 
-### Why some people are not delivered
+### Using Jesus' name with faith
+
+The name of Jesus Christ, Messiah, used to cast out a demon from someone who was unwilling:
+
+> **[Acts 16:18](https://www.biblegateway.com/passage/?search=Acts%2016%3A18&version=ESV)** - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
+
+
+### Why some people are not delivered (according to Derek Prince)
 
 For not meeting the conditions.
-It's not so much a test of your spiritual power. It's a test of
-whether or not you've met the conditions.
+It's not so much a test of your spiritual power. It's a test of whether or not you've met the conditions.
 When performing deliverance on others, don't focus on yourself.
 Focus on those people meeting the conditions.
 You may feel yourself a little midget, but you're representing a victorious Christ.
