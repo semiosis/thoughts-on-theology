@@ -370,7 +370,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd9fc97e) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org85e80af) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13642,7 +13642,7 @@ This is about being willing to work or unwilling. I'm definitely willing to work
 
 > **[II Thessalonians 3:1-14](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A1-14&version=ESV)** - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith. But the Lord is faithful. He will establish you and guard you against the evil one. And we have confidence in the Lord about you, that you are doing and will do the things that we command. May the Lord direct your hearts to the love of God and to the steadfastness of Christ. Now we command you, brothers, in the name of our Lord Jesus Christ, that you **keep away from any brother who is walking in idleness and not in accord with the tradition that you received from us.** For you yourselves know how **you ought to imitate us**, because we were not idle when we were with you, nor did we eat anyone's bread without paying for it, but **with toil and labor we worked night and day, that we might not be a burden to any of you.** It was not because we do not have that right, but to give you in ourselves an example to imitate. For even when we were with you, we would give you this command: If anyone is not <ins>willing</ins> to work, let him not eat. For we hear that some among you walk in idleness, not busy at work, but busybodies. Now such persons we command and encourage in the Lord Jesus Christ to do their work quietly and to earn their own living. As for you, brothers, do not grow weary in doing good. If anyone does not obey what we say in this letter, take note of that person, and have nothing to do with him, that he may be ashamed. (ESV)
 
-Being **willing** to work is important as we are not supposed to be a burden on others. 
+Being **willing** to work is important as we are not supposed to be a burden on others.
 
 > **[Galatians 6:2-6](https://www.biblegateway.com/passage/?search=Galatians%206%3A2-6&version=ESV)** - **Bear one another's burdens**, and so fulfill the law of Christ. For if anyone thinks he is something, when he is nothing, he deceives himself. But <ins>let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor.</ins> **For each will have to bear his own load.** One who is taught the word **must share** all good things with the one who teaches. (ESV)
 
@@ -13758,7 +13758,7 @@ God will give justice for his servants:
 
 > **[Luke 18:7-8](https://www.biblegateway.com/passage/?search=Luke%2018%3A7-8&version=ESV)** - And will not God give justice to his elect, who cry to him day and night? , Will he delay long over them? I tell you, he will give justice to them speedily. Nevertheless, when the Son of Man comes, will he find faith on earth? (ESV)
 
-We must obey God first and be faithful to God first rather than men. 
+We must obey God first and be faithful to God first rather than men.
 
 > **[Acts 5:29](https://www.biblegateway.com/passage/?search=Acts%205%3A29&version=ESV)** - But Peter and the apostles answered, We must obey God rather than men. (ESV)
 
@@ -13842,7 +13842,7 @@ Jesus, on His cross said, "I thirst.":
 > 
 > I would love to be working, but I was getting harassed by the work spirit even quickly after being born-again,
 > and the correct thing to do then is to be focused on Jesus, even giving away all possessions and following Jesus, so
-> to say, "Get a job and focus on making money" instead of focus on and follow Jesus is totally antichrist. 
+> to say, "Get a job and focus on making money" instead of focus on and follow Jesus is totally antichrist.
 > 
 > Also, right now I'm in corrections on a sickness benefit
 > as I have been getting harassed by demons nearly every night, and tested throughout the day,
@@ -13892,6 +13892,44 @@ Jesus, on His cross said, "I thirst.":
 Greet those who love us in the faith:
 
 > **[Titus 3:14-15](https://www.biblegateway.com/passage/?search=Titus%203%3A14-15&version=ESV)** - And let our people learn to devote themselves to good works, so as to help cases of urgent need, and not be unfruitful. All who are with me send greetings to you. Greet those who love us in the faith. Grace be with you all. (ESV)
+
+> I received deliverance last night on 10 Aug 2024.
+> 
+> On 3 April 2022, one day after being born-again of the Spirit, there was this message. Amen and Amen to what my pastor has said here:
+> 
+> <https://youtu.be/cn8vXRrf2wo?t=3599>
+> 
+> I had thought that what had happened regarding my first ever marriage proposal was God's grace to me but because I took a stand for Jesus and to repent from error, the enemy tried to quench the Holy Spirit.
+> 
+> I feel like the grace which I received the enemy tried to rob from me, and tried to make marriage look evil, when marriage proposal is good.
+> 
+> **[Daniel 7:25](https://www.biblegateway.com/passage/?search=Daniel%207%3A25&version=ESV)** - He shall speak words against the Most High, and shall wear out the saints of the Most High, and shall think to change the times and the law; and they shall be given into his hand for a time, times, and half a time. (ESV)
+> 
+> Anyway I have written this - it's my testimony along with Bible study:
+> 
+> <https://semiosis.github.io/>
+> 
+> **[Romans 1:17](https://www.biblegateway.com/passage/?search=Romans%201%3A17&version=ESV)** - For in it the righteousness of God is revealed from faith for faith, as it is written, The righteous shall live by faith. (ESV)
+> 
+> **[Deuteronomy 24:5](https://www.biblegateway.com/passage/?search=Deuteronomy%2024%3A5&version=ESV)** - When a man is newly married, he shall not go out with the army or be liable for any other public duty. He shall be free at home one year to be happy with his wife whom he has taken. (ESV).
+> 
+> I don't want to say something good was bad, etc. Truth matters, and I still hold to having forgiven the other side of court as I have prayed last night, however, I'll never be prepared to say what is good is evil when it comes to God's law. Marriage is good and the marriage proposal was good. And the saving gospel word of Truth is known in the heart and it is a personal truth that is aligned with God's Truth. What has come against me is a spirit of slander which had entered the church, which the Holy Spirit inspired me to write about, and the Holy Spirit also inspired me to write about God's law on my heart - and that spirit of slander came against me when I made testimony of Jesus in court in both repenting of theological error as Isaiah 7 and Paul speaks about - throwing out the evil and holding fast to the good as Bruce Elder spoke about too. The marriage proposal was good and it's not getting thrown out.
+> 
+> <https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/>
+> 
+> **[I Corinthians 7:2](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A2&version=ESV)** - But because of the temptation to sexual immorality, each man should have his own wife and each woman her own husband. (ESV)
+> 
+> **[Matthew 19:6](https://www.biblegateway.com/passage/?search=Matthew%2019%3A6&version=ESV)** - So they are no longer two but one flesh. What therefore God has joined together, let not man separate. (ESV)
+> 
+> My baptism in the Holy Spirit recorded:
+> 
+> <https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/>
+> 
+> Born-again:
+> <https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/>
+> 
+> Meeting with the Holy Spirit:
+> <https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/>
 
 
 ### Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
@@ -30452,7 +30490,7 @@ Please, God, forgive us for our blind spots and errors and continue to sanctify 
 
 I forgive everyone <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-24 Wed&gt;</span></span>.
 
-Please, God, continue to sanctify us. 
+Please, God, continue to sanctify us.
 
 
 ## Gospel

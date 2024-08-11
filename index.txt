@@ -20518,6 +20518,60 @@ Greet those who love us in the faith:
   and not be unfruitful. All who are with me send greetings to you. Greet those who love us in the faith. Grace be
   with you all. (ESV)
 
+  I received deliverance last night on 10 Aug 2024.
+
+  On 3 April 2022, one day after being born-again of the Spirit, there was this message. Amen and Amen to what my
+  pastor has said here:
+
+  https://youtu.be/cn8vXRrf2wo?t=3599
+
+  I had thought that what had happened regarding my first ever marriage proposal was God's grace to me but because
+  I took a stand for Jesus and to repent from error, the enemy tried to quench the Holy Spirit.
+
+  I feel like the grace which I received the enemy tried to rob from me, and tried to make marriage look evil,
+  when marriage proposal is good.
+
+  Daniel 7:25 - He shall speak words against the Most High, and shall wear out the saints of the Most High, and
+  shall think to change the times and the law; and they shall be given into his hand for a time, times, and half a
+  time. (ESV)
+
+  Anyway I have written this - it's my testimony along with Bible study:
+
+  https://semiosis.github.io/
+
+  Romans 1:17 - For in it the righteousness of God is revealed from faith for faith, as it is written, The
+  righteous shall live by faith. (ESV)
+
+  Deuteronomy 24:5 - When a man is newly married, he shall not go out with the army or be liable for any other
+  public duty. He shall be free at home one year to be happy with his wife whom he has taken. (ESV).
+
+  I don't want to say something good was bad, etc. Truth matters, and I still hold to having forgiven the other
+  side of court as I have prayed last night, however, I'll never be prepared to say what is good is evil when it
+  comes to God's law. Marriage is good and the marriage proposal was good. And the saving gospel word of Truth is
+  known in the heart and it is a personal truth that is aligned with God's Truth. What has come against me is a
+  spirit of slander which had entered the church, which the Holy Spirit inspired me to write about, and the Holy
+  Spirit also inspired me to write about God's law on my heart - and that spirit of slander came against me when I
+  made testimony of Jesus in court in both repenting of theological error as Isaiah 7 and Paul speaks about -
+  throwing out the evil and holding fast to the good as Bruce Elder spoke about too. The marriage proposal was
+  good and it's not getting thrown out.
+
+  https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/
+
+  I Corinthians 7:2 - But because of the temptation to sexual immorality, each man should have his own wife and
+  each woman her own husband. (ESV)
+
+  Matthew 19:6 - So they are no longer two but one flesh. What therefore God has joined together, let not man
+  separate. (ESV)
+
+  My baptism in the Holy Spirit recorded:
+
+  https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/
+
+  Born-again: https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/
+
+  Meeting with the Holy Spirit:
+  https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/
+
 20.3.6. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
 
   John 7:17-19 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I
@@ -42858,11 +42912,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-10 Sat 00:00
+Date: 2024-08-11 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-10 Sat 23:26
+Created: 2024-08-11 Sun 16:20
 
 Validate
 
