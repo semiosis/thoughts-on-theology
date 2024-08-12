@@ -968,6 +968,27 @@ love to others, the blood of Jesus cleanses us from all sin:
 
   II Corinthians 3:17 - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
 
+youtube.com: Toward Need, Not Comfort: The Blood-Bought Path of the Good Samaritan
+Father, I ask now that [in this room] you would put all of us onto the blood-bought path that leads to eternal
+life, the path of love, the path where we move toward need, not comfort.
+
+youtube.com: God Is Our Savior from What? 1 Timothy 1:1-2, Part 2
+One of the things we're saved from is this awful bent towards sinning.
+
+  Titus 3:3-7 - For we ourselves were once foolish, disobedient, led astray, slaves to various passions and
+  pleasures, passing our days in malice and envy, hated by others and hating one another. But when the goodness
+  and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness,
+  but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured
+  out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs
+  according to the hope of eternal life. (ESV)
+
+We're supposed to arrive at doing the will of God from the heart, loving one another in peace:
+
+  I Timothy 2:1-4 - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be
+  made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life,
+  godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires
+  all people to be saved and to come to the knowledge of the truth. (ESV)
+
 Song
 youtube.com: Jesus All for Jesus {Lyrics}
 
@@ -1086,6 +1107,36 @@ commandments:
   I John 4:20-21 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
   brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
   loves God must also love his brother. (ESV)
+
+Jesus is our brother - He is not ashamed to call those brothers who He sanctifies:
+
+gotquestions.org Jesus-our-brother.html: Is Jesus our brother? | GotQuestions.org
+
+  Hebrews 2:11 - For he who sanctifies and those who are sanctified all have one origin. That is why he is not
+  ashamed to call them brothers, (ESV)
+
+  Romans 8:29 - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order
+  that he might be the firstborn among many brothers. (ESV)
+
+  Mark 3:34-35 - And looking about at those who sat around him, he said, Here are my mother and my brothers!
+  Whoever does the will of God, he is my brother and sister and mother. (ESV)
+
+  Galatians 4:4-5 - But when the fullness of time had come, God sent forth his Son, born of woman, born under the
+  law, to redeem those who were under the law, so that we might receive adoption as sons. (ESV)
+
+  I Corinthians 15:20-23 - But in fact Christ has been raised from the dead, the firstfruits of those who have
+  fallen asleep. For as by a man came death, by a man has come also the resurrection of the dead. For as in Adam
+  all die, so also in Christ shall all be made alive. But each in his own order: Christ the firstfruits, then at
+  his coming those who belong to Christ. (ESV)
+
+The will of Father God is for us to love, trust and obey His Son Jesus Christ:
+
+  II Thessalonians 1:8 - in flaming fire, inflicting vengeance on those who do not know God and on those who do
+  not obey the gospel of our Lord Jesus. (ESV)
+
+  Romans 2:7-8 - to those who by patience in well-doing seek for glory and honor and immortality, he will give
+  eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will
+  be wrath and fury. (ESV)
 
 I confess that Jesus is the Son of God, and I believe that God loved us first and that we must love God and love
 one another:
@@ -2934,6 +2985,14 @@ Even the new believer is not condemned:
 And as we know, no-one in Christ is condemned:
 
   Romans 8:1 - There is therefore now no condemnation for those who are in Christ Jesus.
+
+youtube.com: God Is Our Savior from What? 1 Timothy 1:1-2, Part 2 @time: 5 min 20 sec
+there is therefore now no
+
+condemnation for those who are in Christ Jesus this was the main problem
+
+  Romans 5:9 - Since, therefore, we have now been justified by his blood, much more shall we be saved by him from
+  the wrath of God. (ESV)
 
 We must continue in our faith. We must continue to believe Jesus and trust in Jesus:
 
@@ -6486,6 +6545,12 @@ God still makes apostles and prophetic people:
   by every joint with which it is equipped, when each part is working properly, makes the body grow so that it
   builds itself up in love. (ESV)
 
+Paul was an apostle of Christ Jesus by God's command:
+
+  I Timothy 1:1-2 - Paul, an apostle of Christ Jesus by command of God our Savior and of Christ Jesus our hope, To
+  Timothy, my true child in the faith: Grace, mercy, and peace from God the Father and Christ Jesus our Lord.
+  (ESV)
+
 I myself, after being born-again, have had visions of planting churches in the South Pacific. However, to make
 this more complicated, I've also been going through daily testing and refinement on doctrine, etc. as the Holy
 Spirit has been teaching me and sanctifying me with the Word.
@@ -6510,6 +6575,17 @@ apostle must have Jesus as their cornerstone:
   tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor can a
   diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the fire.
   Thus you will recognize them by their fruits. (ESV)
+
+youtube.com: An Apostle by Command: 1 Timothy 1:1-2, Part 1 @time: 8 min 0 sec
+Paul claims extraordinary authority. Here's what he says in 1 Corinthians 14. If anyone thinks that he's a prophet
+or spiritual (in other words, if somebody claims to be speaking for God or in the spirit) he should acknowledge
+that the things that I as apostle am writing to you are a command of the Lord. If anyone does not recognize this,
+he's not recognized. In other words, Paul claims that his authority trumps vaunted claims to prophecy or
+spirituality. If you don't recognize the authority of the Apostle, you're not recognized.
+
+  Ephesians 2:19-20 - So then you are no longer strangers and aliens, but you are fellow citizens with the saints
+  and members of the household of God, built on the foundation of the apostles and prophets, Christ Jesus himself
+  being the cornerstone, (ESV)
 
 We have the opportunity to receive correction from God and make the tree good and its fruit good:
 
@@ -20093,6 +20169,11 @@ Accepting support is OK when in need, but we should still seek to bear our own l
   serve you. And when I was with you and was in need, I did not burden anyone, for the brothers who came from
   Macedonia supplied my need. So I refrained and will refrain from burdening you in any way. (ESV)
 
+20.3.6. The criminal conviction has made it more difficult to support myself and other people in need
+
+Nevertheless, I do my best to still help others. While the will is there, the wallet isn't anymore because the
+enemy doesn't want me to help people.
+
 I'm willing to work and I would love to have a job and I would love to teach but I've been attacked a lot by
 demons, prevented from teaching due to a conviction, pushed out of churches for following Jesus, had the love of
 my life taken away from me, and been treated like absolute garbage, coming from such poverty that the poverty
@@ -20572,14 +20653,14 @@ Greet those who love us in the faith:
   Meeting with the Holy Spirit:
   https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/
 
-20.3.6. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
+20.3.7. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
 
   John 7:17-19 - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I
   am speaking on my own authority. The one who speaks on his own authority seeks his own glory, but the one who
   seeks the glory of him who sent him is true, and in him there is no falsehood. Has not Moses given you the law?
   Yet none of you keeps the law. Why do you seek to kill me? (ESV)
 
-20.3.7. Pay attention to promptings from the Holy Spirit
+20.3.8. Pay attention to promptings from the Holy Spirit
 
 youtube.com: C.S. Lewis - God is guiding our lives to the best path @time: 17 min 23 sec
 These signs were divine confirmations that God was with Gideon in his mission. Likewise, pay attention to the
@@ -37984,6 +38065,12 @@ To make election sure, and to not fail, one must practice personal righteousness
 One thing is for sure. The elect do not have hard hearts. So I'd say if a person's heart is not totally hard, then
 soften it.
 
+youtube.com: God Is Our Savior from What? 1 Timothy 1:1-2, Part 2 @time: 2 min 3 sec
+He does as an apostle to help people who turn out to be God's elect obtain salvation.
+
+  II Timothy 2:10 - Therefore I endure everything for the sake of the elect, that they also may obtain the
+  salvation that is in Christ Jesus with eternal glory. (ESV)
+
 A heart not easy to be moved with virtuous affections:
 
   Deuteronomy 15:7 - If among you, one of your brothers should become poor, in any of your towns within your land
@@ -42912,11 +42999,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-11 Sun 00:00
+Date: 2024-08-12 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-11 Sun 16:20
+Created: 2024-08-12 Mon 12:13
 
 Validate
 
