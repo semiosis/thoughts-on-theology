@@ -913,12 +913,12 @@ Yeah, I agree with John Piper, for the most part. Loving God is not actually fir
 truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise,
 and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants
 of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate
-love comes before obedience', I prefer to say that 'treasuring God includes obedience, trust, belief, desiring
-God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God
-but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our
-heart. God also commands us to love one another as ourselves, so we should also love and value other people with
-that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our
-number one love.
+love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief,
+desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work
+for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with
+all our heart. God also commands us to love one another as ourselves, so we should also love and value other
+people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to
+make God our number one love.
 
 God wants Him to be our treasure. We must obey Jesus and Jehovah Jireh will provide:
 
@@ -13760,12 +13760,12 @@ Yeah, I agree with John Piper, for the most part. Loving God is not actually fir
 truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise,
 and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants
 of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate
-love comes before obedience', I prefer to say that 'treasuring God includes obedience, trust, belief, desiring
-God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God
-but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our
-heart. God also commands us to love one another as ourselves, so we should also love and value other people with
-that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our
-number one love.
+love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief,
+desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work
+for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with
+all our heart. God also commands us to love one another as ourselves, so we should also love and value other
+people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to
+make God our number one love.
 
 As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
 It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping
@@ -21109,6 +21109,9 @@ Faith which produces love:
   Galatians 5:6 - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith
   working through love. (ESV)
 
+Read
+biblebrodown.com: Faith Produces Love
+
 Faith which fulfills the law:
 
   Galatians 5:14-16 - For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if
@@ -23860,12 +23863,12 @@ Yeah, I agree with John Piper, for the most part. Loving God is not actually fir
 truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him due praise,
 and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants
 of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate
-love comes before obedience', I prefer to say that 'treasuring God includes obedience, trust, belief, desiring
-God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God
-but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our
-heart. God also commands us to love one another as ourselves, so we should also love and value other people with
-that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our
-number one love.
+love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief,
+desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work
+for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with
+all our heart. God also commands us to love one another as ourselves, so we should also love and value other
+people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to
+make God our number one love.
 
 As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
 It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping
@@ -43049,7 +43052,7 @@ Date: 2024-08-12 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-12 Mon 13:09
+Created: 2024-08-12 Mon 16:07
 
 Validate
 
