@@ -10171,20 +10171,18 @@ Jehovah, I have not been known to them;]]
 5.15.19. Faith and law-keeping as a Christian
 
 When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our
-own level of law compliance while we follow Jesus first and foremost.
+own level of law adherence while we follow and adhere to Jesus first and foremost, but we should be being
+sanctified by obedience to the Truth, so we should be becoming more holy and loving and coming to imitate Jesus.
 
 John Piper on Faith and Law-Keeping
 youtube.com: How Our Faith and Law-Keeping Work Together in the Christian Life
-
-We're all going to be judged by the divine standards that we have access to, and everybody has access to divine
-standards that we fall short of:
 
   Romans 2:11-12 - For God shows no partiality. For all who have sinned without the law will also perish without
   the law, and all who have sinned under the law will be judged by the law. (ESV)
 
 It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is
 really talking about how the Law of God is effectively used to judge people. And what's interesting is that it
-seems as though Christ Jesus, God judges the secrets of men, and that happens to all people:
+seems as though, through Christ Jesus, God judges the secrets of men, and that happens to all people:
 
   Romans 2:12-16 - For all who have sinned without the law will also perish without the law, and all who have
   sinned under the law will be judged by the law. For it is not the hearers of the law who are righteous before
@@ -11894,6 +11892,28 @@ want to repent from sin, and stop committing bad deeds:
   Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
 
   Psalms 34:19 - Many are the afflictions of the righteous, but the LORD delivers him out of them all. (ESV)
+
+People who are now in Christ are a new creation, and we should be transitioning into the new. That might take some
+shaking off of old things, and involves being sanctified by obedience to the Truth. But those who are in Christ
+are a brand new creation, born-again:
+
+|  5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
+|  hoste     ei       tis      en       Christo   kaine
+|  ????      ??       ???      ??       ??????  , ?????
+|  Therefore if       anyone   [is] in  Christ    [he is] a new
+|  Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
+| 
+|  2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
+|  ktisis    ta       archaia    parelthen        idou
+|  ??????  . ??       ??????     ????????  ;      ????  ,
+|   creation  The      old things have passed away behold
+|   N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
+|  
+|   1096 [e]            2537 [e]
+|   gegonen             kaina
+|   ???????             ?????  .
+|   has come into being [the] new
+|   V-RIA-3S            Adj-NNP
 
 Our sins were paid for by Jesus' death. Jesus rose from the dead:
 
@@ -32907,7 +32927,7 @@ Instead we focus on following Jesus first and foremost:
   because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
 
 When it comes to following the law as a Christian, it's a matter of being accountable to God personally over
-our own level of law compliance while we follow Jesus first and foremost.
+our own level of law adherence while we follow Jesus first and foremost.
 
 Quote by John Piper
 That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the
@@ -33680,6 +33700,28 @@ A new creation lives for Christ:
   but for him who for their sake died and was raised. From now on, therefore, we regard no one according to the
   flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if
   anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
+
+People who are now in Christ are a new creation, and we should be transitioning into the new. That might take some
+shaking off of old things, and involves being sanctified by obedience to the Truth. But those who are in Christ
+are a brand new creation:
+
+|  5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
+|  hoste     ei       tis      en       Christo   kaine
+|  ????      ??       ???      ??       ??????  , ?????
+|  Therefore if       anyone   [is] in  Christ    [he is] a new
+|  Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
+| 
+|  2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
+|  ktisis    ta       archaia    parelthen        idou
+|  ??????  . ??       ??????     ????????  ;      ????  ,
+|   creation  The      old things have passed away behold
+|   N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
+|  
+|   1096 [e]            2537 [e]
+|   gegonen             kaina
+|   ???????             ?????  .
+|   has come into being [the] new
+|   V-RIA-3S            Adj-NNP
 
   Matthew 20:27-28 - and whoever would be first among you must be your slave, even as the Son of Man came not to
   be served but to serve, and to give his life as a ransom for many. (ESV)
@@ -43052,7 +43094,7 @@ Date: 2024-08-12 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-12 Mon 16:07
+Created: 2024-08-12 Mon 16:37
 
 Validate
 

@@ -370,7 +370,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org102bb60) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7d71236) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -6828,16 +6828,14 @@ Jehovah is God Almighty:
 
 ### Faith and law-keeping as a Christian
 
-When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law compliance
-while we follow Jesus first and foremost.
+When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law adherence
+while we follow and adhere to Jesus first and foremost, but we should be being sanctified by obedience to the Truth, so we should be becoming more holy and loving and coming to imitate Jesus.
 
 -   **John Piper on Faith and Law-Keeping:** [youtube.com: How Our Faith and Law-Keeping Work Together in the Christian Life](https://www.youtube.com/watch?v=clrbUjkbNsM)
 
-We're all going to be judged by the divine standards that we have access to, and everybody has access to divine standards that we fall short of:
-
 > **[Romans 2:11-12](https://www.biblegateway.com/passage/?search=Romans%202%3A11-12&version=ESV)** - For **God shows no partiality**. For all who have sinned without the law will also perish without the law, and all who have sinned under the law will be judged by the law. (ESV)
 
-It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is really talking about how the Law of God is effectively used to judge people. And what's interesting is that it seems as though Christ Jesus, God judges the secrets of men, and that happens to all people:
+It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is really talking about how the Law of God is effectively used to judge people. And what's interesting is that it seems as though, through Christ Jesus, God judges the secrets of men, and that happens to all people:
 
 > **[Romans 2:12-16](https://www.biblegateway.com/passage/?search=Romans%202%3A12-16&version=ESV)** - For all who have sinned without the law will also perish without the law, and all who have sinned under the law will be judged by the law. For it is not the hearers of the law who are righteous before God, but the doers of the law who will be justified. For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law. They show that <ins>the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, God judges the secrets of men by Christ Jesus.</ins> (ESV)
 
@@ -7967,6 +7965,26 @@ We are zealous to do good works, Jesus having redeemed us and given us His Spiri
 > **[Romans 8:1-2](https://www.biblegateway.com/passage/?search=Romans%208%3A1-2&version=ESV)** - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
 
 > **[Psalms 34:19](https://www.biblegateway.com/passage/?search=Psalms%2034%3A19&version=ESV)** - Many are the afflictions of the righteous, but the LORD delivers him out of them all. (ESV)
+
+People who are now in Christ are a new creation, and we should be transitioning into the new. That might take some shaking off of old things, and involves being sanctified by obedience to the Truth. But those who are in Christ are a [brand new creation, born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/):
+
+     1  5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
+     2  hōste     ei       tis      en       Christō   kainē
+     3  ὥστε      εἴ       τις      ἐν       Χριστῷ  , καινὴ
+     4  Therefore if       anyone   [is] in  Christ    [he is] a new
+     5  Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
+     6  
+     7  2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
+     8  ktisis    ta       archaia    parēlthen        idou
+     9  κτίσις  . τὰ       ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,
+    10  creation  The      old things have passed away behold
+    11  N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
+    12  
+    13  1096 [e]            2537 [e]
+    14  gegonen             kaina
+    15  γέγονεν             καινά  .
+    16  has come into being [the] new
+    17  V-RIA-3S            Adj-NNP
 
 Our sins were paid for by Jesus' death. Jesus rose from the dead:
 
@@ -23051,7 +23069,7 @@ The universe is upheld by the word of Jesus' power.
     
     > **[Romans 14:22-23](https://www.biblegateway.com/passage/?search=Romans%2014%3A22-23&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
     
-    When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law compliance
+    When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law adherence
     while we follow Jesus first and foremost.
     
     -   **[Quote by John Piper](https://youtu.be/clrbUjkbNsM?t=701):** That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the law. That is, we keep the commandments, we love. We are doers of the law. Not sinlessly perfect law-keepers. Nobody is nor anybody has been except Jesus, which is why we depend on Him, but rather, radically transformed people, through faith, in the power of the Holy Spirit, leaning on the grace of God that comes to us through Jesus Christ.
@@ -23571,6 +23589,26 @@ We belong to Christ by faith. **If you belong to Christ by faith then you are on
 A new creation lives for Christ:
 
 > **[II Corinthians 5:14-17](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A14-17&version=ESV)** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and <ins>he died for all, that those who live might no longer live for themselves but for him</ins> who for their sake died and was raised. From now on, therefore, we regard no one according to the flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
+
+People who are now in Christ are a new creation, and we should be transitioning into the new. That might take some shaking off of old things, and involves being sanctified by obedience to the Truth. But those who are in Christ are a [brand new creation](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/):
+
+     1  5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
+     2  hōste     ei       tis      en       Christō   kainē
+     3  ὥστε      εἴ       τις      ἐν       Χριστῷ  , καινὴ
+     4  Therefore if       anyone   [is] in  Christ    [he is] a new
+     5  Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
+     6  
+     7  2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
+     8  ktisis    ta       archaia    parēlthen        idou
+     9  κτίσις  . τὰ       ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,
+    10  creation  The      old things have passed away behold
+    11  N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
+    12  
+    13  1096 [e]            2537 [e]
+    14  gegonen             kaina
+    15  γέγονεν             καινά  .
+    16  has come into being [the] new
+    17  V-RIA-3S            Adj-NNP
 
 > **[Matthew 20:27-28](https://www.biblegateway.com/passage/?search=Matthew%2020%3A27-28&version=ESV)** - and whoever would be first among you must be your slave, even as the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
 
