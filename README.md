@@ -370,7 +370,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org15c5b44) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8973b52) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -952,6 +952,18 @@ We have to put sin away after we come to believe in Him:
 A new creation lives for Christ:
 
 > **[II Corinthians 5:14-17](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A14-17&version=ESV)** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and <ins>he died for all, that those who live might no longer live for themselves but for him</ins> who for their sake died and was raised. From now on, therefore, we regard no one according to the flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
+
+Being born-again, my old man died and now my life is hidden with Christ in God, and I'm seated with Him in the heavenly places in Christ:
+
+> **[Colossians 3:3](https://www.biblegateway.com/passage/?search=Colossians%203%3A3&version=ESV)** - For you have died, and your life is hidden with Christ in God. (ESV)
+
+> **[Ephesians 1:3](https://www.biblegateway.com/passage/?search=Ephesians%201%3A3&version=ESV)** - Blessed be the God and Father of our Lord Jesus Christ, who has blessed us in Christ with every spiritual blessing in the heavenly places, (ESV)
+
+> **[Ephesians 2:6](https://www.biblegateway.com/passage/?search=Ephesians%202%3A6&version=ESV)** - and raised us up with him and seated us with him in the heavenly places in Christ Jesus, (ESV)
+
+We have authority in God:
+
+> **[Matthew 28:18-20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A18-20&version=ESV)** - And Jesus came and said to them, All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
 
 > **[Matthew 20:27-28](https://www.biblegateway.com/passage/?search=Matthew%2020%3A27-28&version=ESV)** - and whoever would be first among you must be your slave, even as the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
 
@@ -14158,6 +14170,10 @@ From my perspective it still seems like there is a lot of anti-Jesus sentiment o
 From my perspective, I am very reluctant to believe we have arrived at the point where we can currently say that God is 'all in all people on earth'.
 
 > **[I Corinthians 15:28](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A28&version=ESV)** - When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all. (ESV)
+
+All things are under Jesus' feet. God fills all who are in Christ Jesus:
+
+> **[Ephesians 1:15-23](https://www.biblegateway.com/passage/?search=Ephesians%201%3A15-23&version=ESV)** - For this reason, because I have heard of your faith in the Lord Jesus and your love toward all the saints, I do not cease to give thanks for you, remembering you in my prayers, that the God of our Lord Jesus Christ, the Father of glory, may give you a spirit of wisdom and of revelation in the knowledge of him, having the eyes of your hearts enlightened, that you may know what is the hope to which he has called you, what are the riches of his glorious inheritance in the saints, and what is the immeasurable greatness of his power toward us who believe, according to the working of his great might that he worked in Christ when he raised him from the dead and seated him at his right hand in the heavenly places, far above all rule and authority and power and dominion, and above every name that is named, <ins>not only in this age but also in the one to come.</ins> And **he put all things under his feet and gave him as head over all things to the church, which is his body, the fullness of him who fills all in all.** (ESV)
 
 My main reasons is there is still a lot of sin, idolatry, and lawlessness in the world and a lot of anti-Jesus sentiment. But I still believe that all things **will be** subjected to Him:
 
