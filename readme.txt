@@ -1040,6 +1040,11 @@ confidence:
   I John 3:21-22 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
   we receive from him, because we keep his commandments and do what pleases him. (ESV)
 
+Quote by John Piper
+Christ by his death and resurrection dealt a decisive defeating blow against Satan, he cannot destroy you except
+by tempting you to distrust Jesus and walk in sin. Believe in the triumph that you already have - down payment by
+the spirit in your life and walk in this victory.
+
 As we hold our faith in God, we understand that He loved us first. As we hold our faith in God, we draw closer to
 God as we practice Christ's love towards others:
 
@@ -3414,17 +3419,20 @@ video
 youtube.com: Life or Death by Your Tongue
 
 I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken
-into service by Jesus but also I had much error and my tongue may was not well-bridled. Perhaps I still speak too
-much. I received lots of visions and many of them came from the enemy I believe after I had even been reading
-Apocryphal gospels, then after I had said towards the end of 2022 on my blog that we should get ready for
-Armageddon, war broke out in the middle east soon after. I felt as though I nearly did actually get 'raptured' or
-it was quickly progressing that way or something like that, and then I made a declaration to court that Jesus is
-the Truth, I forgive everyone etc. That resulted in some very rapid changes. Things in my life spiritually began
-to stabilise as I have gone through police corrections and used the time to attend Bible studies, and be corrected
-by the Scripture in my beliefs, obedience and deeds. I'm still trying to be sanctified ongoingly. I am really
-sorry for misleading people with regards to any error in my writings, but the way to handle this, I believe, is
-not to throw the baby out with the bath-water but to be corrected by the word of God. I'm still a work in
-progress.
+into service by Jesus but also I had much error and my tongue may was not well-bridled.
+
+Paul was an Apostle by Command. As for me, I'm just acting on faith after confessing Jesus.
+
+Perhaps I still speak too much. I received lots of visions and many of them came from the enemy I believe after I
+had even been reading Apocryphal gospels which I think are misleading and I do not affirm them. Then, after I had
+said towards the end of 2022 on my blog that we should get ready for Armageddon, war broke out in the middle east
+soon after. I felt as though I nearly did actually get 'raptured' or it was quickly progressing that way or
+something like that, and then I made a declaration to court that Jesus is the Truth, I forgive everyone etc. That
+resulted in some very rapid changes. Things in my life spiritually began to stabilise as I have gone through
+police corrections and used the time to attend Bible studies, and be corrected by the Scripture in my beliefs,
+obedience and deeds. I'm still trying to be sanctified ongoingly. I am really sorry for misleading people with
+regards to any error in my writings, but the way to handle this, I believe, is not to throw the baby out with the
+bath-water but to be corrected by the word of God. I'm still a work in progress.
 
 A friend said this at church the very day after I was born again of the Spirit, " Just because some messages may
 have been wrong, don't quench the work of God's Spirit among you by banning all prophecies, but rather make sure
@@ -3472,7 +3480,7 @@ So in a sense it's been on the verge of the second coming of Christ for quite a 
   all nations, and Jerusalem will be trampled underfoot by the Gentiles, until the times of the Gentiles are
   fulfilled. (ESV)
 
-Those are my current eschatological thoughts.
+Those are my current eschatological thoughts, but I am no expert.
 
 "When Jesus became my Lord and Savior, a battle between good and evil started." as one commenter said on this
 video.
@@ -4574,6 +4582,21 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   I Peter 1:6-7 - In this you rejoice, though now for a little while, if necessary, you have been grieved by
   various trials, so that the tested genuineness of your faith-more precious than gold that perishes though it is
   tested by fire-may be found to result in praise and glory and honor at the revelation of Jesus Christ. (ESV)
+
+3.19.1. By the Spirit Jesus has given us
+
+  II Corinthians 1:22 - and who has also put his seal on us and given us his Spirit in our hearts as a guarantee.
+  (ESV)
+
+  I John 4:13-16 - By this we know that we abide in him and he in us, because he has given us of his Spirit. And
+  we have seen and testify that the Father has sent his Son to be the Savior of the world. Whoever confesses that
+  Jesus is the Son of God, God abides in him, and he in God. So we have come to know and to believe the love that
+  God has for us. God is love, and whoever abides in love abides in God, and God abides in him. (ESV)
+
+  II Timothy 1:7-9 - for God gave us a spirit not of fear but of power and love and self-control. Therefore do not
+  be ashamed of the testimony about our Lord, nor of me his prisoner, but share in suffering for the gospel by the
+  power of God, who saved us and called us to a holy calling, not because of our works but because of his own
+  purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
 
 3.20. Indicators that we are of the truth
 
@@ -5970,6 +5993,9 @@ Basic instructions before leaving earth
 HANDS
 honors, attributes, names, deeds, seat
 
+APEST
+https://ministryvitals.com/the-5-roles-in-apest/
+
 5.4.1. A H.A.N.D.S. Approach to Showing Jesus is God
 
 What reasons do we have for thinking that Jesus is truly God? Robert M. Bowman Jr. and J. Ed Komoszewski in their
@@ -7092,6 +7118,14 @@ obey Him.
 
   Psalms 127:1 - Unless the Lord builds the house, those who build it labor in vain. Unless the Lord watches over
   the city, the watchman stays awake in vain.
+
+  I John 4:10-16 - In this is love, not that we have loved God but that he loved us and sent his Son to be the
+  propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. No one has ever seen
+  God; if we love one another, God abides in us and his love is perfected in us. By this we know that we abide in
+  him and he in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent
+  his Son to be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he
+  in God. So we have come to know and to believe the love that God has for us. God is love, and whoever abides in
+  love abides in God, and God abides in him. (ESV)
 
 5.8.3. As we come to Jesus, we are conformed to His image
 
@@ -12752,24 +12786,26 @@ the beast and worshiped its image. (ESV)
 
 
 
-#                  Bible reference                      Verses to show these commandments are still important
+#                 Bible reference                      Verses to show these commandments are still important
 
-Exodus 20:7 - You shall not take the name of the  James 5:12 - But above all, my brothers, do not swear,
-3  LORD your God in vain, for the LORD will not      either by heaven or by earth or by any other oath, but let
-hold him guiltless who takes his name in vain.    your yes be yes and your no be no, so that you may not fall
-(ESV)                                             under condemnation. (ESV)
-Exodus 20:8-11 - Remember the Sabbath day, to     Genesis 2:3 - So God blessed the seventh day and made it
-keep it holy. Six days you shall labor, and do    holy, because on it God rested from all his work that he
-all your work, but the seventh day is a Sabbath   had done in creation. (ESV) Luke 23:56 - Then they returned
-to the LORD your God. On it you shall not do any  and prepared spices and ointments. On the Sabbath they
-work, you, or your son, or your daughter, your    rested according to the commandment. (ESV) Mark 2:27-28 -
-4  male servant, or your female servant, or your     And he said to them, The Sabbath was made for man, not man
-livestock, or the sojourner who is within your    for the Sabbath. So the Son of Man is lord even of the
-gates. For in six days the LORD made heaven and   Sabbath. (ESV) Colossians 2:16-17 - Therefore let no one
-earth, the sea, and all that is in them, and      pass judgment on you in questions of food and drink, or
-rested the seventh day. Therefore the LORD        with regard to a festival or a new moon or a Sabbath. These
-blessed the Sabbath day and made it holy. (ESV)   are a shadow of the things to come, but the substance
-belongs to Christ. (ESV)
+Exodus 20:7 - You shall not take the name of    James 5:12 - But above all, my brothers, do not swear, either
+3  the LORD your God in vain, for the LORD will    by heaven or by earth or by any other oath, but let your yes
+not hold him guiltless who takes his name in    be yes and your no be no, so that you may not fall under
+vain. (ESV)                                     condemnation. (ESV)
+Genesis 2:3 - So God blessed the seventh day and made it
+Exodus 20:8-11 - Remember the Sabbath day, to   holy, because on it God rested from all his work that he had
+keep it holy. Six days you shall labor, and do  done in creation. (ESV) Luke 23:56 - Then they returned and
+all your work, but the seventh day is a         prepared spices and ointments. On the Sabbath they rested
+Sabbath to the LORD your God. On it you shall   according to the commandment. (ESV) Mark 2:27-28 - And he
+not do any work, you, or your son, or your      said to them, The Sabbath was made for man, not man for the
+4  daughter, your male servant, or your female     Sabbath. So the Son of Man is lord even of the Sabbath. (ESV)
+servant, or your livestock, or the sojourner    Colossians 2:16-17 - Therefore let no one pass judgment on
+who is within your gates. For in six days the   you in questions of food and drink, or with regard to a
+LORD made heaven and earth, the sea, and all    festival or a new moon or a Sabbath. These are a shadow of
+that is in them, and rested the seventh day.    the things to come, but the substance belongs to Christ.
+Therefore the LORD blessed the Sabbath day and  (ESV) Hebrews 10:25 - not neglecting to meet together, as is
+made it holy. (ESV)                             the habit of some, but encouraging one another, and all the
+more as you see the Day drawing near. (ESV)
 
 
 
@@ -14593,15 +14629,16 @@ We must cease to do the devil's will:
   we know him who said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a
   fearful thing to fall into the hands of the living God. (ESV)
 
-Before 2 April 2022, I was especially stuck in sin - all sorts of things: pornography, pride, like the prodigal
-son, but I was also quite oppressed. I hated feeling like I was in a stranglehold of lies where I wasn't able to
-act on anything I believed was true, and in poverty, and so I continued in sin. Some time in 2021, I had begun
-putting my trust in God to work, and trying to keep God's commandments. And on 2 April 2022, I was born-again of
-the Spirit. After that, things had become 'tangibly' spiritual and I was given 'knowledge' that God exists and I
-believed (and still do) that Jesus is God, so that means ever since then I then had a strong belief that Jesus is
-with me and Jesus granted me to keep on holding faith in Him without the full knowledge, which is really cool. So
-now I feel even more urgency with regards to repentance from sin and a desire to be holy. I'm a new creation, so
-I'm not going back to the way things were. Thank You Jesus.
+Before 2 April 2022 when I was born-again and a new creation, I was especially stuck in sin - all sorts of things:
+pornography, pride, like the prodigal son, but I was also quite oppressed. I hated feeling like I was in a
+stranglehold of lies where I wasn't able to act on anything I believed was true, and in poverty, and so I
+continued in sin. Some time in 2021, I had begun putting my trust in God to work, and trying to keep God's
+commandments. And on 2 April 2022, I was born-again of the Spirit. After that, things had become 'tangibly'
+spiritual and I was given 'knowledge' that God exists and I believed (and still do) that Jesus is God, so that
+means ever since then I then had a strong belief that Jesus is with me and Jesus granted me to keep on holding
+faith in Him without the full knowledge, which is really cool. So now I feel even more urgency with regards to
+repentance from sin and a desire to be holy. I'm a new creation, so I'm not going back to the way things were.
+Thank You Jesus.
 
   I Thessalonians 5:20-21 - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
 
@@ -18537,11 +18574,36 @@ Conditions:
  7. Forgive others
  8. Expel - breathe out
 
-18.11.1. Demons are not rare
+18.11.1. We can rebuke the devil with Jesus' authority
+
+youtube.com: Should We Ever Speak Directly to the Devil?
+
+Mark 1:25 we know that Jesus had authority over demons and that he spoke to them like, "Be silent and come out of
+him." And we know that he gave this authority to his disciples in Mark 6:7. He gave them authority over the
+unclean spirits and we know that when the 72 disciples returned, not just the 12, but the 72 disciples returned to
+report about their ministry, they said, "Even the demons are subject to us in your name." The words "in your name"
+mean that that's how they cast out the demons. Jesus cast them out in his own authority, the disciples cast them
+out in the name of Jesus. "Get out in the name of Jesus" is probably what they said.
+
+Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
+spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
+
+So when 1 Peter 5:9 and James 4:7 say that we should resist the devil, I think those commands in I Peter and James
+include those times when the demonic assault on you or your loved one is so plain and so blatant that you should
+say something like, "No, no in the name of Jesus leave me alone." Or, "Leave my child alone in the name of Jesus.
+Be gone Satan, get out of this house."
+
+Then we turn to Christ. Oh yes, we we turn to Christ. This is the step that's probably neglected. At that moment
+we turn to Christ, we turn to the promise of Jesus: "I'll never leave you, I'll never forsake you. I'll always be
+with you. I bought you. You're mine. No one can snatch you out of my hand. I will help you. I'll be your Shield."
+
+  Mark 1:25 - But Jesus rebuked him, saying, Be silent, and come out of him! (ESV)
+
+18.11.2. Demons are not rare
 
   Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
 
-18.11.2. Demons consider a persons' body their home
+18.11.3. Demons consider a persons' body their home
 
 - Sinful thoughts/behaviour attracts demons.
 
@@ -18551,7 +18613,7 @@ Conditions:
   and they enter and dwell there, and the last state of that person is worse than the first. So also will it be
   with this evil generation. (ESV)
 
-18.11.3. Renounce the ungodliness
+18.11.4. Renounce the ungodliness
 
   Titus 2:11-14 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
   ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
@@ -18559,14 +18621,14 @@ Conditions:
   himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
   are zealous for good works. (ESV)
 
-18.11.4. This demon came out within the hour
+18.11.5. This demon came out within the hour
 
 It's often not instantaneous.
 
   Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
   spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
 
-18.11.5. This demon was resistant
+18.11.6. This demon was resistant
 
 After already commanding the unclean spirit to come out of the man, the unclean spirit resisted and then Jesus
 asked the demon its name.
@@ -18590,7 +18652,7 @@ the demon its name.
   spirits came out, and entered the pigs, and the herd, numbering about two thousand, rushed down the steep bank
   into the sea and were drowned in the sea. (ESV)
 
-18.11.6. All believers can cast out demons
+18.11.7. All believers can cast out demons
 
   Mark 16:17 - And these signs will accompany those who believe: in my name they will cast out demons; they will
   speak in new tongues; (ESV)
@@ -18598,7 +18660,7 @@ the demon its name.
   Luke 10:19 - Behold, I have given you authority to tread on serpents and scorpions, and over all the power of
   the enemy, and nothing shall hurt you. (ESV)
 
-18.11.7. We must be spiritually-minded, not earthly-minded
+18.11.8. We must be spiritually-minded, not earthly-minded
 
   I Corinthians 2:14 - The natural person does not accept the things of the Spirit of God, for they are folly to
   him, and he is not able to understand them because they are spiritually discerned. (ESV)
@@ -18608,7 +18670,7 @@ the demon its name.
 
   James 2:26 - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
-18.11.8. Exorcism prayer by Derek Prince
+18.11.9. Exorcism prayer by Derek Prince
 
 Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into
 Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's
@@ -18722,7 +18784,7 @@ encouraged. I think we bear His reproach in order to be sanctified and then call
 |  
 |   Now expel it. Exhale, cough it out.
 
-18.11.9. Prayer by Isaiah Saldivar
+18.11.10. Prayer by Isaiah Saldivar
 
 youtube.com: Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7}
 
@@ -20853,6 +20915,16 @@ sentiment. But I still believe that all things will be subjected to Him:
   Philippians 2:9-11 - Therefore God has highly exalted him and bestowed on him the name that is above every name,
   so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue
   confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+It's all been created by Father God, through Jesus and for Jesus:
+
+  Colossians 1:15-20 - He is the image of the invisible God, the firstborn of all creation. For by him all things
+  were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or
+  authorities-all things were created through him and for him. And he is before all things, and in him all things
+  hold together. And he is the head of the body, the church. He is the beginning, the firstborn from the dead,
+  that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through
+  him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
+  (ESV)
 
 In Christ, there is not Greek and Jew, circumcised and uncircumcised, barbarian, Scythian, slave, free. Outside of
 Christ though, is a different story:
@@ -29631,8 +29703,8 @@ Count the cost:
   he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it
   begin to mock him, (ESV)
 
-I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from these
-demons:
+I pray Jesus continues to wash me, and for the grace to be sanctified and for ultimate deliverance from demonic
+harassment:
 
   Romans 4:7-8 - Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the
   man against whom the Lord will not count his sin. (ESV)
@@ -29681,7 +29753,11 @@ the one that gets you started, it's the one that gets you there, and it's the fi
 what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
 year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation.
+AMEN!! If only someone had told me this first. We're saved from walking in evil ways that we might repent from sin
+and the blood of Jesus helps us to do that.
+
+  Ephesians 4:17 - Now this I say and testify in the Lord, that you must no longer walk as the Gentiles do, in the
+  futility of their minds. (ESV)
 
 It's a serious act of treason when you love other things more than God; When you love something else more than
 God, and do not obey God, and do not believe God and do not turn from doing the will of satan to doing the will of
@@ -33892,8 +33968,8 @@ Jesus is coming a second time to save those who are eagerly waiting for Him. AME
   having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save
   those who are eagerly waiting for him. (ESV)
 
-But I consider that Jesus may have visited me personally to make me born-again and bring me into His service. But
-I also strongly believe this was for my own purification - God's grace to me:
+But I consider that Jesus may have visited me personally to make me born-again and bring me into His service / or
+just into His will. But I also strongly believe this was for my own purification - God's grace to me:
 
   Mark 13:32-37 - But concerning that day or that hour, no one knows, not even the angels in heaven, nor the Son,
   but only the Father. Be on guard, keep awake. For you do not know when the time will come. It is like a man
@@ -40217,9 +40293,9 @@ youtube.com: Sin as Slavery - Timothy Keller Sermon @time: 23 min 7 sec
 Sin will not only destroy your emotions through an eternal tolerance effect but it will destroy your mind. You
 will not be able to think and in the end your will is gone.
 
-Forgiving each other moves mountains (I know Gospel of Thomas is not considered canon, but this saying rings true
-for me, and I believe it means that when two people make peace, they can move mountains. Whether Jesus truly said
-it or not, who knows.):
+Forgiving each other moves mountains (I know Gospel of Thomas is not canon and I don't affirm the gospel of Thomas
+- I think it's misleading, but this saying rings true for me, and I believe it means that when two people make
+peace, they can move mountains. Whether Jesus truly said it or not, who knows):
 
   Thomas 48 - Jesus said: If two make peace with one another in this one house, they will say to the mountain: Be
   removed, and it will be removed.
@@ -43094,7 +43170,7 @@ Date: 2024-08-12 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-12 Mon 16:37
+Created: 2024-08-13 Tue 20:40
 
 Validate
 
