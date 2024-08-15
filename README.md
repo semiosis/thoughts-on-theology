@@ -370,7 +370,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8973b52) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgc52f181) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4872,7 +4872,7 @@ The Holy Spirit leads us:
 
 We must have believing, obedient faith in God regarding Jesus Christ His Son as Abraham had faith in God:
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
@@ -5019,6 +5019,10 @@ That's right, and Abraham's faith included:
 -   giving glory to God
 -   obedience
 -   works of faith
+    -   not works of the law (which came later), but the works of faith such as:
+        -   not accepting gifts from the king of Sodom
+        -   placing Isaac on the Altar
+        -   etc.
 
 What I mean to say is, the faithful trust in God that Abraham had concerning the promise
 of God is exhibited plainly in Abraham's action, and was faithful, enduring,
@@ -6709,9 +6713,11 @@ Jesus makes intercession for those who draw near to God through Him:
 
 > **[Hebrews 7:25](https://www.biblegateway.com/passage/?search=Hebrews%207%3A25&version=ESV)** - Consequently, he is able to save to the uttermost those who draw near to God through him, since he always lives to make intercession for them.
 
-Likewise, **the Holy Spirit** is Almighty God.
+Likewise, **the Holy Spirit** is Almighty God:
 
-> **[Isaiah 48:16-17](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A16-17&version=ESV)** - Draw near to me, hear this: from the beginning I have not spoken in secret, from the time it came to be I have been there. And now the Lord GOD has sent me, and his Spirit. Thus says the LORD, your Redeemer, the Holy One of Israel: I am the LORD your God, who teaches you to profit, who leads you in the way you should go. (ESV)
+> **[Isaiah 48:16-17](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A16-17&version=ESV)** - Draw near to me, hear this: from the beginning I have not spoken in secret, from the time it came to be I have been there. And now the Lord GOD has sent me, and **his Spirit**. Thus says the LORD, your Redeemer, the Holy One of Israel: I am the LORD your God, who teaches you to profit, who leads you in the way you should go. (ESV)
+
+> **[Acts 5:3-4](https://www.biblegateway.com/passage/?search=Acts%205%3A3-4&version=ESV)** - But Peter said, Ananias, why has Satan filled your heart to **lie to the Holy Spirit** and to keep back for yourself part of the proceeds of the land? While it remained unsold, did it not remain your own? And after it was sold, was it not at your disposal? Why is it that you have contrived this deed in your heart? You have **not lied to men but to God**. (ESV)
 
 > **[Matthew 3:16-17](https://www.biblegateway.com/passage/?search=Matthew%203%3A16-17&version=ESV)** - And when Jesus was baptized, immediately he went up from the water, and behold, the heavens were opened to him, and he saw the Spirit of God descending like a dove and coming to rest on him; and behold, a voice from heaven said, This is my beloved Son, with whom I am well pleased. (ESV)
 
@@ -9103,7 +9109,7 @@ And the promise will be ours also, because Jesus is our Lord, and we belong to H
 
 > **[Romans 4:24-25](https://www.biblegateway.com/passage/?search=Romans%204%3A24-25&version=ESV)** - but for ours also. It will be counted to us who believe in him who <ins>raised from the dead Jesus our Lord,</ins> who was delivered up for our trespasses and raised for our justification. (ESV)
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 So what Jesus is saying is quite similar - we must have the faith that Abraham had when he put Isaac on the Altar, but in regards to following Jesus. We must give up our old life to live for Christ:
 
@@ -9129,6 +9135,14 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 ## Justified by grace
 
 > **[Titus 3:7](https://www.biblegateway.com/passage/?search=Titus%203%3A7&version=ESV)** - so that being justified by his grace we might become heirs according to the hope of eternal life. (ESV)
+
+[youtube.com: God Is No Longer Against Us](https://www.youtube.com/watch?v=nWigBlNYbQU)
+
+> **[Romans 5:2](https://www.biblegateway.com/passage/?search=Romans%205%3A2&version=ESV)** - Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+Christ keeps us standing. His grace is actively making us stand:
+
+> **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? It is before his own master that he stands or falls. And he will be upheld, for the Lord is able to make him stand. (ESV)
 
 
 ### Justified by faith following Jesus
@@ -10665,7 +10679,7 @@ If you are believing in Jesus, then you are obediently working.
 
 To be justified, a person must have the faith of Abraham. By faith Abraham obeyed. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 Having faith in God **is** obeying God. Loving God **is** obeying God. AMEN!!
 
@@ -11134,6 +11148,8 @@ And I do not believe the following verse necessarily is merely talking about jus
 [We don't justify ourselves](https://youtu.be/S5E_MqEqk-U?t=606). The lawyer here was desiring to justify himself. God is the justifier. Jesus explains that the one who proved to be a neighbour is the one who showed compassion for and took care of the helpless person, taking care of them with mercy:
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
+
+See: [33.4.1](#org758fe5b)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -11619,7 +11635,7 @@ Works and faith can't exist apart from one another because even to believe in Je
 
 To be justified, a person must have the faith of Abraham. By faith Abraham obeyed. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 So what Jesus is saying is quite similar, I think. We must have the faith of Abraham, but in regards to following Jesus. That being said, around when I was born-again of the spirit, I had only exercised very simple faith - believing God exists, Jesus exists, and exercising faithfulness and obedience to Jesus, believing God sees in secret, and after being like that, struggling with sin, I called out to God for help, and He made me born-again of the Spirit. It was a **total gift and a rescue**:
 
@@ -11749,6 +11765,22 @@ Even the demons are subject to the authority of Jesus Christ, but they certainly
 
 ### Lordship salvation and free grace - an apparent paradox
 
+I see faith alone and working faith as means of becoming a child of Abraham to be **not mutually-exclusive**:
+
+For as many of you as were baptized into Christ have put on Christ - heirs according to promise:
+
+> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+
+You can see here that faith alone and working faith seem to both be ways to be a child of Abraham:
+
+All who `a)` believe without being circumcised (i.e. they are not under the law), and also `b)` those who are circumcised (adhere to the law) but walk in the footsteps of faith that Abraham had before he was circumcised (still walk in faith as Abraham did before circumcision) are <ins>heirs according to promise</ins>:
+
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of **all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
+
+It's obedience which leads to righteousness, even the righteousness of faith:
+
+> **[Romans 6:16](https://www.biblegateway.com/passage/?search=Romans%206%3A16&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of **obedience, which leads to righteousness**? (ESV)
+
 You can't have only half of Jesus. Jesus both protects us and disciplines us:
 
 > **[Psalms 23:4](https://www.biblegateway.com/passage/?search=Psalms%2023%3A4&version=ESV)** - Even though I walk through the valley of the shadow of death, I will fear no evil, for you are with me; <ins>your</ins> **rod** <ins>and your</ins> **staff**, they comfort me. (ESV)
@@ -11765,7 +11797,11 @@ Firstly, I'm not the judge, but I'm going to share my beliefs.
 
 > **[James 4:12](https://www.biblegateway.com/passage/?search=James%204%3A12&version=ESV)** - There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
 
-I believe that if a person has a believing, obedient heart to Jesus, then that is the type of belief which qualifies as belief.
+I believe that if a person has a believing, obedient heart to Jesus, then that is the type of belief which qualifies as belief. Or perhaps disobedience simply leads to a curse but not condemnation:
+
+> **[I Corinthians 16:22](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A22&version=ESV)** - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+We're certainly supposed to trust Jesus and both believe and obey Him.
 
 Heresies/delusions:
 
@@ -11786,9 +11822,15 @@ Heresies/delusions:
     -   Trusting on their own works to appease God's wrath.
     -   Not believing Jesus has done the finished work for their justification
 
-I believe that either of those two heresies/delusions <ins>likely</ins> (but I'm not the judge) fall under this strong delusion category. It's very serious if they indeed do:
+I believe that either of those two heresies/delusions <ins>likely</ins> (but I'm not the judge) fall under this strong delusion category. It's very serious if they indeed do. We must believe the Truth and repent from sinful behaviour and be sanctified by walking in obedience to the Truth if we do not want to perish along with the world:
 
 > **[2 Thessalonians 2:11-13](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A11-13&version=ESV)** - Therefore God sends them a strong delusion, so that they may believe what is false, in order that all may be condemned who did not believe the truth but had pleasure in unrighteousness. But we ought always to give thanks to God for you, brothers beloved by the Lord, because God chose you as the firstfruits to be saved, through **sanctification by the Spirit and belief in the truth.**  (ESV)
+
+> **[I Corinthians 11:32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A32&version=ESV)** - But when we are judged by the Lord, we are disciplined so that we may not be condemned along with the world. (ESV)
+
+> **[II Peter 3:9](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A9&version=ESV)** - The Lord is not slow to fulfill his promise as some count slowness, but is patient toward you, not wishing that any should perish, but that all should reach repentance. (ESV)
+
+> **[Revelation of John 21:8](https://www.biblegateway.com/passage/?search=Revelation%2021%3A8&version=ESV)** - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur, which is the second death. (ESV)
 
 Justified and saved from wrath i.e. has obedient faith:
 
@@ -15039,10 +15081,6 @@ But what does it take for the <ins>heart</ins> to truly believe? Because that's 
 
 More obedience may still need to take place for that individual to arrive at justifying faith, and God may be allowing you to come to your faith.
 
-To be justified, a person must have the faith of Abraham. By faith Abraham obeyed. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
-
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
-
 It does say '**you will be saved**', not '**you are saved**'.
 
 And the word **confess** I think means to admit with repentance - an admission of guilt to God and change of mind resulting in confessing that Jesus is Lord and that God indeed raised Him from the dead, and that you needed Him to do so, because His name means Jesus (The LORD Saves), Christ (Annointed Messiah, Saviour), Son of God.
@@ -15074,6 +15112,46 @@ Jesus helped Thomas believe by giving him a commandment to do. It's implied that
 > **[John 20:29-31](https://www.biblegateway.com/passage/?search=John%2020%3A29-31&version=ESV)** - Jesus said to him, Have you believed because you have seen me? Blessed are those who have not seen and yet have believed.  Now Jesus did many other signs in the presence of the disciples, which are not written in this book; but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name.
 
 > **[Mark 6:11](https://www.biblegateway.com/passage/?search=Mark%206%3A11&version=ESV)** - And if any place will not receive you and they will not listen to you, when you leave, shake off the dust that is on your feet as a testimony against them.
+
+
+### Abraham's faith is a pattern for us
+
+Abraham believed God's promise of his inheritance:
+
+> **[Genesis 12:1-3](https://www.biblegateway.com/passage/?search=Genesis%2012%3A1-3&version=ESV)** - Now the LORD said to Abram, Go from your country and your kindred and your father's house to the land that I will show you. And I will make of you a great nation, and I will bless you and make your name great, so that you will be a blessing. I will bless those who bless you, and him who dishonors you I will curse, and in you all the families of the earth shall be blessed. (ESV)
+
+> **[Genesis 26:4](https://www.biblegateway.com/passage/?search=Genesis%2026%3A4&version=ESV)** - I will multiply your offspring as the stars of heaven and will give to your offspring all these lands. And in your offspring all the nations of the earth shall be blessed, (ESV)
+
+We trust Jesus for our inheritance, which is eternal life:
+
+> **[Matthew 19:29](https://www.biblegateway.com/passage/?search=Matthew%2019%3A29&version=ESV)** - And everyone who has left houses or brothers or sisters or father or mother or children or lands, for my name's sake, will receive a hundredfold and will inherit eternal life. (ESV)
+
+The promise is eternal life which is knowing and never being disconnected from God, our source of life, the One True God, Father God, and Jesus, God's Son:
+
+> **[John 3:16](https://www.biblegateway.com/passage/?search=John%203%3A16&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. (ESV)
+
+> **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
+
+To be justified, a person must have the faith like Abraham's but in Christ Jesus. By faith Abraham trusted God, was faithful to God, believed God and obeyed God. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+I think it is especially necessary for those who are circumcised (under the law) to maintain the faith of Abraham:
+
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+
+-   **Read:** [answersingenesis.org: 2292. Abraham, A Pattern For Believers | Answers in Genesis](https://answersingenesis.org/education/spurgeon-sermons/2292-abraham-pattern-for-believers/)
+
+Abraham is the father of the faithful.
+
+Our faith still follows the pattern of Abraham:
+
+> **[I Peter 3:5-6](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A5-6&version=ESV)** - For this is how the holy women who hoped in God used to adorn themselves, by submitting to their husbands, as Sarah obeyed Abraham, calling him lord. And **you are her children, if you do good and do not fear anything that is frightening**. (ESV)
+
+In Christ Jesus, only faith working through love matters (the type of faith that produces love), not circumcision, nor uncircumcision, but faith in Jesus Christ, working through love:
+
+> **[Galatians 5:2-6](https://www.biblegateway.com/passage/?search=Galatians%205%3A2-6&version=ESV)** - Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through love. (ESV)
+
+The faith which we have that produces love, we have in Christ Jesus our Lord:
+
+> **[Romans 5:1-2](https://www.biblegateway.com/passage/?search=Romans%205%3A1-2&version=ESV)** - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
 
 
 ### Love never ends. Jesus' words never end.
@@ -15319,7 +15397,22 @@ This looks like an interesting resource about that - [Exodus 25-40 The Tabernacl
 
 > [Martin Luther](https://www.goodreads.com/quotes/26222-we-are-saved-by-faith-alone-but-the-faith-that) - “We are saved by faith alone, but the faith that saves is never alone.”
 
-> **[Romans 4:12](https://www.biblegateway.com/passage/?search=Romans%204%3A12&version=ESV)** -  and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.  (ESV)
+> **[Luke 16:16](https://www.biblegateway.com/passage/?search=Luke%2016%3A16&version=ESV)** - The Law and the Prophets were until John; since then the good news of the kingdom of God is preached, and everyone forces his way into it. (ESV)
+
+> **[Galatians 3:19-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A19-29&version=ESV)** - Why then the law? It was added because of transgressions, until the offspring should come to whom the promise had been made, and it was put in place through angels by an intermediary. Now an intermediary implies more than one, but God is one. Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But **the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe**. Now **before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came**, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+
+The Scripture imprisoned everything under sin.
+Before faith came, we were held captive under the law.
+
+Now that faith has come, we are no longer under a guardian, for in Christ Jesus, we are all sons of God through faith.
+
+For as many of you as were baptized into Christ have put on Christ - heirs according to promise:
+
+> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+
+All who `a)` believe without being circumcised (i.e. they are not under the law), and also `b)` those who are circumcised (adhere to the law) but walk in the footsteps of faith that Abraham had before he was circumcised (still walk in faith as Abraham did before circumcision) are <ins>heirs according to promise</ins>:
+
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of **all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
@@ -15331,7 +15424,7 @@ Obedience here led to faith:
 
 Faith eclipses the law:
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 I think someone who trusts in God to save them through saving faith in Jesus Christ, is saved, or is in the process of being saved.
 But keep in mind that someone who truly trusts Jesus will do as Jesus has commanded.
@@ -16657,7 +16750,7 @@ Anyway, see Revelation and you will see Jesus points out different works for dif
 
 To be justified, a person must have the faith of Abraham. By faith Abraham obeyed. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 Salvation is received by faith - which necessitates an obedient heart:
 
@@ -16685,7 +16778,7 @@ Although a gift, salvation must be asked for and sought after:
 
 > **[Hebrews 11:17-19](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A17-19&version=ESV)** - By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises was in the act of offering up his only son, of whom it was said, Through Isaac shall your offspring be named. He considered that God was able even to raise him from the dead, from which, figuratively speaking, he did receive him back.
 
-Like Abraham, a believer's faith may be tested.
+Like Abraham, a believer's faith may be tested:
 
 ***Trust in God.***,
 
@@ -16699,7 +16792,7 @@ Like Abraham, a believer's faith may be tested.
 
 > **[Hebrews 11:13](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A13&version=ESV)** - These all died in faith, not having received the things promised, but having seen them and greeted them from afar, and having acknowledged that they were strangers and exiles on the earth.
 
-Like Abraham, a believer keeps the faith right to the end of their life or until Jesus takes them home.
+Like Abraham, a believer keeps the faith right to the end of their life or until Jesus takes them home:
 
 ***Patient endurance / waiting on God (belief \* time).***
 
@@ -16801,11 +16894,11 @@ Turning.
 
 Faith eclipses the law:
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 > **Galatians 3:21-29** - Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
-The ones under the law who also walk in the footsteps of the faith that Abraham had before he was circumcised, come under the umbrella of the faith of Abraham, which the Gentiles who also share the faith of Abraham are included within.
+<ins>The ones under the law who also walk in the footsteps of the faith that Abraham had before he was circumcised, come under the umbrella of the faith of Abraham</ins>, which the Gentiles who also share the faith of Abraham are included within.
 
     1           Faith (Galatians 3:6-9)
     2         /       \
@@ -16825,9 +16918,15 @@ We can start by believing what God told us through Jesus:
 
 > **[Romans 9:31-32](https://www.biblegateway.com/passage/?search=Romans%209%3A31-32&version=ESV)** - but that Israel who pursued a law that would lead to righteousness did not succeed in reaching that law. Why? Because they <ins>did not pursue it by faith</ins>, but as if it were based on works. They have stumbled over the stumbling stone, (ESV)
 
-The most important thing though is faith because it applies to both the adherent of the law and also the Gentile who has faith.
+The most important thing though is faith because it applies to both the adherent of the law and also the Gentile who has faith. It seems like the adherent of the law must walk in the ways Abraham did before he was circumcised.
 
 > **[Romans 4:16](https://www.biblegateway.com/passage/?search=Romans%204%3A16&version=ESV)** - That is why it depends on faith, in order that the promise may rest on grace and be guaranteed to all his offspring-not only to the adherent of the law but also to the one who shares the **faith of Abraham**, who is the father of us all, (ESV)
+
+> **[Genesis 14:20-15](https://www.biblegateway.com/passage/?search=Genesis%2014%3A20-15&version=ESV):1** - and blessed be God Most High, who has delivered your enemies into your hand! And Abram gave him a tenth of everything. And the king of Sodom said to Abram, Give me the persons, but take the goods for yourself. But Abram said to the king of Sodom, I have lifted my hand to the LORD, God Most High, Possessor of heaven and earth, that I would not take a thread or a sandal strap or anything that is yours, lest you should say, I have made Abram rich. I will take nothing but what the young men have eaten, and the share of the men who went with me. Let Aner, Eshcol, and Mamre take their share. After these things the word of the LORD came to Abram in a vision: Fear not, Abram, I am your shield; your reward shall be very great. (ESV)
+
+Perhaps it is that James was himself circumcised and walked in the way that Abraham did before he was circumcised:
+
+> **[James 2:22-26](https://www.biblegateway.com/passage/?search=James%202%3A22-26&version=ESV)** - You see that faith was active along with his works, and faith was completed by his works; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
 > **[I Corinthians 10:1-5](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-5&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. **For they drank from the spiritual Rock that followed them, and the Rock was Christ**. Nevertheless, with most of them God was not pleased, for they were overthrown in the wilderness.
 
@@ -19379,6 +19478,8 @@ But Christians are not <ins>under</ins> the law while we are led by the Spirit:
 We must abide in Jesus. God doesn't give glory to anyone else. God is love and God is Jehovah and God is Jesus:
 
 > **[Isaiah 42:8](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A8&version=ESV)** - I am the LORD; that is my name; my glory I give to no other, nor my praise to carved idols. (ESV)
+
+-   **God is love, but God has loved us by sending us Jesus:** [youtube.com: God Is No Longer Against Us](https://www.youtube.com/watch?v=nWigBlNYbQU)
 
 
 # The LORD our God and my Lord Jesus Christ
@@ -23631,9 +23732,11 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
+See: [33.4.1](#org758fe5b)
+
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 How do we become sons of Abraham:
 
@@ -27170,7 +27273,7 @@ God can raise up children from anyone who has repentance and may grant being a c
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 We do have the ability to make choices:
 
@@ -28062,7 +28165,7 @@ Jesus Christ is <ins>received</ins> through <ins>faith</ins>:
 
 Receiving is a mixture of believing, obeying, trusting, believing to receive - as Abraham's faith was. The faith to receive Jesus, getting to know Him I think is a span of time (it could be instantaneous to a lengthy period of time), I presume, as a person continues to trust Him:
 
-> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are <ins>not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+> **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
 > **[Galatians 3:7](https://www.biblegateway.com/passage/?search=Galatians%203%3A7&version=ESV)** - Know then that it is those of faith who are the sons of Abraham.
 
