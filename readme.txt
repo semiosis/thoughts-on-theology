@@ -22522,6 +22522,23 @@ I personally am holding out for an entirely new heavens and earth:
   who deal with the world as though they had no dealings with it. For the present form of this world is passing
   away. (ESV)
 
+The first heaven and first earth pass away and there is a new heaven and a new earth with no suffering. In the new
+heaven and new earth, the former things have passed away:
+
+- death is no more, and
+- there is no mourning,
+- nor crying,
+- nor pain.
+
+  Revelation of John 21:1-5 - Then I saw a new heaven and a new earth, for the first heaven and the first earth
+  had passed away, and the sea was no more. And I saw the holy city, new Jerusalem, coming down out of heaven from
+  God, prepared as a bride adorned for her husband. And I heard a loud voice from the throne saying, Behold, the
+  dwelling place of God is with man. He will dwell with them, and they will be his people, and God himself will be
+  with them as their God. He will wipe away every tear from their eyes, and death shall be no more, neither shall
+  there be mourning nor crying nor pain anymore, for the former things have passed away. And he who was seated on
+  the throne said, Behold, I am making all things new. Also he said, Write this down, for these words are
+  trustworthy and true. (ESV)
+
 I believe though, that the LORD is making an entirely new heavens and a new earth.
 
   Isaiah 66:22 - For as the new heavens and the new earth that I makeshall remain before me, says the Lord, so
@@ -43442,7 +43459,7 @@ Date: 2024-08-16 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-16 Fri 12:30
+Created: 2024-08-16 Fri 12:43
 
 Validate
 
