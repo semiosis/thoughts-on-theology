@@ -69,7 +69,7 @@ Because God loved us *first*:
 
 -   The Apostle Paul endeavours to know Jesus ('makes it his own'. See **[Php 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** below) *because Jesus made Paul His own*
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
-    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
+    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgave us first*
 -   We should love because *He loved us first*
     -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
@@ -82,7 +82,13 @@ It's <ins>perfect</ins> self-humbling obedience throughout His sinless life as H
 
 > **[I Corinthians 15:45](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A45&version=ESV)** - Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. (ESV)
 
-We obey the truth. We believe the gospel and obey the truth. We live according to the truth. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience. When we are living in faith in God for His promises we are living in an obedient way. Belief and obedience are not separate things in my opinion, but we must have both obedience and belief in the heart - we must agree that gospel of Jesus is Truth and live in that reality holding faith and being obedient to Jesus and God will make it happen. So living by faith walks according to the will of God with hope in His promises, trust in Jesus and faithfulness-obedience to His commandments, walking in the ways of God seeking God's commendation, trusting in God, and living as though He exists:
+We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to serve/obey Christ. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience. 
+
+> **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
+
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+When we are living in faith in God for His promises we are living in an obedient way. Belief and obedience are not separate things in my opinion, but we must have both obedience and belief in the heart - we must agree that gospel of Jesus is Truth and live in that reality holding faith and being obedient to Jesus and God will make it happen. So living by faith walks according to the will of God with hope in His promises, trust in Jesus and faithfulness-obedience to His commandments, walking in the ways of God seeking God's commendation, trusting in God, and living as though He exists:
 
 > **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
 
@@ -370,7 +376,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb348372) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org25942fb) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -774,7 +780,35 @@ Jesus said to these believers that if they abide in His word (and I believe that
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews <ins>who had believed in him</ins>, **If you abide in my word, you are truly my disciples**, <ins>and you will know the truth, and the truth will set you free.</ins> (ESV)
 
-Bear fruit to prove to be a disciple of Jesus:
+Don't stop believing. We must continue trusting and believing the Truth to be saved:
+
+> **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)** - The ones along the path are those who have heard. Then the devil comes and takes away the word from their hearts, so that they may not believe and be saved. (ESV)
+
+Be grounded in the Truth and able to overcome testing / trial / tribulation:
+
+> **[Luke 8:13](https://www.biblegateway.com/passage/?search=Luke%208%3A13&version=ESV)** - And the ones on the rock are those who, when they hear the word, receive it with joy. But these have no root; they believe for a while, and in time of testing fall away. (ESV)
+
+Continue walking in the light, and does not go back to falling in love with the world. (i.e. they gave up earthly treasure, and in doing so stored up heavenly treasure, and go after Jesus, their Pearl of Great Price), trusting, believing and obeying Jesus:
+
+> **[Luke 8:14](https://www.biblegateway.com/passage/?search=Luke%208%3A14&version=ESV)** - And as for what fell among the thorns, they are those who hear, but as they go on their way they are choked by the cares and riches and pleasures of life, and their fruit does not mature. (ESV)
+
+Holding fast in faith, out of an honest and good heart, bear good fruit including works of righteousness, even remaining steadfast through trial and tribulation:
+
+> **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
+
+> **[Hebrews 10:36](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A36&version=ESV)** - For you have need of endurance, so that when you have done the will of God you may receive what is promised. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+Bearing fruit looks like "walk in a manner worthy of the Lord, fully pleasing to him, bearing fruit in every good work and increasing in the knowledge of God".
+
+> **[Colossians 1:3-12](https://www.biblegateway.com/passage/?search=Colossians%201%3A3-12&version=ESV)** - We always thank God, the Father of our Lord Jesus Christ, when we pray for you, since we heard of your faith in Christ Jesus and of the love that you have for all the saints, because of the hope laid up for you in heaven. Of this you have heard before in the word of the truth, the gospel, which has come to you, as indeed in the whole world it is bearing fruit and growing—as it also does among you, since the day you heard it and understood the grace of God in truth, just as you learned it from Epaphras our beloved fellow servant. He is a faithful minister of Christ on your behalf and has made known to us your love in the Spirit. And so, from the day we heard, we have not ceased to pray for you, asking that you may be filled with the knowledge of his will in all spiritual wisdom and understanding, so as to **walk in a manner worthy of the Lord, fully pleasing to him, bearing fruit in every good work and increasing in the knowledge of God.** May you be strengthened with all power, according to his glorious might, for all endurance and patience with joy, giving thanks to the Father, who has qualified you to share in the inheritance of the saints in light. (ESV)
+
+Right after the parable of the soil, Jesus says this:
+
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+Bear good fruit to prove to be a disciple of Jesus:
 
 > **[John 15:8](https://www.biblegateway.com/passage/?search=John%2015%3A8&version=ESV)** - By this my Father is glorified, that you bear much fruit and so prove to be my disciples. (ESV)
 
@@ -1092,12 +1126,12 @@ OK, so the Spirit is received through faith (faith like Abraham's) in Jesus Chri
 
 > As interesting as the parallels (similitudes or anti-similitudes) are with my own testimony, I believe there are distortions in the Mormon interpretation. Even in here, the Mormans have suggested faith like Isaac's. Now I had gone into court willingly after being born-again as I held my faith in Jesus and submitted to the authorities, but not perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not man, the whole thing felt outside of my control (extremely graceless), and I was under clear impression especially later in 2022 that I was battling an antichrist spirit:
 > 
-> -   **I think this Mormon doctrine shows interesting parallels (similitudes or anti-similitudes) with my own testimony but I disagree with their way of interpreting this:** [thechurchnews.com: Isaac: Child of the promise and heir of the promises - Church News (Mormonism)](https://www.thechurchnews.com/1994/5/7/23257073/isaac-child-of-the-promise-and-heir-of-the-promises/)
-> 
-> So through obedience to the gospel, I came into the light, I pleaded guilty, I made testimony of Jesus, etc. <ins>"whoever would save his life will lose it, but whoever loses his life for my sake will find it."</ins> This is Biblical gospel teaching, that through faith in Jesus we may be saved, and I disagree with the Mormans' interpretation.
-> 
-> -   **[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)** - But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
-> -   **[Matthew 16:25](https://www.biblegateway.com/passage/?search=Matthew%2016%3A25&version=ESV)** - For whoever would save his life will lose it, but whoever loses his life for my sake will find it. (ESV)
+> -   **I think this Mormon doctrine shows interesting parallels or similarities with my own testimony but I disagree with their way of interpreting this:** [thechurchnews.com: Isaac: Child of the promise and heir of the promises - Church News (Mormonism)](https://www.thechurchnews.com/1994/5/7/23257073/isaac-child-of-the-promise-and-heir-of-the-promises/)
+>     
+>     So through obedience to the gospel, I came into the light, I pleaded guilty, I made testimony of Jesus, etc. <ins>"whoever would save his life will lose it, but whoever loses his life for my sake will find it."</ins> This is Biblical gospel teaching, that through faith in Jesus we may be saved, and I disagree with the Mormans' interpretation.
+>     
+>     -   **[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)** - But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+>     -   **[Matthew 16:25](https://www.biblegateway.com/passage/?search=Matthew%2016%3A25&version=ESV)** - For whoever would save his life will lose it, but whoever loses his life for my sake will find it. (ESV)
 
 We are found in Christ by having faith in Christ and putting on Christ. This was my behaviour during 2022 after being born-again. I was acting obediently and in faith knowing I was born-again and saved already and had to pass on love and forgiveness, and also repent from error - all of these:
 
@@ -4765,6 +4799,10 @@ I desire You, Lord Jesus Christ! Please, God, let me always believe in You!
 
 Stay thirsty people!
 
+> **[Luke 8:6](https://www.biblegateway.com/passage/?search=Luke%208%3A6&version=ESV)** - And some fell on the rock, and as it grew up, it withered away, because it had no **moisture**. (ESV)
+
+> **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)** - The ones along the path are those who have heard. Then the devil comes and takes away the word from their hearts, so that they may not **believe and be saved**. (ESV)
+
 
 ### Belief leads to obedience, which leads to knowledge of the Truth
 
@@ -5575,7 +5613,7 @@ The will of God:
 -   Be transformed by the renewal of your mind
     -   **[Romans 12:2](https://www.biblegateway.com/passage/?search=Romans%2012%3A2&version=ESV)** - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
     -   We must take every thought captive to be obedient to Christ
-        -   **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is complete. (ESV)
+        -   **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and **take every thought captive to obey Christ**, being ready to punish every disobedience, when your obedience is complete. (ESV)
     -   We want our mind to be the mind of Christ
         -   **[I Corinthians 2:16](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A16&version=ESV)** - For who has understood the mind of the Lord so as to instruct him? But we have the mind of Christ. (ESV)
 -   Be a servant of Christ
@@ -10408,7 +10446,7 @@ Because God loved us *first*:
 
 -   The Apostle Paul endeavours to know Jesus ('makes it his own'. See **[Php 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** below) *because Jesus made Paul His own*
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
-    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
+    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgave us first*
 -   We should love because *He loved us first*
     -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
@@ -10915,7 +10953,7 @@ Because God loved us *first*:
 
 -   The Apostle Paul endeavours to know Jesus ('makes it his own'. See **[Php 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** below) *because Jesus made Paul His own*
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
-    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
+    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgave us first*
 -   We should love because *He loved us first*
     -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
@@ -11149,7 +11187,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org171c014)
+See: [33.4.1](#orge795f97)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -12233,9 +12271,9 @@ Since it's faith in Him who raised from the dead Jesus our Lord that matters for
     
     > **[II Timothy 3:10-13](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A10-13&version=ESV)** - You, however, have <ins>followed my teaching, my conduct, my aim in life, my faith, my patience, my love, my steadfastness, my persecutions and sufferings that happened to me</ins> at Antioch, at Iconium, and at Lystra—which persecutions I endured; yet from them all the Lord rescued me. Indeed, <ins>all who desire to live a godly life in Christ Jesus will be persecuted,</ins> while evil people and impostors will go on from bad to worse, deceiving and being deceived.
     
-    Peter demonstrated obedience. A changed heart is essential to be saved, I think, because it must produce more obedience.
+    A changed heart is essential to be saved, I think, because it must produce more obedience. The Apostle Paul drives home His point that we must continue to obey Christ:
     
-    > **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is complete. (ESV)
+    > **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and **take every thought captive to obey Christ**, being ready to punish every disobedience, when your obedience is complete. (ESV)
     
     Hebrews describes faith as the hope and conviction we need to draw near to God because we need to believe that He exists and that He rewards those who seek him.
     
@@ -13519,7 +13557,7 @@ The reason we want to be righteous is so we get God.
 
 > **[Hebrews 12:11](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A11&version=ESV)** - For the moment all discipline seems painful rather than pleasant, but later it yields the peaceful fruit of righteousness to those who have been trained by it. (ESV)
 
-> **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is complete. (ESV)
+> **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and **take every thought captive to obey Christ**, being ready to punish every disobedience, when your obedience is complete. (ESV)
 
 > **[Ephesians 2:2](https://www.biblegateway.com/passage/?search=Ephesians%202%3A2&version=ESV)** - in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience—
 
@@ -14225,7 +14263,7 @@ My main reasons is there is still a lot of sin, idolatry, and lawlessness in the
 
 It's all been created by Father God, through Jesus and for Jesus:
 
-> **[Colossians 1:15-20](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities—all things were created through him and for him. And he is before all things, and in him all things hold together. And he is the head of the body, the church. He is the beginning, the firstborn from the dead, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross. (ESV)
+> **[Colossians 1:15-20](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities—all things were created through him and for him. And **he is before all things**, and **in him all things hold together**. And he is the head of the body, the church. He is the beginning, the firstborn from the dead, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross. (ESV)
 
 In Christ, there is not Greek and Jew, circumcised and uncircumcised, barbarian, Scythian, slave, free. Outside of Christ though, is a different story:
 
@@ -15850,7 +15888,7 @@ Because God loved us *first*:
 
 -   The Apostle Paul endeavours to know Jesus ('makes it his own'. See **[Php 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** below) *because Jesus made Paul His own*
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
-    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
+    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgave us first*
 -   We should love because *He loved us first*
     -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
@@ -20392,7 +20430,11 @@ The new self should be <ins>Christ formed in you:</ins>
 
 **By** him all things were created. Firstborn here <ins>does not mean</ins> 'created first', but it means <ins>pre-eminent</ins> and firstborn of the dead:
 
-> **[Colossians 1:15-20](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities — **all things were created through him and for him**. And he is before all things, and **in him all things hold together**. And he is the head of the body, the church. He is the beginning, **the firstborn from the dead**, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
+> **[Colossians 1:15-20](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-20&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. For by him all things were created, in heaven and on earth, visible and invisible, whether thrones or dominions or rulers or authorities — **all things were created through him and for him**. And **he is before all things**, and **in him all things hold together**. And he is the head of the body, the church. He is the beginning, **the firstborn from the dead**, that in everything he might be preeminent. For in him all the fullness of God was pleased to dwell, and through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his cross.
+
+Jesus is before creation:
+
+> **[Colossians 1:17](https://www.biblegateway.com/passage/?search=Colossians%201%3A17&version=ESV)** - And **he is before all things**, and **in him all things hold together**. (ESV)
 
 The prophets spoke of Him:
 
@@ -23768,7 +23810,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org171c014)
+See: [33.4.1](#orge795f97)
 
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
@@ -29163,7 +29205,7 @@ Because God loved us *first*:
 
 -   The Apostle Paul endeavours to know Jesus ('makes it his own'. See **[Php 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** below) *because Jesus made Paul His own*
     -   To be found in Jesus **is** what Paul describes as the righteousness from God that depends on faith
-    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgive us first*
+    -   We know Jesus by believing in Him and obeying His commandments, and when we love and forgive we know *God loved us and forgave us first*
 -   We should love because *He loved us first*
     -   **[Romans 5:7-8](https://www.biblegateway.com/passage/?search=Romans%205%3A7-8&version=ESV)** - For one will scarcely die for a righteous person—though perhaps for a good person one would dare even to die— but God shows his love for us in that while we were still sinners, Christ died for us. (ESV)
 -   We must forgive as we have been forgiven
