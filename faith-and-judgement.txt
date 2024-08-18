@@ -57,6 +57,14 @@ things even things I consider I do which are sinful, I don't endorse them for my
   you, but it hates me because I testify about it that its works are evil. You go up to the feast. I am not going
   up to this feast, for my time has not yet fully come. (ESV)
 
+  Psalms 82:1-8 - God has taken his place in the divine council; in the midst of the gods he holds judgment: A
+  Psalm of Asaph. How long will you judge unjustly and show partiality to the wicked? Selah Give justice to the
+  weak and the fatherless; maintain the right of the afflicted and the destitute. Rescue the weak and the needy;
+  deliver them from the hand of the wicked. They have neither knowledge nor understanding, they walk about in
+  darkness; all the foundations of the earth are shaken. I said, You are gods, sons of the Most High, all of you;
+  nevertheless, like men you shall die, and fall like any prince. Arise, O God, judge the earth; for you shall
+  inherit all the nations! (ESV)
+
 Quote from Mari Mari Emmanuel
 So fear nothing, love everyone, but be firm when it comes to speaking the truth. Truth cannot be compromised. It
 cannot be sold.
@@ -1757,6 +1765,91 @@ was made to Christ. Now we must be found in Christ. Amen:
       have been carried out in God. (ESV)
     o Matthew 16:25 - For whoever would save his life will lose it, but whoever loses his life for my sake will
       find it. (ESV)
+
+I also do not affirm the LDS doctrine here:
+
+- en.wikipedia.org: Melchizedek priesthood {Latter Day Saints} - Wikipedia
+
+I see the LDS stuff as similarly heretical to Basilidean gnosticism.
+
+It's a very big mystery to me that I was born-again of the Spirit on the first day of Ramadan, apparently, and had
+a meeting with the Holy Spirit (apparently) at the tail end of Ramadan. Well, whatever it was that happened to me
+happened.
+
+
+Event                      Dates
+
+Ramadan  Evening of Fri, 1 Apr 2022 - Sun, 1 May 2022
+Lent     Wed, 2 Mar 2022 - Thu, 14 Apr 2022
+
+
+As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of
+Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of
+false religion, and I hope that this helps others also to be corrected. I have been trying to be corrected by
+obedience to the Gospel of Jesus a lot since recording this 'dream' / conversation in my sleep. After actively
+trying to be obedient to the Truth, obedient to Jesus, saved to obey Jesus, I have come to distrust odd spirits
+which speak to me in my sleep.
+
+I believe that among other things I have had to repent from:
+
+- a spirit of Mormomism
+- a spirit of Islam
+- a spirit of LGBT
+- a spirit of Hinduism
+- a spirit of New Age
+
+And I think that the spirits which I attacked me tried to bundle in my desire to marry the girl I had met with
+their false religion. I affirm that I wanted to marry her when I met her at the Baptist church long before (if I
+recall the events precisely) I had gone to the Mormon church, so I have a good conscience before God with regards
+to the marriage proposal. Jehovah God as my witness, it was love that issued from a pure heart and a good
+conscience and sincere faith and I believe the enemy tried to sabotage me:
+
+  I Timothy 1:5 - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere
+  faith. (ESV)
+
+I cannot affirm spirits or dreams which do not confess Jesus. Neither can I affirm as without error my own
+writings, especially those I have written as I've been repenting from error:
+
+- web.archive.org mullikine.github.io: Dream: King John the Baptist // Bodacious Blog
+
+  I John 4:1-3 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
+  many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that
+  confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is
+  not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already.
+  (ESV)
+
+Now I endeavour to take every thought captive to Christ:
+
+  II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God, and
+  take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is
+  complete. (ESV)
+
+No, You Do Not Hold The Melchizedek Priesthood
+
+So he is King of Peace and King of Righteousness, serving bread and wine, praising God, a priest, and Abram tithes
+to him! However, I don't believe he is actually a preincarnate appearance of Christ-Hebrews 7:3 tells us that
+Melchizedek resembled Jesus, not that he was Jesus.
+
+And that is a key point: The text isn't saying that Jesus is like Melchizedek, but that Melchizedek is like
+Jesus-that Jesus is the true and better Melchizedek, just as he is the true and better Temple, Lamb, Passover,
+Moses, David, on forward. This is another case of typology, that this is about that. God wrote the story of
+Melchizedek in living history, to later teach us something of the Person and work of Jesus. So that is the origin
+of this designation.
+
+AMEN!!
+
+For a long while now I have affirmed that Jesus is the only King, and my King and in doing so I really mean to say
+that I am not a king, but would happily let Jesus call me His brother and a royal priest in His kingdom:
+
+  Revelation of John 19:19 - And I saw the beast and the kings of the earth with their armies gathered to make war
+  against him who was sitting on the horse and against his army. (ESV)
+
+  Psalms 82:6-8 - I said, You are gods, sons of the Most High, all of you; nevertheless, like men you shall die,
+  and fall like any prince. Arise, O God, judge the earth; for you shall inherit all the nations! (ESV)
+
+  John 3:16-17 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
+  perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
+  that the world might be saved through him. (ESV)
 
 We are found in Christ by having faith in Christ and putting on Christ. This was my behaviour during 2022 after
 being born-again. I was acting obediently and in faith knowing I was born-again and saved already and had to pass
@@ -28333,8 +28426,29 @@ And Jesus is with us in Spirit:
   Hebrews 10:19 - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus, by
   the new and living way that he opened for us through the curtain, that is, through his flesh,
 
+As I understand it, when we come to communion we understand that we want to be holy as He is holy. It's best to
+confess sin as sin and repent from it before coming to communion. Communion is a unity thing. We are united in
+love for one another, and holy living, and love of the Truth, and the bread and wine of the new covenant help us
+to be sanctified as we agree with the Truth:
+
   Didache 10:6 - Let grace come, and let this world pass away. Hosanna to the Son of David. If any one is holy let
   him come (to the Eucharist); if any one is not, let him repent. Maranatha. Amen.
+
+We must proclaim the Lord's death until He comes, discern the body and judge ourselves truly before and as we take
+Holy Communion:
+
+  I Corinthians 11:22-32 - What! Do you not have houses to eat and drink in? Or do you despise the church of God
+  and humiliate those who have nothing? What shall I say to you? Shall I commend you in this? No, I will not. For
+  I received from the Lord what I also delivered to you, that the Lord Jesus on the night when he was betrayed
+  took bread, and when he had given thanks, he broke it, and said, This is my body which is for you. Do this in
+  remembrance of me. In the same way also he took the cup, after supper, saying, This cup is the new covenant in
+  my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this bread and drink
+  the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or drinks the cup of
+  the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. Let a person examine
+  himself, then, and so eat of the bread and drink of the cup. For anyone who eats and drinks without discerning
+  the body eats and drinks judgment on himself. That is why many of you are weak and ill, and some have died. But
+  if we judged ourselves truly, we would not be judged. But when we are judged by the Lord, we are disciplined so
+  that we may not be condemned along with the world. (ESV)
 
 Proclaim the Lord's death until He comes:
 
@@ -28342,9 +28456,31 @@ Proclaim the Lord's death until He comes:
   covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this
   bread and drink the cup, you proclaim the Lord's death until he comes.
 
-Do not in any way forsake the commandments of the Lord; but keep what you have received, neither adding thereto
+Didache 4
+... Do not in any way forsake the commandments of the Lord; but keep what you have received, neither adding thereto
 nor taking away therefrom. In the church you shall acknowledge your transgressions, and you shall not come near
 for your prayer with an evil conscience. This is the way of life.
+
+Discerning the Body
+bibleref.com 1-Corinthians-11-29.html: What does 1 Corinthians 11:29 mean? | BibleRef.com
+
+|  What does 1 Corinthians 11:29 mean?
+|  This is a sobering verse, especially for believers who regularly participate in communion. Paul has already warned Christians to examine themselves before taking part in the Lord's Supper to avoid doing so in an unworthy way (1 Corinthians 11:28).
+| 
+|  The cup represents Christ's blood, and the bread represents His broken body. The purpose of taking communion is to commemorate and reflect on the sacrificial death of Jesus (Matthew 26:26-28). To do so without "discerning the body" brings judgment on the participant.
+| 
+|  The first question this raises is the precise meaning of "discerning the body." Bible scholars primarily suggest two ways of interpreting this, both of which are reasonable, and which can even both be true.
+| 
+|  The first suggestion is that this refers to a recognition: that the symbolic parallel to Christ's body in the elements of the bread and cup causes a Christian to see them as different from other food. In other words, the Lord's Supper should not be treated like just another meal used to satisfy physical hunger. It must be approached with respect as something much more meaningful and important. This first view of "discerning the body" would fit with Paul's instructions in the following verses about not coming hungry to the Lord's Supper gathering. The Corinthians were clearly not doing this (1 Corinthians 11:17-22).
+| 
+|   Along with that, partaking in communion is "proclaiming" the death of Jesus (1 Corinthians 11:26). If a person proclaims Jesus' death, but is disobedient to the gospel, that person is essentially daring God to judge them (Galatians 6:6-7). Whether by ignorance, arrogance, or simple error, insulting the sacrifice of Christ-even symbolically-is something God takes seriously.
+|  
+|   The second interpretive view is that "discerning the body" means recognizing the relationship between Christ's body and the "body of Christ," known as the church. In other words, we must see Christ in our fellow Christians and treat them as we would treat Jesus when we come together. This view fits with what Paul wrote in 1 Corinthians 10:16-17.
+|  
+|   Whichever view Paul intended, both are necessary.
+
+  Hebrews 7:28 - For the law appoints men in their weakness as high priests, but the word of the oath, which came
+  later than the law, appoints a Son who has been made perfect forever. (ESV)
 
 43.3.3. Getting Jesus' words in us helps us to abide in Him
 
@@ -43878,7 +44014,7 @@ Date: 2024-08-18 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-18 Sun 15:46
+Created: 2024-08-18 Sun 17:37
 
 Validate
 
