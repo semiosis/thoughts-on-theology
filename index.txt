@@ -670,6 +670,10 @@ well built. (ESV)
 teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them
 repentance leading to a knowledge of the truth, and they may escape from the snare of the devil,
 after being captured by him to do his will. (ESV)
+- II Corinthians 5:1-3 - For we know that if the tent, which is our earthly home, is destroyed, we
+have a building from God, a house not made with hands, eternal in the heavens. For in this tent we
+groan, longing to put on our heavenly dwelling, if indeed by putting it on we may not be found
+naked. (ESV)
 - Sin is forgiven as a person turns from darkness to light and turns from satan's will to God's will
 - Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan
 to God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in
@@ -1427,8 +1431,22 @@ Christ, the Son of God:
 
 OK, so we accept forgiveness from God, we forgive others, and we then walk in that reality and don't turn back -
 we live that reality out. We accept that God has loved us by making atonement through Jesus' blood, and then we
-pass-forward that loving forgiveness to others and we walk in that reality and don't turn back. We also try to
-live holy lives - be holy as He is Holy.
+pass-forward that loving forgiveness to others and we walk in that reality and don't turn back.
+
+  II Corinthians 4:11-12 - For we who live are always being given over to death for Jesus' sake, so that the life
+  of Jesus also may be manifested in our mortal flesh. So death is at work in us, but life in you. (ESV)
+
+We must have faith in Jesus to be justified by faith. I believe the finished work of Christ is enough, but that
+God is still working, His grace extending through faithful obedience to Jesus, Jesus grace reaches more people:
+
+  II Corinthians 4:11-15 - For we who live are always being given over to death for Jesus' sake, so that the life
+  of Jesus also may be manifested in our mortal flesh. So death is at work in us, but life in you. Since we have
+  the same spirit of faith according to what has been written, I believed, and so I spoke, we also believe, and so
+  we also speak, knowing that he who raised the Lord Jesus will raise us also with Jesus and bring us with you
+  into his presence. For it is all for your sake, so that as grace extends to more and more people it may increase
+  thanksgiving, to the glory of God. (ESV)
+
+We also try to live holy lives - be holy as He is Holy.
 
 We put on Christ:
 
@@ -1744,12 +1762,12 @@ was made to Christ. Now we must be found in Christ. Amen:
   to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one,
   And to your offspring, who is Christ. (ESV)
 
-  As interesting as the parallels (similitudes or anti-similitudes) are with my own testimony, I believe there are
-  distortions in the Mormon interpretation. Even in here, the Mormans have suggested faith like Isaac's. Now I had
-  gone into court willingly after being born-again as I held my faith in Jesus and submitted to the authorities,
-  but not perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not
-  man, the whole thing felt outside of my control (extremely graceless), and I was under clear impression
-  especially later in 2022 that I was battling an antichrist spirit:
+  As interesting as the parallels or similarities are with my own testimony, I believe there are distortions in
+  the Mormon interpretation. Even in here, the Mormans have suggested faith like Isaac's. Now I had gone into
+  court willingly after being born-again as I held my faith in Jesus and submitted to the authorities, but not
+  perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not man, the
+  whole thing felt outside of my control (extremely graceless), and I was under clear impression especially later
+  in 2022 that I was battling an antichrist spirit:
 
   I think this Mormon doctrine shows interesting parallels or similarities with my own testimony but I disagree
   with their way of interpreting this
@@ -1929,8 +1947,31 @@ light-body.
   uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon
   the Israel of God. From now on let no one cause me trouble, for I bear on my body the marks of Jesus. (ESV)
 
+  II Corinthians 5:5 - He who has prepared us for this very thing is God, who has given us the Spirit as a
+  guarantee. (ESV)
+
 Sermon
 youtube.com: Be Who You Are: Living Out Identity in Christ, Part 1
+
+We are saved to serve Christ:
+
+  II Corinthians 5:15 - and he died for all, that those who live might no longer live for themselves but for him
+  who for their sake died and was raised. (ESV)
+
+We are saved to work for Christ for the sake of Christ and the ministry of reconciling other sinners to God
+through Christ:
+
+  II Corinthians 5:18 - All this is from God, who through Christ reconciled us to himself and gave us the ministry
+  of reconciliation; (ESV)
+
+The Apostles were working with Christ. I believe the Apostles also here are exhorting believers to work with
+Christ to receive the grace of God:
+
+  II Corinthians 6:1 - Working together with him, then, we appeal to you not to receive the grace of God in vain.
+  (ESV)
+
+  II Corinthians 7:15 - And his affection for you is even greater, as he remembers the obedience of you all, how
+  you received him with fear and trembling. (ESV)
 
 Being born-again of the spirit was a total gift received through faith in Jesus, none of my own merit at all -
 simple very imperfect repentance from sin and faith in God exercising faithfulness:
@@ -10498,6 +10539,16 @@ youtube.com: How Our Faith and Law-Keeping Work Together in the Christian Life
   Romans 2:11-12 - For God shows no partiality. For all who have sinned without the law will also perish without
   the law, and all who have sinned under the law will be judged by the law. (ESV)
 
+Fear of God is not only about having the heart to repent from sin and "beat hand on chest and ask God for mercy",
+but it is also having a changed heart, endeavoring to please Christ with our actions:
+
+  II Corinthians 5:6-11 - So we are always of good courage. We know that while we are at home in the body we are
+  away from the Lord, for we walk by faith, not by sight. Yes, we are of good courage, and we would rather be away
+  from the body and at home with the Lord. So whether we are at home or away, we make it our aim to please him.
+  For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he
+  has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But
+  what we are is known to God, and I hope it is known also to your conscience. (ESV)
+
 It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is
 really talking about how the Law of God is effectively used to judge people. And what's interesting is that it
 seems as though, through Christ Jesus, God judges the secrets of men, and that happens to all people:
@@ -16247,8 +16298,15 @@ Justification and redemption are a total gift:
   over former sins. It was to show his righteousness at the present time, so that he might be just and the
   justifier of the one who has faith in Jesus. (ESV)
 
-Justification by works/obedience and justification by so-called 'faith alone' is, in my opinion, not a dichotomy,
-because all the good works we do as a consequence of being redeemed are a gift to us - us being in Him.
+The redemption (ongoing sanctification) is granted as a gift through faith in Jesus:
+
+  Romans 3:24-25 - and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom
+  God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness,
+  because in his divine forbearance he had passed over former sins. (ESV)
+
+Justification by working-faith (obedience to the gospel producing works) and justification by so-called 'faith
+alone' is, in my opinion, not a dichotomy, because all the good works we do as a consequence of being redeemed are
+a gift to us - us being in Him:
 
     o Eph 2:8 - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is
       the gift (G1435 doron) of God; (NASB)
@@ -16521,6 +16579,11 @@ may be that this works like a blood transfusion, or a like Jesus' car battery re
 should be received by faith, faith which includes the belief of faith and the obedience of faith, such as
 obedience to the discipline of Christ, that should yield the peaceful fruit of righteousness as we then seek to
 imitate Christ, passing forward love and forgiveness and endeavoring to be holy.
+
+Holiness is brought to completion in the fear of God:
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
 
   John Piper's aim in this sermon is that:
 
@@ -18265,6 +18328,10 @@ story should be taken to see how Good God is, but also taken as a warning agains
   to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
   over former sins. It was to show his righteousness at the present time, so that he might be just and the
   justifier of the one who has faith in Jesus. (ESV)
+
+  II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God, and
+  take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is
+  complete. (ESV)
 
 Justification by works/obedience and justification by so-called 'faith alone' is, in my opinion, not a dichotomy,
 because all the good works we do as a consequence of being redeemed are a gift to us - us being in Him.
@@ -20641,6 +20708,12 @@ Accepting support is OK when in need, but we should still seek to bear our own l
   Macedonia supplied my need. So I refrained and will refrain from burdening you in any way. (ESV)
 
 20.3.6. The criminal conviction has made it more difficult to support myself and other people in need
+
+  II Corinthians 6:4-8 - but as servants of God we commend ourselves in every way: by great endurance, in
+  afflictions, hardships, calamities, beatings, imprisonments, riots, labors, sleepless nights, hunger; by purity,
+  knowledge, patience, kindness, the Holy Spirit, genuine love; by truthful speech, and the power of God; with the
+  weapons of righteousness for the right hand and for the left; through honor and dishonor, through slander and
+  praise. We are treated as impostors, and yet are true; (ESV)
 
 Nevertheless, I do my best to still help others. While the will is there, the wallet isn't anymore because the
 enemy doesn't want me to help people.
@@ -23451,6 +23524,16 @@ first through sending His Son to be the propitiation for our sins. Obedience lea
 
   Galatians 2:6 - And from those who seemed to be influential (what they were makes no difference to me; God shows
   no partiality)-those, I say, who seemed influential added nothing to me. (ESV)
+
+Fear of God is not only about having the heart to repent from sin and "beat hand on chest and ask God for mercy",
+but it is also having a changed heart, endeavoring to please Christ with our actions:
+
+  II Corinthians 5:6-11 - So we are always of good courage. We know that while we are at home in the body we are
+  away from the Lord, for we walk by faith, not by sight. Yes, we are of good courage, and we would rather be away
+  from the body and at home with the Lord. So whether we are at home or away, we make it our aim to please him.
+  For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he
+  has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But
+  what we are is known to God, and I hope it is known also to your conscience. (ESV)
 
   Isaiah 66:2 - All these things my hand has made, and so all these things came to be, declares the LORD. But this
   is the one to whom I will look: he who is humble and contrite in spirit and trembles at my word. (ESV)
@@ -39165,6 +39248,14 @@ I also got a bunch of pictures of my family.
   like a weaned child with its mother; like a weaned child is my soul within me. O Israel, hope in the LORD from
   this time forth and forevermore. (ESV)
 
+In following Jesus, the Apostles were perplexed sometimes:
+
+  II Corinthians 4:8 - We are afflicted in every way, but not crushed; perplexed, but not driven to despair; (ESV)
+
+That's because we don't have the full picture:
+
+  I Corinthians 13:9 - For we know in part and we prophesy in part, (ESV)
+
   Proverbs 3:5-6 - Trust in the LORD with all your heart, and do not lean on your own understanding. In all your
   ways acknowledge him, and he will make straight your paths. (ESV)
 
@@ -43900,6 +43991,19 @@ The fear of God helps us to obey Him. God please forgive us:
   Proverbs 9:10 - The fear of the LORD is the beginning of wisdom, and the knowledge of the Holy One is insight.
   (ESV)
 
+Fear of God is not only about having the heart to repent from sin and "beat hand on chest and ask God for mercy",
+but it is also having a changed heart, endeavoring to please Christ with our actions:
+
+  II Corinthians 5:6-11 - So we are always of good courage. We know that while we are at home in the body we are
+  away from the Lord, for we walk by faith, not by sight. Yes, we are of good courage, and we would rather be away
+  from the body and at home with the Lord. So whether we are at home or away, we make it our aim to please him.
+  For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he
+  has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But
+  what we are is known to God, and I hope it is known also to your conscience. (ESV)
+
+  II Corinthians 7:10 - For godly grief produces a repentance that leads to salvation without regret, whereas
+  worldly grief produces death. (ESV)
+
 78.2. For one's work to stand the test of fire
 
 It should be:
@@ -44010,11 +44114,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-18 Sun 00:00
+Date: 2024-08-19 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-18 Sun 17:37
+Created: 2024-08-19 Mon 00:11
 
 Validate
 
