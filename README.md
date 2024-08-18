@@ -82,7 +82,7 @@ It's <ins>perfect</ins> self-humbling obedience throughout His sinless life as H
 
 > **[I Corinthians 15:45](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A45&version=ESV)** - Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. (ESV)
 
-We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to serve/obey Christ. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience. 
+We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to serve/obey Christ. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience.
 
 > **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
 
@@ -376,7 +376,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org25942fb) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org38ba198) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2088,7 +2088,7 @@ To be sanctified by faith in Jesus is an applied process, I think:
 > **[Acts 26:18](https://www.biblegateway.com/passage/?search=Acts%2026%3A18&version=ESV)** - to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a place among those who are **sanctified by faith in me**. (ESV)
 
 -   Immediately we are reconciled to God by the death of His Son. We are justified,
--   and then we are saved from the wrath of God by His life, repenting from sin and keeping His commandments,
+-   and then we are saved from the wrath of God by His life, repenting from sin and keeping His commandments, being sanctified, not resisting the Holy Spirit's work of sanctifying us to correcct out behaviour and thoughts, and separated from the world, since friendship with the world is emnity with God
     -   **[Ephesians 2:3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A3&version=ESV)** - among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
 -   also, we meanwhile rejoice in God through our Lord Jesus Christ
 
@@ -2813,7 +2813,9 @@ We work for the Lord while believing in Jesus:
 
 > **[Colossians 3:23-25](https://www.biblegateway.com/passage/?search=Colossians%203%3A23-25&version=ESV)** - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid back for the wrong he has done, and there is no partiality. (ESV)
 
-So once again, we are actually instructed to work for God, but it's not wrong under the right conditions.
+So once again, we are actually instructed to work for God, but it's not wrong under the right conditions:
+
+> **[Hebrews 6:10](https://www.biblegateway.com/passage/?search=Hebrews%206%3A10&version=ESV)** - For God is not so unjust as to overlook your work and the love that you showed for his sake in serving the saints, as you still do. (ESV)
 
 All the Apostle Paul is saying here, I think is that in "working for God" doesn't imply you have accepted a gift. But, yes, you **can** accept the gift (believe in Jesus) and under that condition work for God:
 
@@ -11187,7 +11189,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge795f97)
+See: [33.4.1](#orgefc73a4)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -11813,7 +11815,11 @@ You can see here that faith alone and working faith seem to both be ways to be a
 
 All who `a)` believe without being circumcised (i.e. they are not under the law), and also `b)` those who are circumcised (adhere to the law) but walk in the footsteps of faith that Abraham had before he was circumcised (still walk in faith as Abraham did before circumcision) are <ins>heirs according to promise</ins>:
 
-> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of **all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of</ins> **all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him <ins>the father of</ins> **the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.** (ESV)
+
+It's evident from **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** and **[Romans 3:27-31](https://www.biblegateway.com/passage/?search=Romans%203%3A27-31&version=ESV)** that both the circumcised (those still keeping the Jewish law) and the uncircumcised are justified by faith. i.e. replacement-theology is wrong:
+
+> **[Romans 3:27-31](https://www.biblegateway.com/passage/?search=Romans%203%3A27-31&version=ESV)** - Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
@@ -15460,7 +15466,7 @@ For as many of you as were baptized into Christ have put on Christ - heirs accor
 
 All who `a)` believe without being circumcised (i.e. they are not under the law), and also `b)` those who are circumcised (adhere to the law) but walk in the footsteps of faith that Abraham had before he was circumcised (still walk in faith as Abraham did before circumcision) are <ins>heirs according to promise</ins>:
 
-> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of **all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of</ins> **all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him <ins>the father of</ins> **the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.** (ESV)
 
 It's obedience which leads to righteousness, even the righteousness of faith:
 
@@ -15662,7 +15668,11 @@ Obedience is intrinsic to faith, but the obedient also recognise that love comes
 > **[John 17:8](https://www.biblegateway.com/passage/?search=John%2017%3A8&version=ESV)** - For I have given them the words that you gave me, and they have received them and have **come to know in truth that I came from you**; <ins>and</ins> they have believed that you sent me.
 
 
-### fear of God
+### fear of God as a friend of God
+
+> **[Psalms 25:14](https://www.biblegateway.com/passage/?search=Psalms%2025%3A14&version=ESV)** - The friendship of the LORD is for those who fear him, and he makes known to them his covenant. (ESV)
+
+> **[James 4:4-5](https://www.biblegateway.com/passage/?search=James%204%3A4-5&version=ESV)** - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore whoever wishes to be a friend of the world makes himself an enemy of God. Or do you suppose it is to no purpose that the Scripture says, He yearns jealously over the spirit that he has made to dwell in us? (ESV)
 
 > **[Matthew 5:3](https://www.biblegateway.com/passage/?search=Matthew%205%3A3&version=ESV)** - Blessed are the poor in spirit, for theirs is the kingdom of heaven.
 
@@ -19049,7 +19059,9 @@ We work for the Lord while believing in Jesus:
 
 > **[Colossians 3:23-25](https://www.biblegateway.com/passage/?search=Colossians%203%3A23-25&version=ESV)** - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid back for the wrong he has done, and there is no partiality. (ESV)
 
-So once again, we are actually instructed to work for God, but it's not wrong under the right conditions.
+So once again, we are actually instructed to work for God, but it's not wrong under the right conditions:
+
+> **[Hebrews 6:10](https://www.biblegateway.com/passage/?search=Hebrews%206%3A10&version=ESV)** - For God is not so unjust as to overlook your work and the love that you showed for his sake in serving the saints, as you still do. (ESV)
 
 All the Apostle Paul is saying here, I think is that in "working for God" doesn't imply you have accepted a gift. But, yes, you **can** accept the gift (believe in Jesus) and under that condition work for God:
 
@@ -22941,7 +22953,13 @@ righteousness of faith in Jesus Christ God's
 Son who has paid through his blood the price
 for our sin.
 
-Imputed righteousness is important, but we need also personal holiness.
+I affirm more of a Methodist theology regarding [imparted righteousness](https://en.wikipedia.org/wiki/Imputed_righteousness). We cooperate with God rather than resist sanctification.
+
+> In Methodist theology, imparted righteousness, is what God does in Christ by the power of the Holy Spirit after justification, working in the Christian to enable and empower the process of sanctification (and, in Wesleyan thought, Christian perfection). John Wesley believed that imparted righteousness worked in tandem with imputed righteousness.
+
+Imputed righteousness is important, but we need also personal holiness:
+
+> **[James 1:20-22](https://www.biblegateway.com/passage/?search=James%201%3A20-22&version=ESV)** - for the anger of man does not produce the righteousness that God requires. Therefore put away all filthiness and rampant wickedness and receive with meekness the implanted word, which is able to save your souls. But be doers of the word, and not hearers only, deceiving yourselves. (ESV)
 
 -   **Sermon:** [youtube.com: Holiness Demanded - Charles Spurgeon Sermon](https://www.youtube.com/watch?v=S8rmiZRzqfg)
 
@@ -23739,6 +23757,8 @@ I even began to get dreams of evading judgement through good works, and then pag
 and all I'm saying is that adhering to the truth that I am justified not by my own works but by Christ's finished works
 was very important for me through that time, so that I wasn't led astray by paganism.
 
+I'm also sanctified as I cooperate with the Holy Spirit in the process of sanctification - post-justification.
+
 
 ### Mid-2022 to mid-2023 was chaotic
 
@@ -23810,7 +23830,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge795f97)
+See: [33.4.1](#orgefc73a4)
 
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
@@ -30452,6 +30472,12 @@ Sigh&#x2026;.
 On the bright side, last week I did get a picture of John Piper on YouTube saying **"Jesus has given you clothes."**
 That means that when I turn up in heaven I'll have 'clothes' so I can enter - the imputed righteousness of Christ.
 
+But being brought into communion with God by the blood of Jesus we must not resist sanctification. We must humble ourselves in obedience to Christ Jesus.
+
+> **[Acts 10:34-35](https://www.biblegateway.com/passage/?search=Acts%2010%3A34-35&version=ESV)**: So Peter opened his mouth and said: Truly I understand that **God shows no partiality**, but in every nation anyone who fears him and does what is right is acceptable to him.
+
+> **[Galatians 2:6](https://www.biblegateway.com/passage/?search=Galatians%202%3A6&version=ESV)** - And from those who seemed to be influential (what they were makes no difference to me; **God shows no partiality**)—those, I say, who seemed influential added nothing to me. (ESV)
+
 > **[Matthew 22:11-13](https://www.biblegateway.com/passage/?search=Matthew%2022%3A11-13&version=ESV)** - But when the king came in to look at the guests, he saw there a man who had no wedding garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness. In that place there will be weeping and gnashing of teeth. (ESV)
 
 -   **[youtube.com: The Hidden Snare of Bitterness @time: 4 min 6 sec](https://youtube.com/watch?v=ZSVWNhh1bbE&t=246):** So when Paul says, "Put it on, this new nature, he means,
@@ -30528,6 +30554,10 @@ We do need a lot of faith (faith, faithfulness, obedience) in God to **inherit**
 Sigh&#x2026;. For the record, as of <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-06-13 Thu&gt;</span></span>, it still feels as though I'm being hit by witchcraft.
 
 The spirit spouse stuff has continued. It's only been a problem since the end of 2022, and I think its objective is to make me feel disqualified, but I know it's just demons/witchcraft and I'm resisting it to my best ability, including in my thoughts.
+
+It's interesting with the spirit spouse stuff, as it affects me it is involuntary (like rape in my sleep), and it tries to make it so that sex is voluntary (think myself to sex):
+
+-   [biblehub.com: Strong's Greek: 1596. ???????? {hekousios} &#x2013; voluntarily](https://biblehub.com/greek/1596.htm)
 
 Asides from that, I'll continue endeavouring to abide by Jesus' commandments, and I have a good conscience.
 
@@ -30731,6 +30761,10 @@ By God's grace I've been set free from sin, and brought into a relationship with
 
 > **[Matthew 13:45-52](https://www.biblegateway.com/passage/?search=Matthew%2013%3A45-52&version=ESV)** - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down and sorted the good into containers but threw away the bad. So it will be at the close of the age. <ins>The angels will come out and separate the evil from the righteous and throw them into the fiery furnace.</ins> In that place there will be weeping and gnashing of teeth. Have you understood all these things? They said to him, Yes. And he said to them, Therefore every scribe who has been trained for the kingdom of heaven is like a master of a house, who brings out of his treasure what is new and what is old.
 
+It's important to get to know God, and important to obey the gospel of the Lord Jesus, or face the punishment:
+
+> **[II Thessalonians 1:5-8](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A5-8&version=ESV)** - This is evidence of the righteous judgment of God, that you may be considered worthy of the kingdom of God, for which you are also suffering— since indeed God considers it just to repay with affliction those who afflict you, and to grant relief to you who are afflicted as well as to us, when the Lord Jesus is revealed from heaven with his mighty angels in flaming fire, inflicting vengeance on those who do not know God and on those who do not obey the gospel of our Lord Jesus. (ESV)
+
 God is not saving Lucifer/Satan/the devil or his demons/devils. They're all going to hell forever. Amen to that:
 
 > **[Revelation of John 20:7-10](https://www.biblegateway.com/passage/?search=Revelation%2020%3A7-10&version=ESV)** - And when the thousand years are ended, Satan will be released from his prison and will come out to deceive the nations that are at the four corners of the earth, Gog and Magog, to gather them for battle; their number is like the sand of the sea. And they marched up over the broad plain of the earth and surrounded the camp of the saints and the beloved city, but fire came down from heaven and consumed them, and **the devil who had deceived them was thrown into the lake of fire and sulfur where the beast and the false prophet were, and they will be tormented day and night forever and ever**. (ESV)
@@ -30796,6 +30830,104 @@ Christ is reigning until all things are placed into subjection under Him and the
 > **[I Corinthians 15:25-28](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A25-28&version=ESV)** - For he must reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. **When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all.** (ESV)
 
 > **[Daniel 7:13-14](https://www.biblegateway.com/passage/?search=Daniel%207%3A13-14&version=ESV)** - I saw in the night visions, and behold, with the clouds of heaven there came one like a son of man, and he came to the Ancient of Days and was presented before him. And to him was given dominion and glory and a kingdom, that **all peoples, nations, and languages should serve him;** his dominion is an everlasting dominion, which shall not pass away, and his kingdom one that shall not be destroyed. (ESV)
+
+Jesus Christ has total dominion:
+
+> **[I Peter 4:11](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A11&version=ESV)** - whoever speaks, as one who speaks oracles of God; whoever serves, as one who serves by the strength that God supplies—in order that in everything God may be glorified through Jesus Christ. To him belong glory and dominion forever and ever. Amen. (ESV)
+
+
+## The Bible says the ones who are co-heirs with Christ are the ones who suffer with Him
+
+> **[Romans 8:16-17](https://www.biblegateway.com/passage/?search=Romans%208%3A16-17&version=ESV)** - The Spirit himself bears witness with our spirit that we are children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
+
+> **[I Peter 4:12-19](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A12-19&version=ESV)** - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though something strange were happening to you. **But rejoice insofar as you share Christ's sufferings, that you may also rejoice and be glad when his glory is revealed. If you are insulted for the name of Christ, you are blessed, because the Spirit of glory and of God rests upon you.** But let none of you suffer as a murderer or a thief or an evildoer or as a meddler. Yet if anyone suffers as a Christian, let him not be ashamed, but let him glorify God in that name. For it is time for judgment to begin at the household of God; and if it begins with us, what will be the outcome for those **who do not obey the gospel of God?** And **If the righteous is scarcely saved, what will become of the ungodly and the sinner? Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good.** (ESV)
+
+Jesus is not ashamed to call brothers [and sisters] those who are cleaned up and sanctified through obedience to Jesus' gospel:
+
+> **Hebrews 2:11** - For he who sanctifies and those who are sanctified all have one origin. That is why he is not ashamed to call them brothers, (ESV)
+
+
+## The Bible does not say we are kings - it says we are royalty - a royal priesthood for His possession
+
+> **[Revelation of John 1:5](https://www.biblegateway.com/passage/?search=Revelation%201%3A5&version=ESV)** - and from Jesus Christ, the faithful witness, the firstborn of the dead, and the ruler of the kings of the earth. To Him who loves us and released us from our sins by His blood&#x2013; (NASB)
+
+> **[Revelation of John 1:5 (Interlinear)](https://biblehub.com/interlinear/revelation/1-5.htm)** - and from Jesus Christ the witness - faithful the firstborn of the dead and the ruler of the kings of the earth To the [One] loving us and releasing us from the sins of us through the blood of Him (Interlinear - biblehub.com)
+
+     1  2532 575  2424  5547      3588    3144
+     2  kai  apo  Iēsou Christou  ho      martys
+     3  καὶ  ἀπὸ  Ἰησοῦ Χριστοῦ , ὁ       μάρτυς
+     4  and  from Jesus Christ    the     witness
+     5  Conj Prep N-GMS N-GMS     Art-NMS N-NMS
+     6  
+     7  3588    4103      3588    4416       3588    3498
+     8  ho      pistos    ho      prōtotokos tōn     nekrōn
+     9  ὁ       πιστός  , ὁ       πρωτότοκος τῶν     νεκρῶν
+    10   -      faithful  the     firstborn  of the  dead
+    11  Art-NMS Adj-NMS   Art-NMS Adj-NMS    Art-GMP Adj-GMP
+    12  
+    13  2532 3588    758    3588    935      3588
+    14  kai  ho      archōn tōn     basileōn tēs
+    15  καὶ  ὁ       ἄρχων  τῶν     βασιλέων τῆς
+    16  and  the     ruler  of the  kings    of the
+    17  Conj Art-NMS N-NMS  Art-GMP N-GMP    Art-GFS
+    18  
+    19  1093   3588         25        1473     2532
+    20  gēs    Tō           agapōnti  hēmas    kai
+    21  γῆς  . Τῷ           ἀγαπῶντι  ἡμᾶς     καὶ
+    22  earth  To the [One] loving    us       and
+    23  N-GFS  Art-DMS      V-PPA-DMS PPro-A1P Conj
+    24  
+    25  3089      1473     1537 3588    266
+    26  lysanti   hēmas    ek   tōn     hamartiōn
+    27  λύσαντι   ἡμᾶς     ἐκ   τῶν     ἁμαρτιῶν
+    28  releasing us       from the     sins
+    29  V-APA-DMS PPro-A1P Prep Art-GFP N-GFP
+    30  
+    31  1473     1722    3588    129     846
+    32  hēmōn    en      tō      haimati autou
+    33  ἡμῶν     ἐν      τῷ      αἵματι  αὐτοῦ   —
+    34  of us    through the     blood   of Him
+    35  PPro-G1P Prep    Art-DNS N-DNS   PPro-GM3S
+
+> **[I Peter 2:9](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A9&version=ESV)** - But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession, that you may proclaim the excellencies of him who called you out of darkness into his marvelous light. (ESV)
+
+> **[I Peter 2:9 (Interlinear)](https://biblehub.com/interlinear/1_peter/2-9.htm)** - You however [are] a race chosen a royal priesthood a nation holy a people for [His] possession so that the excellencies you may proclaim of the [One] out of darkness you having called to the marvelous of Him light (Interlinear - biblehub.com)
+
+     1  4771     1161    1085         1588       934
+     2  Hymeis   de      genos        eklekton   basileion
+     3  Ὑμεῖς    δὲ      γένος        ἐκλεκτόν , βασίλειον
+     4  You      however [are] a race chosen     a royal
+     5  PPro-N2P Conj    N-NNS        Adj-NNS    Adj-NNS
+     6  
+     7  2406         1484     40       2992     1519
+     8  hierateuma   ethnos   hagion   laos     eis
+     9  ἱεράτευμα  , ἔθνος    ἅγιον  , λαὸς     εἰς
+    10  priesthood   a nation holy     a people for [His]
+    11  N-NNS        N-NNS    Adj-NNS  N-NMS    Prep
+    12  
+    13  4047          3704    3588     703
+    14  peripoiēsin   hopōs   tas      aretas
+    15  περιποίησιν , ὅπως    τὰς      ἀρετὰς
+    16  possession    so that the      excellencies
+    17  N-AFS         Conj    Art-AFP  N-AFP
+    18  
+    19  1804             3588         1537   4655
+    20  exangeilēte      tou          ek     skotous
+    21  ἐξαγγείλητε      τοῦ          ἐκ     σκότους
+    22  you may proclaim of the [One] out of darkness
+    23  V-ASA-2P         Art-GMS      Prep   N-GNS
+    24  
+    25  4771     2564          1519 3588    2298
+    26  hymas    kalesantos    eis  to      thaumaston
+    27  ὑμᾶς     καλέσαντος  , εἰς  τὸ      θαυμαστὸν
+    28  you      having called to   the     marvelous
+    29  PPro-A2P V-APA-GMS     Prep Art-ANS Adj-ANS
+    30  
+    31  846       5457
+    32  autou     phōs
+    33  αὐτοῦ     φῶς  ,
+    34  of Him    light
+    35  PPro-GM3S N-ANS
 
 
 # AMEN!!
