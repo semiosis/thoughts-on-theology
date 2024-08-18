@@ -6323,13 +6323,55 @@ In order to know God we must love one another in the way that God has loved us:
   Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one
   another, God abides in us and his love is perfected in us. (ESV)
 
-5.5.2. Joy requires apostolic work
+5.5.2. Joy and obedience - we want both of them at the same time
 
-I agree whole heartedly with John Piper here:
+John Piper stresses that although obeying sin steals your joy, making Jesus your Pearl of Great Price makes it
+much easier to forsake sin.
 
-- youtube.com: The Blazing Center by John Piper
+youtube.com: What Comes First: My Obedience to Jesus or My Joy in Jesus?
 
-Quote from John Piper:
+When we are living in disobedience to Christ our joy in him will be minimal or non-existent depending on the depth
+and duration of the disobedience.
+
+By all means forsake bad behaviors but mainly the battle is look to Jesus look to all that God is for you in him
+and pray for eyes to see his all satisfying beauty and worth so that you rest in him and are so satisfied that the
+root of sin is severed and you walk in obedience.
+
+I personally believe that joy comes from having been given and maintaining a good conscience with God.
+
+  II Corinthians 1:12 - For our boast is this: the testimony of our conscience that we behaved in the world with
+  simplicity and godly sincerity, not by earthly wisdom but by the grace of God, and supremely so toward you.
+  (ESV)
+
+johnrasicci.wordpress.com: JOY FROM A CLEAR CONSCIENCE | John Rasicci
+
+We cannot deceive ourselves either by simply proclaiming we are the righteousness of God in Christ while living in
+sin.
+
+There is a difference in claiming to be the righteousness of God in Christ (2 Corinthians 5:21) and actually
+living righteously (Titus 2:12; also called the fruits of righteousness Philippians 1:11).
+
+The former speaks of our spiritual position in Christ by the grace of God but the latter speaks of our practice,
+the obedience of our faith, our behavior, and our actual daily conduct.
+
+Our position was by the work of Jesus; our practice is by our work.
+
+God sees both our position in Christ and our practice (Hebrews 4:13). Calvary didn't blind God.
+
+  I Timothy 1:5 - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere
+  faith. (ESV)
+
+  II Timothy 1:3 - I thank God whom I serve, as did my ancestors, with a clear conscience, as I remember you
+  constantly in my prayers night and day. (ESV)
+
+I also affirm the Didache here which shows that the upwards-call of the Christian absolutely involves making
+earthly sacrifices as we serve Jesus, and there are degrees of glory as we are conformed to Jesus' image:
+
+  Didache Chapter 6 - See that no one causes you to err from this way of the Teaching, since apart from God it
+  teaches you. For if you are able to bear the entire yoke of the Lord, you will be perfect; but if you are not
+  able to do this, do what you are able.
+
+Now from John Piper:
 
   I'm dealing with the issue of God's glory and our gladness. Can they really be one? And I'm doing that under the
   bigger banner of "How can I spread a passion for the supremacy of God?" because I think that phrase "passion for
@@ -6358,6 +6400,14 @@ Quote from John Piper:
 
 Sermon
 youtube.com: Sustaining Joy in Christ
+
+I believe that the freedom we have in Christ is for serving Jesus, and we have a heavenly perspective:
+
+  Colossians 3:22-25 - Slaves, obey in everything those who are your earthly masters, not by way of eye-service,
+  as people-pleasers, but with sincerity of heart, fearing the Lord. Whatever you do, work heartily, as for the
+  Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are
+  serving the Lord Christ. For the wrongdoer will be paid back for the wrong he has done, and there is no
+  partiality. (ESV)
 
 5.5.3. We are bought with the precious blood of Christ and we should be obedient to God
 
@@ -7493,6 +7543,14 @@ That's right, and Abraham's faith included:
 - works of faith
 - not works of the law (which came later), but the works of faith such as:
 - not accepting gifts from the king of Sodom
+- An interesting parallel is how the Apostle John's children/disciples were walking in love while
+walking in the truth, and rejecting offerings from Gentiles who were not walking in the truth:
+- III John 1:4-8 - I have no greater joy than to hear that my children are walking in the truth.
+Beloved, it is a faithful thing you do in all your efforts for these brothers, strangers as
+they are, who testified to your love before the church. You will do well to send them on their
+journey in a manner worthy of God. For they have gone out for the sake of the name, accepting
+nothing from the Gentiles. Therefore we ought to support people like these, that we may be
+fellow workers for the truth. (ESV)
 - placing Isaac on the Altar
 - etc.
 
@@ -9920,6 +9978,15 @@ But we must be walking in the light, just as He is in the light.
   blood of Jesus his Son cleanses us from all sin.
 
 So the blood of Jesus covers us while we are following Him.
+
+The Apostle John's children/disciples were walking in love while walking in the truth, and rejecting offerings
+from Gentiles who were not walking in the truth:
+
+  III John 1:4-8 - I have no greater joy than to hear that my children are walking in the truth. Beloved, it is a
+  faithful thing you do in all your efforts for these brothers, strangers as they are, who testified to your love
+  before the church. You will do well to send them on their journey in a manner worthy of God. For they have gone
+  out for the sake of the name, accepting nothing from the Gentiles. Therefore we ought to support people like
+  these, that we may be fellow workers for the truth. (ESV)
 
 5.15.15. Do not condemn others. Speak the truth and leave judgement to the Judge
 
@@ -24961,6 +25028,15 @@ has empowered future blessing which Abram has faith about.
   made Abram rich. I will take nothing but what the young men have eaten, and the share of the men who went with
   me. Let Aner, Eshcol, and Mamre take their share.
 
+The Apostle John's children/disciples were walking in love while walking in the truth, and rejecting offerings
+from Gentiles who were not walking in the truth:
+
+  III John 1:4-8 - I have no greater joy than to hear that my children are walking in the truth. Beloved, it is a
+  faithful thing you do in all your efforts for these brothers, strangers as they are, who testified to your love
+  before the church. You will do well to send them on their journey in a manner worthy of God. For they have gone
+  out for the sake of the name, accepting nothing from the Gentiles. Therefore we ought to support people like
+  these, that we may be fellow workers for the truth. (ESV)
+
 God noticed and gave Abram a vision and made a promise to Abram, and Abram believed God and God counted it to
 Abram as righteousness.
 
@@ -28265,6 +28341,10 @@ Proclaim the Lord's death until He comes:
   I Corinthians 11:25-26 - In the same way also he took the cup, after supper, saying, This cup is the new
   covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this
   bread and drink the cup, you proclaim the Lord's death until he comes.
+
+Do not in any way forsake the commandments of the Lord; but keep what you have received, neither adding thereto
+nor taking away therefrom. In the church you shall acknowledge your transgressions, and you shall not come near
+for your prayer with an evil conscience. This is the way of life.
 
 43.3.3. Getting Jesus' words in us helps us to abide in Him
 
@@ -32812,6 +32892,14 @@ the time we need it to endure the suffering:
   looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
   cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
   sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
+
+I believe that the freedom we have in Christ is for serving Jesus, and we have a heavenly perspective:
+
+  Colossians 3:22-25 - Slaves, obey in everything those who are your earthly masters, not by way of eye-service,
+  as people-pleasers, but with sincerity of heart, fearing the Lord. Whatever you do, work heartily, as for the
+  Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are
+  serving the Lord Christ. For the wrongdoer will be paid back for the wrong he has done, and there is no
+  partiality. (ESV)
 
 54.23.3. The upward call of God in Christ Jesus
 
@@ -43790,7 +43878,7 @@ Date: 2024-08-18 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-18 Sun 15:01
+Created: 2024-08-18 Sun 15:46
 
 Validate
 
