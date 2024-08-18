@@ -6811,7 +6811,28 @@ I agree whole heartedly with this guy:
 
 - Are All Christians Disciples? (Lordship Salvation)
 
-I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian:
+I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian
+because those who have faith in Jesus will do works He does. Some disciples of Jesus turned away. Some believes in
+Jesus became His disciples:
+
+  Acts 11:21 - And the hand of the Lord was with them, and a great number who believed turned to the Lord. (ESV)
+
+We're clearly instructed to be disciples:
+
+  Matthew 28:19-20 - Go therefore and make disciples of all nations, baptizing them in the name of the Father and
+  of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with
+  you always, to the end of the age. (ESV)
+
+  John 13:35 - By this all people will know that you are my disciples, if you have love for one another. (ESV)
+
+  John 15:8 - By this my Father is glorified, that you bear much fruit and so prove to be my disciples. (ESV)
+
+  Luke 14:33 - So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
+
+  Luke 14:27 - Whoever does not bear his own cross and come after me cannot be my disciple. (ESV)
+
+In fact I think we should be both a believer and a disciple to be sanctified by the truth and regarded by God as
+on of His saints:
 
   II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
   into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
@@ -6822,6 +6843,17 @@ to make this transition:
 
   John 8:31-32 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
   disciples, and you will know the truth, and the truth will set you free. (ESV)
+
+I am increasingly of the opinion that there is a subtle difference between simply 'believer' and 'saint' who is
+also a believer. Saints both believe and keep the God's commandments. Believing disciples of Jesus may become
+saints.
+
+  II Thessalonians 1:9-12 - They will suffer the punishment of eternal destruction, away from the presence of the
+  Lord and from the glory of his might, when he comes on that day to be glorified in his saints, and to be
+  marveled at among all who have believed, because our testimony to you was believed. To this end we always pray
+  for you, that our God may make you worthy of his calling and may fulfill every resolve for good and every work
+  of faith by his power, so that the name of our Lord Jesus may be glorified in you, and you in him, according to
+  the grace of our God and the Lord Jesus Christ. (ESV)
 
 There is a transformation in the heart of a born-again Christian that involves changing allegiance towards Jesus
 Christ, resulting in the will to obey Jesus, and God gives us the spirit to help us to obey Him.
@@ -8886,7 +8918,7 @@ God forgive us and grant us sanctification. I know I still have issues, and I wa
   daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will
   save it. (ESV)
 
-  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  Luke 14:26 - If anyone comes to me and does not hate (miseo) his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
 
   Luke 14:27 - Whoever does not bear his own cross and come after me cannot be my disciple. (ESV)
@@ -20741,7 +20773,7 @@ reason I have experienced hostility is for following Jesus, repenting, etc. and 
   uncircumcision, but a new creation. And as for all who walk by this rule, peace and mercy be upon them, and upon
   the Israel of God. From now on let no one cause me trouble, for I bear on my body the marks of Jesus. (ESV)
 
-Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus:
 
   Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
@@ -23691,9 +23723,9 @@ The Pearl of Great Price is Jesus and we want to gain Christ, know Christ and in
 following Jesus, eternal life is still a free gift because as Paul says here, what we give up is worthless
 compared to knowing Christ:
 
-  Philippians 3:8 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my
-  Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
-  Christ (ESV)
+  Philippians 3:7-8 - But whatever gain I had, I counted as loss for the sake of Christ. Indeed, I count
+  everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered
+  the loss of all things and count them as rubbish, in order that I may gain Christ (ESV)
 
   Matthew 16:25 - For whoever would save his life will lose it, but whoever loses his life for my sake will find
   it. (ESV)
@@ -24640,7 +24672,7 @@ are walking by the Spirit. They are keeping in step with the Spirit.
 
 31.2. A disciple of Jesus - someone who has been obedient to Jesus
 
-Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus:
 
   Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
@@ -24757,7 +24789,7 @@ Support and encourage them for correction with regards to sound doctrine that is
 as a disciple bears others' burdens, because it's a profound a real thing to be born-again of the Spirit and walk
 in obedience to Jesus, and the teachings of Christ are supposed to be followed by Christians.
 
-Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus.
+Jesus still refers to new disciples as "little ones". Disciples have been obediently following Jesus:
 
   Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
@@ -29583,7 +29615,7 @@ I know I was pretty messed up at the time and I'm not without any guilt, and my 
 believe Kingdom marriage could be a thing, I also believe that we should still not allow anything or anyone to be
 held up as an idol before or alongside Father God, or before or alongside our Saviour and God Jesus Christ:
 
-  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  Luke 14:26 - If anyone comes to me and does not hate (miseo) his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
 
 The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
@@ -31750,17 +31782,65 @@ I believe that producing good fruit is necessary for being saved:
 
 youtube.com: What does it mean to be "in Christ"?
 
-54.1. When it says 'hate' here, it means 'unfollow'
+54.1. The cost of discipleship involves renouncing everything you have to achieve perfection
 
-  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
-  brothers and sisters, yes, and even his own life, he cannot be my disciple.
+When it says 'hate' here, it 'love less' and renounce, which is effectively results in being primarily yoked to
+Jesus, Jesus becoming our Pearl of Great Price by our choice.
 
-  Luke 14:27 - Whoever does not bear his own cross and come after me cannot be my disciple.
+We must value Jesus above all and detach from our old life. Coming after Jesus as His disciple means unfollowing
+everything else, pretty much, and carrying our cross:
 
-  Luke 14:33 - So therefore, any one of you who does not renounce all that he has cannot be my disciple.
+  Luke 14:25-33 - Now great crowds accompanied him, and he turned and said to them, If anyone comes to me and does
+  not hate (miseo) his own father and mother and wife and children and brothers and sisters, yes, and even his own
+  life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For
+  which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to
+  complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock
+  him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another
+  king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes
+  against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and
+  asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my
+  disciple. (ESV)
+
+I appreciate the Didache's teaching on this because it shows there is an upwards call:
+
+  Didache Chapter 6 - See that no one causes you to err from this way of the Teaching, since apart from God it
+  teaches you. For if you are able to bear the entire yoke of the Lord, you will be perfect; but if you are not
+  able to do this, do what you are able.
+
+We are perfected (completed), transformed into His image, from one degree of glory to another:
+
+  II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
+  into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
+
+And also Paul's teaching. Being a disciple of Jesus is an upwards call:
+
+  Philippians 3:13-14 - Brothers, I do not consider that I have made it my own. But one thing I do: forgetting
+  what lies behind and straining forward to what lies ahead, I press on toward the goal for the prize of the
+  upward call of God in Christ Jesus. (ESV)
+
+The Pearl of Great Price is Jesus and we want to gain Christ, know Christ and invest our lives for His gospel. In
+following Jesus, eternal life is still a free gift because as Paul says here, what we give up is worthless
+compared to knowing Christ:
+
+  Philippians 3:7-8 - But whatever gain I had, I counted as loss for the sake of Christ. Indeed, I count
+  everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered
+  the loss of all things and count them as rubbish, in order that I may gain Christ (ESV)
+
+For Jesus' name's sake, basically everyone will disown/hate you for following Jesus, except for Jesus, as you
+choose Jesus:
+
+  Mark 13:13 - And you will be hated by all for my name's sake. But the one who endures to the end will be saved.
+  (ESV)
+
+  I John 2:15 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. (ESV)
 
   Revelation of John 12:11 - And they have conquered him by the blood of the Lamb and by the word of their
   testimony, for they loved not their lives even unto death. (ESV)
+
+The ones who are made perfect are the ones who are being sanctified:
+
+  Hebrews 10:14 - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
 
 54.2. The slave to sin doesn't abide forever. Repentance from sin is essential for eternal life
 
@@ -41856,8 +41936,16 @@ to external spiritual influences and ultimately God was overseeing it:
 
 I guess it's quite important to forsake all else for Jesus:
 
-  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  Luke 14:26 - If anyone comes to me and does not hate (miseo) his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+The Pearl of Great Price is Jesus and we want to gain Christ, know Christ and invest our lives for His gospel. In
+following Jesus, eternal life is still a free gift because as Paul says here, what we give up is worthless
+compared to knowing Christ:
+
+  Philippians 3:7-8 - But whatever gain I had, I counted as loss for the sake of Christ. Indeed, I count
+  everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered
+  the loss of all things and count them as rubbish, in order that I may gain Christ (ESV)
 
   I John 2:15-17 - Do not love the world or the things in the world. If anyone loves the world, the love of the
   Father is not in him. For all that is in the world-the desires of the flesh and the desires of the eyes and
@@ -43158,7 +43246,9 @@ in Jesus' power are entirely given by grace to us:
 
 72.11.6. Believers will marvel. The saints will do good works which glorify Jesus, all done in God's grace
 
-Is there a subtle difference between 'believer' and 'saint'? Saints keep the commandments of God.
+I am increasingly of the opinion that there is a subtle difference between simply 'believer' and 'saint' who is
+also a believer. Saints both believe and keep the God's commandments. Saints are disciples of Jesus who have been
+sanctified by the Truth. Believing disciples of Jesus may become saints:
 
   II Thessalonians 1:9-12 - They will suffer the punishment of eternal destruction, away from the presence of the
   Lord and from the glory of his might, when he comes on that day to be glorified in his saints, and to be
@@ -43700,7 +43790,7 @@ Date: 2024-08-18 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-18 Sun 14:04
+Created: 2024-08-18 Sun 15:01
 
 Validate
 
