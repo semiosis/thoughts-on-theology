@@ -1789,11 +1789,12 @@ in April, a coincidence that happens only about every 33 years
 vercalendario.info compare-5782.html: Jewish Calendar 5782
 
 
-Event                      Dates
+Event                        Dates
 
-Ramadan  Evening of Fri, 1 Apr 2022 - Sun, 1 May 2022
-Nisan    2 April 2022 (Saturday) - May 1 2022
-Lent     Wed, 2 Mar 2022 - Thu, 14 Apr 2022
+Ramadan   Evening of Fri, 1 Apr 2022 - Sun, 1 May 2022
+Nisan     2 April 2022 (Saturday) - May 1 2022
+Passover  Evening of Fri, 15 Apr 2022 - Sat, 23 Apr 2022
+Lent      Wed, 2 Mar 2022 - Thu, 14 Apr 2022
 
 
 |  1 Nisan Lunar new year, marking the month of
@@ -44186,7 +44187,7 @@ Date: 2024-08-19 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-19 Mon 16:44
+Created: 2024-08-19 Mon 17:04
 
 Validate
 
