@@ -21210,7 +21210,7 @@ Greet those who love us in the faith:
   On 3 April 2022, one day after being born-again of the Spirit, there was this message. Amen and Amen to what my
   pastor has said here:
 
-  https://youtu.be/cn8vXRrf2wo?t=3599
+  youtube.com: Dunedin City Baptist Church - 3/4/2022 @time: 59 min 59 sec
 
   I had thought that what had happened regarding my first ever marriage proposal was God's grace to me but because
   I took a stand for Jesus and to repent from error, the enemy tried to quench the Holy Spirit.
@@ -21254,10 +21254,18 @@ Greet those who love us in the faith:
 
   https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/
 
-  Born-again: https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/
+  Born-again:
+
+    o https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/
+    o Exodus 12:1-2 - The LORD said to Moses and Aaron in the land of Egypt, This month shall be for you the
+      beginning of months. It shall be the first month of the year for you. (ESV)
 
   Meeting with the Holy Spirit:
-  https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/
+
+    o https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/
+    o I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know
+      him who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal
+      life. (ESV)
 
 20.3.7. Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
 
@@ -37519,6 +37527,10 @@ Following Jesus:
 
   Matthew 5:48 - You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
+Philip, an Evangelist in Brazil
+We have to treat every single person that we encounter with the love of God as much as possible. We fall short, we
+make mistakes, we're not always at our best, but as much as possible. We provide a testimony.
+
 62.1.13.
 
   Matthew 6:1 - Beware of practicing your righteousness before other people in order to be seen by them, for then
@@ -44187,7 +44199,7 @@ Date: 2024-08-19 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-19 Mon 17:04
+Created: 2024-08-19 Mon 18:57
 
 Validate
 

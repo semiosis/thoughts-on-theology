@@ -378,7 +378,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbf6e7f8) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5a586f0) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11440,7 +11440,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc1389ac)
+See: [33.4.1](#orge4e90e0)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14423,7 +14423,7 @@ Greet those who love us in the faith:
 > 
 > On 3 April 2022, one day after being born-again of the Spirit, there was this message. Amen and Amen to what my pastor has said here:
 > 
-> <https://youtu.be/cn8vXRrf2wo?t=3599>
+> [youtube.com: Dunedin City Baptist Church - 3/4/2022 @time: 59 min 59 sec](https://youtube.com/watch?v=cn8vXRrf2wo&t=3599)
 > 
 > I had thought that what had happened regarding my first ever marriage proposal was God's grace to me but because I took a stand for Jesus and to repent from error, the enemy tried to quench the Holy Spirit.
 > 
@@ -14452,10 +14452,14 @@ Greet those who love us in the faith:
 > <https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/>
 > 
 > Born-again:
-> <https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/>
+> 
+> -   <https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/>
+> -   **Exodus 12:1-2** - The LORD said to Moses and Aaron in the land of Egypt, This month shall be for you the beginning of months. It shall be the first month of the year for you. (ESV)
 > 
 > Meeting with the Holy Spirit:
-> <https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/>
+> 
+> -   <https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/>
+> -   **I John 5:20** - And we know that the Son of God has come and has given us understanding, so that we may know him who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
 
 
 ### Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
@@ -24150,7 +24154,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc1389ac)
+See: [33.4.1](#orge4e90e0)
 
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
@@ -26282,6 +26286,13 @@ Following Jesus:
 > **Didache 1** - &#x2026; Bless those who curse you, and pray for your enemies, and fast for those who persecute you. For what reward is there for loving those who love you?  Do not the Gentiles do the same? But love those who hate you, and you shall not have an enemy. &#x2026;
 
 > **[Matthew 5:48](https://www.biblegateway.com/passage/?search=Matthew%205%3A48&version=ESV)** - You therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+-   **[Philip, an Evangelist in Brazil](https://youtube.com/watch?v=y1RAL9oX2JE&t=902):** We have to
+    treat every single person that we
+    encounter with the love of God as much
+    as possible. We fall short, we make
+    mistakes, we're not always at our best,
+    but as much as possible. We provide a testimony.
 
 
 ### 
