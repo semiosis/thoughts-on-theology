@@ -378,7 +378,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org27d9823) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6ea66df) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -612,7 +612,13 @@ Yeah, I agree with John Piper, for the most part. Loving God is not actually **f
 
 God wants Him to be our treasure. We must obey Jesus and Jehovah Jireh will provide:
 
-I have also had a lot of suffering as I keep a good conscience with God, having been obedient to Him. But a good conscience with God remaining obedient to Him, enduring suffering and continuing to be faithful to God, and keeping the commandments of Jesus Christ while feeling like a zombie having what you love stolen from you by the enemy - this is still love for God to continue keeping the commandments of Jesus Christ.
+I have also had a lot of suffering as I keep a good conscience with God, having been obedient to Him.
+
+> **[I Timothy 1:3-5](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A3-5&version=ESV)** - As I urged you when I was going to Macedonia, remain at Ephesus that you may charge certain persons not to teach any different doctrine, nor to devote themselves to myths and endless genealogies, which promote speculations rather than the stewardship from God that is by faith. <ins>The aim of our charge is</ins> **love that issues from a pure heart and a good conscience and a sincere faith.** (ESV)
+
+> **[I Timothy 1:18-20](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A18-20&version=ESV)** - This charge I entrust to you, Timothy, my child, in accordance with the prophecies previously made about you, that by them you may **wage the good warfare, holding faith and a good conscience.** By rejecting this, some have made shipwreck of their faith, among whom are Hymenaeus and Alexander, whom I have handed over to Satan that they may learn not to blaspheme. (ESV)
+
+But a good conscience with God remaining obedient to Him, enduring suffering and continuing to be faithful to God, and keeping the commandments of Jesus Christ while feeling like a zombie having what you love stolen from you by the enemy - this is still love for God to continue keeping the commandments of Jesus Christ.
 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
@@ -1182,18 +1188,22 @@ It's a very big mystery to me that I was [born-again of the Spirit on the first 
 
 As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of false religion, and I hope that this helps others also to be corrected. I have been trying to be corrected by obedience to the Gospel of Jesus a lot since recording this 'dream' / conversation in my sleep. After actively trying to be obedient to the Truth, obedient to Jesus, saved to obey Jesus, I have come to distrust odd spirits which speak to me in my sleep.
 
-I believe that among other things I have had to repent from:
+I believe that among other things I have had to reject or repent from as I've been corrected and renewed in mind by the Truth which is the Word of God:
 
 -   a spirit of Mormomism
 -   a spirit of Islam
 -   a spirit of LGBT
 -   a spirit of Hinduism
+-   a spirit of Gnosticism
 -   a spirit of New Age
 
-And I think that the spirits which I attacked me tried to bundle in my desire to marry the girl I had met with their false religion.
-I affirm that I wanted to marry her when I met her at the Baptist church long before (if I recall the events precisely) I had gone to the Mormon church, so I have a good conscience before God with regards to the marriage proposal. Jehovah God as my witness, it was love that issued from a pure heart and a good conscience and sincere faith and I believe the enemy tried to sabotage me:
+> **[John 17:17](https://www.biblegateway.com/passage/?search=John%2017%3A17&version=ESV)** - Sanctify them in the truth; your word is truth. (ESV)
 
-> **[I Timothy 1:5](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A5&version=ESV)** - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere faith. (ESV)
+And I think that the spirits which I attacked me tried to bundle in my desire to marry the girl I had met with false religion.
+
+I affirm that I wanted to marry her when I met her at the Baptist church long before (if I recall the events precisely) I had even visited the Mormon church, so I have a good conscience before God with regards to the marriage proposal and that. Jehovah God as my witness, it was love that issued from a pure heart and a good conscience and sincere faith and I believe the enemy tried to sabotage me:
+
+> **[I Timothy 1:3-5](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A3-5&version=ESV)** - As I urged you when I was going to Macedonia, remain at Ephesus that you may charge certain persons not to teach any different doctrine, nor to devote themselves to myths and endless genealogies, which promote speculations rather than the stewardship from God that is by faith. The **aim of our charge is love that issues from a pure heart and a good conscience and a sincere faith.** (ESV)
 
 I cannot affirm spirits or dreams which do not confess Jesus. Neither can I affirm as without error my own writings, especially those I have written as I've been repenting from error:
 
@@ -11381,7 +11391,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgfe8455e)
+See: [33.4.1](#org2a38742)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24091,7 +24101,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgfe8455e)
+See: [33.4.1](#org2a38742)
 
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
@@ -30687,6 +30697,10 @@ spiritual warfare, and I have been constantly
 denied work and a marriage partner!
 
 > **[Colossians 2:18-21](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-21&version=ESV)** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (ESV)
+
+I've kept a good conscience with God, and with men, being obedient to Jesus over the last 2 years:
+
+> **[I Timothy 1:18-20](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A18-20&version=ESV)** - This charge I entrust to you, Timothy, my child, in accordance with the prophecies previously made about you, that by them you may **wage the good warfare, holding faith and a good conscience.** By rejecting this, some have made shipwreck of their faith, among whom are Hymenaeus and Alexander, whom I have handed over to Satan that they may learn not to blaspheme. (ESV)
 
 I'm definitely taking this stuff to God's court and asking for grace to be sanctified/delivered.
 
