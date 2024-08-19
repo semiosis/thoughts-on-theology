@@ -378,7 +378,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6ea66df) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7b37018) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1140,22 +1140,17 @@ OK, so the Spirit is received through faith (faith like Abraham's) in Jesus Chri
 
 > **[Galatians 3:13-16](https://www.biblegateway.com/passage/?search=Galatians%203%3A13-16&version=ESV)** - Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus **the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith.** To give a human example, brothers: even with a man-made covenant, no one annuls it or adds to it once it has been ratified. Now <ins>the promises were made to Abraham and to his offspring.</ins> It does not say, And to offsprings, referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
 
-> As interesting as the parallels or similarities are with my own testimony, I believe there are distortions in the Mormon interpretation. Even in here, the Mormans have suggested faith like Isaac's. Now I had gone into court willingly after being born-again as I held my faith in Jesus and submitted to the authorities, but not perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not man, the whole thing felt outside of my control (extremely graceless), and I was under clear impression especially later in 2022 that I was battling an antichrist spirit:
-> 
-> -   **I think this Mormon doctrine shows interesting parallels or similarities with my own testimony but I disagree with their way of interpreting this:** [thechurchnews.com: Isaac: Child of the promise and heir of the promises - Church News (Mormonism)](https://www.thechurchnews.com/1994/5/7/23257073/isaac-child-of-the-promise-and-heir-of-the-promises/)
->     
->     So through obedience to the gospel, I came into the light, I pleaded guilty, I made testimony of Jesus, etc. <ins>"whoever would save his life will lose it, but whoever loses his life for my sake will find it."</ins> This is Biblical gospel teaching, that through faith in Jesus we may be saved, and I disagree with the Mormans' interpretation.
->     
->     -   **[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)** - But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
->     -   **[Matthew 16:25](https://www.biblegateway.com/passage/?search=Matthew%2016%3A25&version=ESV)** - For whoever would save his life will lose it, but whoever loses his life for my sake will find it. (ESV)
+It's a very big mystery to me that I was [born-again of the Spirit on the first day of Nisan](https://web.archive.org/web/20220402091721/https://mullikine.github.io/posts/astral-projection/), and had a meeting with the [Holy Spirit (apparently)](https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/) at the tail end of Nisan. Well, whatever it was that happened to me happened.
 
-I also do not affirm the LDS doctrine here:
+Interestingly, the dates also line up very closely with Ramadan, but it was actually Nisan, which was a Saturday (Shabbat) that I was born-again:
 
--   [en.wikipedia.org: Melchizedek priesthood {Latter Day Saints} - Wikipedia](https://en.wikipedia.org/wiki/Melchizedek_priesthood_(Latter_Day_Saints))
+[lmc.edu a-coincidence-that-happens-only-about-every-33-years.htm: In 2022 Passover, Ramadan, and Easter all fall in April, a coincidence that happens only about every 33 years](https://www.lmc.edu/about/news-center/articles/2022/in-2022-passover,-ramadan,-and-easter-all-fall-in-april,-a-coincidence-that-happens-only-about-every-33-years.htm)
 
-I see the LDS stuff as similarly heretical to Basilidean gnosticism.
+    1  In 2022 Passover, Ramadan, and Easter all fall
+    2  in April, a coincidence that happens only
+    3  about every 33 years.
 
-It's a very big mystery to me that I was [born-again of the Spirit on the first day of Ramadan, apparently](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/), and had a meeting with the [Holy Spirit (apparently)](https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/) at the tail end of Ramadan. Well, whatever it was that happened to me happened.
+[vercalendario.info compare-5782.html: Jewish Calendar 5782](https://www.vercalendario.info/en/calendars/jewish-calendar/compare-5782.html)
 
 <table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
 
@@ -1180,15 +1175,46 @@ It's a very big mystery to me that I was [born-again of the Spirit on the first 
 
 
 <tr>
+<td class="org-left">Nisan</td>
+<td class="org-left">2 April 2022 (Saturday) - May 1 2022</td>
+</tr>
+
+
+<tr>
 <td class="org-left">Lent</td>
 <td class="org-left">Wed, 2 Mar 2022 – Thu, 14 Apr 2022</td>
 </tr>
 </tbody>
 </table>
 
+    1  1 Nisan Lunar new year, marking the month of
+    2  Aviv meaning spring, as the first month of the
+    3  year, which month was later called Nisan.
+    4  
+    5  The first national mitzvah that was given to
+    6  the Jewish people to fix the calendar to the
+    7  new moon of Aviv, according to the Book of
+    8  Exodus 12:1-2, 12:18. (c. 1456 BCE)
+
+So I was born-again of the Spirit on 1 Nisan, which commemorates the death of abraham and the day the floodwaters receded from the earth.
+
+    1  1 Nisan The day the floodwaters receded from the earth, after the dove was sent out by Noah and returned with an olive branch, according to Genesis 8:10-13
+    2  1 Nisan (c. 1638 BCE) – Death of Abraham according to the Talmud[2]
+    3  1 Nisan (c. 1533 BCE) – Death of Isaac according to the Talmud[2]
+    4  1 Nisan (c. 1506 BCE) – Death of Jacob according to the Talmud[2]
+    5  1 Nisan (c. 1455 BCE) – Tabernacle (Mishkan) inaugurated on the second year "Exodus 40".
+    6  1 Nisan (c. 1455 BCE) death of Nadab and Abihu[3]
+    7  1 Nisan (c. 3761 BCE) – Creation of the Universe according to Joshua ben Hananiah's opinion in the Talmud, tractate Rosh Hashanah 10b–11a).
+    8  1 Nisan (1772) – Birth of Rabbi Nachman of Breslov[citation needed]
+    9  1 Nisan (1892) – Death of Rabbi Elimelech Szapira of Grodzhisk
+
+> **Exodus 12:1-2** - The LORD said to Moses and Aaron in the land of Egypt, This month shall be for you the beginning of months. It shall be the first month of the year for you. (ESV)
+
+> **I Peter 3:21** - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
+
 As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of false religion, and I hope that this helps others also to be corrected. I have been trying to be corrected by obedience to the Gospel of Jesus a lot since recording this 'dream' / conversation in my sleep. After actively trying to be obedient to the Truth, obedient to Jesus, saved to obey Jesus, I have come to distrust odd spirits which speak to me in my sleep.
 
-I believe that among other things I have had to reject or repent from as I've been corrected and renewed in mind by the Truth which is the Word of God:
+I believe that among other things I have had to reject or repent from:
 
 -   a spirit of Mormomism
 -   a spirit of Islam
@@ -1196,6 +1222,23 @@ I believe that among other things I have had to reject or repent from as I've be
 -   a spirit of Hinduism
 -   a spirit of Gnosticism
 -   a spirit of New Age
+
+> As interesting as the parallels or similarities are with my own testimony, I believe there are distortions in the Mormon interpretation. Even in here, the Mormans have suggested faith like Isaac's. Now I had gone into court willingly after being born-again as I held my faith in Jesus and submitted to the authorities, but not perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not man, the whole thing felt outside of my control (extremely graceless), and I was under clear impression especially later in 2022 that I was battling an antichrist spirit:
+> 
+> -   **I think this Mormon doctrine shows interesting parallels or similarities with my own testimony but I disagree with their way of interpreting this:** [thechurchnews.com: Isaac: Child of the promise and heir of the promises - Church News (Mormonism)](https://www.thechurchnews.com/1994/5/7/23257073/isaac-child-of-the-promise-and-heir-of-the-promises/)
+>     
+>     So through obedience to the gospel, I came into the light, I pleaded guilty, I made testimony of Jesus, etc. <ins>"whoever would save his life will lose it, but whoever loses his life for my sake will find it."</ins> This is Biblical gospel teaching, that through faith in Jesus we may be saved, and I disagree with the Mormans' interpretation.
+>     
+>     -   **[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)** - But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+>     -   **[Matthew 16:25](https://www.biblegateway.com/passage/?search=Matthew%2016%3A25&version=ESV)** - For whoever would save his life will lose it, but whoever loses his life for my sake will find it. (ESV)
+
+I also do not affirm the LDS doctrine here:
+
+-   [en.wikipedia.org: Melchizedek priesthood {Latter Day Saints} - Wikipedia](https://en.wikipedia.org/wiki/Melchizedek_priesthood_(Latter_Day_Saints))
+
+I see the LDS stuff as similarly heretical to Basilidean gnosticism.
+
+I've been attending Bible studies and allowing myself to be corrected and renewed in mind by the Truth which is the Word of God:
 
 > **[John 17:17](https://www.biblegateway.com/passage/?search=John%2017%3A17&version=ESV)** - Sanctify them in the truth; your word is truth. (ESV)
 
@@ -10971,7 +11014,7 @@ Learning to trust in Jesus, learning to trust Jesus, as we obey Him and witness 
 
 As we see trusting in Jesus and trusting Jesus go hand-in-hand.
 Jesus has already spoken, and Jesus' words still speak and are active.
-Do we trust His words? Trusting His words and trusting Him go hand it hand.
+Do we trust His words? Trusting His words and trusting Him go hand-in-hand.
 If we trust Jesus, we will obey Him.
 If we obey Jesus, we will see His glory.
 If we see see His glory, our faith in Him will increase.
@@ -11391,7 +11434,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org2a38742)
+See: [33.4.1](#org86d21fc)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24101,7 +24144,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org2a38742)
+See: [33.4.1](#org86d21fc)
 
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
