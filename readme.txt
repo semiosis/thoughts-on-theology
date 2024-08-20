@@ -17119,6 +17119,38 @@ salvation
   Though they can never keep the law perfectly, they try to follow the law as an expression of faith in God and
   love to Him.
 
+To be regarded as a child of Abraham, a person must fall into one of 2 categories:
+
+- walk in the footsteps of the faith that our father Abraham had before he was circumcised, I believe with
+respect to having faith in Jesus Christ, but I also this likely counts to adherents of the law of God (i.e.
+the circumcised) who also walk in the footsteps of the faith that Abraham had before he was circumcised
+- John 8:39 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children,
+you would be doing what Abraham did, (ESV)
+- faith in Jesus Christ:
+- Galatians 3:7-9 - Know then that it is those of faith who are the sons of Abraham. And the Scripture,
+foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham,
+saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with
+Abraham, the man of faith. (ESV)
+
+  Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
+  was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
+  circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of
+  the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father
+  of all who believe without being circumcised, so that righteousness would be counted to them as well, and to
+  make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the
+  faith that our father Abraham had before he was circumcised.
+
+I believe this also counts to those who are of the "real/spiritual circumcision". After being born-again of the
+Spirit, it seems natural to want to obey and trust God the way Abraham did and walk in works of faith like
+Abraham:
+
+  Philippians 3:3 - For we are the real circumcision, who worship by the Spirit of God and glory in Christ Jesus
+  and put no confidence in the flesh- (ESV)
+
+  Colossians 2:11-12 - In him also you were circumcised with a circumcision made without hands, by putting off the
+  body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also
+  raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
+
 17.0.3. I affirm we are free in Christ Jesus, enslaved to God, and have victory over death
 
   Romans 8:2 - For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death.
@@ -34693,8 +34725,18 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 See: 33.4.1
 
-To be justified, a person must walk in the footsteps of the faith that our father Abraham had before he was
-circumcised, I believe with having faith in Jesus Christ:
+To be regarded as a child of Abraham, a person must fall into one of 2 categories:
+
+- walk in the footsteps of the faith that our father Abraham had before he was circumcised, I believe with
+respect to having faith in Jesus Christ, but I also this likely counts to adherents of the law of God (i.e.
+the circumcised) who also walk in the footsteps of the faith that Abraham had before he was circumcised
+- John 8:39 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children,
+you would be doing what Abraham did, (ESV)
+- faith in Jesus Christ:
+- Galatians 3:7-9 - Know then that it is those of faith who are the sons of Abraham. And the Scripture,
+foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham,
+saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with
+Abraham, the man of faith. (ESV)
 
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
   was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
@@ -34703,6 +34745,17 @@ circumcised, I believe with having faith in Jesus Christ:
   of all who believe without being circumcised, so that righteousness would be counted to them as well, and to
   make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the
   faith that our father Abraham had before he was circumcised.
+
+I believe this also counts to those who are of the "real/spiritual circumcision". After being born-again of the
+Spirit, it seems natural to want to obey and trust God the way Abraham did and walk in works of faith like
+Abraham:
+
+  Philippians 3:3 - For we are the real circumcision, who worship by the Spirit of God and glory in Christ Jesus
+  and put no confidence in the flesh- (ESV)
+
+  Colossians 2:11-12 - In him also you were circumcised with a circumcision made without hands, by putting off the
+  body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also
+  raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
 
 How do we become sons of Abraham:
 
@@ -44374,7 +44427,7 @@ Date: 2024-08-20 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-20 Tue 19:30
+Created: 2024-08-20 Tue 19:45
 
 Validate
 
