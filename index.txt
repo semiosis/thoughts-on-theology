@@ -21039,8 +21039,8 @@ Even if my lawyer had access to them, there's no way I could truthfully say that
 of guilt to the full set of accusations and an admission that the summary of facts is true" - it was a new
 document. I do not want to be a liar or a spreader of slander, so I cannot say the lies were true, and I also want
 people to stop slandering each other, but I still chose to plead guilty. I guess I had to become a bit of a
-scapegoat. It was my mindset to remain faithful to Jesus. And so Jesus was there watching the event as my
-advocate:
+scapegoat. It was my mindset to remain faithful to Jesus and also do no harm to the person I proposed to because I
+love them. And so Jesus was there watching the event as my Advocate:
 
   John 8:55 - But you have not known him. I know him. If I were to say that I do not know him, I would be a liar
   like you, but I do know him and I keep his word. (ESV)
@@ -21051,7 +21051,31 @@ Pleading guilty to a charge can be for the sole reason that a person cannot clai
 
   I John 1:8 - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
 
-Also, the reason can also be to simply not drag things out!
+When obeying man's law means disobeying God we should instead choose to obey God, and disobey man's law:
+
+  Acts 5:29 - But Peter and the apostles answered, We must obey God rather than men. (ESV)
+
+If obeying man's law means doing evil, then I refuse to obey man's law. I found myself being pressured by people
+around me including the courts into taking the girl who I had proposed to to trial, and I refused to take her to
+trial or to seek justice for myself, I refused to play the game which the devil wanted me to play, and I took the
+sentence instead because that does not harm anyone but myself. I do not consider myself to have committed perjury
+by pleading guilty because, it is grey and even if I am a little bit responsible for what happened, I consider
+that grounds to plead guilty in court - it's the right thing to do:
+
+  Matthew 12:12 - Of how much more value is a man than a sheep! So it is lawful to do good on the Sabbath. (ESV)
+
+My faith and God's law came up against the imperfect NZ law:
+
+  Romans 13:10 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+  Proverbs 3:29-30 - Do not plan evil against your neighbor, who dwells trustingly beside you. Do not contend with
+  a man for no reason, when he has done you no harm. (ESV)
+
+  Mark 3:4-5 - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill?
+  But they were silent. And he looked around at them with anger, grieved at their hardness of heart, and said to
+  the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
+
+Also, the reason to take the sentence can also be to simply not drag things out!
 
   Matthew 5:25 - Come to terms quickly with your accuser while you are going with him to court, lest your accuser
   hand you over to the judge, and the judge to the guard, and you be put in prison. (ESV)
@@ -44271,7 +44295,7 @@ Date: 2024-08-20 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-20 Tue 18:23
+Created: 2024-08-20 Tue 18:55
 
 Validate
 

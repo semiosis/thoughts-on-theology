@@ -378,7 +378,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org972ee8b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgeb6c08a) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11506,7 +11506,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgfe98221)
+See: [33.4.1](#org9042e36)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14316,7 +14316,7 @@ There was an almost complete absence of truth from my perspective in the accusat
 
 > **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
-The summary of facts had been updated for the day the judge read it out against me, and I did not know what it was updated with. If I recall correctly, I had entered new information and the other side had entered new information. Even if my lawyer had access to them, there's no way I could truthfully say that "pleading guilty is an admission of guilt to the full set of accusations and an admission that the summary of facts is true" - it was a new document. I do not want to be a liar or a spreader of slander, so I cannot say the lies were true, and I also want people to stop slandering each other, but I still chose to plead guilty. I guess I had to become a bit of a scapegoat. It was my mindset to remain faithful to Jesus. And so Jesus was there watching the event as my advocate:
+The summary of facts had been updated for the day the judge read it out against me, and I did not know what it was updated with. If I recall correctly, I had entered new information and the other side had entered new information. Even if my lawyer had access to them, there's no way I could truthfully say that "pleading guilty is an admission of guilt to the full set of accusations and an admission that the summary of facts is true" - it was a new document. I do not want to be a liar or a spreader of slander, so I cannot say the lies were true, and I also want people to stop slandering each other, but I still chose to plead guilty. I guess I had to become a bit of a scapegoat. It was my mindset to remain faithful to Jesus and also do no harm to the person I proposed to because I love them. And so Jesus was there watching the event as my Advocate:
 
 > **[John 8:55](https://www.biblegateway.com/passage/?search=John%208%3A55&version=ESV)** - But you have not known him. I know him. If I were to say that I do not know him, I would be a liar like you, but I do know him and I keep his word. (ESV)
 
@@ -14326,7 +14326,23 @@ Pleading guilty to a charge can be for the sole reason that a person cannot clai
 
 > **[I John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV)** - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
 
-Also, the reason can also be to simply not drag things out!
+When obeying man's law means disobeying God we should instead choose to obey God, and disobey man's law:
+
+> **[Acts 5:29](https://www.biblegateway.com/passage/?search=Acts%205%3A29&version=ESV)** - But Peter and the apostles answered, We must obey God rather than men. (ESV)
+
+If obeying man's law means doing evil, then I refuse to obey man's law. I found myself being pressured by people around me including the courts into taking the girl who I had proposed to to trial, and I refused to take her to trial or to seek justice for myself, I refused to play the game which the devil wanted me to play, and I took the sentence instead because that does not harm anyone but myself. I do not consider myself to have committed perjury by pleading guilty because, it is grey and even if I am a little bit responsible for what happened, I consider that grounds to plead guilty in court - it's the right thing to do:
+
+> **[Matthew 12:12](https://www.biblegateway.com/passage/?search=Matthew%2012%3A12&version=ESV)** - Of how much more value is a man than a sheep! So it is lawful to do good on the Sabbath. (ESV)
+
+My faith and God's law came up against the imperfect NZ law:
+
+> **[Romans 13:10](https://www.biblegateway.com/passage/?search=Romans%2013%3A10&version=ESV)** - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+> **[Proverbs 3:29-30](https://www.biblegateway.com/passage/?search=Proverbs%203%3A29-30&version=ESV)** - Do not plan evil against your neighbor, who dwells trustingly beside you. Do not contend with a man for no reason, when he has done you no harm. (ESV)
+
+> **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And he looked around at them with anger, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
+
+Also, the reason to take the sentence can also be to simply not drag things out!
 
 > **[Matthew 5:25](https://www.biblegateway.com/passage/?search=Matthew%205%3A25&version=ESV)** - Come to terms quickly with your accuser while you are going with him to court, lest your accuser hand you over to the judge, and the judge to the guard, and you be put in prison. (ESV)
 
@@ -24220,7 +24236,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgfe98221)
+See: [33.4.1](#org9042e36)
 
 To be justified, a person must <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with having faith in Jesus Christ:
 
