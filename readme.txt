@@ -1264,6 +1264,26 @@ remaining steadfast through trial and tribulation:
   Luke 8:15 - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and
   good heart, and bear fruit with patience. (ESV)
 
+Quote from John Piper
+If God in fact in his grace and power enables us to do things that are good, He is going to reward them, not
+ignore them. He's going to say, "Well done good and faithful servant (Matthew 25:21). Works of Faith are going to
+be rewarded, not thrown away as filthy rags.
+
+  II Corinthians 5:10 - For we must all appear before the judgment seat of Christ, so that each one may receive
+  what is due for what he has done in the body, whether good or evil. (ESV)
+
+God considers being obedient from a forgiven heart, trusting in Jesus, to faithful service:
+
+  Matthew 25:23 - His master said to him, Well done, good and faithful servant. You have been faithful over a
+  little; I will set you over much. Enter into the joy of your master. (ESV)
+
+Quote from John Piper
+He bought us by grace, he sustains us by grace, he enables us to do good works by grace and we do the works
+trusting that grace.
+
+  Ephesians 6:8 - knowing that whatever good anyone does, this he will receive back from the Lord, whether he is a
+  slave or free. (ESV)
+
   Hebrews 10:36 - For you have need of endurance, so that when you have done the will of God you may receive what
   is promised. (ESV)
 
@@ -12324,6 +12344,26 @@ want to repent from sin, and stop committing bad deeds:
 
   Psalms 34:19 - Many are the afflictions of the righteous, but the LORD delivers him out of them all. (ESV)
 
+youtube.com: Your Holy Deeds Are Not Filthy Rags
+
+  Nehemiah 13:14 - Remember me, O my God, concerning this, and do not wipe out my good deeds that I have done for
+  the house of my God and for his service. (ESV)
+
+  Nehemiah 13:22 - Then I commanded the Levites that they should purify themselves and come and guard the gates,
+  to keep the Sabbath day holy. Remember this also in my favor, O my God, and spare me according to the greatness
+  of your steadfast love. (ESV)
+
+  Nehemiah 13:30-31 - Thus I cleansed them from everything foreign, and I established the duties of the priests
+  and Levites, each in his work; and I provided for the wood offering at appointed times, and for the firstfruits.
+  Remember me, O my God, for good. (ESV)
+
+God does not despise the righteous deeds of His children done by faith:
+
+  Isaiah 64:5-6 - You meet him who joyfully works righteousness, those who remember you in your ways. Behold, you
+  were angry, and we sinned; in our sins we have been a long time, and shall we be saved? We have all become like
+  one who is unclean, and all our righteous deeds are like a polluted garment. We all fade like a leaf, and our
+  iniquities, like the wind, take us away. (ESV)
+
 People who are now in Christ are a new creation, and we should be transitioning into the new. That might take some
 shaking off of old things, and involves being sanctified by obedience to the Truth. But those who are in Christ
 are a brand new creation, born-again:
@@ -14994,6 +15034,38 @@ and having faith in God is having faith in His Son which is believing in and obe
 - Endeavour to please God
 - Be holy
 - Be godly (behaviour in accordance with the knowledge of God)
+
+God does not despise the righteous deeds of His children done by faith:
+
+  Isaiah 64:5-6 - You meet him who joyfully works righteousness, those who remember you in your ways. Behold, you
+  were angry, and we sinned; in our sins we have been a long time, and shall we be saved? We have all become like
+  one who is unclean, and all our righteous deeds are like a polluted garment. We all fade like a leaf, and our
+  iniquities, like the wind, take us away. (ESV)
+
+Given a good conscience with God by faith in Jesus, we then do good works in love out of a forgiven heart:
+
+  I Timothy 1:5 - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere
+  faith. (ESV)
+
+Quote from John Piper
+That misunderstanding of Isaiah 64:6 has caused many Christians to believe that it is impossible for a Christian
+to please God. If their best works are filthy rags, there's nothing they can do to please him - this is a
+profoundly unbiblical notion through and through.
+
+  Philippians 4:18 - I have received full payment, and more. I am well supplied, having received from Epaphroditus
+  the gifts you sent, a fragrant offering, a sacrifice acceptable and pleasing to God. (ESV)
+
+  Hebrews 13:16 - Do not neglect to do good and to share what you have, for such sacrifices are pleasing to God.
+  (ESV)
+
+Our works must be done in faith:
+
+  Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
+  that he exists and that he rewards those who seek him. (ESV)
+
+Quote from John Piper
+Think what a horrible thing it would be to say that the fruit of the Holy Spirit in the Christian Life is filthy
+rags. I can hardly stand to think about it. They are not filthy rags.
 
   Galatians 1:10 - For am I now seeking the approval of man, or of God? Or am I trying to please man? If I were
   still trying to please man, I would not be a servant of Christ. (ESV)
@@ -44195,11 +44267,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-19 Mon 00:00
+Date: 2024-08-20 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-19 Mon 18:57
+Created: 2024-08-20 Tue 18:23
 
 Validate
 
