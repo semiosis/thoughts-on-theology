@@ -256,9 +256,10 @@ straight for us:
   abundance of the heart the mouth speaks. The good person out of his good treasure brings forth good, and the
   evil person out of his evil treasure brings forth evil. (ESV)
 
-- youtube.com: STOP Trying To Be a Better Christian... {Let Me Explain}
-- David Mathis
-">"Don't think that becoming like Jesus in his death means that Paul is anticipating that he himself will be
+youtube.com: STOP Trying To Be a Better Christian... {Let Me Explain}
+
+David Mathis
+"Don't think that becoming like Jesus in his death means that Paul is anticipating that he himself will be
 crucified, or that we will be crucified, but that he wants us to know Christ as we live in the pattern in which he
 lived; That we would have his heart, we would have his mind (mindset). We would know him by walking in that mind,
 in that heart. That's the pattern Paul wants to be conformed to. And knowing Christ by sharing in his sufferings
@@ -6758,7 +6759,7 @@ who He is:
   Isaiah 9:6 - For to us a child is born, to us a son is given; and the government shall be upon his shoulder, and
   his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. (ESV)
 
-*D - Deeds:
+D - Deeds:
 
 All things were made through Him:
 
@@ -6800,7 +6801,7 @@ He is one who gives life:
 In fact it could be said that everything that God does for us, Jesus does for us. How should one respond to such
 blessings?
 
-*S - Seat:
+S - Seat:
 
 Jesus sits on God's throne:
 
@@ -10899,31 +10900,28 @@ Likewise, the Holy Spirit is Almighty God:
   were opened to him, and he saw the Spirit of God descending like a dove and coming to rest on him; and behold, a
   voice from heaven said, This is my beloved Son, with whom I am well pleased. (ESV)
 
-Immanuel or Emmanuel is a Hebrew name that appears in the Book of Isaiah (7:14) as a sign that God will protect
-the House of David.
+Immanuel or Emmanuel is a Hebrew name that appears in Isaiah 7:14 as a sign that God will protect the House of
+David:
 
-  Mt 1:21 - She will bear a son, and you shall call his name Jesus, for he will save his people from their sins.
-  Mt 1:22 - All this took place to fulfill what the Lord had spoken by the prophet: Mt 1:23 - Behold, the virgin
-  shall conceive and bear a son, and they shall call his name Immanuel (which means, God with us). Mt 1:24 - When
-  Joseph woke from sleep, he did as the angel of the Lord commanded him: he took his wife, Mt 1:25 - but knew her
-  not until she had given birth to a son. And he called his name Jesus.
+  Matthew 1:21-23 - She will bear a son, and you shall call his name Jesus, for he will save his people from their
+  sins. All this took place to fulfill what the Lord had spoken by the prophet: Behold, the virgin shall conceive
+  and bear a son, and they shall call his name Immanuel (which means, God with us). (ESV)
 
-  Is 7:10 - Again the Lord spoke to Ahaz, Is 7:11 - Ask a sign of the Lord your God; let it be deep as Sheol or
-  high as heaven. Is 7:12 - But Ahaz said, I will not ask, and I will not put the Lord to the test.
+  Matthew 1:24-25 - When Joseph woke from sleep, he did as the angel of the Lord commanded him: he took his wife,
+  but knew her not until she had given birth to a son. And he called his name Jesus. (ESV)
 
-  Is 7:13 - And he said, Hear then, O house of David! Is it too little for you to weary men, that you weary my God
-  also? Is 7:14 - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a
-  son, and shall call his name Immanuel. Is 7:15 - He shall eat curds and honey when he knows how to refuse the
-  evil and choose the good. Is 7:16 - For before the boy knows how to refuse the evil and choose the good, the
-  land whose two kings you dread will be deserted.
-
-  Is 7:17 - The Lord will bring upon you and upon your people and upon your father's house such days as have not
-  come since the day that Ephraim departed from Judah-the king of Assyria. Is 7:18 - In that day the Lord will
-  whistle for the fly that is at the end of the streams of Egypt, and for the bee that is in the land of Assyria.
-  Is 7:19 - And they will all come and settle in the steep ravines, and in the clefts of the rocks, and on all the
-  thornbushes, and on all the pastures. Is 7:20 - In that day the Lord will shave with a razor that is hired
-  beyond the River-with the king of Assyria-the head and the hair of the feet, and it will sweep away the beard
-  also.
+  Isaiah 7:10-20 - Again the LORD spoke to Ahaz, Ask a sign of the LORD your God; let it be deep as Sheol or high
+  as heaven. But Ahaz said, I will not ask, and I will not put the LORD to the test. And he said, Hear then, O
+  house of David! Is it too little for you to weary men, that you weary my God also? Therefore the Lord himself
+  will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. He
+  shall eat curds and honey when he knows how to refuse the evil and choose the good. For before the boy knows how
+  to refuse the evil and choose the good, the land whose two kings you dread will be deserted. The LORD will bring
+  upon you and upon your people and upon your father's house such days as have not come since the day that Ephraim
+  departed from Judah-the king of Assyria. In that day the LORD will whistle for the fly that is at the end of the
+  streams of Egypt, and for the bee that is in the land of Assyria. And they will all come and settle in the steep
+  ravines, and in the clefts of the rocks, and on all the thornbushes, and on all the pastures. In that day the
+  Lord will shave with a razor that is hired beyond the River-with the king of Assyria-the head and the hair of
+  the feet, and it will sweep away the beard also. (ESV)
 
   Romans 12:9-21 - Let love be genuine. Abhor what is evil; hold fast to what is good. Love one another with
   brotherly affection. Outdo one another in showing honor. Do not be slothful in zeal, be fervent in spirit, serve
@@ -22143,6 +22141,12 @@ Christ though, is a different story:
   free; but Christ is all, and in all. (ESV)
 
 20.5. Renovating vs Innovating
+
+  Isaiah 43:18-19 - Remember not the former things, nor consider the things of old. Behold, I am doing a new
+  thing; now it springs forth, do you not perceive it? I will make a way in the wilderness and rivers in the
+  desert. (ESV)
+
+star.net.nz: It's a new day for you
 
 I think God wants us to be born-again and move on from the old life, not asking us to renovate our old life.
 
@@ -45078,7 +45082,7 @@ Date: 2024-08-23 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-23 Fri 22:41
+Created: 2024-08-24 Sat 08:50
 
 Validate
 
