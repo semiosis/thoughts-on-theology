@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  21 AUG 2024 11:32
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 AUG 2024 22:45
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -318,7 +318,7 @@ Package: geometry 2018/04/16 v5.8 Page Geometry
 File: se-ascii-print.def 2016/05/16 v1.11 stringenc: Printable ASCII characters
 
 )
-No file README.aux.
+(.//README.aux)
 \openout1 = `README.aux'.
 
 LaTeX Font Info:    Checking defaults for OML/cmm/m/it on input line 25.
@@ -339,7 +339,7 @@ LaTeX Font Info:    Checking defaults for PD1/pdf/m/n on input line 25.
 LaTeX Font Info:    ... okay on input line 25.
 LaTeX Font Info:    Checking defaults for PU/pdf/m/n on input line 25.
 LaTeX Font Info:    ... okay on input line 25.
-(/usr/share/texlive/texmf-dist/tex/latex/ucs/ucsencs.def
+ (/usr/share/texlive/texmf-dist/tex/latex/ucs/ucsencs.def
 File: ucsencs.def 2011/01/21 Fixes to fontencodings LGR, T3
 )
 \AtBeginShipoutBox=\box39
@@ -356,12 +356,11 @@ Package: gettitlestring 2016/05/16 v1.5 Cleanup title references (HO)
 LaTeX Info: Redefining \ref on input line 25.
 LaTeX Info: Redefining \pageref on input line 25.
 LaTeX Info: Redefining \nameref on input line 25.
+
+(.//README.out) (.//README.out)
 \@outlinefile=\write3
 \openout3 = `README.out'.
 
-
-
-Package hyperref Warning: Rerun to get /PageLabels entry.
 
 *geometry* driver: auto-detecting
 *geometry* detected driver: xetex
@@ -418,12 +417,7 @@ Overfull \hbox (2.31276pt too wide) in paragraph at lines 488--489
 []\TU/lmr/m/n/10.95 I don’t believe you
  []
 
-[9] [10] [11]
-
-LaTeX Warning: Hyper reference `sec:org15bd311' on page 12 undefined on input l
-ine 585.
-
-[12] [13] [14] [15] [16]
+[9] [10] [11] [12] [13] [14] [15] [16]
 Overfull \hbox (177.03938pt too wide) in paragraph at lines 905--906
 []
  []
@@ -1353,12 +1347,7 @@ Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
- [316]
-
-LaTeX Warning: Reference `sec:orgfe3944f' on page 317 undefined on input line 1
-6382.
-
-[317] [318] [319] [320] [321] [322] [323] [324] [325]
+ [316] [317] [318] [319] [320] [321] [322] [323] [324] [325]
 Overfull \hbox (3.58777pt too wide) in paragraph at lines 16889--16890
 []\TU/lmr/m/n/10.95 You’ve
  []
@@ -2104,12 +2093,7 @@ Overfull \hbox (0.52545pt too wide) in paragraph at lines 32020--32021
 
 [622] [623] [624] [625] [626] [627] [628] [629] [630] [631] [632] [633]
 [634] [635] [636] [637] [638] [639] [640] [641] [642] [643] [644] [645]
-[646]
-
-LaTeX Warning: Reference `sec:orgfe3944f' on page 647 undefined on input line 3
-3340.
-
-[647] [648]
+[646] [647] [648]
 Missing character: There is no ὥ in font [lmmono10-regular]:!
 Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
@@ -2827,30 +2811,17 @@ Package atveryend Info: Empty hook `AfterLastShipout' on input line 43254.
 Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 43254.
 Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 43254
 .
-
-
-Package rerunfilecheck Warning: File `README.out' has changed.
-(rerunfilecheck)                Rerun to get outlines right
-(rerunfilecheck)                or use package `bookmark'.
-
-Package rerunfilecheck Info: Checksums for `README.out':
-(rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  42714F4826735F9C53CC42A6C45115C5.
-
-LaTeX Warning: There were undefined references.
-
-
-LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
-
+Package rerunfilecheck Info: File `README.out' has not changed.
+(rerunfilecheck)             Checksum: 42714F4826735F9C53CC42A6C45115C5.
 Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 43254.
  ) 
 Here is how much of TeX's memory you used:
- 11129 strings out of 494868
- 157124 string characters out of 6175714
- 269408 words of memory out of 5000000
- 14964 multiletter control sequences out of 15000+600000
+ 11325 strings out of 494868
+ 160134 string characters out of 6175714
+ 523401 words of memory out of 5000000
+ 15154 multiletter control sequences out of 15000+600000
  10411 words of font info for 54 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6363b,1246s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,598s stack positions out of 5000i,500n,10000p,200000b,80000s
 
 Output written on ./README.pdf (824 pages).
