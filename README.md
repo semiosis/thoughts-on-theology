@@ -412,7 +412,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga2fdb70) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfbdbdde) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -734,7 +734,7 @@ While obedience exists in the heart, as belief does, as **faith is** <ins>believ
 
 The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness, believing the word of God, and in obedience we are saved from sinning and try to fulfill the Royal Law, and even using our freedom in Christ to do good works that are pleasing to God:
 
@@ -1095,7 +1095,10 @@ OK, so to be obedient while enduring suffering, which God has allowed is love wh
 I would argue though that to maintain an affectionate love for God while enduring suffering which God has allowed to happen is even more difficult and more blessed than to maintain good works while suffering.
 Love gives - love obeys Jesus' teaching. Love forgives and gives while being stolen from and abused - love obeys.
 Love praises God and affectionately loves God despite experiencing being thrown into darkness and God allowing them to be tormented by the enemy..
-Faithfulness to Jesus, though, is a baseline requirement.
+
+Faithfulness to Jesus, though, is a baseline requirement:
+
+> **[Matthew 24:12-13](https://www.biblegateway.com/passage/?search=Matthew%2024%3A12-13&version=ESV)** - And because lawlessness will be increased, the love of many will grow cold. But the one who endures to the end will be saved. (ESV)
 
 See how faithfulness is related to faith - faith is faithful to God. Having faith in God **is** keeping accountability with God with regard to His commands and promises and maintaining faithfulness with God who sees in secret:
 
@@ -1311,7 +1314,7 @@ Interestingly, the dates also line up very closely with Ramadan, but it was actu
     7  new moon of Aviv, according to the Book of
     8  Exodus 12:1-2, 12:18. (c. 1456 BCE)
 
-So I was born-again of the Spirit on 1 Nisan, which commemorates the death of abraham and the day the floodwaters receded from the earth.
+So I was born-again of the Spirit on 1 Nisan, which commemorates the death of Abraham and the day the floodwaters receded from the earth:
 
     1  1 Nisan The day the floodwaters receded from the earth, after the dove was sent out by Noah and returned with an olive branch, according to Genesis 8:10-13
     2  1 Nisan (c. 1638 BCE) – Death of Abraham according to the Talmud[2]
@@ -1322,6 +1325,8 @@ So I was born-again of the Spirit on 1 Nisan, which commemorates the death of ab
     7  1 Nisan (c. 3761 BCE) – Creation of the Universe according to Joshua ben Hananiah's opinion in the Talmud, tractate Rosh Hashanah 10b–11a).
     8  1 Nisan (1772) – Birth of Rabbi Nachman of Breslov[citation needed]
     9  1 Nisan (1892) – Death of Rabbi Elimelech Szapira of Grodzhisk
+
+[lifecenter.ca the-hebrew-month-of-nissan-2022.html: THE HEBREW MONTH OF NISSAN {2022} - Ahava Life Centre](https://www.lifecenter.ca/the-hebrew-month-of-nissan-2022.html)
 
 > **Exodus 12:1-2** - The LORD said to Moses and Aaron in the land of Egypt, This month shall be for you the beginning of months. It shall be the first month of the year for you. (ESV)
 
@@ -1410,6 +1415,8 @@ Now I endeavour to take every thought captive to Christ:
 AMEN!!
 
 For a long while now I have affirmed that Jesus is the only King, and my King and in doing so I really mean to say that I am not a king, but would happily let Jesus call me His brother and a royal priest in His kingdom:
+
+-   **Song:** [youtube.com: Only King Forever | Live | Elevation Worship](https://www.youtube.com/watch?v=FVygdWkcoMc)
 
 > **[Revelation of John 19:19](https://www.biblegateway.com/passage/?search=Revelation%2019%3A19&version=ESV)** - And I saw the beast and the kings of the earth with their armies gathered to make war against him who was sitting on the horse and against his army. (ESV)
 
@@ -3615,6 +3622,34 @@ Also, different to the Apostle Paul's conviction, I am persuaded in the Lord Jes
 Consider downloading N64 ROMS. I don't want to do it any longer. It feels wrong to me. Also, I consider AI fiction to be unclean, so I would avoid it.
 
 > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+Here are a few reasons why I don't like AI fiction.
+
+Lies and deceit:
+
+-   Using AI fiction to write a cover letter for a job application
+    -   Resulting in increased difficulty in getting a job for refusing to write lies on a resume
+-   Using AI fiction to misrepresent yourself and lure girls over a dating platform
+-   Using AI fiction to impersonate or misrepresent people
+
+Adultery:
+
+-   Fantasizing over AI fiction
+
+Theft:
+
+-   Stealing intellectual property (code, artwork, style etc.)
+-   &#x2026;
+
+So if I am experiencing persecution for refusing to use AI fiction to misrepresent myself to get ahead, then I am being persecuted for righteousness-sake and I have a lot of faith that God will honour that I want to obey Him and not sin, and I'm grieved by the use of AI to misrepresent and manipulate people.
+
+> **[Ezekiel 9:4](https://www.biblegateway.com/passage/?search=Ezekiel%209%3A4&version=ESV)** - And the LORD said to him, Pass through the city, through Jerusalem, and put a mark on the foreheads of the men who sigh and groan over all the abominations that are committed in it. (ESV)
+
+I think a lot of people are literally blinded from being able to see the truth of this:
+
+> **[II Corinthians 4:4](https://www.biblegateway.com/passage/?search=2%20Corinthians%204%3A4&version=ESV)** - In their case **the god of this world has blinded the minds of the unbelievers**, to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. (ESV)
+
+God I hate living in this world. It's a cesspool.
 
 Everyone will give an account of themself to God:
 
@@ -7841,7 +7876,11 @@ Also, I have had as of 28 May '24 in my dreams:
 
 [star.net.nz:  The Word for Today - The right balance - May 28th](https://www.star.net.nz/the-word-for-today/-the-right-balance-2024_05_28)
 
-Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God and is Love. I will be still waiting for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God **in the flesh** from heaven to earth". Otherwise I'm simply not going to trust the spirit sending dreams/visions. They can get very tactical sometimes, so I have to be very discerning. Though I will test them because I still get some true visions/dreams sometimes.
+Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God and is Love. I will be still waiting for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God **in the flesh** from heaven to earth". Otherwise I'm simply not going to trust the spirit sending dreams/visions. 
+
+-   **Song:** [youtube.com: Petra: Love](https://www.youtube.com/watch?v=KvmV3X5s1gU)
+
+They can get very tactical sometimes, so I have to be very discerning. Though I will test them because I still get some true visions/dreams sometimes.
 
 > **[I John 4:2-3](https://www.biblegateway.com/passage/?search=1%20John%204%3A2-3&version=ESV)** - By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. (ESV)
 
@@ -8789,7 +8828,7 @@ Confess:
     
     Abraham had **trust**. Abraham had **obedience**. I believe that **trust** is very important to have for faith to be counted as righteousness:
     
-    > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+    > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
     
     > **[I Corinthians 6:14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A14&version=ESV)** - And God raised the Lord and will also raise us up by his power. (ESV)
     
@@ -9608,6 +9647,18 @@ Defiling passion <ins>defiles</ins>:
 > **[Jude 1:7](https://www.biblegateway.com/passage/?search=Jude%201%3A7&version=ESV)** - just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued unnatural desire, serve as an example by undergoing a punishment of eternal fire. (ESV)
 
 
+### Rape is very, very bad
+
+> **[Deuteronomy 22:23-29](https://www.biblegateway.com/passage/?search=Deuteronomy%2022%3A23-29&version=ESV)** - If there is a betrothed virgin, and a man meets her in the city and lies with her, then you shall bring them both out to the gate of that city, and you shall stone them to death with stones, the young woman because she did not cry for help though she was in the city, and the man because he violated his neighbor's wife. So you shall purge the evil from your midst. But if in the open country a man meets a young woman who is betrothed, and the man seizes her and lies with her, then only the man who lay with her shall die. But you shall do nothing to the young woman; she has committed no offense punishable by death. For this case is like that of a man attacking and murdering his neighbor, because he met her in the open country, and though the betrothed young woman cried for help there was no one to rescue her. If a man meets a virgin who is not betrothed, and seizes her and lies with her, and they are found, then the man who lay with her shall give to the father of the young woman fifty shekels of silver, and she shall be his wife, because he has violated her. He may not divorce her all his days. (ESV)
+
+
+### Being habitually drunk is sinful
+
+> **[I Corinthians 6:9-10](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A9-10&version=ESV)** - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God. (ESV)
+
+[youtube.com: CAN CHRISTIANS DRINK/SMOKE?! {The Harsh Truth&#x2026;}](https://www.youtube.com/watch?v=xmDugyc2_zA)
+
+
 ### Abortion
 
 Abortion specifically has been condemned as a grave sin since the beginnings of the Church.
@@ -9620,6 +9671,8 @@ The Church has **always** stood against abortion, and placed it right alongside 
 ### More sins condemned by the early Church
 
 > **Didache 3** - Other Sins Forbidden. My child, flee from every evil thing, and from every likeness of it. Be not prone to anger, for anger leads to murder. Be neither jealous, nor quarrelsome, nor of hot temper, for out of all these murders are engendered. My child, be not a lustful one. for lust leads to fornication. Be neither a filthy talker, nor of lofty eye, for out of all these adulteries are engendered. My child, be not an observer of omens, since it leads to idolatry. Be neither an enchanter, nor an astrologer, nor a purifier, nor be willing to took at these things, for out of all these idolatry is engendered. My child, be not a liar, since a lie leads to theft. Be neither money-loving, nor vainglorious, for out of all these thefts are engendered. My child, be not a murmurer, since it leads the way to blasphemy. Be neither self-willed nor evil-minded, for out of all these blasphemies are engendered.  Rather, be meek, since the meek shall inherit the earth. Be long-suffering and pitiful and guileless and gentle and good and always trembling at the words which you have heard. You shall not exalt yourself, nor give over-confidence to your soul. Your soul shall not be joined with lofty ones, but with just and lowly ones shall it have its intercourse. Accept whatever happens to you as good, knowing that apart from God nothing comes to pass.
+
+There are heaps more things described as sinful and abomination in the Bible which I have not mentioned.
 
 
 # If the world is encouraging you, you're probably in falsehood or taking the wide road
@@ -11541,6 +11594,12 @@ As a result of being born of the Spirit and subsequent obedience to Jesus' comma
 
 > **[Galatians 4:29](https://www.biblegateway.com/passage/?search=Galatians%204%3A29&version=ESV)** - But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
 
+I have no problem with explaining myself as the Apostle Paul also led by example and used his own life experience as an example to teach others:
+
+> **[II Timothy 4:7-8](https://www.biblegateway.com/passage/?search=2%20Timothy%204%3A7-8&version=ESV)** - I have fought the good fight, I have finished the race, I have kept the faith. Henceforth there is laid up for me the crown of righteousness, which the Lord, the righteous judge, will award to me on that Day, and not only to me but also to all who have loved his appearing. (ESV)
+
+> **[Philippians 3:17-18](https://www.biblegateway.com/passage/?search=Philippians%203%3A17-18&version=ESV)** - Brothers, join in imitating me, and keep your eyes on those who walk according to the example you have in us. For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. (ESV)
+
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=NASB)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
 
 Connecting **[Romans 6:22](https://www.biblegateway.com/passage/?search=Romans%206%3A22&version=ESV)** to **[Hebrews 13:12](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12&version=ESV)**, the result of being enslaved to God, obeying God and Christian suffering, results in our sanctification.
@@ -11877,7 +11936,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org2c8a2ab)
+See: [33.4.1](#orgfd9ecb0)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13621,9 +13680,11 @@ Actually, our faith and hope and heart's desire and our walking in faith should 
 > **[I Thessalonians 1:3](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A3&version=ESV)** - remembering before our God and Father your work of faith and labor of love and steadfastness of hope in our Lord Jesus Christ. (ESV)
 
 As the LORD's works are done in faithfulness, our work should be done in faithfulness towards God.
-Everything we do should be done in faithfulness to Him.
+Everything we do should be done in faithfulness to Him:
 
 > **[Psalms 33:4](https://www.biblegateway.com/passage/?search=Psalms%2033%3A4&version=ESV)** - For the word of the LORD is upright, and all his work is done in faithfulness. (ESV)
+
+> **[Matthew 24:12-13](https://www.biblegateway.com/passage/?search=Matthew%2024%3A12-13&version=ESV)** - And because lawlessness will be increased, the love of many will grow cold. But the one who endures to the end will be saved. (ESV)
 
 Even after arriving at the true knowledge through obedience, faith is further supplemented/nourished/aided by virtue, knowledge, self-control, steadfastness, godliness, brotherly affection and love:
 
@@ -14677,6 +14738,7 @@ Other reasons I had to plead guilty:
 
 -   I was remaining faithful to Jesus
     -   I was asked a week before Easter if I would plead guilty or not guilty after someone had sent me a picture depicting Jesus breaking Himself off the cross, and I don't plan on dishonouring Jesus right after being born-again and becoming a disciple of Jesus.
+    -   **[Matthew 24:12-13](https://www.biblegateway.com/passage/?search=Matthew%2024%3A12-13&version=ESV)** - And because lawlessness will be increased, the love of many will grow cold. But the one who endures to the end will be saved. (ESV)
 -   I was trying to fulfill Christ's law, bearing the burdens of the other people who had taken me to court.
 -   I was seeking to do no harm to my neighbour.
 -   I was seeking to be a peacemaker / take the fall for my neighbour.
@@ -14684,7 +14746,9 @@ Other reasons I had to plead guilty:
 -   I was repenting from any public endorsement of gay marriage.
 -   I was seeking to emulate Christ's love to the person I wanted to marry instead of do what is antithetical to Christian marriage, and I felt like that also meant reneging on the marriage proposal and carrying my cross.
     -   Doing what is antithetical to Christian marriage would prove me to be not exercising Christ's love, and so, sadly, I had to give up on the prospect of marrying the person I wanted to marry in order to serve Jesus most faithfully and love my neighbour as Jesus loved me.
--   What is not done in faith is sin. I could not plead "not guilty" as I could not do so confidently thinking it was the right thing to do. To plead not-guilty felt like vindictive behaviour. Blessed are the merciful for they will receive meryc.
+    -   I'd only marry someone who has made Jesus their number one treasure and is abiding **in-Christ** and takes the initiative to confess Jesus Christ as their Lord and Saviour before people and is unashamed of Jesus and is practicing the passing-forward of Christ's love and is embracing sanctification
+        -   I'd only marry a born-again Christian at this stage (i.e. someone who is obeying the gospel of the Lord Jesus)
+-   What is not done in faith is sin. I could not plead "not guilty" as I could not do so confidently thinking it was the right thing to do. To plead not-guilty felt like vindictive behaviour. Blessed are the merciful for they will receive mercy.
 -   I was not without fault.
 
 I must obey God rather than obey Christ-denying lawlessness. God as my witness:
@@ -14696,6 +14760,18 @@ But to say that pleading guilty is an admission that the full set of facts in th
 To say that pleading guilty means that the person admits all of the accusations against them and accepts the validity of the summary of facts is not true unless it is actually true (i.e. that the person **actually** accepts the validity of the summary of facts), and for me it cannot be said that I had accepted the validity of the summary of facts but I chose to plead guilty and accept the sentence because that's what peacemakers do. I believe the summary of facts was laden with falsehood, and I was not given enough opportunity to have my side of events entered into court - I was practically silenced by extreme bail conditions that felt like witchcraft (which I told the first judge I stood before on the 3 May, before my sentencing), as being unable to even speak to my lawyer properly or defend myself, I was deprived of using the internet, deprived of phone, computer, etc. and deprived of leaving my house almost right up to pleading guilty, and so it was an unfair conviction and sentencing in my opinion, and in the latter part of 2022 under strict bail conditions I was being obedient to Jesus, trying to bear other peoples' burdens financially, while getting hit with antichrist visions and visions of evading judgement through good works, but I was already born-again with a clean slate spiritually - it was an antichrist spirit which had come against me. Yet I still believe that I was acting in good conscience in God's sight throughout the entire process and even with regards to the charge to plead guilty (I believe it was the right thing to do), but the accusations against me were so blown out of proportion and there was so much falsehood in the accusations against me that it was sometimes very alluring to plead for my innocence, but when things got very tough I managed to resist the urge to retaliate:
 
 > **[Isaiah 51:7](https://www.biblegateway.com/passage/?search=Isaiah%2051%3A7&version=ESV)** - Listen to me, you who know righteousness, the people in whose heart is my law; fear not the reproach of man, nor be dismayed at their revilings. (ESV)
+
+From my perspective it is correct to say that I wanted to marry out of a good conscience and out of a place where I would not be enticed into sinning, but the devil tried to make it look like it was evil. By faith Shane, when he was grown up and born-again, refused to go back to living an ungodly lifestyle so he made his first marriage proposal to someone who he had joy in proposing to, someone he had at the time believed God made for him, meaning it was easier for him to not sin, and by faith Shane obeyed God and remained faithful to Jesus in a NZ court room to do no harm to his neighbour, and from his perspective laid his Isaac on the Altar and there was no intervention from God. By faith Shane took a conviction which has made it even more difficult in the eyes of some to get married:
+
+> **[Hebrews 11:24-28](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A24-28&version=ESV)** - By faith Moses, when he was grown up, refused to be called the son of Pharaoh's daughter, choosing rather to be mistreated with the people of God than to enjoy the fleeting pleasures of sin. He considered the reproach of Christ greater wealth than the treasures of Egypt, for he was looking to the reward. By faith he left Egypt, not being afraid of the anger of the king, for he endured as seeing him who is invisible. By faith he kept the Passover and sprinkled the blood, so that the Destroyer of the firstborn might not touch them. (ESV)
+
+By faith Shane now awaits the mercy from God for those who fear Him and hope in Him:
+
+> **[Psalms 33:18-19](https://www.biblegateway.com/passage/?search=Psalms%2033%3A18-19&version=ESV)** - Behold, the eye of the LORD is on those who fear him, on those who hope in his steadfast love, that he may deliver their soul from death and keep them alive in famine. (ESV)
+
+> **[Psalms 25:3](https://www.biblegateway.com/passage/?search=Psalms%2025%3A3&version=ESV)** - Indeed, none who wait for you shall be put to shame; they shall be ashamed who are wantonly treacherous. (ESV)
+
+> **[Jude 1:21](https://www.biblegateway.com/passage/?search=Jude%201%3A21&version=ESV)** - keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
 > **[Isaiah 25:8](https://www.biblegateway.com/passage/?search=Isaiah%2025%3A8&version=ESV)** - He will swallow up death forever; and the Lord GOD will wipe away tears from all faces, and the reproach of his people he will take away from all the earth, for the LORD has spoken. (ESV)
 
@@ -14763,9 +14839,11 @@ Also, the summary of facts was conveniently changed when I made new appearances 
 
 > Jehovah God please grant us deliverance from this spirit of antichrist in Jesus Christ's name I ask.
 
-God will give justice for his servants:
+God will give ultimate justice for his servants:
 
 > **[Luke 18:7-8](https://www.biblegateway.com/passage/?search=Luke%2018%3A7-8&version=ESV)** - And will not God give justice to his elect, who cry to him day and night? , Will he delay long over them? I tell you, he will give justice to them speedily. Nevertheless, when the Son of Man comes, will he find faith on earth? (ESV)
+
+> **[Proverbs 17:15](https://www.biblegateway.com/passage/?search=Proverbs%2017%3A15&version=ESV)** - He who justifies the wicked and he who condemns the righteous are both alike an **abomination to the LORD.** (ESV)
 
 We must obey God first and be faithful to God first rather than men.
 
@@ -19350,7 +19428,7 @@ Doubt is very contrary to faith, even contrary to obedient faith. Ask in obedien
 
 Abraham had **trust**. Abraham had **obedience**. I believe that **trust** is very important to have for faith to be counted as righteousness:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 Peter's demonstration of obedient faith. Doubt inhibits faith:
 
@@ -19780,6 +19858,12 @@ It certainly appears that we're not supposed to simply do some righteous thing a
 
 > **[Ezekiel 33:13](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A13&version=ESV)** - Though **I say to the righteous that he shall surely live**, *yet* <ins>if he trusts in his righteousness and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he shall die.</ins> (ESV)
 
+> **[Proverbs 4:18](https://www.biblegateway.com/passage/?search=Proverbs%204%3A18&version=ESV)** - But the path of the righteous is like the light of dawn, which shines brighter and brighter until full day. (ESV)
+
+We should be growing in the grace and **knowledge** of our Lord and Saviour Jesus Christ:
+
+> **[II Peter 3:18](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A18&version=ESV)** - But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity. Amen. (ESV)
+
 This is in line with what is written in Hebrews:
 
 > **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
@@ -19891,7 +19975,7 @@ We must not short-sightedly exchange our invaluable inheritance for immediate re
 
 Trust in God and His promises:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (**[apistia](https://biblehub.com/greek/570.htm)\*) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
 [oneplace.com why-the-believer-doubts-part-1-1-1172653.html: Why the Believer Doubts, Part 1 {#1} - Listen to Grace to You with John MacArthur, Jul 1, 2024](https://www.oneplace.com/ministries/grace-to-you/listen/why-the-believer-doubts-part-1-1-1172653.html)
 
@@ -21764,6 +21848,10 @@ For example:
         -   **[III John 1:10-11](https://www.biblegateway.com/passage/?search=3%20John%201%3A10-11&version=ESV)** - So if I come, I will bring up what he is doing, talking wicked nonsense against us. And not content with that, he refuses to welcome the brothers, and also stops those who want to and puts them out of the church. Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
 -   a spirit spouse which thinks it's my spouse
     -   [youtube.com: Prayer Against Spiritual Spouse](https://www.youtube.com/watch?v=Pqrd2ff8My0) <- Yeah, this.
+-   wicked spirits through other people pressuring me into using AI-fiction to apply for jobs
+-   dreams at night affirming what I've disaffirmed for the sake of following Jesus and remaining faithful to Jesus
+    -   **[Matthew 24:12-13](https://www.biblegateway.com/passage/?search=Matthew%2024%3A12-13&version=ESV)** - And because lawlessness will be increased, the love of many will grow cold. But the one who endures to the end will be saved. (ESV)
+    -   The marriage proposal I made I did in a good conscience. I've reneged on it. A born-again Christian can propose to me if she wants.
 -   if all of the above spirits start manifesting
 
 And as far as forsaking God's precepts for
@@ -21854,6 +21942,10 @@ Also, I stress this verse again because if you're obeying God then the Mosaic la
 Not that I was or am perfect, but I have been following Jesus so I claim to be on Jesus' side. By the grace of God He made me born-again, washed, regenerated and [filled with the Holy Spirit in 2022](https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/) after I had begun to repent and seek Jesus.
 
 For many years before that I've had what I've felt was unreasonably difficulty with relationships, but it's after I was born-again and actively following Jesus that I was denied my first ever marriage proposal, and it was very obvious to me that what I have been fighting is an antichrist/antirelationship/slander spirit attacking me after I was born-again (only now I could easily see it working through people) and probably long before that, and I feel like the spiritual attack (i.e. spirit spouse, LGBT dreams etc., thrown out of churches) I have received as a fallout for choosing Jesus, and endeavouring to abide by Christ's law, instead of using the [documented fact I was born-again](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/) as an excuse to plead not-guilty in court, I feel like has damaged me spiritually in ways which I have not experienced before, so I need Jesus to keep washing me as I try to be obedient to Him and be corrected by the Word of God.
+
+Before I was born-again I had in the past believed the lie that I need to have money and assets before I can have a wife but I no longer believe that lie, and I refuse to accept that lie. Jesus Christ is enough qualification for me:
+
+[star.net.nz: You are qualified!](https://www.star.net.nz/the-word-for-today/-you-are-qualified-2024_08_28)
 
 We should certainly not withhold people from attending churches especially if they are doing good and wanting to learn from Jesus and follow Jesus. If they're opposing Jesus, that's a different story:
 
@@ -22775,7 +22867,11 @@ But justice, mercy and faithfulness are the weightier matters of the law.
 What I mean to say is that without the sinners themselves showing justice,
 mercy and faithfulness, gay 'marriage' would be totally unjustifiable.
 
-Judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment.
+Judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment:
+
+> **[James 2:13](https://www.biblegateway.com/passage/?search=James%202%3A13&version=ESV)** - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. (ESV)
+
+> **[James 3:1](https://www.biblegateway.com/passage/?search=James%203%3A1&version=ESV)** - Not many of you should become teachers, my brothers, for you know that we who teach will be judged with greater strictness. (ESV)
 
 God, please have mercy. I repent from all sexual immorality, and from endorsing it.
 
@@ -24711,7 +24807,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org2c8a2ab)
+See: [33.4.1](#orgfd9ecb0)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -24914,6 +25010,8 @@ Although it happened around midday, I was lying down on my bed very peacefully w
 Remain faithful to Jesus:
 
 > **[Acts 26:19](https://www.biblegateway.com/passage/?search=Acts%2026%3A19&version=ESV)** - Therefore, O King Agrippa, I was not disobedient to the heavenly vision, (ESV)
+
+> **[Matthew 24:12-13](https://www.biblegateway.com/passage/?search=Matthew%2024%3A12-13&version=ESV)** - And because lawlessness will be increased, the love of many will grow cold. But the one who endures to the end will be saved. (ESV)
 
 > **[Hebrews 5:9-14](https://www.biblegateway.com/passage/?search=Hebrews%205%3A9-14&version=ESV)** - And being made perfect, he became the source of eternal salvation to all who obey him, being designated by God a high priest after the order of Melchizedek. About this we have much to say, and it is hard to explain, since you have become dull of hearing. For though by this time you ought to be teachers, you need someone to teach you again the basic principles of the oracles of God. You need milk, not solid food, for everyone who lives on milk is unskilled in the word of righteousness, since he is a child. But solid food is for the mature, for those who have their powers of discernment trained by constant practice to distinguish good from evil. (ESV)
 
@@ -30608,6 +30706,26 @@ And it means pleading guilty:
 
 > **[Romans 3:23](https://www.biblegateway.com/passage/?search=Romans%203%3A23&version=ESV)** - for all have sinned and fall short of the glory of God, (ESV)
 
+It seems to me like the court in several areas regarded good as evil and evil as good:
+
+> **[Proverbs 17:15](https://www.biblegateway.com/passage/?search=Proverbs%2017%3A15&version=ESV)** - He who justifies the wicked and he who condemns the righteous are both alike an **abomination to the LORD.** (ESV)
+
+Good:
+
+-   marriage proposal
+-   repentance, trying to be corrected by the Word of God
+-   speaking truth
+-   forgiving
+
+Evil:
+
+-   slandering
+-   punishing good (punishing forgiveness, for example)
+-   lying, perjury
+-   making it harder to do the right thing
+
+> **[Leviticus 19:15](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A15&version=ESV)** - You shall do no injustice in court. You shall not be partial to the poor or defer to the great, but in righteousness shall you judge your neighbor. (ESV)
+
 Only Jesus was without sin:
 
 > **[Hebrews 4:15](https://www.biblegateway.com/passage/?search=Hebrews%204%3A15&version=ESV)** - For we do not have a high priest who is unable to sympathize with our weaknesses, but one who in every respect has been tempted as we are, yet without sin. (ESV)
@@ -31196,6 +31314,12 @@ I just want to continue to live faithfully to Jesus for the rest of my life, as 
 It certainly appears that we're not supposed to simply do some righteous thing and then lean on that. Rather we're supposed to 'live by' our faith, &#x2013; keep going, and not shrink back:
 
 > **[Ezekiel 33:13](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A13&version=ESV)** - Though **I say to the righteous that he shall surely live**, *yet* <ins>if he trusts in his righteousness and does injustice, none of his righteous deeds shall be remembered, but in his injustice that he has done he shall die.</ins> (ESV)
+
+> **[Proverbs 4:18](https://www.biblegateway.com/passage/?search=Proverbs%204%3A18&version=ESV)** - But the path of the righteous is like the light of dawn, which shines brighter and brighter until full day. (ESV)
+
+We should be growing in the grace and **knowledge** of our Lord and Saviour Jesus Christ:
+
+> **[II Peter 3:18](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A18&version=ESV)** - But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity. Amen. (ESV)
 
 This is in line with what is written in Hebrews:
 
