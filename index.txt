@@ -21652,8 +21652,11 @@ Jesus most faithfully and love my neighbour as Jesus loved me.
 - I'd only marry someone who has made Jesus their number one treasure and is abiding in-Christ and takes
 the initiative to confess Jesus Christ as their Lord and Saviour before people and is unashamed of Jesus
 and is practicing the passing-forward of Christ's love and is embracing sanctification
-- I'd only marry a born-again Christian at this stage (i.e. someone who is obeying the gospel of the
+- At this stage I'd only marry a born-again Christian while keeping my foremost faithfulness to Jesus
+(i.e. someone who is actively obeying Jesus as their Lord and Saviour, obeying the gospel of the
 Lord Jesus)
+- Ephesians 4:25 - Therefore, having put away falsehood, let each one of you speak the truth with his
+neighbor, for we are members one of another. (ESV)
 - What is not done in faith is sin. I could not plead "not guilty" as I could not do so confidently thinking it
 was the right thing to do. To plead not-guilty felt like vindictive behaviour. Blessed are the merciful for
 they will receive mercy.
@@ -21665,6 +21668,27 @@ I must obey God rather than obey Christ-denying lawlessness. God as my witness:
   raised Jesus, whom you killed by hanging him on a tree. God exalted him at his right hand as Leader and Savior,
   to give repentance to Israel and forgiveness of sins. And we are witnesses to these things, and so is the Holy
   Spirit, whom God has given to those who obey him. (ESV)
+
+We need to act out the truth, like Jesus:
+
+  I John 1:6 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. (ESV)
+
+  I John 3:2-3 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that
+  when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him
+  purifies himself as he is pure. (ESV)
+
+Read
+desiringgod.org: Is It Ever Right to Lie? | Desiring God
+
+God's Truth is righteous Truth:
+
+  Isaiah 45:19 - I did not speak in secret, in a land of darkness; I did not say to the offspring of Jacob, Seek
+  me in vain. I the LORD speak the truth; I declare what is right. (ESV)
+
+  Deuteronomy 32:3-4 - For I will proclaim the name of the LORD; ascribe greatness to our God! The Rock, his work
+  is perfect, for all his ways are justice. A God of faithfulness and without iniquity, just and upright is he.
+  (ESV)
 
 But to say that pleading guilty is an admission that the full set of facts in the 'summary of facts' which came
 out the day I pleaded guilty is true is, I think a heinous lie, and my guilty plea was not an endorsement of the
@@ -45262,7 +45286,7 @@ Date: 2024-08-29 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-29 Thu 10:42
+Created: 2024-08-29 Thu 12:04
 
 Validate
 
