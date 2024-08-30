@@ -412,7 +412,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org986ed6c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4da879a) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11991,7 +11991,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org07fc44c)
+See: [33.4.1](#org3a765de)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -20843,6 +20843,28 @@ We should be more confident with the light!
 
 > **[John 17:23](https://www.biblegateway.com/passage/?search=John%2017%3A23&version=ESV)** - I in them and You in Me, that they may be perfected (G5048 teleioo) in unity, so that the world (G2889 kosmos) may know (G1097 ginosko) that You sent Me, and loved (G25 agapao) them, even as You have loved (G25 agapao) Me.
 
+> **[I Peter 3:8-12](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A8-12&version=ESV)** - Finally, all of you, have **unity of mind, sympathy, brotherly love, a tender heart, and a humble mind.** Do not repay evil for evil or reviling for reviling, but on the contrary, bless, for to this you were called, that you may obtain a blessing. For Whoever desires to love life and see good days, let him keep his tongue from evil and his lips from speaking deceit; let him turn away from evil and do good; let him seek peace and pursue it. For the eyes of the Lord are on the righteous, and his ears are open to their prayer. But the face of the Lord is against those who do evil. (ESV)
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
+
+> **[Ephesians 4:2](https://www.biblegateway.com/passage/?search=Ephesians%204%3A2&version=ESV)** - with all humility and gentleness, with patience, bearing with one another in love, (ESV)
+
+> **[Zechariah 7:9](https://www.biblegateway.com/passage/?search=Zechariah%207%3A9&version=ESV)** - Thus says the LORD of hosts, Render true judgments, show kindness and mercy to one another, (ESV)
+
+> **[Matthew 18:33](https://www.biblegateway.com/passage/?search=Matthew%2018%3A33&version=ESV)** - And should not you have had mercy on your fellow servant, as I had mercy on you? (ESV)
+
+> **[Colossians 3:12-13](https://www.biblegateway.com/passage/?search=Colossians%203%3A12-13&version=ESV)** - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility, meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving each other; as the Lord has forgiven you, so you also must forgive. (ESV)
+
+> **[I John 3:18-19](https://www.biblegateway.com/passage/?search=1%20John%203%3A18-19&version=ESV)** - Little children, let us not love in word or talk but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; (ESV)
+
+> **[Ephesians 4:1-6](https://www.biblegateway.com/passage/?search=Ephesians%204%3A1-6&version=ESV)** - I therefore, a prisoner for the Lord, urge you to walk in a manner worthy of the calling to which you have been called, with all humility and gentleness, with patience, bearing with one another in love, eager to maintain the unity of the Spirit in the bond of peace. There is one body and one Spirit—just as you were called to the one hope that belongs to your call— one Lord, one faith, one baptism, one God and Father of all, who is over all and through all and in all. (ESV)
+
+> **[Romans 6:5](https://www.biblegateway.com/passage/?search=Romans%206%3A5&version=ESV)** - For if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his. (ESV)
+
+> **[I Corinthians 1:10](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A10&version=ESV)** - I appeal to you, brothers, by the name of our Lord Jesus Christ, that all of you agree and that there be no divisions among you, but that you be united in the same mind and the same judgment. (ESV)
+
+> **[Psalms 133:1](https://www.biblegateway.com/passage/?search=Psalms%20133%3A1&version=ESV)** - Behold, how good and pleasant it is when brothers dwell in unity! (ESV)
+
 
 ## It's wholeness and fullness, knowledge of Jesus
 
@@ -24891,7 +24913,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org07fc44c)
+See: [33.4.1](#org3a765de)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -29782,6 +29804,8 @@ My justification and salvation are absolutely reliant on Him and He is faithful 
 Obeying Jesus is not contrary to faith in Jesus but gives me confidence before God. AMEN!!
 
 > **[I John 3:21-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A21-24&version=ESV)** - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **[I John 3:18-19](https://www.biblegateway.com/passage/?search=1%20John%203%3A18-19&version=ESV)** - Little children, let us not **love in word or talk but in deed and in truth.** By this **we shall know that we are of the truth** and **reassure our heart before him;** (ESV)
 
 I believe in all of theses:
 

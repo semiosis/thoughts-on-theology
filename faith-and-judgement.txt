@@ -29760,6 +29760,44 @@ youtube.com: This Is The Day {Garratt}
   (G2889 kosmos) may know (G1097 ginosko) that You sent Me, and loved (G25 agapao) them, even as You have loved
   (G25 agapao) Me.
 
+  I Peter 3:8-12 - Finally, all of you, have unity of mind, sympathy, brotherly love, a tender heart, and a humble
+  mind. Do not repay evil for evil or reviling for reviling, but on the contrary, bless, for to this you were
+  called, that you may obtain a blessing. For Whoever desires to love life and see good days, let him keep his
+  tongue from evil and his lips from speaking deceit; let him turn away from evil and do good; let him seek peace
+  and pursue it. For the eyes of the Lord are on the righteous, and his ears are open to their prayer. But the
+  face of the Lord is against those who do evil. (ESV)
+
+  I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one
+  another earnestly from a pure heart, (ESV)
+
+  Ephesians 4:2 - with all humility and gentleness, with patience, bearing with one another in love, (ESV)
+
+  Zechariah 7:9 - Thus says the LORD of hosts, Render true judgments, show kindness and mercy to one another,
+  (ESV)
+
+  Matthew 18:33 - And should not you have had mercy on your fellow servant, as I had mercy on you? (ESV)
+
+  Colossians 3:12-13 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+  meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving each
+  other; as the Lord has forgiven you, so you also must forgive. (ESV)
+
+  I John 3:18-19 - Little children, let us not love in word or talk but in deed and in truth. By this we shall
+  know that we are of the truth and reassure our heart before him; (ESV)
+
+  Ephesians 4:1-6 - I therefore, a prisoner for the Lord, urge you to walk in a manner worthy of the calling to
+  which you have been called, with all humility and gentleness, with patience, bearing with one another in love,
+  eager to maintain the unity of the Spirit in the bond of peace. There is one body and one Spirit-just as you
+  were called to the one hope that belongs to your call- one Lord, one faith, one baptism, one God and Father of
+  all, who is over all and through all and in all. (ESV)
+
+  Romans 6:5 - For if we have been united with him in a death like his, we shall certainly be united with him in a
+  resurrection like his. (ESV)
+
+  I Corinthians 1:10 - I appeal to you, brothers, by the name of our Lord Jesus Christ, that all of you agree and
+  that there be no divisions among you, but that you be united in the same mind and the same judgment. (ESV)
+
+  Psalms 133:1 - Behold, how good and pleasant it is when brothers dwell in unity! (ESV)
+
 45.3. It's wholeness and fullness, knowledge of Jesus
 
   I Corinthians 13:10 - but when the perfect (G5046 teleios) comes, the partial (G3313 meros) will be done away.
@@ -41934,6 +41972,9 @@ Obeying Jesus is not contrary to faith in Jesus but gives me confidence before G
   his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he
   has given us. (ESV)
 
+  I John 3:18-19 - Little children, let us not love in word or talk but in deed and in truth. By this we shall
+  know that we are of the truth and reassure our heart before him; (ESV)
+
 I believe in all of theses:
 
 - sola fida (by faith alone) AMEN!!.
@@ -45365,7 +45406,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 10:33
+Created: 2024-08-31 Sat 10:55
 
 Validate
 
