@@ -412,7 +412,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5c8d109) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2994f5f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1197,6 +1197,14 @@ New creation love:
 New creation love is emulating Christ's love towards others from a position of a good conscience with God having been obedient to the gospel or it's not love in a Biblical sense.
 
 Feel free to quote me on that. It's continued obedience to God that proceeds from a good conscience with God.
+
+-   **[Quote by Mari Mari Emmanuel](https://youtu.be/X3ezDMnY0Jc?t=188):** Until I had a true encounter with
+    Christ, the love of my life, there was never joy
+    within, never joy. When my sins are forgiven, when that
+    beautiful voice, that loving tender kind
+    voice says to me, "I forgive you," then I
+    rejoice. That's why joy is to do with
+    salvation.
 
 Fear of God is not only about having the heart to repent from sin and "beat hand on chest and ask God for mercy", but it is also having a changed heart, endeavoring to please Christ with our actions:
 
@@ -3853,6 +3861,15 @@ Now with regards to the way people should (or shouldn't) act:
 
 -   **[Quote by Tim Keller](https://youtu.be/SDuXlGSV7l4?t=1174):** Know what the Bible says: Sin is craving something more than God. Sin is making something more important than God. Sin is is living for something more than God. If God is at the periphery of your life, if you're just religious occasionally, if God [is] sort of on the outskirts of your life, that is sin. That's the essence of sin.
 
+It's really important to respect the testimony of the Cross:
+
+-   **[Polycarp 6:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** For every one who shall not confess that Jesus Christ is come in
+    the flesh, is antichrist: and whosoever shall not confess the
+    testimony of the Cross, is of the devil; and whosoever shall pervert
+    the oracles of the Lord to his own lusts and say that there is
+    neither resurrection nor judgment, that man is the firstborn of
+    Satan.
+
 Bad or unchrist-like behaviour might be making money or some other thing more important than God to "get ahead" materially, placing burdens on others to fulfill the same materialistic/worldly standard, especially on those who have their priorities already in the correct order (they are obeying God, and are keeping their heart clean) and not lifting a finger to help them but actually make things more difficult. What I really mean is, it is the opposite of teaching Christlikeness to force someone to clean up their outward appearance or to meet certain worldly standards when they are in relationship Jesus, spending their time trying to help other people, and the bad outward appearance is a result of sacrificing for others following Jesus - I mean it is anti-christ-like behaviour to try to stop people from following Jesus or punish people for following Jesus.
 
 > **[John 19:28](https://www.biblegateway.com/passage/?search=John%2019%3A28&version=ESV)** - After this, Jesus, knowing that all was now finished, said (to fulfill the Scripture), I thirst. (ESV)
@@ -3986,6 +4003,20 @@ We have peace with God and are justified by faith when we are following Jesus Ch
 > **[Luke 6:46-49](https://www.biblegateway.com/passage/?search=Luke%206%3A46-49&version=ESV)** - Why do you call me Lord, Lord, and not **do what I tell you**? Everyone who comes to me and hears my words and **does them**, I will show you what he is like: he is like a man building a house, who dug deep and laid the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. But the one who hears and does not do them is like a man who built a house on the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that house was great. (ESV)
 
 OBEDIENCE!
+
+-   **[youtube.com: How Faith Obeys](https://www.youtube.com/watch?v=xgDQ2EQNDCs):** **Noah trusts God** and builds an
+    ark. **Abraham trusts God** and leaves his
+    homeland. **Abraham trusts God again** and lives in tents instead of building (a city)
+    city, and **Sarah trusts God** and conceives
+    when she's old.
+    
+    The first thing is God; God exists and God speaks. And when
+    He speaks He's reliable, and we now have
+    something to take hold of in
+    life. If there were no God,
+    if there were no speaking, there'd be no
+    faith in God, and there'd be no future
+    for us.
 
 > **[Romans 14:18](https://www.biblegateway.com/passage/?search=Romans%2014%3A18&version=ESV)** - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
@@ -10489,6 +10520,14 @@ When one speaks evil against a brother, they become a judge of the law.
 
 > **[James 4:11](https://www.biblegateway.com/passage/?search=James%204%3A11&version=ESV)** - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. (ESV)
 
+Repentance involves turning away from sin, and all believers are supposed to turn away from sin which they themselves condemn:
+
+> **[Romans 2:1-5](https://www.biblegateway.com/passage/?search=Romans%202%3A1-5&version=ESV)** - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. We know that the judgment of God rightly falls on those who do such things. Do you suppose, O man—you who judge those who do such things and yet do them yourself—that you will escape the judgment of God? Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? But because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's righteous judgment will be revealed. (ESV)
+
+We must stop doing evil:
+
+> **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+
 Eternal judgement:
 
 > **[Hebrews 6:2](https://www.biblegateway.com/passage/?search=Hebrews%206%3A2&version=ESV)** - and of instruction about washings, the laying on of hands, the resurrection of the dead, and eternal judgment.
@@ -11936,7 +11975,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5c93d0a)
+See: [33.4.1](#org32487a4)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -12422,6 +12461,8 @@ Cain was half-hearted with his offering to the LORD, as Ananias was:
 > **[Genesis 4:3-5](https://www.biblegateway.com/passage/?search=Genesis%204%3A3-5&version=ESV)** - In the course of time Cain brought to the Lord an offering of the fruit of the ground, and Abel also brought of the firstborn of his flock and of their fat portions. And the Lord had regard for Abel and his offering, but for Cain and his offering he had no regard. So Cain was very angry, and his face fell. (ESV)
 
 > **[1 John 3:12](https://www.biblegateway.com/passage/?search=1%20John%203%3A12&version=ESV)** - We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous. (ESV)
+
+> **[Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A4&version=ESV)** - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he still speaks. (ESV)
 
 > **[Hebrews 6:1](https://www.biblegateway.com/passage/?search=Hebrews%206%3A1&version=ESV)** - Therefore let us leave the elementary doctrine of Christ and go on to maturity, not laying again a foundation of repentance from dead works and of faith toward God,
 
@@ -17428,6 +17469,14 @@ Submitting to the righteousness that comes through having faith in Jesus is beli
     Therefore, it's really not our own holiness or power that is responsible for miracles that happen through us or in cooperation with us, but it is Jesus' power and holiness.
     Jesus is the True Vine. We are the branches. AMEN!! We can do nothing apart from Him. AMEN!!
     Everyone who names the name of the Lord must depart from iniquity.
+    
+    -   **[Polycarp 6:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Let us therefore so serve Him with fear and all reverence, as He
+        himself gave commandment and the Apostles who preached the Gospel to
+        us and the prophets who proclaimed beforehand the coming of our Lord;
+        being zealous as touching that which is good, abstaining from
+        offenses and from the false brethren and from them that bear the name
+        of the Lord in hypocrisy, who lead foolish men astray.
+    
     Our bodies are a vessel for Jesus' holiness to shine out of. It's the vessel of **the Holy Spirit**:
     Jesus is the light in us, and we must let our light shine.
 
@@ -24822,7 +24871,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5c93d0a)
+See: [33.4.1](#org32487a4)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30412,6 +30461,10 @@ I still needed ongoing repentance and sanctification (correction theologically a
 and I think that theological error most likely led to endorsing things which I later wanted
 to repent from. I felt like it was urgent to repent from heresy and from publicly affirming that I would not judge gay marriage,
 and my need to plead guilty was in the light of the knowledge of my error.
+
+I understand now from experience that spreading heresy is a very dangerous thing to do:
+
+> **[II Peter 2:1](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1&version=ESV)** - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. (ESV)
 
 I am not the judge of people. There is only one judge. But I am repentant from sin and affirm God's precepts, not sin.
 

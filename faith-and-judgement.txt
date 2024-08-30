@@ -1835,6 +1835,11 @@ been obedient to the gospel or it's not love in a Biblical sense.
 
 Feel free to quote me on that. It's continued obedience to God that proceeds from a good conscience with God.
 
+Quote by Mari Mari Emmanuel
+Until I had a true encounter with Christ, the love of my life, there was never joy within, never joy. When my sins
+are forgiven, when that beautiful voice, that loving tender kind voice says to me, "I forgive you," then I
+rejoice. That's why joy is to do with salvation.
+
 Fear of God is not only about having the heart to repent from sin and "beat hand on chest and ask God for mercy",
 but it is also having a changed heart, endeavoring to please Christ with our actions:
 
@@ -5802,6 +5807,13 @@ Know what the Bible says: Sin is craving something more than God. Sin is making 
 Sin is is living for something more than God. If God is at the periphery of your life, if you're just religious
 occasionally, if God [is] sort of on the outskirts of your life, that is sin. That's the essence of sin.
 
+It's really important to respect the testimony of the Cross:
+
+Polycarp 6:3
+For every one who shall not confess that Jesus Christ is come in the flesh, is antichrist: and whosoever shall not
+confess the testimony of the Cross, is of the devil; and whosoever shall pervert the oracles of the Lord to his
+own lusts and say that there is neither resurrection nor judgment, that man is the firstborn of Satan.
+
 Bad or unchrist-like behaviour might be making money or some other thing more important than God to "get ahead"
 materially, placing burdens on others to fulfill the same materialistic/worldly standard, especially on those who
 have their priorities already in the correct order (they are obeying God, and are keeping their heart clean) and
@@ -6026,6 +6038,15 @@ Jesus will be justified:
   house was great. (ESV)
 
 OBEDIENCE!
+
+youtube.com: How Faith Obeys
+
+Noah trusts God and builds an ark. Abraham trusts God and leaves his homeland. Abraham trusts God again and lives
+in tents instead of building (a city) city, and Sarah trusts God and conceives when she's old.
+
+The first thing is God; God exists and God speaks. And when He speaks He's reliable, and we now have something to
+take hold of in life. If there were no God, if there were no speaking, there'd be no faith in God, and there'd be
+no future for us.
 
   Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
@@ -15475,6 +15496,25 @@ When one speaks evil against a brother, they become a judge of the law.
   brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law
   but a judge. (ESV)
 
+Repentance involves turning away from sin, and all believers are supposed to turn away from sin which they
+themselves condemn:
+
+  Romans 2:1-5 - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on
+  another you condemn yourself, because you, the judge, practice the very same things. We know that the judgment
+  of God rightly falls on those who do such things. Do you suppose, O man-you who judge those who do such things
+  and yet do them yourself-that you will escape the judgment of God? Or do you presume on the riches of his
+  kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? But
+  because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's
+  righteous judgment will be revealed. (ESV)
+
+We must stop doing evil:
+
+  Romans 2:6-11 - He will render to each one according to his works: to those who by patience in well-doing seek
+  for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not
+  obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress
+  for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for
+  everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+
 Eternal judgement:
 
   Hebrews 6:2 - and of instruction about washings, the laying on of hands, the resurrection of the dead, and
@@ -18448,6 +18488,10 @@ Cain was half-hearted with his offering to the LORD, as Ananias was:
 
   1 John 3:12 - We should not be like Cain, who was of the evil one and murdered his brother. And why did he
   murder him? Because his own deeds were evil and his brother's righteous. (ESV)
+
+  Hebrews 11:4 - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was
+  commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
+  still speaks. (ESV)
 
   Hebrews 6:1 - Therefore let us leave the elementary doctrine of Christ and go on to maturity, not laying again a
   foundation of repentance from dead works and of faith toward God,
@@ -25789,9 +25833,16 @@ The parable of the 10 virgins:
 When we repent from sin we allow Jesus' holiness to shine through us increasingly. Therefore, it's really not
 our own holiness or power that is responsible for miracles that happen through us or in cooperation with us,
 but it is Jesus' power and holiness. Jesus is the True Vine. We are the branches. AMEN!! We can do nothing
-apart from Him. AMEN!! Everyone who names the name of the Lord must depart from iniquity. Our bodies are a
-vessel for Jesus' holiness to shine out of. It's the vessel of the Holy Spirit: Jesus is the light in us, and
-we must let our light shine.
+apart from Him. AMEN!! Everyone who names the name of the Lord must depart from iniquity.
+
+Polycarp 6:3
+Let us therefore so serve Him with fear and all reverence, as He himself gave commandment and the Apostles who
+preached the Gospel to us and the prophets who proclaimed beforehand the coming of our Lord; being zealous as
+touching that which is good, abstaining from offenses and from the false brethren and from them that bear the
+name of the Lord in hypocrisy, who lead foolish men astray.
+
+Our bodies are a vessel for Jesus' holiness to shine out of. It's the vessel of the Holy Spirit: Jesus is the
+light in us, and we must let our light shine.
 
  2. you must be a servant!
 
@@ -42796,6 +42847,12 @@ theological error most likely led to endorsing things which I later wanted to re
 urgent to repent from heresy and from publicly affirming that I would not judge gay marriage, and my need to plead
 guilty was in the light of the knowledge of my error.
 
+I understand now from experience that spreading heresy is a very dangerous thing to do:
+
+  II Peter 2:1 - But false prophets also arose among the people, just as there will be false teachers among you,
+  who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon
+  themselves swift destruction. (ESV)
+
 I am not the judge of people. There is only one judge. But I am repentant from sin and affirm God's precepts, not
 sin.
 
@@ -45282,11 +45339,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-29 Thu 00:00
+Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-29 Thu 12:04
+Created: 2024-08-31 Sat 10:08
 
 Validate
 
