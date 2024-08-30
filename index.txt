@@ -1634,7 +1634,7 @@ A new creation lives for Christ:
   anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
 
 Being born-again, my old man died and now my life is hidden with Christ in God, and I'm seated with Him in the
-heavenly places in Christ:
+heavenly places in Christ living to serve Jesus:
 
   Colossians 3:3 - For you have died, and your life is hidden with Christ in God. (ESV)
 
@@ -1653,8 +1653,17 @@ We have authority in God:
   Matthew 20:27-28 - and whoever would be first among you must be your slave, even as the Son of Man came not to
   be served but to serve, and to give his life as a ransom for many. (ESV)
 
-We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. We must be
-born-again:
+We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ.
+
+We don't transition away from being servants of Jesus when we become friends of Jesus - we still serve and obey
+Him. Jesus started calling His servants His friends because Jesus had explained to them all He heard from Father
+God. Jesus' friends still serve Jesus, and they obey Jesus but they also know what Jesus is doing.
+
+  John 15:14-15 - You are my friends if you do what I command you. No longer do I call you servants, for the
+  servant does not know what his master is doing; but I have called you friends, for all that I have heard from my
+  Father I have made known to you.
+
+We must be born-again:
 
   Quote of John Piper
   Your life becomes a foretaste for others of your cherished future. But if your future that you cherish is grace
@@ -5890,9 +5899,18 @@ Specific example:
 The one worrying about the material things isn't in doing so exhibiting the love of the Father in them but the
 poor person who loves God does - the materially poor but rich in faith person has their priorities in order and
 doesn't need correction from the natural, worldly person, but rather needs mercy from the materialistic worldly
-person. And the materialistic, worldly person needs to learn from the poor person so they can put God first. This
-is not glorifying poverty, but rather is about the truth of the matter that we must have God as our top love in
-our heart:
+person.
+
+  Revelation of John 2:9 - I know your tribulation and your poverty (but you are rich) and the slander of those
+  who say that they are Jews and are not, but are a synagogue of Satan. (ESV)
+
+And the materialistic, worldly person needs to learn from the poor person so they can put God first:
+
+  Revelation of John 3:17 - For you say, I am rich, I have prospered, and I need nothing, not realizing that you
+  are wretched, pitiable, poor, blind, and naked. (ESV)
+
+This is not glorifying poverty, but rather is about the truth of the matter that we must have God as our top love
+in our heart:
 
   I John 2:15 - Do not love the world or the things in the world. If anyone loves the world, the love of the
   Father is not in him. (ESV)
@@ -33677,6 +33695,10 @@ All are "saints" whom God has called by His grace and sanctified by His Spirit;
 
 54.12.1. Jesus' friends are those who actually do what Jesus says
 
+We don't transition away from being servants of Jesus when we become friends of Jesus - we still serve and obey
+Him. Jesus started calling His servants His friends because Jesus had explained to them all He heard from Father
+God. Jesus' friends still serve Jesus, and they obey Jesus but they also know what Jesus is doing.
+
   John 15:14-15 - You are my friends if you do what I command you. No longer do I call you servants, for the
   servant does not know what his master is doing; but I have called you friends, for all that I have heard from my
   Father I have made known to you.
@@ -45343,7 +45365,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 10:08
+Created: 2024-08-31 Sat 10:33
 
 Validate
 

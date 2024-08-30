@@ -412,7 +412,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2994f5f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org986ed6c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1067,7 +1067,7 @@ A new creation lives for Christ:
 
 > **[II Corinthians 5:14-17](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A14-17&version=ESV)** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and <ins>he died for all, that those who live might no longer live for themselves but for him</ins> who for their sake died and was raised. From now on, therefore, we regard no one according to the flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
 
-Being born-again, my old man died and now my life is hidden with Christ in God, and I'm seated with Him in the heavenly places in Christ:
+Being born-again, my old man died and now my life is hidden with Christ in God, and I'm seated with Him in the heavenly places in Christ living to serve Jesus:
 
 > **[Colossians 3:3](https://www.biblegateway.com/passage/?search=Colossians%203%3A3&version=ESV)** - For you have died, and your life is hidden with Christ in God. (ESV)
 
@@ -1081,7 +1081,15 @@ We have authority in God:
 
 > **[Matthew 20:27-28](https://www.biblegateway.com/passage/?search=Matthew%2020%3A27-28&version=ESV)** - and whoever would be first among you must be your slave, even as the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
 
-We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. We must be born-again:
+We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. 
+
+We don't transition away from being servants of Jesus when we become friends of Jesus - we still serve and obey Him.
+Jesus started calling His servants His friends because Jesus had explained to them all He heard from Father God.
+Jesus' friends still serve Jesus, and they obey Jesus but they also know what Jesus is doing.
+
+> **[John 15:14-15](https://www.biblegateway.com/passage/?search=John%2015%3A14-15&version=ESV)** - You are my friends if you do what I command you. No longer do I call you servants, for the servant does not know what his master is doing; but I have called you friends, for all that I have heard from my Father I have made known to you.
+
+We must be born-again:
 
 > -   **[Quote of John Piper](https://youtu.be/0ZrcokMSBZY?t=1366):** Your life becomes a foretaste for others of your cherished future. But if your future that you cherish is grace coming to you at the revelation of Jesus Christ and that is your treasure, and that is your hope and that is your faith and that is your vision and what you hold onto and embrace, **you cannot return evil for evil.** You know *why* you cannot return evil for evil? (If that's where your heart is.) Because **the cherished grace that's coming is that He's not going to return evil for evil to you.** Then we cannot turn around and have a lifestyle of returning evil for evil or insulting for insulting, and therefore the point of saying it's a <ins>condition</ins> for that is simply this, **"You must be born again."** Therefore, **it's a condition**, not in the sense of earning anything but **in the sense of bearing witness that you've fallen in love and live out of that confidence.**
 
@@ -3904,7 +3912,15 @@ Specific example:
 
 > **[John 15:18-20](https://www.biblegateway.com/passage/?search=John%2015%3A18-20&version=ESV)** - If the world hates you, know that it has hated me before it hated you. If you were of the world, the world would love you as its own; but because you are not of the world, but I chose you out of the world, therefore the world hates you. Remember the word that I said to you: A servant is not greater than his master. If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. (ESV)
 
-The one worrying about the material things isn't in doing so exhibiting the love of the Father in them but the poor person who loves God does - the materially poor but rich in faith person has their priorities in order and doesn't need correction from the natural, worldly person, but rather needs mercy from the materialistic worldly person. And the materialistic, worldly person needs to learn from the poor person so they can put God first. This is not glorifying poverty, but rather is about the truth of the matter that we must have God as our top love in our heart:
+The one worrying about the material things isn't in doing so exhibiting the love of the Father in them but the poor person who loves God does - the materially poor but rich in faith person has their priorities in order and doesn't need correction from the natural, worldly person, but rather needs mercy from the materialistic worldly person. 
+
+> **[Revelation of John 2:9](https://www.biblegateway.com/passage/?search=Revelation%202%3A9&version=ESV)** - I know your tribulation and your poverty (but you are rich) and the slander of those who say that they are Jews and are not, but are a synagogue of Satan. (ESV)
+
+And the materialistic, worldly person needs to learn from the poor person so they can put God first:
+
+> **[Revelation of John 3:17](https://www.biblegateway.com/passage/?search=Revelation%203%3A17&version=ESV)** - For you say, I am rich, I have prospered, and I need nothing, not realizing that you are wretched, pitiable, poor, blind, and naked. (ESV)
+
+This is not glorifying poverty, but rather is about the truth of the matter that we must have God as our top love in our heart:
 
 > **[I John 2:15](https://www.biblegateway.com/passage/?search=1%20John%202%3A15&version=ESV)** - Do not love the world or the things in the world. If anyone loves the world, the love of the Father is not in him. (ESV)
 
@@ -11975,7 +11991,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org32487a4)
+See: [33.4.1](#org07fc44c)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -23606,6 +23622,10 @@ It quickly progresses to obeying Jesus, receiving the Spirit.
 
 ### Jesus' friends are those who actually do what Jesus says
 
+We don't transition away from being servants of Jesus when we become friends of Jesus - we still serve and obey Him.
+Jesus started calling His servants His friends because Jesus had explained to them all He heard from Father God.
+Jesus' friends still serve Jesus, and they obey Jesus but they also know what Jesus is doing.
+
 > **[John 15:14-15](https://www.biblegateway.com/passage/?search=John%2015%3A14-15&version=ESV)** - You are my friends if you do what I command you. No longer do I call you servants, for the servant does not know what his master is doing; but I have called you friends, for all that I have heard from my Father I have made known to you.
 
 
@@ -24871,7 +24891,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org32487a4)
+See: [33.4.1](#org07fc44c)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
