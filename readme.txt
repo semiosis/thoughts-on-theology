@@ -565,9 +565,21 @@ the one that gets you started, it's the one that gets you there, and it's the fi
 what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
 year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation. I do
-believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop willfully
-sinning. Committing sin against our own bodies is very, very unwise.
+AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation.
+
+We must embrace sanctification, and be slaves of God, obeying God, obeying righteousness:
+
+  Romans 6:16 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the
+  one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
+
+  Romans 6:20-23 - When you were slaves of sin, you were free in regard to righteousness. But what fruit were you
+  getting at that time from the things of which you are now ashamed? The end of those things is death. But now
+  that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification
+  and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ
+  Jesus our Lord. (ESV)
+
+I do believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop
+willfully sinning. Committing sin against our own bodies is very, very unwise:
 
   Romans 8:13 - For if you live according to the flesh you will die, but if by the Spirit you put to death the
   deeds of the body, you will live. (ESV)
@@ -1099,6 +1111,14 @@ We're supposed to arrive at doing the will of God from the heart, loving one ano
   made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life,
   godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires
   all people to be saved and to come to the knowledge of the truth. (ESV)
+
+We must embrace sanctification:
+
+  Romans 6:20-23 - When you were slaves of sin, you were free in regard to righteousness. But what fruit were you
+  getting at that time from the things of which you are now ashamed? The end of those things is death. But now
+  that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification
+  and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ
+  Jesus our Lord. (ESV)
 
 Song
 youtube.com: Jesus All for Jesus {Lyrics}
@@ -11116,6 +11136,10 @@ This quite clearly shows that Jesus Christ is Almighty God:
   one mourns for an only child, and weep bitterly over him, as one weeps over a firstborn. (ESV)
 
   Colossians 2:9 - For in him the whole fullness of deity dwells bodily, (ESV)
+
+youtube.com: The Historic Baptist View of the Nicene Creed @time: 10 min 4 sec
+Affirming the Nicene Creed has been a historic uncontroversial Baptist conviction. What is happening today is that
+some Baptists are falling away a little bit from our own roots and so we need reform.
 
 I affirm the Nicene creed wholeheartedly:
 
@@ -31708,8 +31732,19 @@ theologian as John Piper, say, in order to be saved from the wrath of God. I onl
 not need 33 years of experience in the area of theology to be saved from the wrath of God. I only have about 5
 months of Bible studying.
 
+We must embrace sanctification, and be slaves of God, obeying God, obeying righteousness:
+
+  Romans 6:16 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the
+  one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
+
+  Romans 6:20-23 - When you were slaves of sin, you were free in regard to righteousness. But what fruit were you
+  getting at that time from the things of which you are now ashamed? The end of those things is death. But now
+  that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification
+  and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ
+  Jesus our Lord. (ESV)
+
 I do believe that now. After receiving the Holy Spirit, we must use the spirit to put sin to death, and stop
-willfully sinning. Committing sin against our own bodies is very, very unwise.
+willfully sinning. Committing sin against our own bodies is very, very unwise:
 
   Romans 8:13 - For if you live according to the flesh you will die, but if by the Spirit you put to death the
   deeds of the body, you will live. (ESV)
@@ -45550,7 +45585,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 20:31
+Created: 2024-08-31 Sat 21:03
 
 Validate
 
