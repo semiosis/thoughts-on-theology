@@ -2817,7 +2817,52 @@ sacrament maybe is not strictly required to be saved (as far as I understand).
   I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
   an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
-3.11.2. What is more important, probably, is to be born-again and baptised by the Holy Spirit
+3.11.2. We need are sealed with the Holy Spirit through accepting the truth of the good news of Jesus and God's
+Living Word works in us to save us
+
+youtube.com: How Do I Know If the Holy Spirit Is in Me?
+
+We are sealed when we give our heart to Jesus, believing / trusting in Him:
+
+  Ephesians 1:13-14 - In him you also, when you heard the word of truth, the gospel of your salvation, and
+  believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
+  acquire possession of it, to the praise of his glory. (ESV)
+
+  II Corinthians 1:21-22 - And it is God who establishes us with you in Christ, and has anointed us, and who has
+  also put his seal on us and given us his Spirit in our hearts as a guarantee. (ESV)
+
+  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. (ESV)
+
+  Romans 8:9 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you.
+  Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
+
+  Ephesians 4:30 - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
+  (ESV)
+
+The word of God works in us as we believe and trust Jesus, and are obedient to Jesus:
+
+  I Thessalonians 2:13 - And we also thank God constantly for this, that when you received the word of God, which
+  you heard from us, you accepted it not as the word of men but as what it really is, the word of God, which is at
+  work in you believers. (ESV)
+
+  Galatians 3:13-14 - Christ redeemed us from the curse of the law by becoming a curse for us-for it is written,
+  Cursed is everyone who is hanged on a tree- so that in Christ Jesus the blessing of Abraham might come to the
+  Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+It's the power to be changed from doing evil deeds to walking in obedience and love to God, in a relationship with
+God:
+
+  Colossians 1:21-23 - And you, who once were alienated and hostile in mind, doing evil deeds, he has now
+  reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach
+  before him, if indeed you continue in the faith, stable and steadfast, not shifting from the hope of the gospel
+  that you heard, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister.
+  (ESV)
+
+  Romans 1:16 - For I am not ashamed of the gospel, for it is the power of God for salvation to everyone who
+  believes, to the Jew first and also to the Greek. (ESV)
+
+3.11.3. We need to be born-again and we want to be filled with and baptised by the Holy Spirit
 
 It's natural to water baptize a person after they believe:
 
@@ -2863,7 +2908,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
   Spirit, he cannot enter the kingdom of God. (ESV)
 
-3.11.3. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
+3.11.4. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
 
   John 14:16-21 - And I will ask the Father, and he will give you another Helper, to be with you forever, even the
   Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he
@@ -9576,10 +9621,38 @@ We're not justified through the works of the law but through faith, and faith in
   Jesus, so that we may be justified by faith in Christ and not by the works of the Law; since by the works of the
   Law no flesh will be justified.
 
-It's by faith in Christ that we are justified, and faith involves obedience (at least of the heart).
+It's by faith in Christ that we are justified, and faith involves active belief, active trust - obedience (of the
+heart).
 
   John 3:36 - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall
   not see life, but the wrath of God remains on him. (ESV)
+
+biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
+gave, that every one who is believing in him may not perish, but may have life age-during.
+
+|  3778   1063 25       3588    2316  3588    2889      5620
+|  Houtos gar  egapesen ho      Theos ton     kosmon    hoste
+|  ?????  ???  ???????? ?       ????  ???     ???u??  , ????
+|  Thus   for  loved     -      God   the     world     that
+|  Adv    Conj V-AIA-3S Art-NMS N-NMS Art-AMS N-AMS     Conj
+| 
+|  3588    5207    3588    3439          1325
+|  ton     Huion   ton     monogene      edoken
+|  ???     ????  , ???     u???????  ,   ??????  ,
+|   the     Son     the     only begotten He gave
+|   Art-AMS N-AMS   Art-AMS Adj-AMS       V-AIA-3S
+|  
+|   2443    3956     3588    4100      1519 846
+|   hina    pas      ho      pisteuon  eis  auton
+|   ???     ???      ?       ????????  ???  ?????
+|   so that everyone  -      believing in   Him
+|   Conj    Adj-NMS  Art-NMS V-PPA-NMS Prep PPro-AM3S
+|  
+|   3361 622           235  2192        2222  166
+|   me   apoletai      all' eche        zoen  aionion
+|   u?   ????????  ,   ???' ???         ????  ???????  .
+|   not  should perish but  should have life  eternal
+|   Adv  V-ASM-3S      Conj V-PSA-3S    N-AFS Adj-AFS
 
 It's faith in the heart which we need; obedience to Jesus Christ and belief in Jesus Christ in the heart, and
 belief and obedience to God who has raised from the dead Jesus our Lord, who was delivered up for our trespasses
@@ -45406,7 +45479,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 10:55
+Created: 2024-08-31 Sat 12:28
 
 Validate
 

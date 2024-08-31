@@ -412,7 +412,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4da879a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf077124) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1855,7 +1855,36 @@ I think baptism of water is an **appeal** to God and identifying oneself into Ch
 > **[I Peter 3:21](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A21&version=ESV)** - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
 
-### What is more important, probably, is to be born-again and baptised by the Holy Spirit
+### We need are sealed with the Holy Spirit through accepting the truth of the good news of Jesus and God's Living Word works in us to save us
+
+[youtube.com: How Do I Know If the Holy Spirit Is in Me?](https://www.youtube.com/watch?v=iK3tz3LDrb0)
+
+We are sealed when we give our heart to Jesus, believing / trusting in Him:
+
+> **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+
+> **[II Corinthians 1:21-22](https://www.biblegateway.com/passage/?search=2%20Corinthians%201%3A21-22&version=ESV)** - And it is God who establishes us with you in Christ, and has anointed us, and who has also put his seal on us and given us his Spirit in our hearts as a guarantee. (ESV)
+
+> **[I John 5:1](https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. (ESV)
+
+> **[Romans 8:9](https://www.biblegateway.com/passage/?search=Romans%208%3A9&version=ESV)** - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
+
+> **[Ephesians 4:30](https://www.biblegateway.com/passage/?search=Ephesians%204%3A30&version=ESV)** - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption. (ESV)
+
+The word of God works in us as we believe and trust Jesus, and are obedient to Jesus:
+
+> **[I Thessalonians 2:13](https://www.biblegateway.com/passage/?search=1%20Thessalonians%202%3A13&version=ESV)** - And we also thank God constantly for this, that when you received the word of God, which you heard from us, you accepted it not as the word of men but as what it really is, the word of God, which is at work in you believers. (ESV)
+
+> **[Galatians 3:13-14](https://www.biblegateway.com/passage/?search=Galatians%203%3A13-14&version=ESV)** - Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+It's the power to be changed from doing evil deeds to walking in obedience and love to God, in a relationship with God:
+
+> **[Colossians 1:21-23](https://www.biblegateway.com/passage/?search=Colossians%201%3A21-23&version=ESV)** - And you, who once were alienated and hostile in mind, doing evil deeds, he has now reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach before him, if indeed you continue in the faith, stable and steadfast, not shifting from the hope of the gospel that you heard, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister. (ESV)
+
+> **[Romans 1:16](https://www.biblegateway.com/passage/?search=Romans%201%3A16&version=ESV)** - For I am not ashamed of the gospel, for it is the power of God for salvation to everyone who believes, to the Jew first and also to the Greek. (ESV)
+
+
+### We need to be born-again and we want to be filled with and baptised by the Holy Spirit
 
 It's natural to water baptize a person after they believe:
 
@@ -6528,9 +6557,35 @@ We're not justified through the works of the law but through faith, and faith in
 
 > **[Galatians 2:15-16](https://www.biblegateway.com/passage/?search=Galatians%202%3A15-16&version=ESV)** - “We are Jews by nature and not sinners from among the Gentiles; nevertheless knowing that a man is not justified by the works of the Law but through faith in Christ Jesus, even we have believed in Christ Jesus, so that we may be **justified by faith in Christ** and not by the works of the Law; since by the works of the Law no flesh will be justified.
 
-It's by faith in Christ that we are justified, and faith involves obedience (at least of the heart).
+It's by faith in Christ that we are justified, and faith involves active belief, active trust - obedience (of the heart).
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not **obey** the Son shall not see life, but the wrath of God remains on him. (ESV)
+
+[biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son &#x2013; the only begotten &#x2013; He gave, that every one who is believing in him may not perish, but may have life age-during.](https://biblehub.com/interlinear/john/3-16.htm)
+
+     1  3778   1063 25       3588    2316  3588    2889      5620
+     2  Houtōs gar  ēgapēsen ho      Theos ton     kosmon    hōste
+     3  Οὕτως  γὰρ  ἠγάπησεν ὁ       Θεὸς  τὸν     κόσμον  , ὥστε
+     4  Thus   for  loved     -      God   the     world     that
+     5  Adv    Conj V-AIA-3S Art-NMS N-NMS Art-AMS N-AMS     Conj
+     6  
+     7  3588    5207    3588    3439          1325
+     8  ton     Huion   ton     monogenē      edōken
+     9  τὸν     Υἱὸν  , τὸν     μονογενῆ  ,   ἔδωκεν  ,
+    10  the     Son     the     only begotten He gave
+    11  Art-AMS N-AMS   Art-AMS Adj-AMS       V-AIA-3S
+    12  
+    13  2443    3956     3588    4100      1519 846
+    14  hina    pas      ho      pisteuōn  eis  auton
+    15  ἵνα     πᾶς      ὁ       πιστεύων  εἰς  αὐτὸν
+    16  so that everyone  -      believing in   Him
+    17  Conj    Adj-NMS  Art-NMS V-PPA-NMS Prep PPro-AM3S
+    18  
+    19  3361 622           235  2192        2222  166
+    20  mē   apolētai      all’ echē        zōēn  aiōnion
+    21  μὴ   ἀπόληται  ,   ἀλλ’ ἔχῃ         ζωὴν  αἰώνιον  .
+    22  not  should perish but  should have life  eternal
+    23  Adv  V-ASM-3S      Conj V-PSA-3S    N-AFS Adj-AFS
 
 It's faith in the heart which we need; obedience to Jesus Christ and belief in Jesus Christ in the heart, and belief and obedience to God who has <ins>raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification</ins>.
 
@@ -11991,7 +12046,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org3a765de)
+See: [33.4.1](#org000194c)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24913,7 +24968,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org3a765de)
+See: [33.4.1](#org000194c)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
