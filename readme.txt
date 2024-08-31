@@ -19717,7 +19717,36 @@ Faith in God is ultimately all you need, like Jesus.
   Mark 9:25 - And when Jesus saw that a crowd came running together, he rebuked the unclean spirit, saying to it,
   You mute and deaf spirit, I command you, come out of him and never enter him again. (ESV)
 
-18.10.2. Christians can be afflicted by demons
+  Matthew 12:28 - But if it is by the Spirit of God that I cast out demons, then the kingdom of God has come upon
+  you. (ESV)
+
+  Luke 10:19 - Behold, I have given you authority to tread on serpents and scorpions, and over all the power of
+  the enemy, and nothing shall hurt you. (ESV)
+
+  Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
+
+18.10.2. We can and should use Jesus' name to cast out demons - There is power in the name of Jesus
+
+  Luke 10:17 - The seventy-two returned with joy, saying, Lord, even the demons are subject to us in your name!
+  (ESV)
+
+  Luke 9:49-55 - John answered, Master, we saw someone casting out demons in your name, and we tried to stop him,
+  because he does not follow with us. But Jesus said to him, Do not stop him, for the one who is not against you
+  is for you. When the days drew near for him to be taken up, he set his face to go to Jerusalem. And he sent
+  messengers ahead of him, who went and entered a village of the Samaritans, to make preparations for him. But the
+  people did not receive him, because his face was set toward Jerusalem. And when his disciples James and John saw
+  it, they said, Lord, do you want us to tell fire to come down from heaven and consume them? But he turned and
+  rebuked them. (ESV)
+
+  Luke 10:17 - The seventy-two returned with joy, saying, Lord, even the demons are subject to us in your name!
+  (ESV)
+
+  Acts 19:13-15 - Then some of the itinerant Jewish exorcists undertook to invoke the name of the Lord Jesus over
+  those who had evil spirits, saying, I adjure you by the Jesus, whom Paul proclaims. Seven sons of a Jewish high
+  priest named Sceva were doing this. But the evil spirit answered them, Jesus I know, and Paul I recognize, but
+  who are you? (ESV)
+
+18.10.3. Christians can be afflicted by demons
 
 This is a demon of harassment. I've also seemed to be afflicted with a demon of harassment (harassing dreams) and
 potentially others quite often during the last 2 years as I've become vocal about my testimony of Jesus and trying
@@ -19727,7 +19756,7 @@ stay away from me, to leave me and never return or enter me again in Jesus Chris
   II Corinthians 12:7 - So to keep me from being too elated by the surpassing greatness of the revelations, a
   thorn was given me in the flesh, a messenger of Satan to harass me, to keep me from being too elated. (ESV)
 
-18.10.3. Deliverance on oneself (according to Derek Prince)
+18.10.4. Deliverance on oneself (according to Derek Prince)
 
 Try to meet these conditions:
 
@@ -19743,14 +19772,14 @@ Try to meet these conditions:
   Proverbs 28:13 - Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them
   will obtain mercy. (ESV)
 
-18.10.4. Using Jesus' name with faith
+18.10.5. Using Jesus' name with faith
 
 The name of Jesus Christ, Messiah, used to cast out a demon from someone who was unwilling:
 
   Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
   spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
 
-18.10.5. Why some people are not delivered (according to Derek Prince)
+18.10.6. Why some people are not delivered (according to Derek Prince)
 
 For not meeting the conditions. It's not so much a test of your spiritual power. It's a test of whether or not
 you've met the conditions. When performing deliverance on others, don't focus on yourself. Focus on those people
@@ -19793,7 +19822,7 @@ sentimentality.
 me), and satan will not let them go because of what they are themselves but because of what they stand for.
 There are people for who the whole body has to take responsibility. I need prayer to break these chains.
 
-18.10.6. How to keep your deliverance
+18.10.7. How to keep your deliverance
 
  1. Make Jesus Lord in every area of my life.
 - I had a dream last night <2024-07-02 Tue> which said someone other than Jesus was my Lord (if I recall
@@ -19823,7 +19852,7 @@ impulses. You are not free to do it.
 - John 12:31-32 - Now is the judgment of this world; now will the ruler of this world be cast out. And I,
 when I am lifted up from the earth, will draw all people to myself. (ESV)
 
-18.10.7. Prayer by Derek Prince
+18.10.8. Prayer by Derek Prince
 
 youtube.com: How To Expel The Enemy | Basics Of Deliverance Pt. 2 | Derek Prince @time: 48 min 48 sec
 I'm going to lead you in a prayer in which you're going to have the opportunity to humble yourself, to come to
@@ -45585,7 +45614,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 21:03
+Created: 2024-08-31 Sat 23:34
 
 Validate
 

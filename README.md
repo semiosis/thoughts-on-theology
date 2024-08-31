@@ -424,7 +424,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga21e921) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb55999b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -612,18 +612,17 @@ Please feel free to discuss it with me.
 
 ## Bible versions used in this document
 
-Almost all of verses are taken from the ESV
-(English Standard Version) bible with the odd NASB
-(New American Standard Bible), KJV (King
-James Version), and BSB (Berean Study Bible)
-used here and there.
+Almost all of verses are taken from the [ESV (English Standard Version)](https://www.biblegateway.com/versions/English-Standard-Version-ESV-Bible/) bible
+with the odd [NASB (New American Standard Bible)](https://www.biblegateway.com/versions/New-American-Standard-Bible-NASB1995/#vinfo),
+[KJV (King James Version)](https://www.biblegateway.com/versions/King-James-Version-KJV-Bible/), and
+[BSB (Berean Study Bible)](https://bereanbibles.com/about-berean-study-bible/) used here and there.
 
 I have also used the original Hebrew and Greek
 from the Interlinear Bible on Biblehub.com a
 couple of times.
 
-By default I will use the ESV and where it is
-not from the ESV, I have almost certainly marked it with the alternative version used.
+By default I will use the [ESV](https://www.biblegateway.com/versions/English-Standard-Version-ESV-Bible/) and where it is
+not from the [ESV](https://www.biblegateway.com/versions/English-Standard-Version-ESV-Bible/), I have almost certainly marked it with the alternative version used.
 
 
 # Being born-again
@@ -12070,7 +12069,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6cba0e9)
+See: [33.4.1](#orgc054e1d)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13331,6 +13330,23 @@ Faith in God is ultimately all you need, like Jesus.
 ### A simple command should work, with faith
 
 > **[Mark 9:25](https://www.biblegateway.com/passage/?search=Mark%209%3A25&version=ESV)** - And when Jesus saw that a crowd came running together, he rebuked the unclean spirit, saying to it, You mute and deaf spirit, I command you, come out of him and never enter him again. (ESV)
+
+> **[Matthew 12:28](https://www.biblegateway.com/passage/?search=Matthew%2012%3A28&version=ESV)** - But if it is by the Spirit of God that I cast out demons, then the kingdom of God has come upon you. (ESV)
+
+> **[Luke 10:19](https://www.biblegateway.com/passage/?search=Luke%2010%3A19&version=ESV)** - Behold, I have given you authority to tread on serpents and scorpions, and over all the power of the enemy, and nothing shall hurt you. (ESV)
+
+> **[Mark 1:39](https://www.biblegateway.com/passage/?search=Mark%201%3A39&version=ESV)** - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
+
+
+### We can and should use Jesus' name to cast out demons - There is power in the name of Jesus
+
+> **[Luke 10:17](https://www.biblegateway.com/passage/?search=Luke%2010%3A17&version=ESV)** - The seventy-two returned with joy, saying, Lord, even the demons are subject to us in your name! (ESV)
+
+> **[Luke 9:49-55](https://www.biblegateway.com/passage/?search=Luke%209%3A49-55&version=ESV)** - John answered, Master, we saw someone casting out demons in your name, and we tried to stop him, because he does not follow with us. But Jesus said to him, Do not stop him, for the one who is not against you is for you. When the days drew near for him to be taken up, he set his face to go to Jerusalem. And he sent messengers ahead of him, who went and entered a village of the Samaritans, to make preparations for him. But the people did not receive him, because his face was set toward Jerusalem. And when his disciples James and John saw it, they said, Lord, do you want us to tell fire to come down from heaven and consume them? But he turned and rebuked them. (ESV)
+
+> **[Luke 10:17](https://www.biblegateway.com/passage/?search=Luke%2010%3A17&version=ESV)** - The seventy-two returned with joy, saying, Lord, even the demons are subject to us in your name! (ESV)
+
+> **[Acts 19:13-15](https://www.biblegateway.com/passage/?search=Acts%2019%3A13-15&version=ESV)** - Then some of the itinerant Jewish exorcists undertook to invoke the name of the Lord Jesus over those who had evil spirits, saying, I adjure you by the Jesus, whom Paul proclaims. Seven sons of a Jewish high priest named Sceva were doing this. But the evil spirit answered them, Jesus I know, and Paul I recognize, but who are you? (ESV)
 
 
 ### Christians can be afflicted by demons
@@ -25006,7 +25022,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6cba0e9)
+See: [33.4.1](#orgc054e1d)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
