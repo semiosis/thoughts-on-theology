@@ -35,6 +35,13 @@ found in Christ Jesus:
   Deuteronomy 10:17 - For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the
   awesome God, who is not partial and takes no bribe. (ESV)
 
+Jesus is preparing us to be able to stand before Father God blamelessly:
+
+  I Thessalonians 3:11-13 - Now may our God and Father himself, and our Lord Jesus, direct our way to you, and may
+  the Lord make you increase and abound in love for one another and for all, as we do for you, so that he may
+  establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with all
+  his saints. (ESV)
+
 Christ is reigning until all things are placed into subjection under Him. We must come under the Lordship of
 Christ Jesus. I consider any so-called god which is in rebellion to Christ to be a demon:
 
@@ -37734,7 +37741,41 @@ Jesus as a life-giving spirit proclaimed to the spirits in prison:
 Baptism is an appeal to God for a good conscience - It's an appeal to God but not strictly required to be saved.
 It is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
-I definitely believe that "believer's baptism" is the right way to perform baptism.
+We appeal to God for a good conscience with Him, asking God to partake in the resurrection of Jesus Christ, God
+circumcises our heart, and we are buried with Jesus in His death, our old man dies, and we walk in the newness of
+life - rise with Him in resurrection through faith in the powerful working of God:
+
+  I Peter 3:21-22 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but
+  as an appeal to God for a good conscience, through the resurrection of Jesus Christ, who has gone into heaven
+  and is at the right hand of God, with angels, authorities, and powers having been subjected to him. (ESV)
+
+  Colossians 2:11-12 - In him also you were circumcised with a circumcision made without hands, by putting off the
+  body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also
+  raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
+
+  Romans 6:4 - We were buried therefore with him by baptism into death, in order that, just as Christ was raised
+  from the dead by the glory of the Father, we too might walk in newness of life. (ESV)
+
+I definitely believe that "believer's baptism" is the right way to perform baptism:
+
+  Isaiah 7:14-16 - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a
+  son, and shall call his name Immanuel. He shall eat curds and honey when he knows how to refuse the evil and
+  choose the good. For before the boy knows how to refuse the evil and choose the good, the land whose two kings
+  you dread will be deserted. (ESV)
+
+  Luke 2:48-52 - And when his parents saw him, they were astonished. And his mother said to him, Son, why have you
+  treated us so? Behold, your father and I have been searching for you in great distress. And he said to them, Why
+  were you looking for me? Did you not know that I must be in my Father's house? And they did not understand the
+  saying that he spoke to them. And he went down with them and came to Nazareth and was submissive to them. And
+  his mother treasured up all these things in her heart. And Jesus increased in wisdom and in stature and in favor
+  with God and man. (ESV)
+
+  Mark 10:37-40 - And they said to him, Grant us to sit, one at your right hand and one at your left, in your
+  glory. Jesus said to them, You do not know what you are asking. Are you able to drink the cup that I drink, or
+  to be baptized with the baptism with which I am baptized? And they said to him, We are able. And Jesus said to
+  them, The cup that I drink you will drink, and with the baptism with which I am baptized, you will be baptized,
+  but to sit at my right hand or at my left is not mine to grant, but it is for those for whom it has been
+  prepared. (ESV)
 
 Baptism does save, but I believe it must be coupled with belief, and also trust, and I think that obedience comes
 from trust:
@@ -37745,6 +37786,17 @@ from trust:
   ark was being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism,
   which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a
   good conscience, through the resurrection of Jesus Christ,
+
+  Acts 19:4 - And Paul said, John baptized with the baptism of repentance, telling the people to believe in the
+  one who was to come after him, that is, Jesus. (ESV)
+
+Fear of God (wanting to please God doing His will), wanting a good conscience with God, and wanting to change from
+doing dead works to perform deeds which glorify Jesus obedient to His commandments - deeds in keeping with
+repentance - being zealous for good deeds, love issuing from a good conscience - and receiving Jesus' Holy Spirit
+to empower this resurrection life - this is the mind set we should have going into baptism:
+
+  I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
+  an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
 I believe a person must believe, and not just be baptised:
 
@@ -45498,7 +45550,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 19:16
+Created: 2024-08-31 Sat 20:31
 
 Validate
 

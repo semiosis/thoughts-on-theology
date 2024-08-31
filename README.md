@@ -19,6 +19,10 @@ We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He h
 
 > **[Deuteronomy 10:17](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A17&version=ESV)** - For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and takes no bribe. (ESV)
 
+Jesus is preparing us to be able to stand before Father God blamelessly:
+
+> **[I Thessalonians 3:11-13](https://www.biblegateway.com/passage/?search=1%20Thessalonians%203%3A11-13&version=ESV)** - Now may our God and Father himself, and our Lord Jesus, direct our way to you, and **may the Lord make you increase and abound in love for one another and for all**, as we do for you, **so that he may establish your hearts blameless in holiness before our God and Father**, at the coming of our Lord Jesus with all his saints. (ESV)
+
 Christ is reigning until all things are placed into subjection under Him. We must come under the Lordship of Christ Jesus. I consider any so-called god which is in rebellion to Christ to be a demon:
 
 > **[I Corinthians 15:25-28](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A25-28&version=ESV)** - For he must reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all. (ESV)
@@ -412,7 +416,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8d8dea5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org71739de) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12048,7 +12052,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org669226a)
+See: [33.4.1](#org67886be)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24978,7 +24982,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org669226a)
+See: [33.4.1](#org67886be)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -26465,11 +26469,31 @@ Jesus as a life-giving spirit proclaimed to the spirits in prison:
 Baptism is an appeal to God for a good conscience - It's an **appeal** to God but not strictly required to be saved.
 It is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
-I definitely believe that "believer's baptism" is the right way to perform baptism.
+We appeal to God for a good conscience with Him, asking God to partake in the resurrection of Jesus Christ, God circumcises our heart, and we are buried with Jesus in His death, our old man dies, and we walk in the newness of life - rise with Him in resurrection through faith in the powerful working of God:
+
+> **[I Peter 3:21-22](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A21-22&version=ESV)** - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of God, with angels, authorities, and powers having been subjected to him. (ESV)
+
+> **[Colossians 2:11-12](https://www.biblegateway.com/passage/?search=Colossians%202%3A11-12&version=ESV)** - In him also you were circumcised with a circumcision made without hands, by putting off the body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
+
+> **[Romans 6:4](https://www.biblegateway.com/passage/?search=Romans%206%3A4&version=ESV)** - We were buried therefore with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, we too might walk in newness of life. (ESV)
+
+I definitely believe that "believer's baptism" is the right way to perform baptism:
+
+> **[Isaiah 7:14-16](https://www.biblegateway.com/passage/?search=Isaiah%207%3A14-16&version=ESV)** - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a son, and shall call his name Immanuel. He shall eat curds and honey when he knows how to refuse the evil and choose the good. For before the boy knows how to refuse the evil and choose the good, the land whose two kings you dread will be deserted. (ESV)
+
+> **[Luke 2:48-52](https://www.biblegateway.com/passage/?search=Luke%202%3A48-52&version=ESV)** - And when his parents saw him, they were astonished. And his mother said to him, Son, why have you treated us so? Behold, your father and I have been searching for you in great distress. And he said to them, Why were you looking for me? Did you not know that I must be in my Father's house? And they did not understand the saying that he spoke to them. And he went down with them and came to Nazareth and was submissive to them. And his mother treasured up all these things in her heart. And Jesus increased in wisdom and in stature and in favor with God and man. (ESV)
+
+> **[Mark 10:37-40](https://www.biblegateway.com/passage/?search=Mark%2010%3A37-40&version=ESV)** - And they said to him, Grant us to sit, one at your right hand and one at your left, in your glory. Jesus said to them, You do not know what you are asking. Are you able to drink the cup that I drink, or to be baptized with the baptism with which I am baptized? And they said to him, We are able. And Jesus said to them, The cup that I drink you will drink, and with the baptism with which I am baptized, you will be baptized, but to sit at my right hand or at my left is not mine to grant, but it is for those for whom it has been prepared. (ESV)
 
 Baptism does save, but I believe it must be coupled with belief, and also **trust**, and I think that **obedience** comes from trust:
 
 > **[I Peter 3:18-21](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A18-21&version=ESV)** - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring us to God, being put to **death in the flesh but made alive in the spirit**, in which he went and proclaimed to the spirits in prison, because **they formerly did not obey**, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ,
+
+> **[Acts 19:4](https://www.biblegateway.com/passage/?search=Acts%2019%3A4&version=ESV)** - And Paul said, John baptized with the baptism of repentance, telling the people to believe in the one who was to come after him, that is, Jesus. (ESV)
+
+Fear of God (wanting to please God doing His will), wanting a good conscience with God, and wanting to change from doing dead works to perform deeds which glorify Jesus obedient to His commandments - deeds in keeping with repentance - being zealous for good deeds, love issuing from a good conscience - and receiving Jesus' Holy Spirit to empower this resurrection life - this is the mind set we should have going into baptism:
+
+> **[I Peter 3:21](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A21&version=ESV)** - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
 I believe a person **must** believe, and not just be baptised:
 
