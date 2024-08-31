@@ -5276,6 +5276,9 @@ has us covered. But we do endeavour, we do try:
   Galatians 2:17 - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ
   then a servant of sin? Certainly not! (ESV)
 
+  I Peter 3:15 - but in your hearts regard Christ the Lord as holy, always being prepared to make a defense to
+  anyone who asks you for a reason for the hope that is in you; (ESV)
+
 youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
 
 3. Our faith has been tested, and results in praise and glory and honour at the revelation of Jesus Christ:
@@ -25360,6 +25363,22 @@ Correct others with gentleness:
   patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading
   to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do
   his will. (ESV)
+
+Representing Jesus, share the gospel in word and deed while also endeavoring to maintain a good conscience with
+God and Christlike behaviour:
+
+  I Peter 3:15-16 - but in your hearts regard Christ the Lord as holy, always being prepared to make a defense to
+  anyone who asks you for a reason for the hope that is in you; yet do it with gentleness and respect, having a
+  good conscience, so that, when you are slandered, those who revile your good behavior in Christ may be put to
+  shame. (ESV)
+
+  Jude 1:21-23 - keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to
+  eternal life. And have mercy on those who doubt; save others by snatching them out of the fire; to others show
+  mercy with fear, hating even the garment stained by the flesh. (ESV)
+
+  Jude 1:21-23 - Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal
+  life. And of some have compassion, making a difference: And others save with fear, pulling them out of the fire;
+  hating even the garment spotted by the flesh. (KJV)
 
 30.2. Entering into life / the Kingdom of Heaven
 
@@ -45479,7 +45498,7 @@ Date: 2024-08-31 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 12:28
+Created: 2024-08-31 Sat 19:16
 
 Validate
 

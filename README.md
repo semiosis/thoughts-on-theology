@@ -412,7 +412,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf077124) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8d8dea5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3463,6 +3463,8 @@ It's really important to turn from sin:
 We endeavour to be justified through faithful obedience to Jesus, and if we fall short, we still believe Christ has us covered. But we do endeavour, we do try:
 
 > **[Galatians 2:17](https://www.biblegateway.com/passage/?search=Galatians%202%3A17&version=ESV)** - But if, in our endeavor to be justified in Christ, we too were found to be sinners, is Christ then a servant of sin? Certainly not! (ESV)
+
+> **[I Peter 3:15](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A15&version=ESV)** - but **in your hearts regard Christ the Lord as holy**, always being prepared to make a defense to anyone who asks you for a reason for the hope that is in you; (ESV)
 
 [youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec](https://youtube.com/watch?v=t76o8Y7AA7M&t=136)
 
@@ -12046,7 +12048,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org000194c)
+See: [33.4.1](#org669226a)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -17202,6 +17204,14 @@ Being washed, we ought to wash one another's feet:
 Correct others with gentleness:
 
 > **[II Timothy 2:24-26](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A24-26&version=ESV)** - And the Lord's servant must not be quarrelsome but kind to everyone, able to teach, patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them **repentance leading to a knowledge of the truth,** and **they may escape from the snare of the devil**, after being **captured by him to do his will.** (ESV)
+
+Representing Jesus, share the gospel in word and deed while also endeavoring to maintain a good conscience with God and Christlike behaviour:
+
+> **[I Peter 3:15-16](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A15-16&version=ESV)** - but in your hearts regard Christ the Lord as holy, always being prepared to make a defense to anyone who asks you for a reason for the hope that is in you; **yet do it with gentleness and respect**, having a good conscience, so that, when you are slandered, those who revile your good behavior in Christ may be put to shame. (ESV)
+
+> **[Jude 1:21-23](https://www.biblegateway.com/passage/?search=Jude%201%3A21-23&version=ESV)** - keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. And **have mercy on those who doubt**; **save others by snatching them out of the fire**; **to others show mercy with fear**, hating even the garment stained by the flesh. (ESV)
+
+> **[Jude 1:21-23](https://www.biblegateway.com/passage/?search=Jude%201%3A21-23&version=ESV)** - Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal life. And **of some have compassion, making a difference**: And **others save with fear, pulling them out of the fire**; hating even the garment spotted by the flesh. (KJV)
 
 
 ## Entering into life / the Kingdom of Heaven
@@ -24968,7 +24978,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org000194c)
+See: [33.4.1](#org669226a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
