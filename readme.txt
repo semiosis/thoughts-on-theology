@@ -381,6 +381,8 @@ Our freedom is so that we might live to God:
 
   Galatians 2:19 - For through the law I died to the law, so that I might live to God. (ESV)
 
+  Psalms 119:45 - And I will walk at liberty, For I seek Your precepts. (NASB)
+
 God is our life. We must love, obey, and hold fast to Him. Faith is not without obedience, but we are to obey
 Jesus Christ and to believe in Jesus is to have begun to obey Him:
 
@@ -11302,6 +11304,106 @@ Exodus 6:3 (Interlinear)
 and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been
 known to them;
 
+YHWH is Father God:
+
+  Matthew 6:9 - Pray then like this: Our Father in heaven, hallowed be your name. (ESV)
+
+  Revelation of John 4:11 - Worthy are you, our Lord and God, to receive glory and honor and power, for you
+  created all things, and by your will they existed and were created. (ESV)
+
+  Ezekiel 36:23 - And I will vindicate the holiness of my great name, which has been profaned among the nations,
+  and which you have profaned among them. And the nations will know that I am the LORD, declares the Lord GOD,
+  when through you I vindicate my holiness before their eyes. (ESV)
+
+  Ezekiel 37:13-15 - And you shall know that I am the LORD (3068. Yhvh), when I open your graves, and raise you
+  from your graves, O my people. And I will put my Spirit within you, and you shall live, and I will place you in
+  your own land. Then you shall know that I am the LORD; I have spoken, and I will do it, declares the LORD. The
+  word of the LORD came to me: (ESV)
+
+  Psalms 111:9 - He sent redemption to his people; he has commanded his covenant forever. Holy and awesome is his
+  name! (ESV)
+
+Isaiah 64:8 (Interlinear)
+But now Yahweh our Father You [are] we [are] the clay and You our potter and the work of Your hand we all [are]
+
+  Isaiah 64:8 - But now, O LORD, you are our Father; we are the clay, and you are our potter; we are all the work
+  of your hand. (ESV)
+
+When God revealed His name, He also revealed what His name means:
+
+  Exodus 3:13-15 - Then Moses said to God, If I come to the people of Israel and say to them, The God of your
+  fathers has sent me to you, and they ask me, What is his name? what shall I say to them? God said to Moses, I AM
+  WHO I AM. And he said, Say this to the people of Israel, I AM has sent me to you. God also said to Moses, Say
+  this to the people of Israel, The LORD (3068. Yhvh), the God of your fathers, the God of Abraham, the God of
+  Isaac, and the God of Jacob, has sent me to you. This is my name forever, and thus I am to be remembered
+  throughout all generations. (ESV)
+
+Knowing God coincides with keeping His word. I think that if we're having trouble understanding the Godhead, we
+should try to keep God's word:
+
+  John 8:54-58 - Jesus answered, If I glorify myself, my glory is nothing. It is my Father who glorifies me, of
+  whom you say, He is our God. But you have not known him. I know him. If I were to say that I do not know him, I
+  would be a liar like you, but I do know him and I keep his word. Your father Abraham rejoiced that he would see
+  my day. He saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen
+  Abraham? Jesus said to them, Truly, truly, I say to you, before Abraham was, I am. (ESV)
+
+  James 1:22 - But be doers of the word, and not hearers only, deceiving yourselves. (ESV)
+
+  Psalms 90:2 - Before the mountains were brought forth, or ever you had formed the earth and the world, from
+  everlasting to everlasting you are God. (ESV)
+
+John 1:18 (Interlinear)
+God no one has seen ever yet [the] only begotten God the [One] being in the bosom of the Father He has made [Him]
+known
+
+  Exodus 3:15 - God also said to Moses, Say this to the people of Israel, The LORD (3068. Yhvh), the God of your
+  fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. This is my name
+  forever, and thus I am to be remembered throughout all generations. (ESV)
+
+Jesus referred to God as Father:
+
+  Mark 14:36 - And he said, Abba, Father, all things are possible for you. Remove this cup from me. Yet not what I
+  will, but what you will. (ESV)
+
+Father God put the Spirit of His Son into our heart:
+
+  Galatians 4:6 - And because you are sons, God has sent the Spirit of his Son into our hearts, crying, Abba!
+  Father! (ESV)
+
+And we are adopted:
+
+  Romans 8:15-16 - For you did not receive the spirit of slavery to fall back into fear, but you have received the
+  Spirit of adoption as sons, by whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that
+  we are children of God, (ESV)
+
+Jesus also taught us to call the same God our God and Father:
+
+  John 20:17 - Jesus said to her, Do not cling to me, for I have not yet ascended to the Father; but go to my
+  brothers and say to them, I am ascending to my Father and your Father, to my God and your God. (ESV)
+
+We're supposed to do God's will. It's our food to do God's will:
+
+  John 12:27 - Now is my soul troubled. And what shall I say? Father, save me from this hour? But for this purpose
+  I have come to this hour. (ESV)
+
+  John 4:34 - Jesus said to them, My food is to do the will of him who sent me and to accomplish his work. (ESV)
+
+Jesus and Father God are very close:
+
+  John 12:28 - Father, glorify your name. Then a voice came from heaven: I have glorified it, and I will glorify
+  it again. (ESV)
+
+  John 5:19 - So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but
+  only what he sees the Father doing. For whatever the Father does, that the Son does likewise. (ESV)
+
+Jesus pre-existed before Creation:
+
+  John 1:3 - All things were made through him, and without him was not any thing made that was made. (ESV)
+
+  John 17:5,24 - And now, Father, glorify me in your own presence with the glory that I had with you before the
+  world existed. Father, I desire that they also, whom you have given me, may be with me where I am, to see my
+  glory that you have given me because you loved me before the foundation of the world. (ESV)
+
 5.15.19. Faith and law-keeping as a Christian
 
 When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our
@@ -11861,6 +11963,15 @@ to know Him:
 
   I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+Knowing God coincides with keeping His word. I think that if we're having trouble understanding the Godhead, we
+should try to keep God's word:
+
+  John 8:54-58 - Jesus answered, If I glorify myself, my glory is nothing. It is my Father who glorifies me, of
+  whom you say, He is our God. But you have not known him. I know him. If I were to say that I do not know him, I
+  would be a liar like you, but I do know him and I keep his word. Your father Abraham rejoiced that he would see
+  my day. He saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen
+  Abraham? Jesus said to them, Truly, truly, I say to you, before Abraham was, I am. (ESV)
 
 This kind of sounds like people can use their intellect to avoid obeying Jesus, and we must come against that
 disobedience:
@@ -13619,6 +13730,12 @@ Jesus:
   law to themselves, even though they do not have the law. They show that the work of the law is written on their
   hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on
   that day when, according to my gospel, God judges the secrets of men by Christ Jesus. (ESV)
+
+We must abide in the teachings of Jesus, believing what Jesus has said, believing Jesus:
+
+  John 5:37-38 - And the Father who sent me has himself borne witness about me. His voice you have never heard,
+  his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom
+  he has sent. (ESV)
 
   Job 22:30 - He delivers even the one who is not innocent, who will be delivered through the cleanness of your
   hands. (ESV)
@@ -16912,6 +17029,15 @@ Obedience is important:
   because it had been well built. But the one who hears and does not do them is like a man who built a house on
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
+
+Jehovah is the Rock:
+
+  Deuteronomy 32:3-4 - For I will proclaim the name of the LORD (3068. Yhvh); ascribe greatness to our God! The
+  Rock, his work is perfect, for all his ways are justice. A God of faithfulness and without iniquity, just and
+  upright is he. (ESV)
+
+  Isaiah 44:8 - Fear not, nor be afraid; have I not told you from of old and declared it? And you are my
+  witnesses! Is there a God besides me? There is no Rock; I know not any. (ESV)
 
 If I hear Jesus' commandment to repent from sin, for example, and I obediently repent, then that is walking by
 faith. Since faith comes from hearing the word of Christ - and there faith could come from any part of His
@@ -20666,9 +20792,12 @@ spirit our our mind, and put on the new self, created after the likeness of God 
 
 Speak the truth and do not sin:
 
-  Ephesians 4:25-27 - Therefore, having put away falsehood, let each one of you speak the truth with his neighbor,
+  Ephesians 4:25-28 - Therefore, having put away falsehood, let each one of you speak the truth with his neighbor,
   for we are members one of another. Be angry and do not sin; do not let the sun go down on your anger, and give
-  no opportunity to the devil.
+  no opportunity to the devil. Let the thief no longer steal, but rather let him labor, doing honest work with his
+  own hands, so that he may have something to share with anyone in need. (ESV)
+
+https://www.oneplace.com/ministries/truth-for-life/listen/do-not-give-the-devil-a-foothold-part-1-of-2-1176740.html
 
   Ephesians 1:17 - that the God of our Lord Jesus Christ, the Father of glory, may give you a spirit of wisdom and
   of revelation in the knowledge of him,
@@ -21650,6 +21779,12 @@ What counts is faith working through love:
   Romans 16:17-18 - I appeal to you, brothers, to watch out for those who cause divisions and create obstacles
   contrary to the doctrine that you have been taught; avoid them. For such persons do not serve our Lord Christ,
   but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. (ESV)
+
+We must abide in the teachings of Jesus, believing what Jesus has said, believing Jesus:
+
+  John 5:37-38 - And the Father who sent me has himself borne witness about me. His voice you have never heard,
+  his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom
+  he has sent. (ESV)
 
 Avoid people who stubbornly oppose the teaching of Christ:
 
@@ -23894,7 +24029,7 @@ The root of disobedience/rebellion is unbelief/denial.
   it in my side. Do not disbelieve, but believe. Thomas answered him, My Lord and my God!
 
 Jesus helped Thomas believe by giving him a commandment to do. It's implied that Thomas obeyed and arrived at
-belief.
+belief:
 
   John 20:29-31 - Jesus said to him, Have you believed because you have seen me? Blessed are those who have not
   seen and yet have believed. Now Jesus did many other signs in the presence of the disciples, which are not
@@ -23994,6 +24129,26 @@ I personally am holding out for an entirely new heavens and earth:
   those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those
   who deal with the world as though they had no dealings with it. For the present form of this world is passing
   away. (ESV)
+
+We are waiting for a new heavens and earth in which righteousness dwells:
+
+  II Peter 3:5-7 - For they deliberately overlook this fact, that the heavens existed long ago, and the earth was
+  formed out of water and through water by the word of God, and that by means of these the world that then existed
+  was deluged with water and perished. But by the same word the heavens and earth that now exist are stored up for
+  fire, being kept until the day of judgment and destruction of the ungodly. (ESV)
+
+The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including
+the planets, galaxies, etc. and the works done on earth with be exposed. It's an extreme event:
+
+  II Peter 3:10 - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar,
+  and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be
+  exposed. (ESV)
+
+The Works of Philo Judaeus, Philo of Alexandria (20BC - 50AD), On the Life of Moses II
+But the enactments of this lawgiver are firm, not shaken by commotions, not liable to alteration, but stamped as
+it were with the seal of nature herself, and they remain firm and lasting from the day on which they were first
+promulgated to the present one, and there may well be a hope that they will remain to all future time, as being
+immortal, as long as the sun and the moon, and the whole heaven and the whole world shall endure.
 
 The first heaven and first earth pass away and there is a new heaven and a new earth with no suffering. In the new
 heaven and new earth, the former things have passed away:
@@ -33363,7 +33518,7 @@ Thomas going from unbelief to belief.
   it in my side. Do not disbelieve, but believe. Thomas answered him, My Lord and my God!
 
 Jesus helped Thomas believe by giving him a commandment to do. It's implied that Thomas obeyed and arrived at
-belief.
+belief:
 
   John 20:29-31 - Jesus said to him, Have you believed because you have seen me? Blessed are those who have not
   seen and yet have believed. Now Jesus did many other signs in the presence of the disciples, which are not
@@ -34958,6 +35113,12 @@ Where we are unfaithful, though, God is faithful. God wants us to choose Him. He
 
   Luke 16:17 - But it is easier for heaven and earth to pass away than for one dot of the Law to become void.
 
+We must abide in the teachings of Jesus, believing what Jesus has said, believing Jesus:
+
+  John 5:37-38 - And the Father who sent me has himself borne witness about me. His voice you have never heard,
+  his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom
+  he has sent. (ESV)
+
   Matthew 5:14-20 - You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a
   lamp and put it under a basket, but on a stand, and it gives light to all in the house. In the same way, let
   your light shine before others, so that they may see your good works and give glory to your Father who is in
@@ -34969,6 +35130,19 @@ Where we are unfaithful, though, God is faithful. God wants us to choose Him. He
   and Pharisees, you will never enter the kingdom of heaven. (ESV)
 
   Luke 21:33 - Heaven and earth will pass away, but my words will not pass away.
+
+The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including
+the planets, galaxies, etc. and the works done on earth with be exposed. It's an extreme event:
+
+  II Peter 3:10 - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar,
+  and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be
+  exposed. (ESV)
+
+The Works of Philo Judaeus, Philo of Alexandria (20BC - 50AD), On the Life of Moses II
+But the enactments of this lawgiver are firm, not shaken by commotions, not liable to alteration, but stamped as
+it were with the seal of nature herself, and they remain firm and lasting from the day on which they were first
+promulgated to the present one, and there may well be a hope that they will remain to all future time, as being
+immortal, as long as the sun and the moon, and the whole heaven and the whole world shall endure.
 
 54.37. Structure of the Kingdom
 
@@ -45610,11 +45784,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-08-31 Sat 00:00
+Date: 2024-09-02 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-08-31 Sat 23:34
+Created: 2024-09-02 Mon 13:26
 
 Validate
 
