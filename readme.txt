@@ -5838,9 +5838,15 @@ The JW are right to affirm that we must remember God's name. Exodus 3:15 and Mal
 Yhvh, and Christians within the English speaking world generally affirm the name is spoken as Jehovah or Yahweh.
 It's right that we must affirm God's name and remember God's name:
 
-  Exodus 3:15 - God also said to Moses, Say this to the people of Israel, The LORD (3068. Yhvh), the God of your
-  fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. This is my name
-  forever, and thus I am to be remembered throughout all generations. (ESV)
+  Exodus 3:13-15 - Then Moses said to God, If I come to the people of Israel and say to them, The God of your
+  fathers has sent me to you, and they ask me, What is his name? what shall I say to them? God said to Moses, I AM
+  WHO I AM. And he said, Say this to the people of Israel, I AM has sent me to you. God also said to Moses, Say
+  this to the people of Israel, The LORD (3068. Yhvh), the God of your fathers, the God of Abraham, the God of
+  Isaac, and the God of Jacob, has sent me to you. This is my name forever, and thus I am to be remembered
+  throughout all generations. (ESV)
+
+  Exodus 9:16 - But for this purpose I have raised you up, to show you my power, so that my name may be proclaimed
+  in all the earth. (ESV)
 
 |  Yhvh: the proper name of the God of Israel
 |  Original Word: ????
@@ -5862,6 +5868,9 @@ as Jehovah is God and Holy Spirit is God:
   Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of
   the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to
   the end of the age. (ESV)
+
+  Hebrews 3:6 - but Christ is faithful over God's house as a son. And we are his house if indeed we hold fast our
+  confidence and our boasting in our hope. (ESV)
 
 4.2.5. Christ-like humility
 
@@ -11261,15 +11270,18 @@ Holy Spirit is Lord:
 
 Jesus was with Father God in the beginning:
 
-  Proverbs 8:22-32 - The LORD possessed me at the beginning of his work, the first of his acts of old. Ages ago I
-  was set up, at the first, before the beginning of the earth. When there were no depths I was brought forth, when
-  there were no springs abounding with water. Before the mountains had been shaped, before the hills, I was
-  brought forth, before he had made the earth with its fields, or the first of the dust of the world. When he
-  established the heavens, I was there; when he drew a circle on the face of the deep, when he made firm the skies
-  above, when he established the fountains of the deep, when he assigned to the sea its limit, so that the waters
-  might not transgress his command, when he marked out the foundations of the earth, then I was beside him, like a
-  master workman, and I was daily his delight, rejoicing before him always, rejoicing in his inhabited world and
-  delighting in the children of man. And now, O sons, listen to me: blessed are those who keep my ways. (ESV)
+  Proverbs 8:22-36 - The LORD (3068. Yhvh) possessed me at the beginning of his work, the first of his acts of
+  old. Ages ago I was set up, at the first, before the beginning of the earth. When there were no depths I was
+  brought forth, when there were no springs abounding with water. Before the mountains had been shaped, before the
+  hills, I was brought forth, before he had made the earth with its fields, or the first of the dust of the world.
+  When he established the heavens, I was there; when he drew a circle on the face of the deep, when he made firm
+  the skies above, when he established the fountains of the deep, when he assigned to the sea its limit, so that
+  the waters might not transgress his command, when he marked out the foundations of the earth, then I was beside
+  him, like a master workman, and I was daily his delight, rejoicing before him always, rejoicing in his inhabited
+  world and delighting in the children of man. And now, O sons, listen to me: blessed are those who keep my ways.
+  Hear instruction and be wise, and do not neglect it. Blessed is the one who listens to me, watching daily at my
+  gates, waiting beside my doors. For whoever finds me finds life and obtains favor from the LORD, but he who
+  fails to find me injures himself; all who hate me love death. (ESV)
 
   John 1:1-2 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
   beginning with God. (ESV)
@@ -11656,6 +11668,11 @@ youtube.com: God's Own Name
 Sermon
 youtube.com: The Superior Name of the Son
 
+The life which God has given us is in Jesus. And by believing He is who He is, we may have life in His name:
+
+  John 20:31 - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by
+  believing you may have life in his name. (ESV)
+
 Jehovah God gave Jesus His name, Jesus Christ, Son of God:
 
   Matthew 1:21 - She will bear a son, and you shall call his name Jesus, for he will save his people from their
@@ -11663,15 +11680,66 @@ Jehovah God gave Jesus His name, Jesus Christ, Son of God:
 
   Matthew 3:17 - and behold, a voice from heaven said, This is my beloved Son, with whom I am well pleased. (ESV)
 
-The life which God has given us is in Jesus. And by believing He is who He is, we may have life in His name:
-
-  John 20:31 - but these are written so that you may believe that Jesus is the Christ, the Son of God, and that by
-  believing you may have life in his name. (ESV)
-
-Jesus says that Jehovah God gave Him His name:
+Jesus says that Jehovah God gave Him His name, Jesus, and that Jesus is Jehovah God's name:
 
   John 17:11 - And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father,
   keep them in your name, which you have given me, that they may be one, even as we are one. (ESV)
+
+God's name is also Yahweh (Jehovah):
+
+  Exodus 3:13-15 - Then Moses said to God, If I come to the people of Israel and say to them, The God of your
+  fathers has sent me to you, and they ask me, What is his name? what shall I say to them? God said to Moses, I AM
+  WHO I AM. And he said, Say this to the people of Israel, I AM has sent me to you. God also said to Moses, Say
+  this to the people of Israel, The LORD (3068. Yhvh), the God of your fathers, the God of Abraham, the God of
+  Isaac, and the God of Jacob, has sent me to you. This is my name forever, and thus I am to be remembered
+  throughout all generations. (ESV)
+
+  Exodus 34:5-7 - The LORD (3068. Yhvh) descended in the cloud and stood with him there, and proclaimed the name
+  of the LORD (3068. Yhvh). The LORD (3068. Yhvh) passed before him and proclaimed, The LORD (3068. Yhvh), the
+  LORD (3068. Yhvh), a God merciful and gracious, slow to anger, and abounding in steadfast love and faithfulness,
+  keeping steadfast love for thousands, forgiving iniquity and transgression and sin, but who will by no means
+  clear the guilty, visiting the iniquity of the fathers on the children and the children's children, to the third
+  and the fourth generation. (ESV)
+
+Jesus manifested this name:
+
+  John 17:6 - I have manifested your name to the people whom you gave me out of the world. Yours they were, and
+  you gave them to me, and they have kept your word. (ESV)
+
+  John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
+  have loved me may be in them, and I in them. (ESV)
+
+  Psalms 22:22 - I will tell of your name to my brothers; in the midst of the congregation I will praise you:
+  (ESV)
+
+  Hebrews 2:11-12 - For he who sanctifies and those who are sanctified all have one origin. That is why he is not
+  ashamed to call them brothers, saying, I will tell of your name to my brothers; in the midst of the congregation
+  I will sing your praise. (ESV)
+
+  John 1:18 - No one has ever seen God; the only God, who is at the Father's side, he has made him known. (ESV)
+
+Jesus' name is the name above all names:
+
+  Philippians 2:9-11 - Therefore God has highly exalted him and bestowed on him the name that is above every name,
+  so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue
+  confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+Father God is greater than all:
+
+  John 10:29 - My Father, who has given them to me, is greater than all, and no one is able to snatch them out of
+  the Father's hand. (ESV)
+
+  John 20:17 - Jesus said to her, Do not cling to me, for I have not yet ascended to the Father; but go to my
+  brothers and say to them, I am ascending to my Father and your Father, to my God and your God. (ESV)
+
+Thoughts:
+
+- Jesus' name is the name above all names
+- Father God is greater than the Son of God
+- The name of Jesus belongs to both the Father and the Son
+- God is to be remembered as YHWH
+
+  I Corinthians 6:17 - But he who is joined to the Lord becomes one spirit with him. (ESV)
 
 Father God has a voice and a form, and sent Jesus:
 
@@ -11679,13 +11747,30 @@ Father God has a voice and a form, and sent Jesus:
   his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom
   he has sent. (ESV)
 
-I believe that Jesus Christ is Jehovah and is Immanuel.
+Father God spoke here:
 
-I believe that Jesus Christ is Jehovah, in that Jesus is God the Son:
+  John 12:27-30 - Now is my soul troubled. And what shall I say? Father, save me from this hour? But for this
+  purpose I have come to this hour. Father, glorify your name. Then a voice came from heaven: I have glorified it,
+  and I will glorify it again. The crowd that stood there and heard it said that it had thundered. Others said, An
+  angel has spoken to him. Jesus answered, This voice has come for your sake, not mine. (ESV)
+
+Father God glorifies Himself as He glorifies Jesus:
+
+  John 13:31 - When he had gone out, Jesus said, Now is the Son of Man glorified, and God is glorified in him.
+  (ESV)
+
+  Philippians 2:11 - and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+I believe that Jesus Christ is Jehovah and is Immanuel, and I believe in one God revealed in 3 Persons.
+
+I believe that Jesus Christ is Jehovah, in that Jesus is God the Son, and the name Jesus belongs to Jehovah God:
 
   John 1:1-3 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
   beginning with God. All things were made through him, and without him was not any thing made that was made.
   (ESV)
+
+Song
+youtube.com: What A Beautiful Name - Hillsong Worship
 
   John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
   from the Father, full of grace and truth. (ESV)
@@ -11717,9 +11802,14 @@ My flock, And I have sought it out.
 Video
 youtube.com: Gospel of Mark calls Jesus God in every chapter
 
-God the Father and God the Son are one.
+God the Father and God the Son are one:
 
   John 10:30 - I and the Father are one.
+
+  Matthew 11:25-27 - At that time Jesus declared, I thank you, Father, Lord of heaven and earth, that you have
+  hidden these things from the wise and understanding and revealed them to little children; yes, Father, for such
+  was your gracious will. All things have been handed over to me by my Father, and no one knows the Son except the
+  Father, and no one knows the Father except the Son and anyone to whom the Son chooses to reveal him. (ESV)
 
 
 Yeshua, Jesus                                           Yahweh, Jehovah
@@ -13027,6 +13117,17 @@ We must serve our Lord:
 
   Colossians 3:23-24 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
   you will receive the inheritance as your reward. You are serving the Lord Christ.
+
+We serve God in various ways:
+
+  I Corinthians 12:4-11 - Now there are varieties of gifts, but the same Spirit; and there are varieties of
+  service, but the same Lord; and there are varieties of activities, but it is the same God who empowers them all
+  in everyone. To each is given the manifestation of the Spirit for the common good. To one is given through the
+  Spirit the utterance of wisdom, and to another the utterance of knowledge according to the same Spirit, to
+  another faith by the same Spirit, to another gifts of healing by the one Spirit, to another the working of
+  miracles, to another prophecy, to another the ability to distinguish between spirits, to another various kinds
+  of tongues, to another the interpretation of tongues. All these are empowered by one and the same Spirit, who
+  apportions to each one individually as he wills. (ESV)
 
 Walk how Jesus taught us to walk, with faith in Him, and in so doing receive fellowship with one another and the
 cleansing of the blood of Jesus:
@@ -37938,7 +38039,7 @@ God gives life.
   John 10:29 - My Father, who has given them to me, is greater than all, and no one is able to snatch them out of
   the Father's hand.
 
-God the Father and God the Son are one.
+God the Father and God the Son are one:
 
   John 10:30 - I and the Father are one.
 
@@ -45832,7 +45933,7 @@ Date: 2024-09-02 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-02 Mon 14:03
+Created: 2024-09-02 Mon 15:04
 
 Validate
 
