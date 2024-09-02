@@ -141,6 +141,10 @@ When we are living in faith in God for His promises we are living in an obedient
 
 Our faith should be in God and our hope should be for God's promises. God has spoken a lot already in the Scriptures and about how we should listen to Jesus. Saving faith trusts God. Both belief and obedience come out of a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
 
+When we trust in the name (**[onoma](https://biblehub.com/greek/3686.htm)**) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts in Jesus receives forgiveness of sins th through His name:
+
+> **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that everyone who believes in him receives forgiveness of sins through his name. While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
+
 The Apostle Paul was obedient to God. This is Paul exercising his faith in God through obedience. Also, this was obedience to a heavenly vision - a vision in which Jesus was confessed (**[I John 4:3](https://www.biblegateway.com/passage/?search=1%20John%204%3A3&version=ESV)**) - and it was a truthful vision that is in accordance with the gospel which the earlier Apostles were teaching:
 
 > **[Acts 26:14-15](https://www.biblegateway.com/passage/?search=Acts%2026%3A14-15&version=ESV)** - And when we had all fallen to the ground, I heard a voice saying to me in the Hebrew language, Saul, Saul, why are you persecuting me? It is hard for you to kick against the goads. And I said, Who are you, Lord? And the Lord said, I am Jesus whom you are persecuting. (ESV)
@@ -430,7 +434,7 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbbebee5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgeb54c70) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12348,7 +12352,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org95a9d24)
+See: [33.4.1](#org5d6ac88)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -22901,8 +22905,6 @@ I currently am praying for God to do a miracle to fix everything, and I know my 
 
 The testimony that God has borne concerning his Son ([I John 5:10](https://www.biblegateway.com/passage/?search=1%20John%205%3A10&version=ESV)) is that God gave us eternal life, and this life is in his Son ([I John 5:11](https://www.biblegateway.com/passage/?search=1%20John%205%3A11&version=ESV)), and so we need to have the Son ([I John 5:12](https://www.biblegateway.com/passage/?search=1%20John%205%3A12&version=ESV)) and if we are trusting in the name of the Son of God ([I John 5:13](https://www.biblegateway.com/passage/?search=1%20John%205%3A13&version=ESV)) then we have confidence that we have eternal life.
 
-When we trust in the name [onoma](https://biblehub.com/greek/3686.htm) of the Son of God, we
-
 > **[I John 5:6](https://www.biblegateway.com/passage/?search=1%20John%205%3A6&version=ESV)** - This is he who came by water and blood—Jesus Christ; not by the water only but by the water and the blood. And the Spirit is the one who testifies, because the Spirit is the truth. (ESV)
 
 Jesus came by water and blood - each of these testify, and the Spirit also testifies.
@@ -25413,7 +25415,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org95a9d24)
+See: [33.4.1](#org5d6ac88)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

@@ -212,6 +212,14 @@ Scriptures and about how we should listen to Jesus. Saving faith trusts God. Bot
 a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the
 truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
 
+When we trust in the name (onoma) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts
+in Jesus receives forgiveness of sins th through His name:
+
+  Acts 10:43-45 - To him all the prophets bear witness that everyone who believes in him receives forgiveness of
+  sins through his name. While Peter was still saying these things, the Holy Spirit fell on all who heard the
+  word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the
+  Holy Spirit was poured out even on the Gentiles. (ESV)
+
 The Apostle Paul was obedient to God. This is Paul exercising his faith in God through obedience. Also, this was
 obedience to a heavenly vision - a vision in which Jesus was confessed (I John 4:3) - and it was a truthful vision
 that is in accordance with the gospel which the earlier Apostles were teaching:
@@ -679,6 +687,14 @@ That's who we are as Christians. When we walk according to the Spirit, we fulfil
 That is, we keep the commandments, we love. We are doers of the law. Not sinlessly perfect law-keepers. Nobody is
 nor anybody has been except Jesus, which is why we depend on Him, but rather, radically transformed people,
 through faith, in the power of the Holy Spirit, leaning on the grace of God that comes to us through Jesus Christ.
+
+We're saved and rescued from idolatry and from other lawlessness, and in order to serve God and obey His
+commandments as Jesus has taught us to keep them:
+
+  Ezekiel 36:25-27 - I will sprinkle clean water on you, and you shall be clean from all your uncleannesses, and
+  from all your idols I will cleanse you. And I will give you a new heart, and a new spirit I will put within you.
+  And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my Spirit
+  within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
 
 1. Confessions of faith
 
@@ -2098,6 +2114,19 @@ watches over the city, the watchman stays awake in vain. (ESV)
       have been carried out in God. (ESV)
     o Matthew 16:25 - For whoever would save his life will lose it, but whoever loses his life for my sake will
       find it. (ESV)
+
+It's really interesting what has happened regarding my testimony of getting born-again, my blog writings of 2022
+and of course, court and how it relates to Isaiah 1:12-17. I think the take-away from this is that we should cease
+to do evil and learn to do good. It is odd that although I do not observe new moons or religious 'feasts',
+whatever has happened has happened. I think everyone involved should repent before God going forward:
+
+  Isaiah 1:12-17 - When you come to appear before me, who has required of you this trampling of my courts? Bring
+  no more vain offerings; incense is an abomination to me. New moon and Sabbath and the calling of convocations- I
+  cannot endure iniquity and solemn assembly. Your new moons and your appointed feasts my soul hates; they have
+  become a burden to me; I am weary of bearing them. When you spread out your hands, I will hide my eyes from you;
+  even though you make many prayers, I will not listen; your hands are full of blood. Wash yourselves; make
+  yourselves clean; remove the evil of your deeds from before my eyes; cease to do evil, learn to do good; seek
+  justice, correct oppression; bring justice to the fatherless, plead the widow's cause. (ESV)
 
 I also do not affirm the LDS doctrine here:
 
@@ -4183,6 +4212,20 @@ So in a sense it's been on the verge of the second coming of Christ for quite a 
   upon the earth and wrath against this people. They will fall by the edge of the sword and be led captive among
   all nations, and Jerusalem will be trampled underfoot by the Gentiles, until the times of the Gentiles are
   fulfilled. (ESV)
+
+The Bible also predicts scoffers - but as Peter puts it, with the Lord, one day is as a thousand years, and a
+thousand years as one day:
+
+  II Peter 3:1-8 - This is now the second letter that I am writing to you, beloved. In both of them I am stirring
+  up your sincere mind by way of reminder, that you should remember the predictions of the holy prophets and the
+  commandment of the Lord and Savior through your apostles, knowing this first of all, that scoffers will come in
+  the last days with scoffing, following their own sinful desires. They will say, Where is the promise of his
+  coming? For ever since the fathers fell asleep, all things are continuing as they were from the beginning of
+  creation. For they deliberately overlook this fact, that the heavens existed long ago, and the earth was formed
+  out of water and through water by the word of God, and that by means of these the world that then existed was
+  deluged with water and perished. But by the same word the heavens and earth that now exist are stored up for
+  fire, being kept until the day of judgment and destruction of the ungodly. But do not overlook this one fact,
+  beloved, that with the Lord one day is as a thousand years, and a thousand years as one day. (ESV)
 
 Those are my current eschatological thoughts, but I am no expert.
 
@@ -11650,6 +11693,125 @@ put ourselves in, but we endeavour to be justified by God by being in Christ:
 Surely to be found in Christ we would be trusting Him and and trusting in Him and living for Him, and even serving
 Him.
 
+We must believe, believe in and obey Christ.
+
+The will of the Father is to believe on the Son, and it's also for us to love.
+
+  John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him should
+  have eternal life, and I will raise him up on the last day. (ESV)
+
+God gifts us repentance as we believe in Jesus:
+
+  Acts 16:31-32 - And they said, Believe in the Lord Jesus, and you will be saved, you and your household. And
+  they spoke the word of the Lord to him and to all who were in his house. (ESV)
+
+  Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
+  of God, not a result of works, so that no one may boast. (ESV)
+
+We need God to know us:
+
+  Galatians 4:4-9 - But when the fullness of time had come, God sent forth his Son, born of woman, born under the
+  law, to redeem those who were under the law, so that we might receive adoption as sons. And because you are
+  sons, God has sent the Spirit of his Son into our hearts, crying, Abba! Father! So you are no longer a slave,
+  but a son, and if a son, then an heir through God. Formerly, when you did not know God, you were enslaved to
+  those that by nature are not gods. But now that you have come to know God, or rather to be known by God, how can
+  you turn back again to the weak and worthless elementary principles of the world, whose slaves you want to be
+  once more? (ESV)
+
+Yes we must trust Him:
+
+  Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
+  as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
+  from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man
+  against whom the Lord will not count his sin. (ESV)
+
+We must do the will of the Father:
+
+  Matthew 7:15-20 - Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous
+  wolves. You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles?
+  So, every healthy tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad
+  fruit, nor can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown
+  into the fire. Thus you will recognize them by their fruits. (ESV)
+
+We must not be workers of lawlessness, but our belief should produce more obedience:
+
+  Matthew 7:21-23 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
+  does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
+  your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to
+  them, I never knew you; depart from me, you workers of lawlessness (458. anomia). (ESV)
+
+|  anomia: lawlessness
+|  Original Word: ???u??, ??, ?
+|  Part of Speech: Noun, Feminine
+|  Transliteration: anomia
+|  Phonetic Spelling: (an-om-ee'-ah)
+|  Definition: lawlessness
+|  Usage: lawlessness, iniquity, disobedience, sin.
+
+|  2532 5119 3670           846       3754   3763      1097
+|  kai  tote homologeso     autois    hoti   Oudepote  egnon
+|  ???  ???? ?u???????      ??????    ???  , ????????  ?????
+|  And  then I will declare to them    -     Never     knew I
+|  Conj Adv  V-FIA-1S       PPro-DM3P Conj   Adv       V-AIA-1S
+| 
+|  4771     672         575  1473     3588    2038 [e]
+|  hymas    apochoreite ap'  emou     hoi     ergazomenoi
+|  ?u??  ;  ??????????  ??'  ?u??  ,  ??      ??????u????
+|   you      depart you  from Me       those   working
+|   PPro-A2P V-PMA-2P    Prep PPro-G1S Art-VMP V-PPM/P-VMP
+|  
+|   3588    458
+|   ten     anomian
+|   ???     ???u???  .
+|    -      lawlessness
+|   Art-AFS N-AFS
+
+We must put Jesus' words into action:
+
+  Matthew 7:24-28 - Everyone then who hears these words of mine and does them will be like a wise man who built
+  his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it
+  did not fall, because it had been founded on the rock. And everyone who hears these words of mine and does not
+  do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and
+  the winds blew and beat against that house, and it fell, and great was the fall of it. And when Jesus finished
+  these sayings, the crowds were astonished at his teaching, (ESV)
+
+The words which Jesus had just spoken which he was probably referring to. We should be doers of the Law,
+specifically to love - to fulfill the Royal Law:
+
+  Matthew 7:1-20 - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and
+  with the measure you use it will be measured to you. Why do you see the speck that is in your brother's eye, but
+  do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of
+  your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then
+  you will see clearly to take the speck out of your brother's eye. Do not give dogs what is holy, and do not
+  throw your pearls before pigs, lest they trample them underfoot and turn to attack you. Ask, and it will be
+  given to you; seek, and you will find; knock, and it will be opened to you. For everyone who asks receives, and
+  the one who seeks finds, and to the one who knocks it will be opened. Or which one of you, if his son asks him
+  for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil,
+  know how to give good gifts to your children, how much more will your Father who is in heaven give good things
+  to those who ask him! So whatever you wish that others would do to you, do also to them, for this is the Law and
+  the Prophets. Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and
+  those who enter by it are many. For the gate is narrow and the way is hard that leads to life, and those who
+  find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves.
+  You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles? So, every
+  healthy tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor
+  can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the
+  fire. Thus you will recognize them by their fruits. (ESV)
+
+  Romans 13:10 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+We should continue serving God:
+
+  John 4:34 - Jesus said to them, My food is to do the will of him who sent me and to accomplish his work. (ESV)
+
+  John 8:29 - And he who sent me is with me. He has not left me alone, for I always do the things that are
+  pleasing to him. (ESV)
+
+There are varieties of service, and God empowers us to serve Him:
+
+  I Corinthians 12:4-6 - Now there are varieties of gifts, but the same Spirit; and there are varieties of
+  service, but the same Lord; and there are varieties of activities, but it is the same God who empowers them all
+  in everyone. (ESV)
+
 6. Jehovah is Almighty God, Creator of Heaven and Earth
 
   Jeremiah 31:33 - But this is the covenant that I will make with the house of Israel after those days, declares
@@ -16984,10 +17146,64 @@ Faith in the truth - pistis is a strong faith word!
   Hebrews 10:10 - And by that will we have been sanctified through the offering of the body of Jesus Christ once
   for all. (ESV)
 
-  1 Thessalonians 4:3 - For this is the will of God, your sanctification: that you abstain from sexual immorality;
-  (ESV)
+  1 Thessalonians 4:3 - For this is the will of God, your sanctification: that you abstain (568. apecho) from
+  sexual immorality; (ESV)
 
-Abstain means stop.
+|  apecho: to hold back, keep off, to be away, be distant
+|  Original Word: ?????
+|  Part of Speech: Verb
+|  Transliteration: apecho
+|  Phonetic Spelling: (ap-ekh'-o)
+|  Definition: to hold back, keep off, to be away, be distant
+|  Usage: I have in full, am far, it is enough.
+
+God hates evil and wants to clean us from it. So if we fear God then we also want to turn away from evil and do
+what is pleasing to God:
+
+  Proverbs 8:13 - The fear of the LORD is hatred of evil. Pride and arrogance and the way of evil and perverted
+  speech I hate. (ESV)
+
+It's really important to purify ourselves of every defilement of body and spirit. Paul the Apostle quotes the Old
+Testament on this:
+
+  II Corinthians 6:14-18 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? What accord has Christ with Belial? Or what portion
+  does a believer share with an unbeliever? What agreement has the temple of God with idols? For we are the temple
+  of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God,
+  and they shall be my people. Therefore go out from their midst, and be separate from them, says the Lord, and
+  touch no unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and
+  daughters to me, says the Lord Almighty. (ESV)
+
+  Isaiah 52:11 - Depart, depart, go out from there; touch no unclean thing; go out from the midst of her; purify
+  yourselves, you who bear the vessels of the LORD. (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+I want to be sanctified completely:
+
+I Thessalonians 5:23 - Now may the God of peace himself sanctify you completely, and may your whole spirit and
+soul and body be kept blameless at the coming of our Lord Jesus Christ. (ESV)
+
+There is no lust in the divine nature:
+
+II Peter 1:4 - by which he has granted to us his precious and very great promises, so that through them you may
+become partakers of the divine nature, having escaped from the corruption that is in the world because of sinful
+desire. (ESV)
+
+I want to bring glory to God by being a living sacrifice - living in a holy manner pleasing to God:
+
+  Romans 12:1 - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living
+  sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
+
+  I Corinthians 6:20 - for you were bought with a price. So glorify God in your body. (ESV)
+
+  1 Thessalonians 5:23 :: Himself now the God - of peace may sanctify you completely and entirely your - spirit
+  (pneuma) and - soul (psyche) and - body (soma blameless at the coming of the Lord of us Jesus Christ may be
+  preserved (Interlinear)
+
+  I Thessalonians 5:23 - Now may the God of peace himself sanctify you completely, and may your whole spirit and
+  soul and body be kept blameless at the coming of our Lord Jesus Christ. (ESV)
 
 16.8. God is the source of our life in Christ Jesus. Jesus is the source of our wisdom and righteousness and
 sanctification and redemption
@@ -19802,6 +20018,13 @@ The whole chapter of Hebrews 11 also describes many 'acts' of faith.
 
   Hebrews 11:1 - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
 
+  Matthew 21:21-22 - And Jesus answered them, Truly, I say to you, if you have faith and do not doubt, you will
+  not only do what has been done to the fig tree, but even if you say to this mountain, Be taken up and thrown
+  into the sea, it will happen. And whatever you ask in prayer, you will receive, if you have faith. (ESV)
+
+I think it's dangerous to stop there with describing faith because our faith should be built up trusting in God's
+Word, and corrected by God's Word.
+
 18.1. Only with God are all things possible for one who believes. Our faith must be faith 'with God', and our faith
 should in accordance with His will
 
@@ -19830,7 +20053,13 @@ His will be done:
   Mark 14:36 - And he said, Abba, Father, all things are possible for you. Remove this cup from me. Yet not what I
   will, but what you will. (ESV)
 
-18.2. This guy supplicated to Jesus. Did he pray to Jesus? Maybe that's what Jesus meant by prayer
+18.1.1. We should have faith for what is according to His will
+
+  I John 5:14-15 - And this is the confidence that we have toward him, that if we ask anything according to his
+  will he hears us. And if we know that he hears us in whatever we ask, we know that we have the requests that we
+  have asked of him. (ESV)
+
+This guy supplicated to Jesus. Did he pray to Jesus? Maybe that's what Jesus meant by prayer:
 
   Mark 9:23-29 - And Jesus said to him, If you can! All things are possible for one who believes. Immediately the
   father of the child cried out and said, I believe; help my unbelief! And when Jesus saw that a crowd came
@@ -19848,7 +20077,17 @@ Also, when we pray, we will for God's will to be done:
   be done, on earth as it is in heaven. Give us this day our daily bread, and forgive us our debts, as we also
   have forgiven our debtors. (ESV)
 
-18.3. Faith should be built up on trusting the Word of God
+18.2. Faith should be built up on trusting the Word of God
+
+By Faith we believe the Word of God which says that Yahweh created the universe by His Word:
+
+  Hebrews 11:3 - By faith we understand that the universe was created by the word of God, so that what is seen was
+  not made out of things that are visible. (ESV)
+
+  Psalms 33:6 - By the word of the LORD the heavens were made, and by the breath of his mouth all their host.
+  (ESV)
+
+Believe God's prophets:
 
   II Chronicles 20:20 - And they rose early in the morning and went out into the wilderness of Tekoa. And when
   they went out, Jehoshaphat stood and said, Hear me, Judah and inhabitants of Jerusalem! Believe in the LORD your
@@ -19884,13 +20123,13 @@ Obedience is important:
 We believe the Lord Jesus is who He is, the Christ, the Son of the living God, and Jesus builds the house as we
 obey Him.
 
-18.4. We should have minds that, by testing, we can discern the will of God, and act in faith according to God's will
+18.3. We should have minds that, by testing, we can discern the will of God, and act in faith according to God's will
 as far as we can discern
 
   Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
   you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
 
-18.5. Faith that has been built up in God's will produces miracles
+18.4. Faith that has been built up in God's will produces miracles
 
   Mark 11:23 - Truly, I say to you, whoever says to this mountain, Be taken up and thrown into the sea, and does
   not doubt in his heart, but believes that what he says will come to pass, it will be done for him. (ESV)
@@ -19906,7 +20145,7 @@ as far as we can discern
   Luke 17:6 - And the Lord said, If you had faith like a grain of mustard seed, you could say to this mulberry
   tree, Be uprooted and planted in the sea, and it would obey you. (ESV)
 
-18.6. This man trusted Jesus' word and acted on it - He had faith in Jesus
+18.5. This man trusted Jesus' word and acted on it - He had faith in Jesus
 
 The guy believed Jesus and acted on it:
 
@@ -19916,13 +20155,13 @@ The guy believed Jesus and acted on it:
 
   Romans 10:17 - So faith comes from hearing, and hearing through the word of Christ. (ESV)
 
-18.7. This man had faith to be made well. Paul the Apostle was also acting in faith
+18.6. This man had faith to be made well. Paul the Apostle was also acting in faith
 
   Acts 14:8-10 - Now at Lystra there was a man sitting who could not use his feet. He was crippled from birth and
   had never walked. He listened to Paul speaking. And Paul, looking intently at him and seeing that he had faith
   to be made well, said in a loud voice, Stand upright on your feet. And he sprang up and began walking. (ESV)
 
-18.8. Jesus, with compassion for the man, and faith in God, sternly commanded the unclean spirit to leave
+18.7. Jesus, with compassion for the man, and faith in God, sternly commanded the unclean spirit to leave
 
   Mark 9:19 - And he answered them, O faithless generation, how long am I to be with you? How long am I to bear
   with you? Bring him to me. (ESV)
@@ -19935,9 +20174,9 @@ The guy believed Jesus and acted on it:
   saw that a crowd came running together, he rebuked the unclean spirit, saying to it, You mute and deaf spirit, I
   command you, come out of him and never enter him again. (ESV)
 
-18.9. healing / deliverance ministries
+18.8. healing / deliverance ministries
 
-18.9.1. I feel like we should have compassion when we are serving others, even in healing / deliverance ministries
+18.8.1. I feel like we should have compassion when we are serving others, even in healing / deliverance ministries
 
   Matthew 15:32 - Then Jesus called his disciples to him and said, I have compassion on the crowd because they
   have been with me now three days and have nothing to eat. And I am unwilling to send them away hungry, lest they
@@ -19964,11 +20203,11 @@ Likewise, we should have compassion:
 
   Lk 10:33 - But a Samaritan, as he journeyed, came to where he was, and when he saw him, he had compassion. (ESV)
 
-18.10. Deliverance
+18.9. Deliverance
 
 Faith in God is ultimately all you need, like Jesus.
 
-18.10.1. A simple command should work, with faith
+18.9.1. A simple command should work, with faith
 
   Mark 9:25 - And when Jesus saw that a crowd came running together, he rebuked the unclean spirit, saying to it,
   You mute and deaf spirit, I command you, come out of him and never enter him again. (ESV)
@@ -19981,7 +20220,7 @@ Faith in God is ultimately all you need, like Jesus.
 
   Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
 
-18.10.2. We can and should use Jesus' name to cast out demons - There is power in the name of Jesus
+18.9.2. We can and should use Jesus' name to cast out demons - There is power in the name of Jesus
 
   Luke 10:17 - The seventy-two returned with joy, saying, Lord, even the demons are subject to us in your name!
   (ESV)
@@ -20002,7 +20241,7 @@ Faith in God is ultimately all you need, like Jesus.
   priest named Sceva were doing this. But the evil spirit answered them, Jesus I know, and Paul I recognize, but
   who are you? (ESV)
 
-18.10.3. Christians can be afflicted by demons
+18.9.3. Christians can be afflicted by demons
 
 This is a demon of harassment. I've also seemed to be afflicted with a demon of harassment (harassing dreams) and
 potentially others quite often during the last 2 years as I've become vocal about my testimony of Jesus and trying
@@ -20012,7 +20251,7 @@ stay away from me, to leave me and never return or enter me again in Jesus Chris
   II Corinthians 12:7 - So to keep me from being too elated by the surpassing greatness of the revelations, a
   thorn was given me in the flesh, a messenger of Satan to harass me, to keep me from being too elated. (ESV)
 
-18.10.4. Deliverance on oneself (according to Derek Prince)
+18.9.4. Deliverance on oneself (according to Derek Prince)
 
 Try to meet these conditions:
 
@@ -20028,14 +20267,14 @@ Try to meet these conditions:
   Proverbs 28:13 - Whoever conceals his transgressions will not prosper, but he who confesses and forsakes them
   will obtain mercy. (ESV)
 
-18.10.5. Using Jesus' name with faith
+18.9.5. Using Jesus' name with faith
 
 The name of Jesus Christ, Messiah, used to cast out a demon from someone who was unwilling:
 
   Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
   spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
 
-18.10.6. Why some people are not delivered (according to Derek Prince)
+18.9.6. Why some people are not delivered (according to Derek Prince)
 
 For not meeting the conditions. It's not so much a test of your spiritual power. It's a test of whether or not
 you've met the conditions. When performing deliverance on others, don't focus on yourself. Focus on those people
@@ -20078,7 +20317,7 @@ sentimentality.
 me), and satan will not let them go because of what they are themselves but because of what they stand for.
 There are people for who the whole body has to take responsibility. I need prayer to break these chains.
 
-18.10.7. How to keep your deliverance
+18.9.7. How to keep your deliverance
 
  1. Make Jesus Lord in every area of my life.
 - I had a dream last night <2024-07-02 Tue> which said someone other than Jesus was my Lord (if I recall
@@ -20108,7 +20347,7 @@ impulses. You are not free to do it.
 - John 12:31-32 - Now is the judgment of this world; now will the ruler of this world be cast out. And I,
 when I am lifted up from the earth, will draw all people to myself. (ESV)
 
-18.10.8. Prayer by Derek Prince
+18.9.8. Prayer by Derek Prince
 
 youtube.com: How To Expel The Enemy | Basics Of Deliverance Pt. 2 | Derek Prince @time: 48 min 48 sec
 I'm going to lead you in a prayer in which you're going to have the opportunity to humble yourself, to come to
@@ -20242,7 +20481,7 @@ sin to hate the devil. It's a sin not to hate the devil. To be passive and indif
 110: Praise Your holy name.
 111: Praise Your name, Lord.
 
-18.11. Deliverance/exorcism
+18.10. Deliverance/exorcism
 
 Typically, one person casts out the demon from another person. But we can also perform the exorcism on ourself.
 But we should have the following conditions met.
@@ -20258,7 +20497,7 @@ Conditions:
  7. Forgive others
  8. Expel - breathe out
 
-18.11.1. We can rebuke the devil with Jesus' authority
+18.10.1. We can rebuke the devil with Jesus' authority
 
 youtube.com: Should We Ever Speak Directly to the Devil?
 
@@ -20283,11 +20522,11 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
 
   Mark 1:25 - But Jesus rebuked him, saying, Be silent, and come out of him! (ESV)
 
-18.11.2. Demons are not rare
+18.10.2. Demons are not rare
 
   Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
 
-18.11.3. Demons consider a persons' body their home
+18.10.3. Demons consider a persons' body their home
 
 - Sinful thoughts/behaviour attracts demons.
 
@@ -20297,7 +20536,7 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
   and they enter and dwell there, and the last state of that person is worse than the first. So also will it be
   with this evil generation. (ESV)
 
-18.11.4. Renounce the ungodliness
+18.10.4. Renounce the ungodliness
 
   Titus 2:11-14 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
   ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
@@ -20305,14 +20544,14 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
   himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
   are zealous for good works. (ESV)
 
-18.11.5. This demon came out within the hour
+18.10.5. This demon came out within the hour
 
 It's often not instantaneous.
 
   Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
   spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
 
-18.11.6. This demon was resistant
+18.10.6. This demon was resistant
 
 After already commanding the unclean spirit to come out of the man, the unclean spirit resisted and then Jesus
 asked the demon its name.
@@ -20336,7 +20575,7 @@ the demon its name.
   spirits came out, and entered the pigs, and the herd, numbering about two thousand, rushed down the steep bank
   into the sea and were drowned in the sea. (ESV)
 
-18.11.7. All believers can cast out demons
+18.10.7. All believers can cast out demons
 
   Mark 16:17 - And these signs will accompany those who believe: in my name they will cast out demons; they will
   speak in new tongues; (ESV)
@@ -20344,7 +20583,7 @@ the demon its name.
   Luke 10:19 - Behold, I have given you authority to tread on serpents and scorpions, and over all the power of
   the enemy, and nothing shall hurt you. (ESV)
 
-18.11.8. We must be spiritually-minded, not earthly-minded
+18.10.8. We must be spiritually-minded, not earthly-minded
 
   I Corinthians 2:14 - The natural person does not accept the things of the Spirit of God, for they are folly to
   him, and he is not able to understand them because they are spiritually discerned. (ESV)
@@ -20354,7 +20593,7 @@ the demon its name.
 
   James 2:26 - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
-18.11.9. Exorcism prayer by Derek Prince
+18.10.9. Exorcism prayer by Derek Prince
 
 Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into
 Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's
@@ -20468,11 +20707,11 @@ encouraged. I think we bear His reproach in order to be sanctified and then call
 |  
 |   Now expel it. Exhale, cough it out.
 
-18.11.10. Prayer by Isaiah Saldivar
+18.10.10. Prayer by Isaiah Saldivar
 
 youtube.com: Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7}
 
-18.12. Faith requires obedience - i.e. acting in faith / living by faith
+18.11. Faith requires obedience - i.e. acting in faith / living by faith
 
   Luke 8:21 - But He answered and said to them, "My mother and My brothers are these who hear the word of God and
   do it."
@@ -20594,7 +20833,7 @@ fruitful we should supply to our faith those qualities:
 |   acknowledgement:--(ac-)knowledge(-ing, - ment).
 |   see GREEK for 1921
 
-18.12.1. Work/Love/Walking-By-Faith
+18.11.1. Work/Love/Walking-By-Faith
 
   II John 1:5-6 - And now I ask you, dear lady-not as though I were writing you a new commandment, but the one we
   have had from the beginning-that we love one another. And this is love, that we walk according to his
@@ -20652,7 +20891,7 @@ Jesus' commandments are consistent with the rest of God's commandments:
 
   John 15:12 - This is my commandment, that you love one another as I have loved you. (ESV)
 
-18.12.2. Fear-of-God
+18.11.2. Fear-of-God
 
   Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
   as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
@@ -20687,7 +20926,7 @@ But the work of God is to believe in whom He has sent. So even believing in Jesu
   John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
   is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
 
-18.12.3. Faith vector illustration
+18.11.3. Faith vector illustration
 
 Deeds, love, faith, service and perseverance are not mutually exclusive. They're all important to God and overlap:
 
@@ -32442,7 +32681,98 @@ Since what has happened has been a train-wreck - I feel like my marriage prospec
 currently am praying for God to do a miracle to fix everything, and I know my immediate concern is ongoing
 sanctification so that is my current focus.
 
-51.2.7. I was learning Christ before I was born-again
+51.2.7. The 3 that testify that God gave us eternal life, and this life is in his Son
+
+Commentary
+Literally, by means of or through water and blood. This is the most perplexing passage in the Epistle and one of
+the most perplexing in N. T. A very great variety of interpretations have been suggested.
+
+The testimony that God has borne concerning his Son (I John 5:10) is that God gave us eternal life, and this life
+is in his Son (I John 5:11), and so we need to have the Son (I John 5:12) and if we are trusting in the name of
+the Son of God (I John 5:13) then we have confidence that we have eternal life.
+
+  I John 5:6 - This is he who came by water and blood-Jesus Christ; not by the water only but by the water and the
+  blood. And the Spirit is the one who testifies, because the Spirit is the truth. (ESV)
+
+Jesus came by water and blood - each of these testify, and the Spirit also testifies.
+
+It's God testifying:
+
+  I John 5:9,11 - If we receive the testimony of men, the testimony of God is greater, for this is the testimony
+  of God that he has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this
+  life is in his Son. (ESV)
+
+I'm going to try to answer this. It's God's testimony - God testifying. Jesus is God - Jesus' blood testifies. The
+Word of God in our hearts is God - God testifies. The Spirit of God testifies.
+
+- the Blood of Jesus
+- Hebrews 12:24 - and to Jesus, the mediator of a new covenant, and to the sprinkled blood that speaks a
+better word than the blood of Abel. (ESV)
+- the Spirit of God
+- Mark 1:11 - And a voice came from heaven, You are my beloved Son; with you I am well pleased. (ESV)
+- Romans 1:4 - and was declared to be the Son of God in power according to the Spirit of holiness by his
+resurrection from the dead, Jesus Christ our Lord, (ESV)
+- the Living Water - the Word of God in our hearts
+- The Word of God in our hearts
+- Ephesians 5:26 - that he might sanctify her, having cleansed her by the washing of water with the word,
+(ESV)
+- John 7:38 - Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of
+living water. (ESV)
+- Romans 8:15 - For you did not receive the spirit of slavery to fall back into fear, but you have received
+the Spirit of adoption as sons, by whom we cry, Abba! Father! (ESV)
+- Galatians 4:6 - And because you are sons, God has sent the Spirit of his Son into our hearts, crying,
+Abba! Father! (ESV)
+
+  Mark 1:10-13 - And when he came up out of the water, immediately he saw the heavens opening and the Spirit
+  descending on him like a dove. And a voice came from heaven, You are my beloved Son; with you I am well pleased.
+  The Spirit immediately drove him out into the wilderness. And he was in the wilderness forty days, being tempted
+  by Satan. And he was with the wild animals, and the angels were ministering to him. (ESV)
+
+In the Holy Spirit, Jesus spoke the Word of God:
+
+  Matthew 4:1,4,7 - Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. But he
+  answered, It is written, Man shall not live by bread alone, but by every word that comes from the mouth of God.
+  Jesus said to him, Again it is written, You shall not put the Lord your God to the test. (ESV)
+
+  I John 5:7-11 - For there are three that testify: the Spirit and the water and the blood; and these three agree.
+  If we receive the testimony of men, the testimony of God is greater, for this is the testimony of God that he
+  has borne concerning his Son. Whoever believes in the Son of God has the testimony in himself. Whoever does not
+  believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his
+  Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. (ESV)
+
+Blood speaks:
+
+  Hebrews 12:24 - and to Jesus, the mediator of a new covenant, and to the sprinkled blood that speaks a better
+  word than the blood of Abel. (ESV)
+
+  Genesis 4:10 - And the LORD said, What have you done? The voice of your brother's blood is crying to me from the
+  ground. (ESV)
+
+Rivers of living water - the Spirit of God, bearing witness of Jesus:
+
+  John 4:10-14 - Jesus answered her, If you knew the gift of God, and who it is that is saying to you, Give me a
+  drink, you would have asked him, and he would have given you living water. The woman said to him, Sir, you have
+  nothing to draw water with, and the well is deep. Where do you get that living water? Are you greater than our
+  father Jacob? He gave us the well and drank from it himself, as did his sons and his livestock. Jesus said to
+  her, Everyone who drinks of this water will be thirsty again, but whoever drinks of the water that I will give
+  him will never be thirsty forever. The water that I will give him will become in him a spring of water welling
+  up to eternal life. (ESV)
+
+  John 7:38-39 - Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of living
+  water. Now this he said about the Spirit, whom those who believed in him were to receive, for as yet the Spirit
+  had not been given, because Jesus was not yet glorified. (ESV)
+
+  II Corinthians 1:22 - and who has also put his seal on us and given us his Spirit in our hearts as a guarantee.
+  (ESV)
+
+  Romans 8:16-17 - The Spirit himself bears witness with our spirit that we are children of God, and if children,
+  then heirs-heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be
+  glorified with him. (ESV)
+
+  John 15:26 - But when the Helper comes, whom I will send to you from the Father, the Spirit of truth, who
+  proceeds from the Father, he will bear witness about me. (ESV)
+
+51.2.8. I was learning Christ before I was born-again
 
 We learn Christ, and are taught by Christ (becoming obedient to His teachings and commandments) while we are in
 Him:
@@ -32490,7 +32820,7 @@ God who can see me, even when others can't.
 
 But the yoke of the Lord Jesus has been extremely difficult.
 
-51.2.8. Genuine belief results a dramatic decoupling with the world out of darkness and out from under the power of
+51.2.9. Genuine belief results a dramatic decoupling with the world out of darkness and out from under the power of
 Satan
 
 Going from darkness to light and arriving at a genuine understanding in the heart to agree with the truth
@@ -32517,7 +32847,7 @@ naturally results in decoupling from the world:
   Acts 26:18 - to open their eyes, so that they may turn from darkness to light and from the power of Satan to
   God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
 
-51.2.9. Holiness - J.C. Ryle
+51.2.10. Holiness - J.C. Ryle
 
   Holiness:
 
@@ -32544,7 +32874,7 @@ naturally results in decoupling from the world:
     o follow after spiritual-mindedness. He will endeavor to set his affections entirely on things above and to
       hold things on earth with a very loose hand.
 
-51.2.10. Gay 'marriage' should not be held in equal standing to God's design
+51.2.11. Gay 'marriage' should not be held in equal standing to God's design
 
   Isaiah 6:20 - Woe to those who call evil good, and good evil; Who substitute darkness for light and light for
   darkness; Who substitute bitter for sweet and sweet for bitter!
@@ -33185,6 +33515,9 @@ All who have believed will marvel:
 But faith requires obedience, and salvation requires turning from sin.
 
 And it doesn't excuse them from repentance from sin. But they're accountable for God to it.
+
+I like this guy's explanation
+youtube.com: How to Repent, explained as a video game
 
 Repentance is essential for eternal life.
 
@@ -33867,6 +34200,20 @@ We must believe in Jesus Christ and follow Jesus Christ's teaching:
   nothing of all that he has given me, but raise it up on the last day. For this is the will of my Father, that
   everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last
   day.
+
+We must accept Jesus, believe in Jesus, believe Jesus, and keep Jesus' words - all of that together is abiding in
+the light:
+
+  John 12:46-48 - I have come into the world as light, so that whoever believes in me may not remain in darkness.
+  If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but
+  to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken
+  will judge him on the last day. (ESV)
+
+  I Peter 2:9 - But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession,
+  that you may proclaim the excellencies of him who called you out of darkness into his marvelous light. (ESV)
+
+  Titus 2:14 - who gave himself for us to redeem us from all lawlessness and to purify for himself a people for
+  his own possession who are zealous for good works. (ESV)
 
   I Corinthians 5:11 - But now I am writing to you not to associate with anyone who bears the name of brother if
   he is guilty of sexual immorality or greed, or is an idolater, reviler, drunkard, or swindler-not even to eat
@@ -45377,6 +45724,18 @@ sanctified by the Truth. Believing disciples of Jesus may become saints:
 
 73. Jesus Christ is fully God and fully human
 
+Jesus is the Word of God made flesh. Jesus' words are Spirit and Life. We must 'eat' Jesus' words, believe Him,
+believe in Him, keep His words:
+
+  John 6:58-63 - This is the bread that came down from heaven, not as the fathers ate and died. Whoever feeds on
+  this bread will live forever. Jesus said these things in the synagogue, as he taught at Capernaum. When many of
+  his disciples heard it, they said, This is a hard saying; who can listen to it? But Jesus, knowing in himself
+  that his disciples were grumbling about this, said to them, Do you take offense at this? Then what if you were
+  to see the Son of Man ascending to where he was before? It is the Spirit who gives life; the flesh is of no
+  avail. The words that I have spoken to you are spirit and life. (ESV)
+
+  John 1:1 - In the beginning was the Word, and the Word was with God, and the Word was God. (ESV)
+
 Jesus Christ is the Word of God who became flesh - this is what I believe - not just God in the flesh but God who
 became flesh, then He was put to death on a tree (a cross) for our trespasses and Father God raised Him from the
 dead for our justification:
@@ -45929,11 +46288,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-02 Mon 00:00
+Date: 2024-09-03 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-02 Mon 15:04
+Created: 2024-09-03 Tue 09:08
 
 Validate
 
