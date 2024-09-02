@@ -11347,6 +11347,13 @@ should try to keep God's word:
   my day. He saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen
   Abraham? Jesus said to them, Truly, truly, I say to you, before Abraham was, I am. (ESV)
 
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+  Hosea 6:5-8 - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my
+  judgment goes forth as the light. For I desire steadfast love and not sacrifice, the knowledge of God rather
+  than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead
+  is a city of evildoers, tracked with blood. (ESV)
+
   James 1:22 - But be doers of the word, and not hearers only, deceiving yourselves. (ESV)
 
   Psalms 90:2 - Before the mountains were brought forth, or ever you had formed the earth and the world, from
@@ -13393,6 +13400,13 @@ Faith that from a good conscience with God produces Christ's love:
 
   I Timothy 1:5 - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere
   faith. (ESV)
+
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+  Hosea 6:5-8 - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my
+  judgment goes forth as the light. For I desire steadfast love and not sacrifice, the knowledge of God rather
+  than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead
+  is a city of evildoers, tracked with blood. (ESV)
 
 The only point I want to make from this text here is that faith is supposed to continue in love and holiness. I
 believe this continuation of obedience with faith, love and holiness (and self-control, which along with love is
@@ -16082,6 +16096,13 @@ light. Repentance is still totally about changing our ways from wickedness to ob
   is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
   unrighteousness. (ESV)
 
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+  Hosea 6:5-8 - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my
+  judgment goes forth as the light. For I desire steadfast love and not sacrifice, the knowledge of God rather
+  than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead
+  is a city of evildoers, tracked with blood. (ESV)
+
 15. Obtain a faith of equal standing with the Apostles by the righteousness of our God and Savior Jesus Christ
 
   II Peter 1:1 - Simeon Peter, a servant and apostle of Jesus Christ, To those who have obtained a faith of equal
@@ -16437,8 +16458,16 @@ the divine nature:
   to us His precious and magnificent promises, so that by them you may become partakers of the divine nature,
   having escaped the corruption that is in the world by lust. (NASB)
 
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+  Hosea 6:5-8 - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my
+  judgment goes forth as the light. For I desire steadfast love and not sacrifice, the knowledge of God rather
+  than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me.
+  Gilead is a city of evildoers, tracked with blood. (ESV)
+
 Being set free through the knowledge of our Lord and Savior Jesus Christ is at least in part being set free
-from the defilements of the world.
+from the defilements of the world. We are redeemed, saved from the sinful generation, set free and forgiven,
+saved by Jesus, to go on obeying God:
 
   II Peter 2:20-21 - For if, after they have escaped the defilements of the world through the knowledge of our
   Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse
@@ -41494,6 +41523,21 @@ Faith is a lifestyle. It's walking in the truth:
   according to his commandments; this is the commandment, just as you have heard from the beginning, so that you
   should walk in it.
 
+God always preferred for people to walk in obedient, loving, faith to Him over offering burnt sacrifices to him
+while walking disobediently and faithlessly. Now we have Jesus we are redeemed to walk in obedient faith. We
+should not be presumptuous in our faith, but should listen to God, to see what He wants and believes is right and
+live according to His Word, His precepts, His commandments, His Truth. We should listen to God and base our faith
+on God's Word, and allow God to correct us:
+
+  I Samuel 15:22-26 - And Samuel said, Has the LORD as great delight in burnt offerings and sacrifices, as in
+  obeying the voice of the LORD? Behold, to obey is better than sacrifice, and to listen than the fat of rams. For
+  rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because you have rejected
+  the word of the LORD, he has also rejected you from being king. Saul said to Samuel, I have sinned, for I have
+  transgressed the commandment of the LORD and your words, because I feared the people and obeyed their voice. Now
+  therefore, please pardon my sin and return with me that I may worship the LORD. And Samuel said to Saul, I will
+  not return with you. For you have rejected the word of the LORD, and the LORD has rejected you from being king
+  over Israel. (ESV)
+
 Loving Jesus, obeying Jesus, and believing that He came from God are essential:
 
   John 16:25-27- I have said these things to you in figures of speech. The hour is coming when I will no longer
@@ -45788,7 +45832,7 @@ Date: 2024-09-02 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-02 Mon 13:26
+Created: 2024-09-02 Mon 14:03
 
 Validate
 

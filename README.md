@@ -426,7 +426,7 @@ Instead we focus on following Jesus first and foremost:
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf4b6995) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgac26e6f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1098,7 +1098,7 @@ We have authority in God:
 
 > **[Matthew 20:27-28](https://www.biblegateway.com/passage/?search=Matthew%2020%3A27-28&version=ESV)** - and whoever would be first among you must be your slave, even as the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
 
-We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. 
+We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ.
 
 We don't transition away from being servants of Jesus when we become friends of Jesus - we still serve and obey Him.
 Jesus started calling His servants His friends because Jesus had explained to them all He heard from Father God.
@@ -3960,7 +3960,7 @@ Specific example:
 
 > **[John 15:18-20](https://www.biblegateway.com/passage/?search=John%2015%3A18-20&version=ESV)** - If the world hates you, know that it has hated me before it hated you. If you were of the world, the world would love you as its own; but because you are not of the world, but I chose you out of the world, therefore the world hates you. Remember the word that I said to you: A servant is not greater than his master. If they persecuted me, they will also persecute you. If they kept my word, they will also keep yours. (ESV)
 
-The one worrying about the material things isn't in doing so exhibiting the love of the Father in them but the poor person who loves God does - the materially poor but rich in faith person has their priorities in order and doesn't need correction from the natural, worldly person, but rather needs mercy from the materialistic worldly person. 
+The one worrying about the material things isn't in doing so exhibiting the love of the Father in them but the poor person who loves God does - the materially poor but rich in faith person has their priorities in order and doesn't need correction from the natural, worldly person, but rather needs mercy from the materialistic worldly person.
 
 > **[Revelation of John 2:9](https://www.biblegateway.com/passage/?search=Revelation%202%3A9&version=ESV)** - I know your tribulation and your poverty (but you are rich) and the slander of those who say that they are Jews and are not, but are a synagogue of Satan. (ESV)
 
@@ -7686,6 +7686,10 @@ Knowing God coincides with keeping His word. I think that if we're having troubl
 
 > **[John 8:54-58](https://www.biblegateway.com/passage/?search=John%208%3A54-58&version=ESV)** - Jesus answered, If I glorify myself, my glory is nothing. It is my Father who glorifies me, of whom you say, He is our God. But you have not known him. I know him. If I were to say that I do not know him, I would be a liar like you, **but I do know him and I keep his word.** Your father Abraham rejoiced that he would see my day. He saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen Abraham? Jesus said to them, Truly, truly, I say to you, before Abraham was, I am. (ESV)
 
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+> **[Hosea 6:5-8](https://www.biblegateway.com/passage/?search=Hosea%206%3A5-8&version=ESV)** - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my judgment goes forth *as the light*. For **I desire steadfast love** and not sacrifice, the **knowledge of God** rather than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead is a city of evildoers, tracked with blood. (ESV)
+
 > **[James 1:22](https://www.biblegateway.com/passage/?search=James%201%3A22&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. (ESV)
 
 > **[Psalms 90:2](https://www.biblegateway.com/passage/?search=Psalms%2090%3A2&version=ESV)** - Before the mountains were brought forth, or ever you had formed the earth and the world, from everlasting to everlasting you are God. (ESV)
@@ -8069,7 +8073,7 @@ Also, I have had as of 28 May '24 in my dreams:
 
 [star.net.nz:  The Word for Today - The right balance - May 28th](https://www.star.net.nz/the-word-for-today/-the-right-balance-2024_05_28)
 
-Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God and is Love. I will be still waiting for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God **in the flesh** from heaven to earth". Otherwise I'm simply not going to trust the spirit sending dreams/visions. 
+Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God and is Love. I will be still waiting for the Biblical acknowledgement I am waiting for "Jesus is the Son of God who has proceeded forth from Father God **in the flesh** from heaven to earth". Otherwise I'm simply not going to trust the spirit sending dreams/visions.
 
 -   **Song:** [youtube.com: Petra: Love](https://www.youtube.com/watch?v=KvmV3X5s1gU)
 
@@ -9043,6 +9047,10 @@ Faith that from a good conscience with God produces Christ's love:
 > **[I Corinthians 16:13-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A13-14&version=ESV)** - Be watchful, stand firm in the faith, act like men, be strong. Let all that you do be done in love. (ESV)
 
 > **[I Timothy 1:5](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A5&version=ESV)** - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere faith. (ESV)
+
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+> **[Hosea 6:5-8](https://www.biblegateway.com/passage/?search=Hosea%206%3A5-8&version=ESV)** - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my judgment goes forth *as the light*. For **I desire steadfast love** and not sacrifice, the **knowledge of God** rather than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead is a city of evildoers, tracked with blood. (ESV)
 
 The only point I want to make from this text here is that faith is supposed to continue in love and holiness. I believe this continuation of obedience with faith, love and holiness (and self-control, which along with love is one of the fruit of the Spirit) applies to all Christians. [John Piper](https://youtu.be/1Un1t13CVj0) explains this well:
 
@@ -10935,6 +10943,10 @@ Assuming you are following Jesus, then when we confess our sin, God is faithful 
 
 > **[I John 1:7-9](https://www.biblegateway.com/passage/?search=1%20John%201%3A7-9&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. (ESV)
 
+God wants us to know Him and obey Him and to do good as He has commanded:
+
+> **[Hosea 6:5-8](https://www.biblegateway.com/passage/?search=Hosea%206%3A5-8&version=ESV)** - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my judgment goes forth *as the light*. For **I desire steadfast love** and not sacrifice, the **knowledge of God** rather than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead is a city of evildoers, tracked with blood. (ESV)
+
 
 # Obtain a faith of equal standing with the Apostles by the righteousness of our God and Savior Jesus Christ
 
@@ -11177,7 +11189,11 @@ This is what we must come to know in truth - that Jesus came from Father God, an
     
     > **[II Peter 1:3-4](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A3-4&version=NASB)** - seeing that His divine power has granted to us everything pertaining to life and godliness, **through the true knowledge** of Him who called us by His own glory and excellence. For by these He has granted to us His precious and magnificent promises, so that **by them you may become partakers of the divine nature, having escaped the corruption that is in the world by lust.** (NASB)
     
-    Being set free through the knowledge of our Lord and Savior Jesus Christ is at least in part being set free from the defilements of the world.
+    God wants us to know Him and obey Him and to do good as He has commanded:
+    
+    > **[Hosea 6:5-8](https://www.biblegateway.com/passage/?search=Hosea%206%3A5-8&version=ESV)** - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my judgment goes forth *as the light*. For **I desire steadfast love** and not sacrifice, the **knowledge of God** rather than burnt offerings. But like Adam they transgressed the covenant; there they dealt faithlessly with me. Gilead is a city of evildoers, tracked with blood. (ESV)
+    
+    Being set free through the knowledge of our Lord and Savior Jesus Christ is at least in part being set free from the defilements of the world. We are redeemed, saved from the sinful generation, set free and forgiven, saved by Jesus, to go on obeying God:
     
     > **[II Peter 2:20-21](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A20-21&version=ESV)** - For if, after they have escaped the <ins>defilements of the world through the knowledge of our Lord and Savior Jesus Christ</ins>, they are again entangled in them and overcome, the last state has become worse for them than the first. For it would have been better for them never to have known **the way of righteousness** than after knowing it to turn back from the holy commandment delivered to them.
     
@@ -12151,7 +12167,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc919d37)
+See: [33.4.1](#orgf17170f)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -25130,7 +25146,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc919d37)
+See: [33.4.1](#orgf17170f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -29413,6 +29429,10 @@ In the following case, I think that obedience would have come before belief as i
 Faith is a lifestyle. It's walking in the truth:
 
 > **[II John 1:4-6](https://www.biblegateway.com/passage/?search=2%20John%201%3A4-6&version=ESV)** - I was very glad to find some of your children walking in truth, just as we have received commandment to do from the Father. And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we have had from the beginning—that we love one another. And **this is love**, <ins>that we walk according to his commandments</ins>; this is the commandment, just as you have heard from the beginning, so that you should walk in it.
+
+God always preferred for people to walk in obedient, loving, faith to Him over offering burnt sacrifices to him while walking disobediently and faithlessly. Now we have Jesus we are redeemed to walk in obedient faith. We should not be presumptuous in our faith, but should listen to God, to see what He wants and believes is right and live according to His Word, His precepts, His commandments, His Truth. We should listen to God and base our faith on God's Word, and allow God to correct us:
+
+> **[I Samuel 15:22-26](https://www.biblegateway.com/passage/?search=1%20Samuel%2015%3A22-26&version=ESV)** - And Samuel said, Has the LORD as great delight in burnt offerings and sacrifices, as in obeying the voice of the LORD? Behold, to obey is better than sacrifice, and to listen than the fat of rams. For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because you have rejected the word of the LORD, he has also rejected you from being king. Saul said to Samuel, I have sinned, for I have transgressed the commandment of the LORD and your words, because I feared the people and obeyed their voice. Now therefore, please pardon my sin and return with me that I may worship the LORD. And Samuel said to Saul, I will not return with you. For you have rejected the word of the LORD, and the LORD has rejected you from being king over Israel. (ESV)
 
 Loving Jesus, obeying Jesus, and believing that He came from God are essential:
 
