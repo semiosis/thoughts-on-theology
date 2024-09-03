@@ -434,7 +434,7 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgeb54c70) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga0a8187) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -5228,6 +5228,15 @@ There is a transformation in the heart of a born-again Christian that involves c
 
 > **[Romans 6:18-20](https://www.biblegateway.com/passage/?search=Romans%206%3A18-20&version=ESV)** - and, having been set free from sin, have become **slaves of righteousness**. I am speaking in human terms, because of your natural limitations. For **just as** <ins>you once presented your members as slaves to impurity and to lawlessness leading to more lawlessness</ins>, **so now** <ins>present your members as slaves to righteousness leading to sanctification.</ins> When you were slaves of sin, you were free in regard to righteousness. (ESV)
 
+-   **[Quote by Joe Rigney](https://www.desiringgod.org/articles/not-all-obedience-is-christian):** We receive salvation as a gift.
+    But we do work out our own salvation, and we do so because God is at work within us to will and to work for his good pleasure.
+    We are working out what God is working in. And he is working at the level of our will — our desires, our affections, our choices.o
+    Fundamental to salvation is heart change, the transformation of our wills by God so that we will and work for his good pleasure.
+
+> **[Hebrews 13:20-21](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A20-21&version=ESV)** - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will, working in us that which is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen. (ESV)
+
+> **[Philippians 2:12-13](https://www.biblegateway.com/passage/?search=Philippians%202%3A12-13&version=ESV)** - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. (ESV)
+
 
 ## I believe that a loving, trusting ( <ins>believing</ins> and <ins>obedient</ins> ) heart for Jesus Christ is essential for permanent abiding in Him
 
@@ -7129,6 +7138,30 @@ These people didn't endure in faith:
 These people just sat around watching Jesus but didn't obey Him:
 
 > **[Luke 13:24-26](https://www.biblegateway.com/passage/?search=Luke%2013%3A24-26&version=ESV)** - Strive to enter through the narrow door. For many, I tell you, will seek to enter and will not be able. When once the master of the house has risen and shut the door, and you begin to stand outside and to knock at the door, saying, Lord, open to us, then he will answer you, I do not know where you come from. Then you will begin to say, We ate and drank in your presence, and you taught in our streets. But he will say, I tell you, I do not know where you come from. Depart from me, all you workers of evil!
+
+We strive to enter through Jesus who is the door:
+
+> **[John 10:9-16](https://www.biblegateway.com/passage/?search=John%2010%3A9-16&version=ESV)** - <ins>I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture.</ins> The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly. I am the good shepherd. The good shepherd lays down his life for the sheep. He who is a hired hand and not a shepherd, who does not own the sheep, sees the wolf coming and leaves the sheep and flees, and the wolf snatches them and scatters them. He flees because he is a hired hand and cares nothing for the sheep. I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know the Father; and I lay down my life for the sheep. And I have other sheep that are not of this fold. I must bring them also, and they will listen to my voice. So there will be one flock, one shepherd. (ESV)
+
+    1  agónizomai: to contend for a prize, struggle
+    2  Original Word: ἀγωνίζομαι
+    3  Part of Speech: Verb
+    4  Transliteration: agónizomai
+    5  Phonetic Spelling: (ag-o-nid'-zom-ahee)
+    6  Definition: to contend for a prize, struggle
+    7  Usage: I am struggling, striving (as in an athletic contest or warfare); I contend, as with an adversary.
+
+> **[Matthew 7:13-14](https://www.biblegateway.com/passage/?search=Matthew%207%3A13-14&version=ESV)** - Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow and the way is hard that leads to life, and those who find it are few. (ESV)
+
+> **[Luke 13:24-30](https://www.biblegateway.com/passage/?search=Luke%2013%3A24-30&version=ESV)** - **[Strive (75. agónizomai)](https://biblehub.com/greek/75.htm)** to enter through the narrow door. <ins>For many, I tell you, will **seek** to enter and will not be able.</ins> When once the master of the house has risen and shut the door, and you begin to stand outside and to knock at the door, saying, Lord, open to us, then he will answer you, I do not know where you come from. Then you will begin to say, We ate and drank in your presence, and you taught in our streets. But he will say, I tell you, I do not know where you come from. Depart from me, all you workers of evil ([93. adikia](https://biblehub.com/greek/93.htm))! In that place there will be weeping and gnashing of teeth, *when you see Abraham and Isaac and Jacob and all the prophets in the kingdom of God but you yourselves cast out.* And people will come from east and west, and from north and south, and recline at table in the kingdom of God. And behold, some are last who will be first, and some are first who will be last. (ESV)
+
+    1  adikia: injustice, unrighteousness
+    2  Original Word: ἀδικία, ας, ἡ
+    3  Part of Speech: Noun, Feminine
+    4  Transliteration: adikia
+    5  Phonetic Spelling: (ad-ee-kee'-ah)
+    6  Definition: injustice, unrighteousness
+    7  Usage: injustice, unrighteousness, hurt.
 
 
 ### Obedience to Jesus has everything to do with receiving Him, and receiving Salvation
@@ -12352,7 +12385,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5d6ac88)
+See: [33.4.1](#org2ccc7a4)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -19900,6 +19933,8 @@ The law is not overthrown but it is upheld.
 
 ### Faith receives - it believes, trusts and obeys
 
+-   **Sermon:** [youtube.com: Faith Trusts the God Who Rewards](https://www.youtube.com/watch?v=-9v23xtoVgw)
+
 Abraham believed and obeyed to receive:
 
 > **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - <ins>By faith</ins> **Abraham obeyed** when he was called to go out to a place that he was **to receive** as an inheritance. And he went out, not knowing where he was going. (ESV)
@@ -25415,7 +25450,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5d6ac88)
+See: [33.4.1](#org2ccc7a4)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

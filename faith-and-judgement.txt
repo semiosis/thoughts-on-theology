@@ -7850,6 +7850,21 @@ Christ, resulting in the will to obey Jesus, and God gives us the spirit to help
   and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading
   to sanctification. When you were slaves of sin, you were free in regard to righteousness. (ESV)
 
+Quote by Joe Rigney
+We receive salvation as a gift. But we do work out our own salvation, and we do so because God is at work within
+us to will and to work for his good pleasure. We are working out what God is working in. And he is working at the
+level of our will - our desires, our affections, our choices.o Fundamental to salvation is heart change, the
+transformation of our wills by God so that we will and work for his good pleasure.
+
+  Hebrews 13:20-21 - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd
+  of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will,
+  working in us that which is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever.
+  Amen. (ESV)
+
+  Philippians 2:12-13 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but
+  much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you,
+  both to will and to work for his good pleasure. (ESV)
+
 5.8. I believe that a loving, trusting ( believing and obedient ) heart for Jesus Christ is essential for permanent
 abiding in Him
 
@@ -10469,6 +10484,47 @@ These people just sat around watching Jesus but didn't obey Him:
   knock at the door, saying, Lord, open to us, then he will answer you, I do not know where you come from. Then
   you will begin to say, We ate and drank in your presence, and you taught in our streets. But he will say, I tell
   you, I do not know where you come from. Depart from me, all you workers of evil!
+
+We strive to enter through Jesus who is the door:
+
+  John 10:9-16 - I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture.
+  The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly. I am
+  the good shepherd. The good shepherd lays down his life for the sheep. He who is a hired hand and not a
+  shepherd, who does not own the sheep, sees the wolf coming and leaves the sheep and flees, and the wolf snatches
+  them and scatters them. He flees because he is a hired hand and cares nothing for the sheep. I am the good
+  shepherd. I know my own and my own know me, just as the Father knows me and I know the Father; and I lay down my
+  life for the sheep. And I have other sheep that are not of this fold. I must bring them also, and they will
+  listen to my voice. So there will be one flock, one shepherd. (ESV)
+
+|  agonizomai: to contend for a prize, struggle
+|  Original Word: ???????u??
+|  Part of Speech: Verb
+|  Transliteration: agonizomai
+|  Phonetic Spelling: (ag-o-nid'-zom-ahee)
+|  Definition: to contend for a prize, struggle
+|  Usage: I am struggling, striving (as in an athletic contest or warfare); I contend, as with an adversary.
+
+  Matthew 7:13-14 - Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction,
+  and those who enter by it are many. For the gate is narrow and the way is hard that leads to life, and those who
+  find it are few. (ESV)
+
+  Luke 13:24-30 - Strive (75. agonizomai) to enter through the narrow door. For many, I tell you, will seek to
+  enter and will not be able. When once the master of the house has risen and shut the door, and you begin to
+  stand outside and to knock at the door, saying, Lord, open to us, then he will answer you, I do not know where
+  you come from. Then you will begin to say, We ate and drank in your presence, and you taught in our streets. But
+  he will say, I tell you, I do not know where you come from. Depart from me, all you workers of evil (93.
+  adikia)! In that place there will be weeping and gnashing of teeth, when you see Abraham and Isaac and Jacob and
+  all the prophets in the kingdom of God but you yourselves cast out. And people will come from east and west, and
+  from north and south, and recline at table in the kingdom of God. And behold, some are last who will be first,
+  and some are first who will be last. (ESV)
+
+|  adikia: injustice, unrighteousness
+|  Original Word: ??????, ??, ?
+|  Part of Speech: Noun, Feminine
+|  Transliteration: adikia
+|  Phonetic Spelling: (ad-ee-kee'-ah)
+|  Definition: injustice, unrighteousness
+|  Usage: injustice, unrighteousness, hurt.
 
 5.15.3. Obedience to Jesus has everything to do with receiving Him, and receiving Salvation
 
@@ -28403,6 +28459,9 @@ The law is not overthrown but it is upheld.
 
 35.2.4. Faith receives - it believes, trusts and obeys
 
+Sermon
+youtube.com: Faith Trusts the God Who Rewards
+
 Abraham believed and obeyed to receive:
 
   Hebrews 11:8 - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an
@@ -46288,11 +46347,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-03 Tue 00:00
+Date: 2024-09-04 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-03 Tue 09:08
+Created: 2024-09-04 Wed 10:56
 
 Validate
 
