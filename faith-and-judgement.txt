@@ -1802,6 +1802,24 @@ A new creation has faith working through love and keeps Jesus Christ's commandme
 
   Galatians 6:15 - For neither circumcision counts for anything, nor uncircumcision, but a new creation. (ESV)
 
+We both love/obey (25. agapao) Jesus and believe/trust (4100. pisteuo) in Him and receive the outcome of our
+faith, the salvation of our souls:
+
+  I Peter 1:8-9 - Though you have not seen him, you love (25. agapao) him. Though you do not now see him, you
+  believe (4100. pisteuo) in him and rejoice with joy that is inexpressible and filled with glory, obtaining the
+  outcome of your faith, the salvation of your souls. (ESV)
+
+And our trusting love is not merely obedient by affectionate:
+
+  John 16:27 - for the Father himself loves you, because you have loved (5368. phileo) me and have believed (4100.
+  pisteuo) that I came from God. (ESV)
+
+|  Cognate: 25 agapao - properly, to prefer, to love; for the believer, preferring to "live through Christ" (1 Jn 4:9,10), i.e. embracing God's will (choosing His choices) and obeying them through His power. 25 (agapao) preeminently refers to what God prefers as He "is love" (1 Jn 4:8,16). See 26 (agape).
+| 
+|  With the believer, 25 /agapao ("to love") means actively doing what the Lord prefers, with Him (by His power and direction). True 25 /agapao ("loving") is always defined by God - a "discriminating affection which involves choice and selection" (WS, 477). 1 Jn 4:8,16,17 for example convey how loving ("preferring," 25 /agapao) is Christ living His life through the believer.
+
+|  5368 phileo (from 5384 /philos, "affectionate friendship") - properly, to show warm affection in intimate friendship, characterized by tender, heartfelt consideration and kinship.
+
 Song
 Steve Apirana - Born Again - YouTube
 
@@ -11544,6 +11562,19 @@ but it is also having a changed heart, endeavoring to please Christ with our act
   has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But
   what we are is known to God, and I hope it is known also to your conscience. (ESV)
 
+Jesus was pleased with some of the Israelites here. But we must learn from the example here so that we still walk
+in righteousness and desire to do good and not evil according to God's precepts:
+
+  I Corinthians 10:1-10 - I want you to know, brothers, that our fathers were all under the cloud, and all passed
+  through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual
+  food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the
+  Rock was Christ. Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be
+  idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We
+  must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We
+  must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of
+  them did and were destroyed by the Destroyer. (ESV)
+
 It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is
 really talking about how the Law of God is effectively used to judge people. And what's interesting is that it
 seems as though, through Christ Jesus, God judges the secrets of men, and that happens to all people:
@@ -11569,6 +11600,16 @@ God. I think that's fine. God tests the hearts:
 
   Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
   of the one who has faith in Jesus. (ESV)
+
+We certainly still will to do the will of God after being saved:
+
+  Matthew 22:36-40 - Teacher, which is the great commandment in the Law? And he said to him, You shall love the
+  Lord your God with all your heart and with all your soul and with all your mind. This is the great and first
+  commandment. And a second is like it: You shall love your neighbor as yourself. On these two commandments depend
+  all the Law and the Prophets. (ESV)
+
+  Romans 2:13 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
+  will be justified. (ESV)
 
 We of course may be imperfect doers of the law, especially as Christians because we are justified by our faith in
 Jesus:
@@ -13852,7 +13893,8 @@ We may rest from our labors when we die in the Lord:
   the Lord from now on. Blessed indeed, says the Spirit, that they may rest from their labors, for their deeds
   follow them! (ESV)
 
-Circumcision of the flesh does not matter:
+Circumcision of the flesh does not matter because salvation by faith is available for both the circumcised
+(justification by faith with works of faith like Abraham's), and the uncircumcised (justification by faith alone):
 
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
   was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
@@ -13861,6 +13903,16 @@ Circumcision of the flesh does not matter:
   of all who believe (G4100 pisteuo) without being circumcised, so that righteousness would be counted to them as
   well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the
   footsteps of the faith that our father Abraham had before he was circumcised.
+
+The true circumcised are the ones who obey the precepts of the law, and if they walk in the footsteps of faith
+which Abraham had before he was circumcised, then that is a valid mode of justification:
+
+  Romans 2:25-29 - For circumcision indeed is of value if you obey the law, but if you break the law, your
+  circumcision becomes uncircumcision. So, if a man who is uncircumcised keeps the precepts of the law, will not
+  his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will
+  condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one
+  outwardly, nor is circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of
+  the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
 
 We must share the faith of Abraham to receive the grace:
 
@@ -15126,6 +15178,11 @@ And the promise will be ours also, because Jesus is our Lord, and we belong to H
   Romans 4:24-25 - but for ours also. It will be counted to us who believe in him who raised from the dead Jesus
   our Lord, who was delivered up for our trespasses and raised for our justification. (ESV)
 
+Abraham is the the father of all who believe without being circumcised, and the father of the circumcised who are
+not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was
+circumcised. The circumcised are the ones who keep the precepts of the law by faith - so the law must be combined
+with the faith of Abraham:
+
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
   was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
   circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of
@@ -15134,12 +15191,36 @@ And the promise will be ours also, because Jesus is our Lord, and we belong to H
   make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the
   faith that our father Abraham had before he was circumcised.
 
-So what Jesus is saying is quite similar - we must have the faith that Abraham had when he put Isaac on the Altar,
-but in regards to following Jesus. We must give up our old life to live for Christ:
+The true circumcised are the ones who obey the precepts of the law, and if they walk in the footsteps of faith
+which Abraham had before he was circumcised, then that is a valid mode of justification:
+
+  Romans 2:25-29 - For circumcision indeed is of value if you obey the law, but if you break the law, your
+  circumcision becomes uncircumcision. So, if a man who is uncircumcised keeps the precepts of the law, will not
+  his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will
+  condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one
+  outwardly, nor is circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of
+  the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
+
+So if we have the faith that Abraham had in his walk before circumcision, such as when he refused the gifts from
+the king of Sodom, or when he put Isaac on the Altar, but in regards to following Jesus. We must give up our old
+life to live for Christ:
+
+  Genesis 14:21-23 - And the king of Sodom said to Abram, Give me the persons, but take the goods for yourself.
+  But Abram said to the king of Sodom, I have lifted my hand to the LORD, God Most High, Possessor of heaven and
+  earth, that I would not take a thread or a sandal strap or anything that is yours, lest you should say, I have
+  made Abram rich. (ESV)
+
+So what Jesus is saying is quite similar:
 
   Luke 9:23-24 - And he said to all, If anyone would come after me, let him deny himself and take up his cross
   daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will
   save it. (ESV)
+
+Now it makes sense to me how Zacchaeus received slavation:
+
+  Luke 19:8-9 - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor.
+  And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has
+  come to this house, since he also is a son of Abraham. (ESV)
 
 youtube.com: The Golden Stitches of Sovereignty: What Holds Our Gospel Together @time: 39 min 22 sec
 So the first self, Jesus says, is going to be lost forever. Whoever would save his life will lose it. And the
@@ -20071,6 +20152,11 @@ The whole chapter of Hebrews 11 also describes many 'acts' of faith.
   sincere faith. (ESV)
 
 18. Faith in God
+
+youtube.com: Theology is for Everyone J I Packer @time: 43 min 14 sec
+What's faith? Faith is trusting God's promises. Faith is trusting God's Son. Faith is trusting God himself as now
+our heavenly Father. Faith believes, faith trusts, faith turns in obedience to God, and faith lives touching the
+invisible, touching the realities of God from this time on as long as life lasts in this world.
 
   Hebrews 11:1 - Now faith is the assurance of things hoped for, the conviction of things not seen. (ESV)
 
@@ -25237,6 +25323,11 @@ God loved us first. God is pre-eminent:
   burdensome. (ESV)
 
   I John 4:19 - We love because he first loved us. (ESV)
+
+- youtube.com: Theology is for Everyone J I Packer @time: 45 min 47 sec We live our lives in responsive love to
+God and responsive love to our neighbor with whom we seek to share our faith just as we seek to serve our
+neighbor in every other way and this means that the life that God has given us is being passed on and passed
+back, back finally to God Himself in praise and thanksgiving and the joy of fellowship with Him.
 
 Obedience is intrinsic to faith, but the obedient also recognise that love comes from God and God has loved us
 first through sending His Son to be the propitiation for our sins. Obedience leads to knowledge of Jesus:
@@ -46347,11 +46438,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-04 Wed 00:00
+Date: 2024-09-05 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-04 Wed 10:56
+Created: 2024-09-05 Thu 12:38
 
 Validate
 
