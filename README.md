@@ -448,7 +448,7 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgca85439) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2cda8da) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12441,7 +12441,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org8fb6426)
+See: [33.4.1](#orgb108f34)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -25530,7 +25530,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org8fb6426)
+See: [33.4.1](#orgb108f34)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -27469,6 +27469,12 @@ Use right judgment. We should be examining, judging, cleaning ourselves up, taki
 
 > **[Matthew 7:1-5](https://www.biblegateway.com/passage/?search=Matthew%207%3A1-5&version=ESV)** - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you. Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye. (ESV)
 
+> **[Romans 2:1](https://www.biblegateway.com/passage/?search=Romans%202%3A1&version=ESV)** - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. (ESV)
+
+> **[James 4:11-12](https://www.biblegateway.com/passage/?search=James%204%3A11-12&version=ESV)** - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
+
+> **[I Corinthians 4:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%204%3A3&version=ESV)** - But with me it is a very small thing that I should be judged by you or by any human court. In fact, I do not even judge myself. (ESV)
+
 Practice discretion:
 
 > **[Matthew 7:6](https://www.biblegateway.com/passage/?search=Matthew%207%3A6&version=ESV)** - Do not give dogs what is holy, and do not throw your pearls before pigs, lest they trample them underfoot and turn to attack you. (ESV)
@@ -28882,9 +28888,28 @@ Consider this as I read Jesus' words talking about Father God:
 
 ## We must abide by His teaching
 
+> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+
 > **[Luke 6:46](https://www.biblegateway.com/passage/?search=Luke%206%3A46&version=ESV)** - Why do you call me Lord, Lord, and not do what I tell you? (ESV)
 
 > **[Mark 16:15](https://www.biblegateway.com/passage/?search=Mark%2016%3A15&version=ESV)** - And he said to them, Go into all the world and proclaim the gospel to the whole creation. (ESV)
+
+
+### Notice how James and Paul both here abide by Jesus' teaching
+
+With the judgment you pronounce you will be judged:
+
+> **[Matthew 7:1-5](https://www.biblegateway.com/passage/?search=Matthew%207%3A1-5&version=ESV)** - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you. Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye. (ESV)
+
+> **[Romans 2:1](https://www.biblegateway.com/passage/?search=Romans%202%3A1&version=ESV)** - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. (ESV)
+
+> **[James 4:11-12](https://www.biblegateway.com/passage/?search=James%204%3A11-12&version=ESV)** - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
+
+Do not worry about tomorrow:
+
+> **[Matthew 6:25-34](https://www.biblegateway.com/passage/?search=Matthew%206%3A25-34&version=ESV)** - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
+
+> **[James 4:13-14](https://www.biblegateway.com/passage/?search=James%204%3A13-14&version=ESV)** - Come now, you who say, Today or tomorrow we will go into such and such a town and spend a year there and trade and make a profit— yet you do not know what tomorrow will bring. What is your life? For you are a mist that appears for a little time and then vanishes. (ESV)
 
 
 # godliness

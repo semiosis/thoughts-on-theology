@@ -35527,6 +35527,18 @@ Use right judgment. We should be examining, judging, cleaning ourselves up, taki
   *[[https://www.biblegateway.com/passage/?search=Matthew%207%3A1-5&version=ESV][Matthew 7:1-5]]* - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you. Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye. (ESV)
 #+END_QUOTE
 
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%202%3A1&version=ESV][Romans 2:1]]* - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=James%204%3A11-12&version=ESV][James 4:11-12]]* - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=1%20Corinthians%204%3A3&version=ESV][I Corinthians 4:3]]* - But with me it is a very small thing that I should be judged by you or by any human court. In fact, I do not even judge myself. (ESV)
+#+END_QUOTE
+
 Practice discretion:
 
 #+BEGIN_QUOTE
@@ -37069,11 +37081,40 @@ Consider this as I read Jesus' words talking about Father God:
 
 ** We must abide by His teaching
 #+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV][II John 1:9]]* - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Luke%206%3A46&version=ESV][Luke 6:46]]* - Why do you call me Lord, Lord, and not do what I tell you? (ESV)
 #+END_QUOTE
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Mark%2016%3A15&version=ESV][Mark 16:15]]* - And he said to them, Go into all the world and proclaim the gospel to the whole creation. (ESV)
+#+END_QUOTE
+
+*** Notice how James and Paul both here abide by Jesus' teaching
+With the judgment you pronounce you will be judged:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%207%3A1-5&version=ESV][Matthew 7:1-5]]* - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you. Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye? Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye? You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%202%3A1&version=ESV][Romans 2:1]]* - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=James%204%3A11-12&version=ESV][James 4:11-12]]* - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to judge your neighbor? (ESV)
+#+END_QUOTE
+
+Do not worry about tomorrow:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%206%3A25-34&version=ESV][Matthew 6:25-34]]* - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=James%204%3A13-14&version=ESV][James 4:13-14]]* - Come now, you who say, Today or tomorrow we will go into such and such a town and spend a year there and trade and make a profit— yet you do not know what tomorrow will bring. What is your life? For you are a mist that appears for a little time and then vanishes. (ESV)
 #+END_QUOTE
 
 * godliness
