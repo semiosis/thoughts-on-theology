@@ -417,13 +417,27 @@ The law is good. It's not our source of justification but we don't teach people 
 
 > **[Romans 14:10-14](https://www.biblegateway.com/passage/?search=Romans%2014%3A10-14&version=ESV)** - Why do you pass judgment on your brother? Or you, why do you despise your brother? For we will all stand before the judgment seat of God; for it is written, As I live, says the Lord, every knee shall bow to me, and every tongue shall confess to God. So then each of us will give an account of himself to God. Therefore let us not pass judgment on one another any longer, but rather decide never to put a stumbling block or hindrance in the way of a brother. I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. (ESV)
 
-But the law doesn't save:
+While the law of God revives the soul while we are actually meditating on it and doing it, the law doesn't save to perfection:
 
-> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through which we draw near to God. (ESV)
+> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the law **made nothing perfect**); but on the other hand, a better hope is introduced, through which we draw near to God. (ESV)
+
+> **[Psalms 19:7-9](https://www.biblegateway.com/passage/?search=Psalms%2019%3A7-9&version=ESV)** - The law of the LORD is perfect, **reviving** the soul; the testimony of the LORD is sure, making wise the simple; the precepts of the LORD are right, rejoicing the heart; the commandment of the LORD is pure, enlightening the eyes; the fear of the LORD is clean, enduring forever; the rules of the LORD are true, and righteous altogether. (ESV)
+
+And, if we live in the flesh, the sinful passions are aroused by the law to bear fruit for death:
+
+> **[Romans 7:5](https://www.biblegateway.com/passage/?search=Romans%207%3A5&version=ESV)** - For while we were living in the flesh, our sinful passions, aroused by the law, were at work in our members to bear fruit for death. (ESV)
+
+We are not perfected by the law, but by the Spirit:
+
+> **[Galatians 3:3](https://www.biblegateway.com/passage/?search=Galatians%203%3A3&version=ESV)** - Are you so foolish? Having begun by the Spirit, are you now being perfected by the flesh? (ESV)
 
 Instead we focus on following Jesus first and foremost:
 
 > **[Romans 14:22-23](https://www.biblegateway.com/passage/?search=Romans%2014%3A22-23&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+And we are perfected through faith in Jesus as His Spirit sanctifies us:
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
 -   **[Quote by John Piper](https://youtu.be/clrbUjkbNsM?t=701):** That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the law. That is, we keep the commandments, we love. We are doers of the law. Not sinlessly perfect law-keepers. Nobody is nor anybody has been except Jesus, which is why we depend on Him, but rather, radically transformed people, through faith, in the power of the Holy Spirit, leaning on the grace of God that comes to us through Jesus Christ.
 
@@ -434,7 +448,7 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6a5ea4b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgca85439) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12427,7 +12441,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge82df95)
+See: [33.4.1](#org8fb6426)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -25516,7 +25530,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge82df95)
+See: [33.4.1](#org8fb6426)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

@@ -671,16 +671,40 @@ who follow it by faith.
   hindrance in the way of a brother. I know and am persuaded in the Lord Jesus that nothing is unclean in itself,
   but it is unclean for anyone who thinks it unclean. (ESV)
 
-But the law doesn't save:
+While the law of God revives the soul while we are actually meditating on it and doing it, the law doesn't save to
+perfection:
 
   Hebrews 7:19 - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through
   which we draw near to God. (ESV)
+
+  Psalms 19:7-9 - The law of the LORD is perfect, reviving the soul; the testimony of the LORD is sure, making
+  wise the simple; the precepts of the LORD are right, rejoicing the heart; the commandment of the LORD is pure,
+  enlightening the eyes; the fear of the LORD is clean, enduring forever; the rules of the LORD are true, and
+  righteous altogether. (ESV)
+
+And, if we live in the flesh, the sinful passions are aroused by the law to bear fruit for death:
+
+  Romans 7:5 - For while we were living in the flesh, our sinful passions, aroused by the law, were at work in our
+  members to bear fruit for death. (ESV)
+
+We are not perfected by the law, but by the Spirit:
+
+  Galatians 3:3 - Are you so foolish? Having begun by the Spirit, are you now being perfected by the flesh? (ESV)
 
 Instead we focus on following Jesus first and foremost:
 
   Romans 14:22-23 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason
   to pass judgment on himself for what he approves. But whoever has doubts is condemned if he eats, because the
   eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+And we are perfected through faith in Jesus as His Spirit sanctifies us:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
 Quote by John Piper
 That's who we are as Christians. When we walk according to the Spirit, we fulfill the just requirement of the law.
@@ -46442,7 +46466,7 @@ Date: 2024-09-05 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-05 Thu 12:38
+Created: 2024-09-05 Thu 12:56
 
 Validate
 
