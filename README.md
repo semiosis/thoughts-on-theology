@@ -452,7 +452,7 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org43bed71) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8dc118b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12522,7 +12522,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org4324f23)
+See: [33.4.1](#org38e8347)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -12654,7 +12654,25 @@ Jesus' commandments are all about selfless love. We must abide in Jesus' teachin
 > **[II John 1:6-9](https://www.biblegateway.com/passage/?search=2%20John%201%3A6-9&version=ESV)** - And this is love, that we walk according to his commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it. For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
 
-## You can't work for justification. We must have faith in God justifying us even though we are ungodly by having faith in Jesus. God justifies who has faith in Jesus. God justifies even ungodly people who have faith in Jesus
+## God justifies even ungodly people who have faith in Jesus
+
+We have faith in God by having faith in Jesus and by having faith in Jesus we may be justified even though we are ungodly.
+
+God justifies who has faith in Jesus.
+
+<https://www.samstorms.org/all-articles/post/are-we-justified-by-faith-or-by-works-yes---james-214-26>
+
+There is a way of doing the law that is by faith:
+
+> **[Romans 2:13](https://www.biblegateway.com/passage/?search=Romans%202%3A13&version=ESV)** - For it is not the hearers of the law who are righteous before God, but the doers of the law who will be justified. (ESV)
+
+I'm sure that James would be referring to what Paul refers to in [Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV):
+
+> **[James 2:24](https://www.biblegateway.com/passage/?search=James%202%3A24&version=ESV)** - You see that a person is justified by works and not by faith alone. (ESV)
+
+> **[Romans 9:30-32](https://www.biblegateway.com/passage/?search=Romans%209%3A30-32&version=ESV)** - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works. They have stumbled over the stumbling stone, (ESV)
+
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
 
 Firstly, God owns everything. Whatever we give God, he already owned. Neither do we give God wages as if we were the previous owner of our gift. And we don't give God advice:
 
@@ -12663,6 +12681,8 @@ Firstly, God owns everything. Whatever we give God, he already owned. Neither do
 We just depend on and trust and hope on God to justify us, to commend us, to give us mercy, and we simply follow Jesus and have peace with God because we believe in Jesus, and in believing and obeying Jesus we have the hope of being justified by faith in Jesus:
 
 > **[Romans 9:16](https://www.biblegateway.com/passage/?search=Romans%209%3A16&version=ESV)** - So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
+
+> **[Hebrews 11:1-2](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A1-2&version=ESV)** - Now faith is the assurance of things hoped for, the conviction of things not seen. For by it the people of old received their commendation. (ESV)
 
 > John Piper - "Faith is the baking our **hope on the mercy of God**."
 
@@ -25700,7 +25720,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org4324f23)
+See: [33.4.1](#org38e8347)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
