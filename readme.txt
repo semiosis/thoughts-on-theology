@@ -548,7 +548,17 @@ saved. Later on I got the doctrine. But I'd met Jesus and I just want to tell yo
 meet Jesus and stay the same. You can join a church and remain unchanged. You can believe all sorts of things with
 your head and remain unchanged, but when you meet the resurrected Christ it's transforming and it's permanent.
 
-For me, after I was born-again I confessed Jesus.
+When I was born again of the Spirit, in faith I confessed Jesus - I wasn't told 'this is Jesus here' making You
+born-again - I asked Jesus to save me, and then continued walking in faith, believing I had an experience with
+God, so I believed God existed, but I sought then to demonstrate my faith to Jesus in my walk, through my inward
+thoughts, my prayer life with Jesus, my outward actions and my outward words:
+
+  Romans 8:23-25 - And not only the creation, but we ourselves, who have the firstfruits of the Spirit, groan
+  inwardly as we wait eagerly for adoption as sons, the redemption of our bodies. For in this hope we were saved.
+  Now hope that is seen is not hope. For who hopes for what he sees? But if we hope for what we do not see, we
+  wait for it with patience. (ESV)
+
+Then after a month I confessed Jesus a second time after "giving God my first-fruits" in response.
 
 OK, so in response for being forgiven and born-again, we should live to serve God through serving Christ, getting
 to know Christ, and disobeying sin.
@@ -1206,6 +1216,30 @@ actions we do out of that obedience, that love for Jesus, and out of ongoing bel
 obedience to the Holy Spirit. Doing the will of God isn't "work", but is a just mode of walking that is different
 from doing the will of satan.
 
+  John 3:36 - The [one] believing (pisteuon) in the Son has life eternal; the [one] however not obeying (apeithon)
+  the Son not will see life but the wrath - of God abides on him (Interlinear)
+
+We need a trusting, obedient heart. It's not just about obeying one point of belief in Jesus, but about having a
+heart which believes Jesus, trusts Jesus, obeys Jesus, and accepting Him and His words.
+
+|  3588      4100      1519 3588    5207  2192     2222  166
+|  ho        pisteuon  eis  ton     Huion echei    zoen  aionion
+|  ?         ????????  ???  ???     ????  ????     ????  ???????  ;
+|  The [one] believing in   the     Son   has      life  eternal
+|  Art-NMS   V-PPA-NMS Prep Art-AMS N-AMS V-PIA-3S N-AFS Adj-AFS
+| 
+|  3588      1161     544         3588     5207   3756 3708
+|  ho        de       apeithon    to       Huio   ouk  opsetai
+|  ?         ??       ???????     ??       ???  , ???  ??????
+|   the [one] however  not obeying the      Son    not  will see
+|   Art-NMS   Conj     V-PPA-NMS   Art-DMS  N-DMS  Adv  V-FIM-3S
+|  
+|   2222    235  3588    3709  3588    2316   3306     1909 846
+|   zoen    all' he      orge  tou     Theou  menei    ep'  auton
+|   ????  , ???' ?       ????  ???     ????   u????    ??'  ?????  .
+|   life    but  the     wrath  -      of God abides   on   him
+|   N-AFS   Conj Art-NFS N-NFS Art-GMS N-GMS  V-PIA-3S Prep PPro-AM3S
+
 The reason Abraham's faith was counted as righteousness is because no distrust made him waver (Abraham faithfully
 trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good indicator
 that Abraham was totally trusting of God is that Abraham walked in the promise of God:
@@ -1247,7 +1281,8 @@ Christianity is a relationship, like a marriage:
 - We must still forgive and love our family in Christ. This isn't 'work', but it is obedience, and it is a
 required heart attitude
 - Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
-- It's not a merit-based religion
+- Salvation is based on Jesus' merit but also on our working-out of that free salvation gift with hope, faith,
+repentance and obedience
 - We must have a response of love for Jesus
 - John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will
 be loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -1722,7 +1757,16 @@ We have authority in God:
   Matthew 20:27-28 - and whoever would be first among you must be your slave, even as the Son of Man came not to
   be served but to serve, and to give his life as a ransom for many. (ESV)
 
-We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ.
+We must be in Christ Jesus. Those who have been born-again have become obedient to Jesus Christ. Having been
+born-again, we walk by faith, not sight:
+
+  Romans 8:23-25 - And not only the creation, but we ourselves, who have the firstfruits of the Spirit, groan
+  inwardly as we wait eagerly for adoption as sons, the redemption of our bodies. For in this hope we were saved.
+  Now hope that is seen is not hope. For who hopes for what he sees? But if we hope for what we do not see, we
+  wait for it with patience. (ESV)
+
+  II Corinthians 5:6-7 - So we are always of good courage. We know that while we are at home in the body we are
+  away from the Lord, for we walk by faith, not by sight. (ESV)
 
 We don't transition away from being servants of Jesus when we become friends of Jesus - we still serve and obey
 Him. Jesus started calling His servants His friends because Jesus had explained to them all He heard from Father
@@ -2174,7 +2218,7 @@ I also do not affirm the LDS doctrine here:
 
 - en.wikipedia.org: Melchizedek priesthood {Latter Day Saints} - Wikipedia
 
-I see the LDS stuff as similarly heretical to Basilidean gnosticism.
+I see the LDS stuff here as heretical, and I do not consider their extra books to be Scripture.
 
 I've been attending Bible studies and allowing myself to be corrected and renewed in mind by the Truth which is
 the Word of God:
@@ -2236,6 +2280,19 @@ youtube.com: Only King Forever | Live | Elevation Worship
 
   Psalms 82:6-8 - I said, You are gods, sons of the Most High, all of you; nevertheless, like men you shall die,
   and fall like any prince. Arise, O God, judge the earth; for you shall inherit all the nations! (ESV)
+
+Verses such as this demonstrate the holy justice of God. God nearly put Moses to death:
+
+  Exodus 4:24-26 - At a lodging place on the way the LORD met him and sought to put him to death. Then Zipporah
+  took a flint and cut off her son's foreskin and touched Moses' feet with it and said, Surely you are a
+  bridegroom of blood to me! So he let him alone. It was then that she said, A bridegroom of blood, because of the
+  circumcision. (ESV)
+
+Thus so (Houtos) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is
+trusting/believing in Him may not perish, but may have life everlasting:
+
+biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
+gave, that every one who is believing in him may not perish, but may have life age-during.
 
   John 3:16-17 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
   perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
@@ -2733,6 +2790,18 @@ leads to overcoming the world
   overcome the world-our faith. (ESV)
 
 3.9. We overcome the world with a new spirit God has given us to wait and trust on Him and obey Him
+
+  I John 5:4 - For everyone who has been born of God overcomes the world. And this is the victory that has
+  overcome the world-our faith. (ESV)
+
+We overcome the world, reigning in life thanks to the free gift of righteousness through Jesus Christ:
+
+  Romans 5:15-17 - But the free gift is not like the trespass. For if many died through one man's trespass, much
+  more have the grace of God and the free gift by the grace of that one man Jesus Christ abounded for many. And
+  the free gift is not like the result of that one man's sin. For the judgment following one trespass brought
+  condemnation, but the free gift following many trespasses brought justification. If, because of one man's
+  trespass, death reigned through that one man, much more will those who receive the abundance of grace and the
+  free gift of righteousness reign (basileuo) in life through the one man Jesus Christ. (ESV)
 
   Ezekiel 11:19-20 - And I will give them one heart, and a new spirit I will put within them. I will remove the
   heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my
@@ -4691,6 +4760,9 @@ rather than 'work' in any way that is not in obedience to the gospel:
 |   finish, fashion:--cause, to (deed), perform, work (out).
 |   see GREEK for 2596
 |   see GREEK for 2038
+
+gospel-of-grace-faq.josephprince.org: Is Philippians 2:12 telling us we need to work for our salvation? -
+Questions About the Gospel of Grace
 
 If you have trusting faith in God then you will walk according to the will of God (walk the way Jesus Christ calls
 us to walk in obedience to Jesus, as a response of love to God in the knowledge He loved us first). Led by the
@@ -7772,6 +7844,9 @@ the Spirit and power of God. We need the prophetic in the church:
   1 Corinthians 2:4,5 - and my speech and my message were not in plausible words of wisdom, but in demonstration
   of the Spirit and of power, that your faith might not rest in the wisdom of men but in the power of God. (ESV)
 
+  Proverbs 29:18 - Where there is no prophetic vision the people cast off restraint, but blessed is he who keeps
+  the law. (ESV)
+
 From our perspective it may look like things are still being brought into subjection to Him. It still looks that
 way to me:
 
@@ -9768,6 +9843,16 @@ heart).
   John 3:36 - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall
   not see life, but the wrath of God remains on him. (ESV)
 
+Verses such as this demonstrate the holy justice of God. God nearly put Moses to death:
+
+  Exodus 4:24-26 - At a lodging place on the way the LORD met him and sought to put him to death. Then Zipporah
+  took a flint and cut off her son's foreskin and touched Moses' feet with it and said, Surely you are a
+  bridegroom of blood to me! So he let him alone. It was then that she said, A bridegroom of blood, because of the
+  circumcision. (ESV)
+
+Thus so (Houtos) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is
+trusting/believing in Him may not perish, but may have life everlasting:
+
 biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
 gave, that every one who is believing in him may not perish, but may have life age-during.
 
@@ -10959,9 +11044,9 @@ the other. Bonhoeffer says it like this, "Only he who believes is obedient, and 
 
 This is talking about loving fellow human beings:
 
-  Didache 1 - ... Bless those who curse you, and pray for your enemies, and fast for those who persecute you. For
-  what reward is there for loving those who love you? Do not the Gentiles do the same? But love those who hate
-  you, and you shall not have an enemy. ...
+  Didache Chapter 1 - ... Bless those who curse you, and pray for your enemies, and fast for those who persecute
+  you. For what reward is there for loving those who love you? Do not the Gentiles do the same? But love those who
+  hate you, and you shall not have an enemy. ...
 
 We still have enemies (that is, the forces of evil, satan and satan's demons and his fallen angels,
 principalities, powers etc.):
@@ -14606,7 +14691,26 @@ it will be a curse to us."
   1 Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.5.7. Wandering / backsliding from God
+7.5.7. Presumption and going beyond the Scripture
+
+  I Corinthians 4:6 - I have applied all these things to myself and Apollos for your benefit, brothers, that you
+  may learn by us not to go beyond what is written, that none of you may be puffed up in favor of one against
+  another. (ESV)
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God, and
+  take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is
+  complete. (ESV)
+
+  Psalms 19:13 - Keep back your servant also from presumptuous sins; let them not have dominion over me! Then I
+  shall be blameless, and innocent of great transgression. (ESV)
+
+  I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
+  you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
+
+7.5.8. Wandering / backsliding from God
 
   Jeremiah 14:7 - Though our iniquities testify against us, act, O LORD, for your name's sake; for our
   backslidings are many; we have sinned against you. (ESV)
@@ -14615,19 +14719,19 @@ it will be a curse to us."
   restrained their feet; therefore the LORD does not accept them; now he will remember their iniquity and punish
   their sins. (ESV)
 
-7.5.8. Prophesying lies
+7.5.9. Prophesying lies
 
   Jeremiah 14:14 - And the LORD said to me: The prophets are prophesying lies in my name. I did not send them, nor
   did I command them or speak to them. They are prophesying to you a lying vision, worthless divination, and the
   deceit of their own minds. (ESV)
 
-7.5.9. Ungodliness
+7.5.10. Ungodliness
 
   Isaiah 32:6 - For the fool speaks folly, and his heart is busy with iniquity, to practice ungodliness, to utter
   error concerning the LORD, to leave the craving of the hungry unsatisfied, and to deprive the thirsty of drink.
   (ESV)
 
-7.5.10. Pride, debauchery, greed
+7.5.11. Pride, debauchery, greed
 
   Ezekiel 16:49-58 - Behold, this was the guilt of your sister Sodom: she and her daughters had pride, excess of
   food, and prosperous ease, but did not aid the poor and needy. They were haughty and did an abomination before
@@ -14645,7 +14749,7 @@ it will be a curse to us."
   and for the daughters of the Philistines, those all around who despise you. You bear the penalty of your
   lewdness and your abominations, declares the LORD. (ESV)
 
-7.5.11. Pride in self and lack of humility towards God
+7.5.12. Pride in self and lack of humility towards God
 
 youtube.com: The Great Sin by C. S. Lewis Doodle {BBC Talk 16, Mere Christianity, Bk. 3, Chapter 8}.
 
@@ -14752,7 +14856,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Peter 5:6-7 - Humble yourselves, therefore, under the mighty hand of God so that at the proper time he may
   exalt you, casting all your anxieties on him, because he cares for you. (ESV)
 
-7.5.12. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
+7.5.13. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
 
   Ezekiel 13:22 - Because you have disheartened the righteous falsely, although I have not grieved him, and you
   have encouraged the wicked, that he should not turn from his evil way to save his life, (ESV)
@@ -14760,7 +14864,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   Isaiah 31:2 - And yet he is wise and brings disaster; he does not call back his words, but will arise against
   the house of the evildoers and against the helpers of those who work iniquity. (ESV)
 
-7.5.13. Dishonesty
+7.5.14. Dishonesty
 
   Isaiah 59:4-8 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak
   lies, they conceive mischief and give birth to iniquity. They hatch adders' eggs; they weave the spider's web;
@@ -14771,13 +14875,13 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   and there is no justice in their paths; they have made their roads crooked; no one who treads on them knows
   peace. (ESV)
 
-7.5.14. Lies and adultery
+7.5.15. Lies and adultery
 
   Jeremiah 23:14 - But in the prophets of Jerusalem I have seen a horrible thing: they commit adultery and walk in
   lies; they strengthen the hands of evildoers, so that no one turns from his evil; all of them have become like
   Sodom to me, and its inhabitants like Gomorrah. (ESV)
 
-7.5.15. Iniquity
+7.5.16. Iniquity
 
   II Samuel 7:14-15 - I will be to him a father, and he shall be to me a son. When he commits iniquity, I will
   discipline him with the rod of men, with the stripes of the sons of men, but my steadfast love will not depart
@@ -14786,24 +14890,24 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   Psalms 53:1 - The fool says in his heart, There is no God. They are corrupt, doing abominable iniquity; there is
   none who does good. (ESV)
 
-7.5.16. Profaning what is holy
+7.5.17. Profaning what is holy
 
   Leviticus 19:8 - and everyone who eats it shall bear his iniquity, because he has profaned what is holy to the
   LORD, and that person shall be cut off from his people. (ESV)
 
-7.5.17. Blasphemy
+7.5.18. Blasphemy
 
   I Samuel 3:13 - And I declare to him that I am about to punish his house forever, for the iniquity that he knew,
   because his sons were blaspheming God, and he did not restrain them. (ESV)
 
-7.5.18. Lawlessness is sin - unresponsive and disobedient to God
+7.5.19. Lawlessness is sin - unresponsive and disobedient to God
 
   I John 3:4 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
 
   Isaiah 53:6 - All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid
   on him the iniquity of us all. (ESV)
 
-7.5.19. Rebellion against God is sin
+7.5.20. Rebellion against God is sin
 
   Deuteronomy 9:7 - Remember and do not forget how you provoked the LORD your God to wrath in the wilderness. From
   the day you came out of the land of Egypt until you came to this place, you have been rebellious against the
@@ -14820,12 +14924,12 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.5.20. Not caring for the innocent
+7.5.21. Not caring for the innocent
 
   Isaiah 59:7 - Their feet run to evil, and they are swift to shed innocent blood; their thoughts are thoughts of
   iniquity; desolation and destruction are in their highways. (ESV)
 
-7.5.21. Doing evil deeds is sin
+7.5.22. Doing evil deeds is sin
 
   Colossians 1:21 - And you, who once were alienated and hostile in mind, doing evil deeds, (ESV)
 
@@ -14843,17 +14947,17 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   stable and steadfast, not shifting from the hope of the gospel that you heard, which has been proclaimed in all
   creation under heaven, and of which I, Paul, became a minister. (ESV)
 
-7.5.22. unjust gain
+7.5.23. unjust gain
 
   Isaiah 57:17 - Because of the iniquity of his unjust gain I was angry, I struck him; I hid my face and was
   angry, but he went on backsliding in the way of his own heart. (ESV)
 
-7.5.23. dishonesty
+7.5.24. dishonesty
 
   Isaiah 59:4 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak lies,
   they conceive mischief and give birth to iniquity. (ESV)
 
-7.5.24. idolatry
+7.5.25. idolatry
 
   Jeremiah 16:18 - But first I will doubly repay their iniquity and their sin, because they have polluted my land
   with the carcasses of their detestable idols, and have filled my inheritance with their abominations. (ESV)
@@ -14861,7 +14965,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Corinthians 10:7 - Do not be idolaters as some of them were; as it is written, The people sat down to eat and
   drink and rose up to play. (ESV)
 
-7.5.25. sexual immorality
+7.5.26. sexual immorality
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
@@ -14871,7 +14975,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
   which is the second death. (ESV)
 
-7.5.26. carnal, fleshly things, greed and self-indulgence
+7.5.27. carnal, fleshly things, greed and self-indulgence
 
   James 5:5 - You have lived on the earth in luxury and in self-indulgence. You have fattened your hearts in a day
   of slaughter. (ESV)
@@ -14880,7 +14984,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   plate, but inside they are full of greed and self-indulgence. You blind Pharisee! First clean the inside of the
   cup and the plate, that the outside also may be clean. (ESV)
 
-7.5.27. unnatural desire
+7.5.28. unnatural desire
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
@@ -14897,7 +15001,7 @@ Defiling passion defiles:
   Jude 1:7 - just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality
   and pursued unnatural desire, serve as an example by undergoing a punishment of eternal fire. (ESV)
 
-7.5.28. Rape is very, very bad
+7.5.29. Rape is very, very bad
 
   Deuteronomy 22:23-29 - If there is a betrothed virgin, and a man meets her in the city and lies with her, then
   you shall bring them both out to the gate of that city, and you shall stone them to death with stones, the young
@@ -14911,7 +15015,7 @@ Defiling passion defiles:
   father of the young woman fifty shekels of silver, and she shall be his wife, because he has violated her. He
   may not divorce her all his days. (ESV)
 
-7.5.29. Being habitually drunk is sinful
+7.5.30. Being habitually drunk is sinful
 
   I Corinthians 6:9-10 - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
@@ -14919,14 +15023,14 @@ Defiling passion defiles:
 
 youtube.com: CAN CHRISTIANS DRINK/SMOKE?! {The Harsh Truth...}
 
-7.5.30. Abortion
+7.5.31. Abortion
 
 Abortion specifically has been condemned as a grave sin since the beginnings of the Church.
 
 The Church has always stood against abortion, and placed it right alongside murder.
 
-  Didache 2 - The Second Commandment: Grave Sin Forbidden. And the second commandment of the Teaching; You shall
-  not commit murder, you shall not commit adultery, you shall not commit pederasty, you shall not commit
+  Didache Chapter 2 - The Second Commandment: Grave Sin Forbidden. And the second commandment of the Teaching; You
+  shall not commit murder, you shall not commit adultery, you shall not commit pederasty, you shall not commit
   fornication, you shall not steal, you shall not practice magic, you shall not practice witchcraft, you shall not
   murder a child by abortion nor kill that which is born. You shall not covet the things of your neighbor, you
   shall not swear, you shall not bear false witness, you shall not speak evil, you shall bear no grudge. You shall
@@ -14935,21 +15039,21 @@ The Church has always stood against abortion, and placed it right alongside murd
   disposed, nor haughty. You shall not take evil counsel against your neighbor. You shall not hate any man; but
   some you shall reprove, and concerning some you shall pray, and some you shall love more than your own life.
 
-7.5.31. More sins condemned by the early Church
+7.5.32. More sins condemned by the early Church
 
-  Didache 3 - Other Sins Forbidden. My child, flee from every evil thing, and from every likeness of it. Be not
-  prone to anger, for anger leads to murder. Be neither jealous, nor quarrelsome, nor of hot temper, for out of
-  all these murders are engendered. My child, be not a lustful one. for lust leads to fornication. Be neither a
-  filthy talker, nor of lofty eye, for out of all these adulteries are engendered. My child, be not an observer of
-  omens, since it leads to idolatry. Be neither an enchanter, nor an astrologer, nor a purifier, nor be willing to
-  took at these things, for out of all these idolatry is engendered. My child, be not a liar, since a lie leads to
-  theft. Be neither money-loving, nor vainglorious, for out of all these thefts are engendered. My child, be not a
-  murmurer, since it leads the way to blasphemy. Be neither self-willed nor evil-minded, for out of all these
-  blasphemies are engendered. Rather, be meek, since the meek shall inherit the earth. Be long-suffering and
-  pitiful and guileless and gentle and good and always trembling at the words which you have heard. You shall not
-  exalt yourself, nor give over-confidence to your soul. Your soul shall not be joined with lofty ones, but with
-  just and lowly ones shall it have its intercourse. Accept whatever happens to you as good, knowing that apart
-  from God nothing comes to pass.
+  Didache Chapter 3 - Other Sins Forbidden. My child, flee from every evil thing, and from every likeness of it.
+  Be not prone to anger, for anger leads to murder. Be neither jealous, nor quarrelsome, nor of hot temper, for
+  out of all these murders are engendered. My child, be not a lustful one. for lust leads to fornication. Be
+  neither a filthy talker, nor of lofty eye, for out of all these adulteries are engendered. My child, be not an
+  observer of omens, since it leads to idolatry. Be neither an enchanter, nor an astrologer, nor a purifier, nor
+  be willing to took at these things, for out of all these idolatry is engendered. My child, be not a liar, since
+  a lie leads to theft. Be neither money-loving, nor vainglorious, for out of all these thefts are engendered. My
+  child, be not a murmurer, since it leads the way to blasphemy. Be neither self-willed nor evil-minded, for out
+  of all these blasphemies are engendered. Rather, be meek, since the meek shall inherit the earth. Be
+  long-suffering and pitiful and guileless and gentle and good and always trembling at the words which you have
+  heard. You shall not exalt yourself, nor give over-confidence to your soul. Your soul shall not be joined with
+  lofty ones, but with just and lowly ones shall it have its intercourse. Accept whatever happens to you as good,
+  knowing that apart from God nothing comes to pass.
 
 There are heaps more things described as sinful and abomination in the Bible which I have not mentioned.
 
@@ -16937,6 +17041,15 @@ mind.
   I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says
   I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
+And the obedience doesn't end. We continue to be sanctified, as slaves of righteousness, abiding by the
+teaching of Christ:
+
+  Romans 6:16-18 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves
+  of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to
+  righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the
+  heart to the standard of teaching to which you were committed, and, having been set free from sin, have
+  become slaves of righteousness. (ESV)
+
 And the obedience doesn't end. We continue to be sanctified through faith. We are saved from darkness,
 believing the word of God, and in obedience we are saved from sinning and try to fulfill the Royal Law, and
 even using our freedom in Christ to do good works that are pleasing to God:
@@ -17545,6 +17658,22 @@ Jehovah is the Rock:
 
   Isaiah 44:8 - Fear not, nor be afraid; have I not told you from of old and declared it? And you are my
   witnesses! Is there a God besides me? There is no Rock; I know not any. (ESV)
+
+  I Corinthians 10:4 - and all drank the same spiritual drink. For they drank from the spiritual Rock that
+  followed them, and the Rock was Christ. (ESV)
+
+It seems reasonable to me to say that God the Father and God the Son share their names/onoma:
+
+  John 5:43 - I have come in my Father's name (onomati), and you do not receive me. If another comes in his own
+  name, you will receive him. (ESV)
+
+Building our lives on Jesus means believing Him and obeying Him:
+
+  Matthew 7:24-27 - Everyone then who hears these words of mine and does them will be like a wise man who built
+  his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it
+  did not fall, because it had been founded on the rock. And everyone who hears these words of mine and does not
+  do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and
+  the winds blew and beat against that house, and it fell, and great was the fall of it. (ESV)
 
 If I hear Jesus' commandment to repent from sin, for example, and I obediently repent, then that is walking by
 faith. Since faith comes from hearing the word of Christ - and there faith could come from any part of His
@@ -18702,6 +18831,20 @@ being justified by faith in Jesus:
 
   John Piper - "Faith is the baking our hope on the mercy of God."
 
+We were saved in hopeful faith:
+
+  Romans 8:23-25 - And not only the creation, but we ourselves, who have the firstfruits of the Spirit, groan
+  inwardly as we wait eagerly for adoption as sons, the redemption of our bodies. For in this hope we were saved.
+  Now hope that is seen is not hope. For who hopes for what he sees? But if we hope for what we do not see, we
+  wait for it with patience. (ESV)
+
+But God is just to take into consideration our work:
+
+  Hebrews 6:10-12 - For God is not so unjust as to overlook your work and the love that you showed for his sake in
+  serving the saints, as you still do. And we desire each one of you to show the same earnestness to have the full
+  assurance of hope until the end, so that you may not be sluggish, but imitators of those who through faith and
+  patience inherit the promises. (ESV)
+
 My best understanding of Romans 4:4 is: "The person who works receives wages, but the wages are not a gift, but
 the person does receive reward which is due for his work." - But that's not good enough. We need to accept the
 gift of salvation from God. So working is not good enough, we must submit to the righteousness of God and accept
@@ -19029,11 +19172,12 @@ wonderful thing about Christianity is precisely that. It's not religion in that 
 
 Christianity is a relationship, like a marriage:
 
-- Acceptance comes at the beginning; Jesus gives us the benefit of the doubt. Just start serving Jesus
+- Acceptance comes at the beginning; Jesus gives us the benefit of the doubt. Just start serving Jesus in faith
 - We must still forgive and love our family in Christ. This isn't 'work', but it is obedience, and it is a
 required heart attitude
 - Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
-- It's not a merit-based religion
+- - Salvation is based on Jesus' merit but also on our working-out of that free salvation gift with hope, faith,
+repentance and obedience
 - We must have a response of love for Jesus
 - John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will
 be loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -20364,6 +20508,15 @@ The guy believed Jesus and acted on it:
     o Mk 9:22 - And it has often cast him into fire and into water, to destroy him. But if you can do anything,
       have compassion on us and help us. (ESV)
     o Lk 7:13 - And when the Lord saw her, he had compassion on her and said to her, Do not weep. (ESV)
+
+youtube.com: God will use these moments, it wasn't for nothing @time: 2 min 52 sec
+Why do we have to endure these things? Why do we have to go through difficult times? Well, because it gives you
+context and perspective for what other people are also dealing with. So in the gospels we read many times that
+Jesus had compassion on them and then he healed them. Jesus had compassion on them and then he healed them. Now
+through my journey in a wheelchair my eyes have been opened like never before, for because of the things that I go
+through I have compassion on other people that are also dealing with the same things. So when when I pray for
+someone that's in a wheelchair that has a spinal cold cord injury I know what they are going through because I
+have been through the same things.
 
 Likewise, we should have compassion:
 
@@ -30457,7 +30610,7 @@ Proclaim the Lord's death until He comes:
   covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this
   bread and drink the cup, you proclaim the Lord's death until he comes.
 
-Didache 4
+Didache Chapter 4
 ... Do not in any way forsake the commandments of the Lord; but keep what you have received, neither adding thereto
 nor taking away therefrom. In the church you shall acknowledge your transgressions, and you shall not come near
 for your prayer with an evil conscience. This is the way of life.
@@ -30537,6 +30690,23 @@ If someone has the light in him, he walks in the day.
 
   John 12:35 - So Jesus said to them, The light is among you for a little while longer. Walk while you have the
   light, lest darkness overtake you. The one who walks in the darkness does not know where he is going. (ESV)
+
+Walking in the light is walking righteously, in love and holiness and truth:
+
+  Ephesians 5:1-17 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or
+  covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish
+  talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
+  this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
+  inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
+  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
+  found in all that is good and right and true), and try to discern what is pleasing to the Lord. Take no part in
+  the unfruitful works of darkness, but instead expose them. For it is shameful even to speak of the things that
+  they do in secret. But when anything is exposed by the light, it becomes visible, for anything that becomes
+  visible is light. Therefore it says, Awake, O sleeper, and arise from the dead, and Christ will shine on you.
+  Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days
+  are evil. Therefore do not be foolish, but understand what the will of the Lord is. (ESV)
 
 If someone walks in the day with the light in them, they will not stumble. With the light in them, they should not
 be concerned about such worries. They should put confidence in the light.
@@ -32134,8 +32304,10 @@ learn from Jesus and follow Jesus. If they're opposing Jesus, that's a different
 us. And not content with that, he refuses to welcome the brothers, and also stops those who want to
 and puts them out of the church. Beloved, do not imitate evil but imitate good. Whoever does good is
 from God; whoever does evil has not seen God. (ESV)
-- a spirit spouse which thinks it's my spouse
-- youtube.com: Prayer Against Spiritual Spouse <- Yeah, this.
+- a spiritual sex attack or a spirit spouse which thinks it's my spouse
+- youtube.com: Prayer Against Spiritual Spouse
+- https://www.linkedin.com/pulse/spiritual-sex-attackpt-1-rev-chika-ossai-ugbah-ph-d <- Or something like
+this.
 - wicked spirits through other people pressuring me into using AI-fiction to apply for jobs
 - dreams at night affirming what I've disaffirmed for the sake of following Jesus and remaining faithful to
 Jesus
@@ -32644,6 +32816,20 @@ marry:
 What I mean by this, is "having a job" or "owning a house" must never become a prerequisite to a Christian to
 being allowed to marry or at least to being "betrothed" (people should be allowed to propose and given a chance
 even if they have no assets, and no job).
+
+youtube.com: Why 'I Can't Afford Kids' Misses the Point
+
+If you're going to follow Christ you have to turn off the voice of the world. You can't care about what Jesus says
+and also what the devil says. You can't respect the words of the gospel and also give authority to the words of
+this world.
+
+Allowing God to determine the question if you're going to have many children or or few children... We're not like
+rabbits where you're going to have 30 children - that's not how it is. That's what the seculars want you to think.
+That's not the case. Some people can't conceive it all, and then the Lord works a miracle and they have a child
+and everyone rejoices - if I could tell you how many times I've seen the Lord take a family in my Parish that was
+told by the doctors it's impossible and then he gives them a child and sometimes two, and sometimes more. It is
+such a shot of joy in into the life of the church and to have to have children and to love them and to accept
+those responsibilities.
 
 "Having God" is a much better prerequisite.
 
@@ -36229,6 +36415,23 @@ obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all si
   truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
   Jesus his Son cleanses us from all sin. (ESV)
 
+Walking in the light is walking righteously, in love and holiness and truth:
+
+  Ephesians 5:1-17 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or
+  covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish
+  talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
+  this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
+  inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
+  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
+  found in all that is good and right and true), and try to discern what is pleasing to the Lord. Take no part in
+  the unfruitful works of darkness, but instead expose them. For it is shameful even to speak of the things that
+  they do in secret. But when anything is exposed by the light, it becomes visible, for anything that becomes
+  visible is light. Therefore it says, Awake, O sleeper, and arise from the dead, and Christ will shine on you.
+  Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days
+  are evil. Therefore do not be foolish, but understand what the will of the Lord is. (ESV)
+
 We are the light of the world. Yes, we must do good:
 
   Matthew 5:14-20 - You are the light of the world. A city set on a hill cannot be hidden. Nor do people light a
@@ -36496,7 +36699,20 @@ justification.
   John Piper - We should rely entirely on the righteousness of Christ imputed to us by faith alone as the ground
   of God being 100% for us after which necessary sanctification comes.
 
-54.43.2. But my experience was like this
+54.43.2. But my experience was like this and this is why I cannot deny the importance of obedience and abiding in
+the teaching of Christ by obedient, trusting, hoping, faith, even before being born of the Spirit
+
+Before I was born-again of the Spirit, I was trying to build a 'Noah's Ark-like' software called Pen.el, and also
+was endeavouring to keep the 10 commandments by faith seeking God, and then I got born-again of the Spirit.
+
+When I was born of the Spirit (2 April 2022), God permitted me to confess Jesus to Him, and I made a strong
+repentance to walking in far more obedient faith thereafter. I didn't receive any commendation from my perspective
+when I was born-again of the Spirit.
+
+  Genesis 22:16-17 - and said, By myself I have sworn, declares the LORD, because you have done this and have not
+  withheld your son, your only son, I will surely bless you, and I will surely multiply your offspring as the
+  stars of heaven and as the sand that is on the seashore. And your offspring shall possess the gate of his
+  enemies, (ESV)
 
 But then, as what happened to me after I was born-again of the Spirit (by the grace of God through faith), is that
 shortly after I was quickly confronted with a lot of paganism, and through obedience to Jesus' commandments
@@ -36510,7 +36726,44 @@ paganism.
 
 I'm also sanctified as I cooperate with the Holy Spirit in the process of sanctification - post-justification.
 
-54.43.3. Mid-2022 to mid-2023 was chaotic
+54.43.3. I also affirm justification by works of faith done by grace [alone], not just 'faith alone' because I
+affirm Romans 4:9-12 which says its both groups, and also Hebrews 11 confirms
+
+  Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
+  was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
+  circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of
+  the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father
+  of all who believe without being circumcised, so that righteousness would be counted to them as well, and to
+  make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the
+  faith that our father Abraham had before he was circumcised.
+
+The ones who adhere to the Law (i.e. the true circumcision) should also walk in steps of faith that Abraham had
+before he was circumcised. I believe in this type of 'merit' if you would call it merit. In reality these works of
+faith type salvation is still 'grace alone'.
+
+  Hebrews 11:2 - For by it the people of old received their commendation. (ESV)
+
+  Hebrews 11:4 - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was
+  commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
+  still speaks. (ESV)
+
+  Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
+  that he exists and that he rewards those who seek him. (ESV)
+
+  Hebrews 11:7 - By faith Noah, being warned by God concerning events as yet unseen, in reverent fear constructed
+  an ark for the saving of his household. By this he condemned the world and became an heir of the righteousness
+  that comes by faith. (ESV)
+
+  Genesis 6:7-9 - So the LORD said, I will blot out man whom I have created from the face of the land, man and
+  animals and creeping things and birds of the heavens, for I am sorry that I have made them. But Noah found favor
+  in the eyes of the LORD. These are the generations of Noah. Noah was a righteous man, blameless in his
+  generation. Noah walked with God. (ESV)
+
+  Luke 19:8-9 - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor.
+  And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has
+  come to this house, since he also is a son of Abraham. (ESV)
+
+54.43.4. Mid-2022 to mid-2023 was chaotic
 
 - I was saved when I was spiritually dead as an act of pure grace - like a plane on the verge of crashing to the
 ground, I was born-again at one of the lowest (perhaps the lowest) points in my life.
@@ -36529,7 +36782,7 @@ Obeying Jesus is very important:
 Song
 youtube.com: Charity Gayle - Thank You Jesus for the Blood {Live}
 
-54.43.4. An obedient/loving response to Jesus, I think is extremely important
+54.43.5. An obedient/loving response to Jesus, I think is extremely important
 
 I believe it's necessary that we should have a loving response to Jesus, and an obedient response to Jesus. Is
 that preaching justification through my own works or my own effort? No, I don't think so.
@@ -36538,7 +36791,7 @@ The obediently loving response to Jesus after being born-again of the spirit is 
 others (forgive others as we have been forgiven), die to the selfish nature and learn to walk in Jesus'
 commandments.
 
-54.43.5. But I believe the grace is a free gift from God.
+54.43.6. But I believe the grace is a free gift from God.
 
 Jesus is so generous that He saves people who turn out to be unthankful, but we should definitely love Jesus as a
 response. This story should be taken not only to see how Good God is, but also taken as a warning against
@@ -39683,9 +39936,9 @@ Following Jesus:
   sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on
   the just and on the unjust. (ESV)
 
-  Didache 1 - ... Bless those who curse you, and pray for your enemies, and fast for those who persecute you. For
-  what reward is there for loving those who love you? Do not the Gentiles do the same? But love those who hate
-  you, and you shall not have an enemy. ...
+  Didache Chapter 1 - ... Bless those who curse you, and pray for your enemies, and fast for those who persecute
+  you. For what reward is there for loving those who love you? Do not the Gentiles do the same? But love those who
+  hate you, and you shall not have an enemy. ...
 
   Matthew 5:48 - You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
@@ -39809,14 +40062,14 @@ We should fast to seek the LORD and we should fast together for a common purpose
   II Chronicles 20:3 - Then Jehoshaphat was afraid and set his face to seek the LORD, and proclaimed a fast
   throughout all Judah. (ESV)
 
-  Didache 7 - ... But before the baptism let the baptizer fast, and the baptized, and whoever else can; but you
-  shall order the baptized to fast one or two days before.
+  Didache Chapter 7 - ... But before the baptism let the baptizer fast, and the baptized, and whoever else can; but
+  you shall order the baptized to fast one or two days before.
 
 We should even fast for the sake of others:
 
-  Didache 1 - ... Bless those who curse you, and pray for your enemies, and fast for those who persecute you. For
-  what reward is there for loving those who love you? Do not the Gentiles do the same? But love those who hate
-  you, and you shall not have an enemy. ...
+  Didache Chapter 1 - ... Bless those who curse you, and pray for your enemies, and fast for those who persecute
+  you. For what reward is there for loving those who love you? Do not the Gentiles do the same? But love those who
+  hate you, and you shall not have an enemy. ...
 
   Ezra 10:6 - Then Ezra withdrew from before the house of God and went to the chamber of Jehohanan the son of
   Eliashib, where he spent the night, neither eating bread nor drinking water, for he was mourning over the
@@ -42397,8 +42650,8 @@ I think this really clears things up a little bit:
 
 Jesus came in Father God's name:
 
-  John 5:43 - I have come in my Father's name, and you do not receive me. If another comes in his own name, you
-  will receive him. (ESV)
+  John 5:43 - I have come in my Father's name (onomati), and you do not receive me. If another comes in his own
+  name, you will receive him. (ESV)
 
   John 10:25 - Jesus answered them, I told you, and you do not believe. The works that I do in my Father's name
   bear witness about me,
@@ -44711,7 +44964,7 @@ Jesus commands us to love our enemies:
 
 But they were never my enemies because I never considered them my enemy. I will always love them:
 
-  Didache 1 - ... But love those who hate you, and you shall not have an enemy. ...
+  Didache Chapter 1 - ... But love those who hate you, and you shall not have an enemy. ...
 
 After I was born-again I decided that Jesus was the most important thing and I began following Jesus, and learning
 to live by Christ's law.
@@ -46513,11 +46766,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-05 Thu 00:00
+Date: 2024-09-06 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-05 Thu 16:18
+Created: 2024-09-06 Fri 13:41
 
 Validate
 
