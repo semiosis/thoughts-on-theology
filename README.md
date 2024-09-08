@@ -303,6 +303,10 @@ Yes, Jesus has set us free, but it's to serve God by serving Christ. We are free
 
 > **[Galatians 5:1](https://www.biblegateway.com/passage/?search=Galatians%205%3A1&version=ESV)** - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery. (ESV)
 
+> **[Daniel 7:27](https://www.biblegateway.com/passage/?search=Daniel%207%3A27&version=ESV)** - Then the sovereignty, the dominion and the greatness of all the kingdoms under the whole heaven will be given to the people of the saints of the Highest One; <ins>His kingdom will be an everlasting kingdom, and all the dominions will **serve and obey** Him.’</ins> (NASB)
+
+-   **Song:** [youtube.com: Satellite - Let Freedom Ring {Live at Eastercamp 2013}](https://www.youtube.com/watch?v=vUtaowMgCf4)
+
 Slaves worship idols. Christians obey God, and in obeying God we are free. We love God and trust God and love Jesus and follow Jesus:
 
 > **[Exodus 20:2-3](https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&version=ESV)** - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)
@@ -449,10 +453,52 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 > **[Ezekiel 36:25-27](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-27&version=ESV)** - I will sprinkle clean water on you, and you shall be clean from all your uncleannesses, and from all your idols I will cleanse you. And I will give you a new heart, and a new spirit I will put within you. And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my Spirit within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
 
+A short version of my testimony of being born-again and Jesus setting me free:
+
+-   Baptised as a teenager in Vanuatu in 2005
+-   I've been writing software since then
+-   Life had been hard. I was a slave to the world, to sin and was in darkness (I could only see the world, and didn't have a love for God)
+    -   I was a hopeless case. I was chained to my desk
+    -   I was full of guilt, and I had so much shame and life has always been difficult
+    -   I didn't have much love for Jesus. I struggled to believe He was for-me.
+    -   My priorities were not in order. God wasn't my number one love or treasure
+-   I began seeking God out, particularly in the second half of 2020, and began having bolder faith in Jesus
+    -   [web.archive.org mullikine.github.io: Prayer // Bodacious Blog](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/prayer/)
+    -   trying to follow God's commandments from the heart, accountable to God, and getting more confident talking about God
+    -   began taking steps of faith, believing in God and standing up for what I considered good and condemning what I considered evil
+    -   It seems that God was working in my life
+    -   I think God was working in my heart, making a new heart for me
+    -   I had begun seeking God, but I still needed God to rescue me from darkness:
+        -   **Psalms 14:2-3** - The LORD looks down from heaven on the children of man, to see if there are any who understand, who seek after God. They have all turned aside; together they have become corrupt; there is none who does good, not even one. (ESV)
+-   I started researching AI fiction in 2021, invested in the Aletheia AI crypto with their Noah's Ark project for preserving personalities on the block chain
+    -   I was building [Pen.el](https://github.com/semiosis/pen.el/). Initially the software was
+        -   to insulate myself against AI fiction, and
+        -   to inform people about what was coming around the corner
+        -   as a labour of love for the person I really like
+        -   It was like an 'Ark'
+            -   However, I wouldn't say I was instructed to build it as Noah was, but I thought it was more important for the world for me to do good than for me to get paid work, and as I did this I was saying on Reddit, etc. that people should not use this AI  large language model stuff to rule like gods over others
+            -   [Hebrews 11:7](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A7&version=ESV)
+-   I got born-again of the Spirit on [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/)
+    -   I woke up to observing my regenerated 'spirit-man' and called out to Jesus in this spirit body saying I didn't know what was going on but asking him to save me
+    -   I found out recently this was the 1st day of Nisan
+    -   <https://www.jhiblog.org/2017/05/29/the-first-of-nisan-the-forgotten-jewish-new-year/>
+-   I put down the AI stuff and began pursuing God full-time
+    -   I wrote about God's law written on my heart, for example:
+    -   [web.archive.org mullikine.github.io: The Tapestry of Truth // Bodacious Blog](https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/)
+-   I had an [immersive vision of healing people with compassion](https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/) soon after, just 2-3 weeks before Pentecost that year
+
+I'll also add Geoff Winter's testimony:
+
+-   [youtube.com: Testimony of Geoff Winter, 2017](https://www.youtube.com/watch?v=a62axv-oNQc)
+
+> **[Romans 10:12-13](https://www.biblegateway.com/passage/?search=Romans%2010%3A12-13&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him. For everyone who calls on the name of the Lord will be saved. (ESV)
+
+AMEN!!
+
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8dc118b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4f3a802) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11553,7 +11599,70 @@ This is what we must come to know in truth - that Jesus came from Father God, an
     
     > **[Hebrews 5:7-10](https://www.biblegateway.com/passage/?search=Hebrews%205%3A7-10&version=ESV)** - In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and tears, to him who was able to save him from death, and he was heard because of his reverence. <ins>Although he was a son, he learned obedience through what he suffered.</ins> And being made perfect, he became the source of eternal salvation to all who obey him, being designated by God a high priest after the order of Melchizedek.
 
-2.  Become what we are by identity - put to death the old leaven
+2.  Identity in Christ
+
+    -   I am a child of God, a born-again son of the Most-High God.
+        -   **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+    -   I have been bought with the precious blood of Jesus Christ, God's Only-Begotten Son, redeemed out of the hand of the enemy and called to be seated in heavenly places with Christ Jesus.
+        -   **[I Peter 1:19](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A19&version=ESV)** - but with the precious blood of Christ, like that of a lamb without blemish or spot. (ESV)
+        -   **[Psalms 107:2-3](https://www.biblegateway.com/passage/?search=Psalms%20107%3A2-3&version=ESV)** - Let the redeemed of the LORD say so, whom he has redeemed from trouble and gathered in from the lands, from the east and from the west, from the north and from the south. (ESV)
+        -   **[Ephesians 2:6](https://www.biblegateway.com/passage/?search=Ephesians%202%3A6&version=ESV)** - and raised us up with him and seated us with him in the heavenly places in Christ Jesus, (ESV)
+    -   I have been born-again, not with corruptible seed, but with the incorruptible seed of the word of God and the washing of regeneration by the Holy Spirit.
+        -   **[Psalms 106:10](https://www.biblegateway.com/passage/?search=Psalms%20106%3A10&version=ESV)** - So he saved them from the hand of the foe and redeemed them from the power of the enemy. (ESV)
+    -   I can do all things through Christ who strengthens me.
+        -   **[Philippians 4:13](https://www.biblegateway.com/passage/?search=Philippians%204%3A13&version=ESV)** - I can do all things through him who strengthens me. (ESV)
+    -   The same Holy Spirit that raised Jesus from the dead lives in me and greater is He that is in my than he that is in the world.
+        -   **[Romans 8:11](https://www.biblegateway.com/passage/?search=Romans%208%3A11&version=ESV)** - If the Spirit of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you. (ESV)
+    -   I am more than a conqueror through Christ Jesus who loved me and gave His life for me, and how much more all things also will God graciously give me having delivered His Son up for us all.
+        -   **[Romans 8:37](https://www.biblegateway.com/passage/?search=Romans%208%3A37&version=ESV)** - No, in all these things we are more than conquerors through him who loved us. (ESV)
+        -   **[Matthew 7:11](https://www.biblegateway.com/passage/?search=Matthew%207%3A11&version=ESV)** - If you then, who are evil, know how to give good gifts to your children, how much more will your Father who is in heaven give good things to those who ask him! (ESV)
+        -   **[Romans 8:32](https://www.biblegateway.com/passage/?search=Romans%208%3A32&version=ESV)** - He who did not spare his own Son but gave him up for us all, how will he not also with him graciously give us all things? (ESV)
+    -   I have a new heart, and my desires are for the things of God
+        -   **[Ezekiel 36:26](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A26&version=ESV)** - And I will give you a new heart, and a new spirit I will put within you. And I will remove the heart of stone from your flesh and give you a heart of flesh. (ESV)
+    -   I love the word of God; I love the Holy Spirit
+        -   **[Psalms 119:97](https://www.biblegateway.com/passage/?search=Psalms%20119%3A97&version=ESV)** - Oh how I love your law! It is my meditation all the day. (ESV)
+        -   I like meditating on Jesus' name and the truths in this song:
+            -   [youtube.com: Rend Collective - YOUR NAME IS POWER {Official Video}](https://www.youtube.com/watch?v=sqAmWSfRUqM)
+        -   **[Romans 5:5](https://www.biblegateway.com/passage/?search=Romans%205%3A5&version=ESV)** - and hope does not put us to shame, because God's love has been poured into our hearts through the Holy Spirit who has been given to us. (ESV)
+        -   **[I John 4:10](https://www.biblegateway.com/passage/?search=1%20John%204%3A10&version=ESV)** - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. (ESV)
+        -   **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
+    -   I love prayer and the disciplines of God that make a vessel of honour for the Lord Jesus and for His mighty good works.
+        -   **[Romans 12:1](https://www.biblegateway.com/passage/?search=Romans%2012%3A1&version=ESV)** - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
+        -   **[I Peter 3:15-17](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A15-17&version=ESV)** - but in your hearts regard Christ the Lord as holy, always being prepared to make a defense to anyone who asks you for a reason for the hope that is in you; yet do it with gentleness and respect, having a good conscience, so that, when you are slandered, those who revile your good behavior in Christ may be put to shame. For it is better to suffer for doing good, if that should be God's will, than for doing evil. (ESV)
+        -   **[Luke 9:26](https://www.biblegateway.com/passage/?search=Luke%209%3A26&version=ESV)** - For whoever is ashamed of me and of my words, of him will the Son of Man be ashamed when he comes in his glory and the glory of the Father and of the holy angels. (ESV)
+        -   **[Acts 3:12](https://www.biblegateway.com/passage/?search=Acts%203%3A12&version=ESV)** - And when Peter saw it he addressed the people: Men of Israel, why do you wonder at this, or why do you stare at us, as though by our own power or piety we have made him walk? (ESV)
+    -   I have been joined to the Lord and I am one spirit with Him.
+        -   **[I Corinthians 6:17](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A17&version=ESV)** - But he who is joined to the Lord becomes one spirit with him. (ESV)
+    -   I am able to fast. I am able to put down my idols. I am able to make time for God
+        -   **[Daniel 10:3](https://www.biblegateway.com/passage/?search=Daniel%2010%3A3&version=ESV)** - I ate no delicacies, no meat or wine entered my mouth, nor did I anoint myself at all, for the full three weeks. (ESV)
+        -   **[Daniel 1:8](https://www.biblegateway.com/passage/?search=Daniel%201%3A8&version=ESV)** - But Daniel resolved that he would not defile himself with the king's food, or with the wine that he drank. Therefore he asked the chief of the eunuchs to allow him not to defile himself. (ESV)
+        -   **[Matthew 6:16-18](https://www.biblegateway.com/passage/?search=Matthew%206%3A16-18&version=ESV)** - And when you fast, do not look gloomy like the hypocrites, for they disfigure their faces that their fasting may be seen by others. Truly, I say to you, they have received their reward. But when you fast, anoint your head and wash your face, that your fasting may not be seen by others but by your Father who is in secret. And your Father who sees in secret will reward you. (ESV)
+        -   **[I Samuel 7:6](https://www.biblegateway.com/passage/?search=1%20Samuel%207%3A6&version=ESV)** - So they gathered at Mizpah and drew water and poured it out before the LORD and fasted on that day and said there, We have sinned against the LORD. And Samuel judged the people of Israel at Mizpah. (ESV)
+        -   <https://www.ligonier.org/guides/fasting>
+        -   **[Luke 10:38-42](https://www.biblegateway.com/passage/?search=Luke%2010%3A38-42&version=ESV)** - Now as they went on their way, Jesus entered a village. And a woman named Martha welcomed him into her house. And she had a sister called Mary, who sat at the Lord's feet and listened to his teaching. But Martha was distracted with much serving. And she went up to him and said, Lord, do you not care that my sister has left me to serve alone? Tell her then to help me. But the Lord answered her, Martha, Martha, you are anxious and troubled about many things, but one thing is necessary. Mary has chosen the good portion, which will not be taken away from her. (ESV)
+        -   **[Ecclesiastes 3:11](https://www.biblegateway.com/passage/?search=Ecclesiastes%203%3A11&version=ESV)** - He has made everything beautiful in its time. Also, he has put eternity into man's heart, yet so that he cannot find out what God has done from the beginning to the end. (ESV)
+    -   He has anointed me with the Holy Spirit and with power, and I go around doing good and healing [all] that are oppressed of the devil, and surely no weapon formed against me shall prosper as I walk in obedience to His word and will.
+        -   **[Titus 2:14](https://www.biblegateway.com/passage/?search=Titus%202%3A14&version=ESV)** - who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works. (ESV)
+    -   I am complete/made complete in Christ and if God is for me who can be against me?
+        -   **[Colossians 2:9-10](https://www.biblegateway.com/passage/?search=Colossians%202%3A9-10&version=ESV)** - For in him the whole fullness of deity dwells bodily, and you have been filled in him, who is the head of all rule and authority. (ESV)
+        -   **[Colossians 2:9-10](https://www.biblegateway.com/passage/?search=Colossians%202%3A9-10&version=ESV)** - For in Him all the fullness of Deity dwells in bodily form, and in Him you have been made complete, and He is the head over all rule and authority; (NASB)
+        -   **[Romans 8:31](https://www.biblegateway.com/passage/?search=Romans%208%3A31&version=ESV)** - What then shall we say to these things? If God is for us, who can be against us? (ESV)
+    -   God leads me in triumph in everything through Christ Jesus my Lord, God and Saviour.
+        -   **[II Corinthians 2:14](https://www.biblegateway.com/passage/?search=2%20Corinthians%202%3A14&version=ESV)** - But thanks be to God, who in Christ always leads us in triumphal procession, and through us spreads the fragrance of the knowledge of him everywhere. (ESV)
+    -   The favour of God opens doors of prosperity and promise ahead of me and the blessings of God chase me down as I serve Him in obedience.
+        -   **[Job 36:11](https://www.biblegateway.com/passage/?search=Job%2036%3A11&version=ESV)** - If they listen and serve him, they complete their days in prosperity, and their years in pleasantness. (ESV)
+        -   **[Psalms 34:22](https://www.biblegateway.com/passage/?search=Psalms%2034%3A22&version=ESV)** - The LORD redeems the life of his servants; none of those who take refuge in him will be condemned. (ESV)
+    -   I am anointed to preach the gospel of good news, how God has made a way through the death, burial and resurrection of Jesus Christ and His blood, to deliver me from destruction and the power of sin and my sinful nature and has translated me into the kingdom of God and His love where He has loved me first and bought me so that I can now serve Him, obey Him and be zealous for good works
+        -   **[Mark 16:15](https://www.biblegateway.com/passage/?search=Mark%2016%3A15&version=ESV)** - And he said to them, Go into all the world and proclaim the gospel to the whole creation. (ESV)
+        -   **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=ESV)** - teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
+    -   I choose to worship Him in spirit and in truth, and I will continually offer up the sacrifices of praise and thanksgiving as I recognise Jesus Christ as my Lord, God and Saviour
+        -   **[John 4:23-24](https://www.biblegateway.com/passage/?search=John%204%3A23-24&version=ESV)** - But the hour is coming, and is now here, when the true worshipers will worship the Father in spirit and truth, for the Father is seeking such people to worship him. God is spirit, and those who worship him must worship in spirit and truth. (ESV)
+        -   **[Psalms 59:17](https://www.biblegateway.com/passage/?search=Psalms%2059%3A17&version=ESV)** - O my Strength, I will sing praises to you, for you, O God, are my fortress, the God who shows me steadfast love. (ESV)
+    -   I can do all things through Christ who strengthens me!
+        -   **[Philippians 4:13](https://www.biblegateway.com/passage/?search=Philippians%204%3A13&version=ESV)** - I can do all things through him who strengthens me. (ESV)
+    -   AMEN!!
+
+3.  Become what we are by identity - put to death the old leaven
 
     After being born-again and placed into Christ, we must put to death the old leaven. We consider ourselves dead to sin and alive from the dead.
     
@@ -12522,7 +12631,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org38e8347)
+See: [33.4.1](#orgccf7ac9)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -18767,12 +18876,23 @@ I believe there is a strong emphasis on continued belief, and becoming a bondser
 > **[I Corinthians 14:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A19&version=ESV)** - Nevertheless, in church I would rather speak five words with my mind in order to instruct others, than ten thousand words in a tongue.
 
 
-## Speaking in tongues speaks to God
+## The utterance of tongues is given by the Spirit
+
+> **[Acts 2:4](https://www.biblegateway.com/passage/?search=Acts%202%3A4&version=ESV)** - And they were all filled with the Holy Spirit and began to speak in other tongues as the Spirit gave them utterance. (ESV)
+
+
+## This type of tongues is for communicating with one another - like a "babel-fish" - when people speak, people hear them speak in their language
+
+It breaks down language barriers.
+
+> **[Acts 2:6-11](https://www.biblegateway.com/passage/?search=Acts%202%3A6-11&version=ESV)** - And at this sound the multitude came together, and they were bewildered, because each one was hearing them speak in his own language. And they were amazed and astonished, saying, Are not all these who are speaking Galileans? And how is it that we hear, each of us in his own native language? Parthians and Medes and Elamites and residents of Mesopotamia, Judea and Cappadocia, Pontus and Asia, Phrygia and Pamphylia, Egypt and the parts of Libya belonging to Cyrene, and visitors from Rome, both Jews and proselytes, Cretans and Arabians—we hear them telling in our own tongues the mighty works of God. (ESV)
+
+
+## This type of tongues is for speaking to God
 
 > **[I Corinthians 14:2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A2&version=ESV)** - For one who speaks in a tongue speaks not to men but to God; for no one understands him, but he utters mysteries in the Spirit.
 
-
-## The spirit prays when a person prays in tongues
+The spirit prays when a person prays in tongues to God.
 
 > **[I Corinthians 14:2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A2&version=ESV)** - For one who speaks in a tongue speaks not to men but to God; for no one understands him, but he utters mysteries in the Spirit.
 
@@ -25720,7 +25840,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org38e8347)
+See: [33.4.1](#orgccf7ac9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -32972,6 +33092,8 @@ Jesus is not ashamed to call brothers [and sisters] those who are cleaned up and
     33  αὐτοῦ     φῶς  ,
     34  of Him    light
     35  PPro-GM3S N-ANS
+
+> **[Revelation of John 3:18-21](https://www.biblegateway.com/passage/?search=Revelation%203%3A18-21&version=ESV)** - I counsel you to buy from me gold refined by fire, so that you may be rich, and white garments so that you may clothe yourself and the shame of your nakedness may not be seen, and salve to anoint your eyes, so that you may see. **Those whom I love, I reprove and discipline, so be zealous and repent.** Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. **The one who conquers, I will grant him to sit with me on my throne, as I also conquered and sat down with my Father on his throne.** (ESV)
 
 
 # AMEN!!
