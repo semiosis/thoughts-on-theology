@@ -213,7 +213,7 @@ a trust of God in the heart. So our faith should be based on hope that is based 
 truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
 
 When we trust in the name (onoma) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts
-in Jesus receives forgiveness of sins th through His name:
+in Jesus receives forgiveness of sins through His name:
 
   Acts 10:43-45 - To him all the prophets bear witness that everyone who believes in him receives forgiveness of
   sins through his name. While Peter was still saying these things, the Holy Spirit fell on all who heard the
@@ -21154,7 +21154,42 @@ Conditions:
  7. Forgive others
  8. Expel - breathe out
 
-18.10.1. We can rebuke the devil with Jesus' authority
+18.10.1. Good songs for getting rid of demons (speak the lyrics in your head or out loud, especially say them in
+your heart)
+
+The Biblical basis for this:
+
+  Proverbs 4:23 - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
+
+  Proverbs 23:7 - For as he thinks within himself, so he is. He says to you, "Eat and drink!" But his heart is not
+  with you. (NASB)
+
+When I come under spiritual attack, I think through the lyrics to these songs in my mind and believe them, and
+this seems to make the attack stop:
+
+- youtube.com: Charity Gayle - I Speak Jesus {feat. Steven Musso} Live
+- multitracks.com: I Speak Jesus by Charity Gayle | MultiTracks.com
+- I just want to speak the name of Jesus till every dark addiction Starts to break, declaring there is
+hope and there is freedom. I speak Jesus
+- youtube.com: Nothing But the Blood {Hymn} - Victory Worship, AWAKE84
+- hymnal.net: Hymn: What can wash away my sin
+- What can wash away my sin? Nothing but the blood of Jesus; What can make me whole again? Nothing but
+the blood of Jesus.
+- youtube.com: Jesus Christ Is Lord Reprise
+- genius.com: Paul Wilbur - Jesus Christ Is Lord {Reprise} Lyrics | Genius Lyrics
+- Yeshua is Lord. His blood has overcome the enemy of our soul
+
+I also put on a piece of paper over my body like this:
+
+|  Heavenly Father,
+|  deliver me please and ... please in Jesus Christ's name I ask,
+|  AMEN!!
+|  Deliver me from these harassing spirits in Jesus Christ's name I ask. AMEN!!
+| 
+|  I rebuke those harassing spirits in Jesus Christ's name.
+|  I rebuke the spirits of ... and ... in Jesus Chrits's name.
+
+18.10.2. We can rebuke the devil with Jesus' authority
 
 youtube.com: Should We Ever Speak Directly to the Devil?
 
@@ -21179,11 +21214,11 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
 
   Mark 1:25 - But Jesus rebuked him, saying, Be silent, and come out of him! (ESV)
 
-18.10.2. Demons are not rare
+18.10.3. Demons are not rare
 
   Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
 
-18.10.3. Demons consider a persons' body their home
+18.10.4. Demons consider a persons' body their home
 
 - Sinful thoughts/behaviour attracts demons.
 
@@ -21193,7 +21228,7 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
   and they enter and dwell there, and the last state of that person is worse than the first. So also will it be
   with this evil generation. (ESV)
 
-18.10.4. Renounce the ungodliness
+18.10.5. Renounce the ungodliness
 
   Titus 2:11-14 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
   ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
@@ -21201,14 +21236,14 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
   himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
   are zealous for good works. (ESV)
 
-18.10.5. This demon came out within the hour
+18.10.6. This demon came out within the hour
 
 It's often not instantaneous.
 
   Acts 16:18 - And this she kept doing for many days. Paul, having become greatly annoyed, turned and said to the
   spirit, I command you in the name of Jesus Christ to come out of her. And it came out that very hour. (ESV)
 
-18.10.6. This demon was resistant
+18.10.7. This demon was resistant
 
 After already commanding the unclean spirit to come out of the man, the unclean spirit resisted and then Jesus
 asked the demon its name.
@@ -21232,7 +21267,7 @@ the demon its name.
   spirits came out, and entered the pigs, and the herd, numbering about two thousand, rushed down the steep bank
   into the sea and were drowned in the sea. (ESV)
 
-18.10.7. All believers can cast out demons
+18.10.8. All believers can cast out demons
 
   Mark 16:17 - And these signs will accompany those who believe: in my name they will cast out demons; they will
   speak in new tongues; (ESV)
@@ -21240,7 +21275,7 @@ the demon its name.
   Luke 10:19 - Behold, I have given you authority to tread on serpents and scorpions, and over all the power of
   the enemy, and nothing shall hurt you. (ESV)
 
-18.10.8. We must be spiritually-minded, not earthly-minded
+18.10.9. We must be spiritually-minded, not earthly-minded
 
   I Corinthians 2:14 - The natural person does not accept the things of the Spirit of God, for they are folly to
   him, and he is not able to understand them because they are spiritually discerned. (ESV)
@@ -21250,7 +21285,7 @@ the demon its name.
 
   James 2:26 - For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
 
-18.10.9. Exorcism prayer by Derek Prince
+18.10.10. Exorcism prayer by Derek Prince
 
 Jesus' sacrifice outside Jerusalem is so that we might be sanctified through His own blood and come into
 Jerusalem. I still think that there's nothing wrong with bearing the reproach Jesus endured - in fact it's
@@ -21364,7 +21399,7 @@ encouraged. I think we bear His reproach in order to be sanctified and then call
 |  
 |   Now expel it. Exhale, cough it out.
 
-18.10.10. Prayer by Isaiah Saldivar
+18.10.11. Prayer by Isaiah Saldivar
 
 youtube.com: Mass Deliverance Prayer - If You Need Deliverance, Watch This! {Day 3 of 7}
 
@@ -47213,7 +47248,7 @@ Date: 2024-09-11 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-11 Wed 14:43
+Created: 2024-09-11 Wed 15:12
 
 Validate
 

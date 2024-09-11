@@ -141,7 +141,7 @@ When we are living in faith in God for His promises we are living in an obedient
 
 Our faith should be in God and our hope should be for God's promises. God has spoken a lot already in the Scriptures and about how we should listen to Jesus. Saving faith trusts God. Both belief and obedience come out of a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
 
-When we trust in the name (**[onoma](https://biblehub.com/greek/3686.htm)**) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts in Jesus receives forgiveness of sins th through His name:
+When we trust in the name (**[onoma](https://biblehub.com/greek/3686.htm)**) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts in Jesus receives forgiveness of sins through His name:
 
 > **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that everyone who believes in him receives forgiveness of sins through his name. While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
 
@@ -498,7 +498,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org265fa7b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org814ac48) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12707,7 +12707,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org51f79a4)
+See: [33.4.1](#org6823dcf)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14271,6 +14271,37 @@ Conditions:
 6.  Break with all occult, curses and secret societies
 7.  Forgive others
 8.  Expel - breathe out
+
+
+### Good songs for getting rid of demons (speak the lyrics in your head or out loud, especially say them in your heart)
+
+The Biblical basis for this:
+
+> **[Proverbs 4:23](https://www.biblegateway.com/passage/?search=Proverbs%204%3A23&version=ESV)** - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
+
+> **[Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs%2023%3A7&version=ESV)** - For as he thinks within himself, so he is. He says to you, “Eat and drink!” But his heart is not with you. (NASB)
+
+When I come under spiritual attack, I think through the lyrics to these songs in my mind and believe them, and this seems to make the attack stop:
+
+-   [youtube.com: Charity Gayle - I Speak Jesus {feat. Steven Musso}  Live ](https://www.youtube.com/watch?v=PcmqSfr1ENY)
+    -   [multitracks.com: I Speak Jesus by Charity Gayle | MultiTracks.com](https://www.multitracks.com/songs/Charity-Gayle/Endless-Praise/I-Speak-Jesus/)
+        -   I just want to speak the name of Jesus till every dark addiction Starts to break, declaring there is hope and there is freedom.  I speak Jesus
+-   [youtube.com: Nothing But the Blood {Hymn} - Victory Worship, AWAKE84](https://www.youtube.com/watch?v=qKIFW6yMhuM)
+    -   [hymnal.net: Hymn: What can wash away my sin](https://www.hymnal.net/en/hymn/h/1008)
+        -   What can wash away my sin?  Nothing but the blood of Jesus; What can make me whole again?  Nothing but the blood of Jesus.
+-   [youtube.com: Jesus Christ Is Lord  Reprise ](https://www.youtube.com/watch?v=PAe1gM7DrFo)
+    -   [genius.com: Paul Wilbur - Jesus Christ Is Lord {Reprise} Lyrics | Genius Lyrics](https://genius.com/Paul-wilbur-jesus-christ-is-lord-reprise-lyrics)
+        -   Yeshua is Lord. His blood has overcome the enemy of our soul
+
+I also put on a piece of paper over my body like this:
+
+    1  Heavenly Father,
+    2  deliver me please and ... please in Jesus Christ's name I ask,
+    3  AMEN!!
+    4  Deliver me from these harassing spirits in Jesus Christ's name I ask. AMEN!!
+    5  
+    6  I rebuke those harassing spirits in Jesus Christ's name.
+    7  I rebuke the spirits of ... and ... in Jesus Chrits's name.
 
 
 ### We can rebuke the devil with Jesus' authority
@@ -25960,7 +25991,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org51f79a4)
+See: [33.4.1](#org6823dcf)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
