@@ -143,7 +143,7 @@ Our faith should be in God and our hope should be for God's promises. God has sp
 
 When we trust in the name (**[onoma](https://biblehub.com/greek/3686.htm)**) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts in Jesus receives forgiveness of sins through His name:
 
-> **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that everyone who believes in him receives forgiveness of sins through his name. While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
+> **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
 
 The Apostle Paul was obedient to God. This is Paul exercising his faith in God through obedience. Also, this was obedience to a heavenly vision - a vision in which Jesus was confessed (**[I John 4:3](https://www.biblegateway.com/passage/?search=1%20John%204%3A3&version=ESV)**) - and it was a truthful vision that is in accordance with the gospel which the earlier Apostles were teaching:
 
@@ -498,7 +498,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org814ac48) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org255a396) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -515,6 +515,8 @@ The general order of salvation from what I can dilvulge from **Acts 26** and **A
 -   Turn from darkness to light
     -   They believe the truth, and place their faith in Jesus
         -   **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+    -   They believe in / trust in Jesus Christ's name
+        -   **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
     -   They become trusting to God, believing and obedient
         -   **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
         -   **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going. (ESV)
@@ -12707,7 +12709,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6823dcf)
+See: [33.4.1](#org11a3036)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -18678,7 +18680,7 @@ Salvation is received by faith - which necessitates an obedient heart:
 
 Faith receives - believing in Him is <ins>having faith</ins> in Him - trusting Him:
 
-> **[Acts 10:41-44](https://www.biblegateway.com/passage/?search=Acts%2010%3A41-44&version=ESV)** - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one appointed by God to be judge of the living and the dead. To him all the prophets bear witness that everyone who believes in him receives forgiveness of sins through his name. While Peter was still saying these things, **the Holy Spirit** fell on all who heard the word. (ESV)
+> **[Acts 10:41-44](https://www.biblegateway.com/passage/?search=Acts%2010%3A41-44&version=ESV)** - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one appointed by God to be judge of the living and the dead. To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, **the Holy Spirit** fell on all who heard the word. (ESV)
 
 Although a gift, salvation must be asked for and sought after:
 
@@ -25857,7 +25859,7 @@ I affirm justification through faith alone by the imputed righteousness of havin
 trusting faith in Jesus (in the heart, without
 any work) for the finished work of the cross but I believe that this belief has
 to be qualified, and that God does the
-qualifying when He looks at the heart.
+qualifying when He looks at the heart. Amen.
 
 I think that a willingness to turn to obey Jesus in the
 heart is characteristic of a repentant heart,
@@ -25991,7 +25993,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6823dcf)
+See: [33.4.1](#org11a3036)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -28054,7 +28056,7 @@ If you love Jesus, keep His commandments. The one who keeps Jesus' commandments 
 
 Those who have testimony of Jesus should preach testify that he is the one appointed by God to be judge of the living and the dead:
 
-> **[Acts 10:41-44](https://www.biblegateway.com/passage/?search=Acts%2010%3A41-44&version=ESV)** - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one appointed by God to be judge of the living and the dead. To him all the prophets bear witness that everyone who believes in him receives forgiveness of sins through his name. While Peter was still saying these things, **the Holy Spirit** fell on all who heard the word. (ESV)
+> **[Acts 10:41-44](https://www.biblegateway.com/passage/?search=Acts%2010%3A41-44&version=ESV)** - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one appointed by God to be judge of the living and the dead. To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, **the Holy Spirit** fell on all who heard the word. (ESV)
 
 > **[Acts 13:47](https://www.biblegateway.com/passage/?search=Acts%2013%3A47&version=ESV)** - For so the Lord has commanded us, saying, I have made you a light for the Gentiles, that you may bring salvation to the ends of the earth.
 
@@ -33093,6 +33095,8 @@ God is not saving Lucifer/Satan/the devil or his demons/devils. They're all goin
 I'm a total believer in the rapture. In fact, I believe that a person can be raptured by faith. I really wouldn't mind being raptured today <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-18 Thu&gt;</span></span>. The world lost its luster for me, and that is a good thing actually:
 
 > **[Hebrews 11:5](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A5&version=ESV)** - By faith Enoch was taken up so that he should not see death, and he was not found, because God had taken him. Now before he was taken he was commended as having pleased God. (ESV)
+
+-   **[Andrae Crouch - Take Me Back](https://www.youtube.com/watch?v=EzxwLTNQKk0):** Take me back, dear Lord, where I first believed. I must confess, Lord, I've been blessed, But yet, my soul's not satisfied.  Renew my faith, restore my joy, Lord.
 
 Jesus is coming a second time to save those who are eagerly waiting for Him. AMEN!!:
 

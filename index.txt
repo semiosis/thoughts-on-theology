@@ -829,6 +829,11 @@ saved. (ESV)
 - Ephesians 1:13-14 - In him you also, when you heard the word of truth, the gospel of your salvation,
 and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our
 inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+- They believe in / trust in Jesus Christ's name
+- Acts 10:43-45 - To him all the prophets bear witness that everyone who believes in him receives
+forgiveness of sins through his name. While Peter was still saying these things, the Holy Spirit
+fell on all who heard the word. And the believers from among the circumcised who had come with Peter
+were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
 - They become trusting to God, believing and obedient
 - John 3:36 - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not
 see life, but the wrath of God remains on him. (ESV)
@@ -37141,7 +37146,7 @@ The saints of the Most High shall receive the kingdom and possess the kingdom fo
 
 I affirm justification through faith alone by the imputed righteousness of having trusting faith in Jesus (in the
 heart, without any work) for the finished work of the cross but I believe that this belief has to be qualified,
-and that God does the qualifying when He looks at the heart.
+and that God does the qualifying when He looks at the heart. Amen.
 
 I think that a willingness to turn to obey Jesus in the heart is characteristic of a repentant heart, and I think
 a willingness to turn away from evil and follow Jesus is an important step towards being born-again.
@@ -46807,6 +46812,10 @@ mind being raptured today <2024-07-18 Thu>. The world lost its luster for me, an
   Hebrews 11:5 - By faith Enoch was taken up so that he should not see death, and he was not found, because God
   had taken him. Now before he was taken he was commended as having pleased God. (ESV)
 
+Andrae Crouch - Take Me Back
+Take me back, dear Lord, where I first believed. I must confess, Lord, I've been blessed, But yet, my soul's not
+satisfied. Renew my faith, restore my joy, Lord.
+
 Jesus is coming a second time to save those who are eagerly waiting for Him. AMEN!!:
 
   Hebrews 9:27-28 - And just as it is appointed for man to die once, and after that comes judgment, so Christ,
@@ -47248,7 +47257,7 @@ Date: 2024-09-11 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-11 Wed 15:12
+Created: 2024-09-11 Wed 17:21
 
 Validate
 
