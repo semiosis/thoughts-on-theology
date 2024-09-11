@@ -498,7 +498,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org76b49ea) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org265fa7b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -5509,6 +5509,8 @@ The true believers follow Jesus. They are Jesus' sheep, and they keep His teachi
     -   [youtube.com: I trust in God !](https://www.youtube.com/watch?v=wkd5ouw380E)
     -   even for their justification
 -   hear Jesus' voice
+    -   [youtube.com: How to Hear God's Voice & Why You're Not Hearing Him ?](https://www.youtube.com/watch?v=rpSfcjgRCUw)
+    -   [desiringgod.org: The Morning I Heard the Voice of God | Desiring God](https://www.desiringgod.org/articles/the-morning-i-heard-the-voice-of-god)
 -   love Him
 -   follow Him (they're being obedient)
 -   Jesus knows them
@@ -11058,6 +11060,8 @@ I'm quite convinced that the substitutionary atonement is there to help us put a
 
 > **[II Corinthians 5:21](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21&version=ESV)** - For our sake he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
 
+> **[Revelation of John 3:1-5](https://www.biblegateway.com/passage/?search=Revelation%203%3A1-5&version=ESV)** - And to the angel of the church in Sardis write: The words of him who has the seven spirits of God and the seven stars. I know your works. You have the reputation of being alive, but you are dead. Wake up, and strengthen what remains and is about to die, for I have not found your works complete in the sight of my God. Remember, then, what you received and heard. Keep it, and repent. If you will not wake up, I will come like a thief, and you will not know at what hour I will come against you. Yet you have still a few names in Sardis, people who have not soiled their garments, and they will walk with me in white, for they are worthy. The one who conquers will be clothed thus in white garments, and I will never blot his name out of the book of life. I will confess his name before my Father and before his angels. (ESV)
+
 If people including free-grace Christians do not repent from sin, they may still receive the wrath of God, but I'm not the judge here:
 
 > **[Colossians 3:5-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A5-10&version=ESV)** - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. <ins>On account of these the wrath of God is coming.</ins> In these you too once walked, when you were living in them. But now you **must** put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge **after the image of its creator.**
@@ -11076,6 +11080,14 @@ If people including free-grace Christians do not repent from sin, they may still
     5   see GREEK for 2228
     6   see GREEK for 2229
     7   see GREEK for 1211
+
+God's still rewarding those who do good and bringing wrath to those who do evil:
+
+> **[Acts 10:4](https://www.biblegateway.com/passage/?search=Acts%2010%3A4&version=ESV)** - And he stared at him in terror and said, What is it, Lord? And he said to him, Your prayers and your alms have ascended as a memorial before God. (ESV)
+
+> **[Genesis 19:13](https://www.biblegateway.com/passage/?search=Genesis%2019%3A13&version=ESV)** - For we are about to destroy this place, because the outcry against its people has become great before the LORD, and the LORD has sent us to destroy it. (ESV)
+
+> **[Matthew 11:23](https://www.biblegateway.com/passage/?search=Matthew%2011%3A23&version=ESV)** - And you, Capernaum, will you be exalted to heaven? You will be brought down to Hades. For if the mighty works done in you had been done in Sodom, it would have remained until this day. (ESV)
 
 Do not be an enemy of the cross of Christ, submit to the righteousness of God - we needed Jehovah God, Father of Jesus Christ, to pay for our sin - and we must imitate Christ, passing forward Christ's love and forgiving as we have been forgiven, and repenting from sin:
 
@@ -12695,7 +12707,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1074c3e)
+See: [33.4.1](#org51f79a4)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -12979,7 +12991,9 @@ God rewards faith and may choose to reveal Himself after a while serving God in 
 ## Obedience belongs in faith
 
 -   Firstly, obedience is a heart attitude, so a person can have obedient faith without any work.
+    -   **[Psalms 119:34](https://www.biblegateway.com/passage/?search=Psalms%20119%3A34&version=ESV)** - Give me understanding, that I may keep your law and observe it with my whole heart. (ESV)
 -   Secondly, obedient action is nothing to boast about before God, because God commanded you to do it.
+    -   **[Romans 4:2](https://www.biblegateway.com/passage/?search=Romans%204%3A2&version=ESV)** - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
 -   Thirdly, "working for God" is as step beyond obedient action.
 
 In God's mercy He has shown us the Way to be reconciled with Him.
@@ -15711,6 +15725,16 @@ Our adversary, the accuser, is literally the devil and the devil working through
 Also, the summary of facts was conveniently changed when I made new appearances in court, and the judge spun huge amounts of slander against me in court, the slander then became international news. He'll have to answer to God for that. The whole thing was antichrist, so I simply made testimony of Jesus in court. There are other reasons a person pleads guilty, and one is that the person is abiding by Christ's law to do no harm against their neighbour, and another reason is to not put Christ to the test by claiming perfect innocence. I was born-again of Jesus' spirit in [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/), and subsequently charged with a conviction after making a marriage proposal, so the conviction now makes it now more difficult to love my neighbour because it's more difficult for me to provide financial assistance for my neighbour if it is more difficult to have a job thanks to having a conviction. Satan would happily like it if servants of Jesus are deprived of financial income and given a bad public image because then they're less able to help their neighbour or support themself and their family:
 
 > Jehovah God please grant us deliverance from this spirit of antichrist in Jesus Christ's name I ask.
+
+> **[I Corinthians 13:1-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A1-8&version=ESV)** - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver up my body to be burned, but have not love, I gain nothing. Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
+
+Love doesn't take into account wrongs suffered. I believe the NASB is more accurate on this than the NIV. Even if the NIV is right, I can't identify any specific thing the other side of court did wrong to me wrong prior to going to court, and if I could identify the specific wrongs I wouldn't impute them to them anyway. The entire thing felt out of control, and externally influenced by antichrist spirits:
+
+> **[I Corinthians 13:5](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A5&version=ESV)** - does not act unbecomingly; it does not seek its own, is not provoked, does not take into account (**logizetai**) a wrong suffered, (NASB)
+
+> **[I Corinthians 13:5](https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/1COR+13.html)** - It is not rude, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. (NIV)
+
+Whatever happened, I maintain there were external influences which resulted in going to court, and I give the benefit of the doubt that the other side of court were not directly responsible. I had certainly never considered them my adversaries.
 
 God will give ultimate justice for his servants:
 
@@ -25936,7 +25960,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1074c3e)
+See: [33.4.1](#org51f79a4)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
