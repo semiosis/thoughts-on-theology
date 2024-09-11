@@ -8144,6 +8144,27 @@ Here is another example where obeying Jesus led to belief:
   When Simon Peter heard that it was the Lord, he put on his outer garment, for he was stripped for work, and
   threw himself into the sea. (ESV)
 
+And another example where obedience to Jesus leads to belief:
+
+  Luke 5:4-8 - And when he had finished speaking, he said to Simon, Put out into the deep and let down your nets
+  for a catch. And Simon answered, Master, we toiled all night and took nothing! But at your word I will let down
+  the nets. And when they had done this, they enclosed a large number of fish, and their nets were breaking. They
+  signaled to their partners in the other boat to come and help them. And they came and filled both the boats, so
+  that they began to sink. But when Simon Peter saw it, he fell down at Jesus' knees, saying, Depart from me, for
+  I am a sinful man, O Lord. (ESV)
+
+youtube.com: Devotions with DeMarcus - Luke 5
+
+Obeying Jesus and witnessing His glory should brings us to faith in Him. Obeying Jesus should lead us to seeing
+His glory and an understanding:
+
+  Mark 8:17-21 - And Jesus, aware of this, said to them, Why are you discussing the fact that you have no bread?
+  Do you not yet perceive or understand? Are your hearts hardened? Having eyes do you not see, and having ears do
+  you not hear? And do you not remember? When I broke the five loaves for the five thousand, how many baskets full
+  of broken pieces did you take up? They said to him, Twelve. And the seven for the four thousand, how many
+  baskets full of broken pieces did you take up? And they said to him, Seven. And he said to them, Do you not yet
+  understand? (ESV)
+
 Learning to trust in Jesus, learning to trust Jesus, as we obey Him and witness His glory, and come to trust in
 Him, to believe in Him. Obedience to Jesus leads to witnessing His glory which inspires our faith:
 
@@ -47288,7 +47309,7 @@ Date: 2024-09-12 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-12 Thu 09:52
+Created: 2024-09-12 Thu 10:32
 
 Validate
 

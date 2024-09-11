@@ -470,7 +470,7 @@ A short version of my testimony of being born-again and Jesus setting me free:
     -   It seems that God was working in my life
     -   I think God was working in my heart, making a new heart for me
     -   I had begun seeking God, but I still needed God to rescue me from darkness:
-        -   **Psalms 14:2-3** - The LORD looks down from heaven on the children of man, to see if there are any who understand, who seek after God. They have all turned aside; together they have become corrupt; there is none who does good, not even one. (ESV)
+        -   **[Psalms 14:2-3](https://www.biblegateway.com/passage/?search=Psalms%2014%3A2-3&version=ESV)** - The LORD looks down from heaven on the children of man, to see if there are any who understand, who seek after God. They have all turned aside; together they have become corrupt; there is none who does good, not even one. (ESV)
 -   I started researching AI fiction in 2021, invested in the Aletheia AI crypto with their Noah's Ark project for preserving personalities on the block chain
     -   I was building [Pen.el](https://github.com/semiosis/pen.el/). Initially the software was
         -   to insulate myself against AI fiction, and
@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9f3717f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdd387d9) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -5419,6 +5419,16 @@ If a person **continues to obey** Jesus they will eventually, like Thomas, arriv
 Here is another example where obeying Jesus led to belief:
 
 > **[John 21:4-7](https://www.biblegateway.com/passage/?search=John%2021%3A4-7&version=ESV)** - Just as day was breaking, Jesus stood on the shore; yet the disciples did not know that it was Jesus. Jesus said to them, Children, do you have any fish? They answered him, No. He said to them, **Cast the net on the right side of the boat, and you will find some.** <ins>So they cast it, and now they were not able to haul it in, because of the quantity of fish.</ins> That disciple whom Jesus loved therefore said to Peter, It is the Lord! When Simon Peter heard that it was the Lord, he put on his outer garment, for he was stripped for work, and threw himself into the sea. (ESV)
+
+And another example where obedience to Jesus leads to belief:
+
+> **[Luke 5:4-8](https://www.biblegateway.com/passage/?search=Luke%205%3A4-8&version=ESV)** - And when he had finished speaking, he said to Simon, **Put out into the deep and let down your nets for a catch.** And Simon answered, Master, we toiled all night and took nothing! But **at your word I will let down the nets.** And when they had done this, they enclosed a large number of fish, and their nets were breaking. They signaled to their partners in the other boat to come and help them. And they came and filled both the boats, so that they began to sink. But **when Simon Peter saw it, he fell down at Jesus' knees, saying, Depart from me, for I am a sinful man, O Lord.** (ESV)
+
+[youtube.com: Devotions with DeMarcus - Luke 5](https://www.youtube.com/watch?v=gSW7le6CZ64)
+
+Obeying Jesus and witnessing His glory should brings us to faith in Him. Obeying Jesus should lead us to seeing His glory and an understanding:
+
+> **[Mark 8:17-21](https://www.biblegateway.com/passage/?search=Mark%208%3A17-21&version=ESV)** - And Jesus, aware of this, said to them, Why are you discussing the fact that you have no bread? Do you not yet perceive or understand? Are your hearts hardened? Having eyes do you not see, and having ears do you not hear? And do you not remember? When I broke the five loaves for the five thousand, how many baskets full of broken pieces did you take up? They said to him, Twelve. And the seven for the four thousand, how many baskets full of broken pieces did you take up? And they said to him, Seven. And he said to them, Do you not yet understand? (ESV)
 
 Learning to trust in Jesus, learning to trust Jesus, as we obey Him and witness His glory, and come to trust in Him, to believe in Him. Obedience to Jesus leads to witnessing His glory which inspires our faith:
 
@@ -12710,7 +12720,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org063e6e6)
+See: [33.4.1](#orgd8a02f6)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26010,7 +26020,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org063e6e6)
+See: [33.4.1](#orgd8a02f6)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
