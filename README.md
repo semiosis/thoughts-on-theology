@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge4432b4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9f3717f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12710,7 +12710,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5083d32)
+See: [33.4.1](#org063e6e6)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -15766,7 +15766,15 @@ Love doesn't take into account wrongs suffered. I believe the NASB is more accur
 
 > **[I Corinthians 13:5](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A5&version=ESV)** - does not act unbecomingly; it does not seek its own, is not provoked, does not take into account (**logizetai**) a wrong suffered, (NASB)
 
-> **[I Corinthians 13:5](https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/1COR+13.html)** - It is not rude, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. (NIV)
+> **[[[https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A5&version=ESV][I Corinthians 13:5](https://web.mit.edu/jywang/www/cef/Bible/NIV/NIV_Bible/1COR+13.html)]]** - It is not rude, it is not self-seeking, it is not easily angered, *it keeps no record of wrongs*. (NIV)
+
+What we're supposed to do is not bear a **grudge** against our **neighbour** / the **sons of our own people**:
+
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - **You shall not take vengeance or bear a grudge against the sons of your own people**, but **you shall love your neighbor as yourself**: I am the LORD. (ESV)􀀠􅿑
+
+I forgive my neighbour but I don't forgive demons, satan or antichrist:
+
+> **[I Corinthians 16:22](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A22&version=ESV)** - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
 
 Whatever happened, I maintain there were external influences which resulted in going to court, and I give the benefit of the doubt that the other side of court were not directly responsible. I had certainly never considered them my adversaries.
 
@@ -15775,6 +15783,14 @@ God will give ultimate justice for his servants:
 > **[Luke 18:7-8](https://www.biblegateway.com/passage/?search=Luke%2018%3A7-8&version=ESV)** - And will not God give justice to his elect, who cry to him day and night? , Will he delay long over them? I tell you, he will give justice to them speedily. Nevertheless, when the Son of Man comes, will he find faith on earth? (ESV)
 
 > **[Proverbs 17:15](https://www.biblegateway.com/passage/?search=Proverbs%2017%3A15&version=ESV)** - He who justifies the wicked and he who condemns the righteous are both alike an **abomination to the LORD.** (ESV)
+
+So repent and forgive your neighbour in Christ and speak truth to one another:
+
+> **[Mark 1:15](https://www.biblegateway.com/passage/?search=Mark%201%3A15&version=ESV)** - and saying, The time is fulfilled, and the kingdom of God is at hand; repent and believe in the gospel. (ESV)
+
+> **[II Timothy 4:2](https://www.biblegateway.com/passage/?search=2%20Timothy%204%3A2&version=ESV)** - preach the word; be ready in season and out of season; **reprove, rebuke, and exhort**, with complete **patience** and teaching. (ESV)
+
+> **[Ephesians 4:25](https://www.biblegateway.com/passage/?search=Ephesians%204%3A25&version=ESV)** - Therefore, having put away falsehood, let each one of you speak the truth with his neighbor, for we are members one of another. (ESV)
 
 We must obey God first and be faithful to God first rather than men.
 
@@ -25994,7 +26010,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5083d32)
+See: [33.4.1](#org063e6e6)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

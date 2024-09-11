@@ -23292,8 +23292,17 @@ expect God to rectify this somehow because an injustice has happened:
   I Corinthians 13:5 - does not act unbecomingly; it does not seek its own, is not provoked, does not take into
   account (logizetai) a wrong suffered, (NASB)
 
-  I Corinthians 13:5 - It is not rude, it is not self-seeking, it is not easily angered, it keeps no record of
-  wrongs. (NIV)
+  [[https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A5&version=ESV][I Corinthians 13:5]] - It
+  is not rude, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. (NIV)
+
+What we're supposed to do is not bear a grudge against our neighbour / the sons of our own people:
+
+  Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
+  shall love your neighbor as yourself: I am the LORD. (ESV)??
+
+I forgive my neighbour but I don't forgive demons, satan or antichrist:
+
+  I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
 
 Whatever happened, I maintain there were external influences which resulted in going to court, and I give the
 benefit of the doubt that the other side of court were not directly responsible. I had certainly never considered
@@ -23307,6 +23316,17 @@ God will give ultimate justice for his servants:
 
   Proverbs 17:15 - He who justifies the wicked and he who condemns the righteous are both alike an abomination to
   the LORD. (ESV)
+
+So repent and forgive your neighbour in Christ and speak truth to one another:
+
+  Mark 1:15 - and saying, The time is fulfilled, and the kingdom of God is at hand; repent and believe in the
+  gospel. (ESV)
+
+  II Timothy 4:2 - preach the word; be ready in season and out of season; reprove, rebuke, and exhort, with
+  complete patience and teaching. (ESV)
+
+  Ephesians 4:25 - Therefore, having put away falsehood, let each one of you speak the truth with his neighbor,
+  for we are members one of another. (ESV)
 
 We must obey God first and be faithful to God first rather than men.
 
@@ -47268,7 +47288,7 @@ Date: 2024-09-12 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-12 Thu 08:44
+Created: 2024-09-12 Thu 09:52
 
 Validate
 
