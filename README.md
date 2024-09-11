@@ -458,7 +458,7 @@ A short version of my testimony of being born-again and Jesus setting me free:
 -   Baptised as a teenager in Vanuatu in 2005
 -   I've been writing software since then
 -   Life had been hard. I was a slave to the world, to sin and was in darkness (I could only see the world, and didn't have a love for God)
-    -   I was a hopeless case. I was chained to my desk
+    -   I was a hopeless case. I was looking for salvation through working harder, and trying to get ahead of the curve with AI stuff
     -   I was full of guilt, and I had so much shame and life has always been difficult
     -   I didn't have much love for Jesus. I struggled to believe He was for-me.
     -   My priorities were not in order. God wasn't my number one love or treasure
@@ -466,6 +466,7 @@ A short version of my testimony of being born-again and Jesus setting me free:
     -   [web.archive.org mullikine.github.io: Prayer // Bodacious Blog](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/prayer/)
     -   trying to follow God's commandments from the heart, accountable to God, and getting more confident talking about God
     -   began taking steps of faith, believing in God and standing up for what I considered good and condemning what I considered evil
+        -   One thing which made me very angry is how big tech was/is using AI to steal GNU software
     -   It seems that God was working in my life
     -   I think God was working in my heart, making a new heart for me
     -   I had begun seeking God, but I still needed God to rescue me from darkness:
@@ -498,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org255a396) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge4432b4) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12709,7 +12710,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org11a3036)
+See: [33.4.1](#org5083d32)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -15761,7 +15762,7 @@ Also, the summary of facts was conveniently changed when I made new appearances 
 
 > **[I Corinthians 13:1-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A1-8&version=ESV)** - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver up my body to be burned, but have not love, I gain nothing. Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
 
-Love doesn't take into account wrongs suffered. I believe the NASB is more accurate on this than the NIV. Even if the NIV is right, I can't identify any specific thing the other side of court did wrong to me wrong prior to going to court, and if I could identify the specific wrongs I wouldn't impute them to them anyway. The entire thing felt out of control, and externally influenced by antichrist spirits:
+Love doesn't take into account wrongs suffered. I believe the NASB is more accurate on this than the NIV. Even if the NIV is right, I can't identify any specific thing the other side of court did wrong to me wrong prior to going to court. However, during and after my interactions with police and court it's different story. There was a relentlessly slandering, antichrist graceless spirit coming out from the other side. If I could identify the specific wrongs or the root causes I wouldn't impute them to them anyway because I forgave them. But there are some very suspect things which happened around around the time I got born-again. The entire thing surrounding getting pulled into court felt out of control, and influenced externally by antichrist spirits. I feel as if witchcraft was performed against me, with the demons harassing me and manifesting through people around me. I feel wronged and my complaint sits in God's courts. Until I am delivered, my complaint remains in God's courts. In summary, it feels like God made me born-again into LGBT GPT Neuralink demons-everywhere world. I proposed to the love of my life and God allowed all the demons attack me unceasingly for 2 years, not only destroying that but allowing the demons to cause corruption and defilement in my body which is the temple of the Holy Spirit and I expect God to rectify this somehow because an injustice has happened:
 
 > **[I Corinthians 13:5](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A5&version=ESV)** - does not act unbecomingly; it does not seek its own, is not provoked, does not take into account (**logizetai**) a wrong suffered, (NASB)
 
@@ -25993,7 +25994,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org11a3036)
+See: [33.4.1](#org5083d32)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

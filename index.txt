@@ -743,7 +743,8 @@ A short version of my testimony of being born-again and Jesus setting me free:
 - I've been writing software since then
 - Life had been hard. I was a slave to the world, to sin and was in darkness (I could only see the world, and
 didn't have a love for God)
-- I was a hopeless case. I was chained to my desk
+- I was a hopeless case. I was looking for salvation through working harder, and trying to get ahead of the
+curve with AI stuff
 - I was full of guilt, and I had so much shame and life has always been difficult
 - I didn't have much love for Jesus. I struggled to believe He was for-me.
 - My priorities were not in order. God wasn't my number one love or treasure
@@ -753,6 +754,7 @@ didn't have a love for God)
 talking about God
 - began taking steps of faith, believing in God and standing up for what I considered good and condemning
 what I considered evil
+- One thing which made me very angry is how big tech was/is using AI to steal GNU software
 - It seems that God was working in my life
 - I think God was working in my heart, making a new heart for me
 - I had begun seeking God, but I still needed God to rescue me from darkness:
@@ -23275,8 +23277,17 @@ then they're less able to help their neighbour or support themself and their fam
 
 Love doesn't take into account wrongs suffered. I believe the NASB is more accurate on this than the NIV. Even if
 the NIV is right, I can't identify any specific thing the other side of court did wrong to me wrong prior to going
-to court, and if I could identify the specific wrongs I wouldn't impute them to them anyway. The entire thing felt
-out of control, and externally influenced by antichrist spirits:
+to court. However, during and after my interactions with police and court it's different story. There was a
+relentlessly slandering, antichrist graceless spirit coming out from the other side. If I could identify the
+specific wrongs or the root causes I wouldn't impute them to them anyway because I forgave them. But there are
+some very suspect things which happened around around the time I got born-again. The entire thing surrounding
+getting pulled into court felt out of control, and influenced externally by antichrist spirits. I feel as if
+witchcraft was performed against me, with the demons harassing me and manifesting through people around me. I feel
+wronged and my complaint sits in God's courts. Until I am delivered, my complaint remains in God's courts. In
+summary, it feels like God made me born-again into LGBT GPT Neuralink demons-everywhere world. I proposed to the
+love of my life and God allowed all the demons attack me unceasingly for 2 years, not only destroying that but
+allowing the demons to cause corruption and defilement in my body which is the temple of the Holy Spirit and I
+expect God to rectify this somehow because an injustice has happened:
 
   I Corinthians 13:5 - does not act unbecomingly; it does not seek its own, is not provoked, does not take into
   account (logizetai) a wrong suffered, (NASB)
@@ -47253,11 +47264,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-11 Wed 00:00
+Date: 2024-09-12 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-11 Wed 17:21
+Created: 2024-09-12 Thu 08:44
 
 Validate
 
