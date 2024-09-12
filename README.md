@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga128da4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org320a4ca) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1108,19 +1108,28 @@ It's unity in faith and truth and love:
 
 We must agape love God, and our family in Christ and called to agape love even our enemies - How Christians agape love:
 
+Agape is definitely a treasuring love.
+God is worth infinitely more than anything.
+God must be our first agape.
+People are worth infinitely more than chatbots or anything worldly, for example.
+
+[26 (agápē) typically refers to divine love (= what God prefers)](https://biblehub.com/greek/26.htm).
+
 See where else this word used to describe agape love is used:
 
 -   <https://biblehub.com/interlinear/1_john/2-15.htm>
 -   <https://biblehub.com/greek/agapa_25.htm>
 -   <https://biblehub.com/greek/agapate_25.htm>
+-   <https://biblehub.com/greek/26.htm>
 
 Who Christians **must** agape love:
 
 -   Your spouse
     -   <https://biblehub.com/interlinear/ephesians/5-28.htm>
--   Father God
+-   God (Father God, Jesus Christ and Holy Spirit)
     -   <https://biblehub.com/interlinear/1_john/2-15.htm>
--   Jesus
+    -   <https://biblehub.com/interlinear/matthew/22-37.htm>
+    -   **[Matthew 22:37](https://biblehub.com/interlinear/matthew/22-37.htm)** - And He said to him You shall love (**[25 Agapēseis](https://biblehub.com/greek/25.htm)**) [the] Lord the God of you with all the heart of you and with all the soul of you and with all the mind of you (Interlinear)
     -   <https://biblehub.com/interlinear/john/14-23.htm>
 
 Who Christians are called to agape love:
@@ -5357,7 +5366,7 @@ I agree whole heartedly with this guy:
 
 -   [Are All Christians Disciples? (Lordship Salvation)](https://www.youtube.com/watch?v=BCQX4R1mFAk)
 
-I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian because those who have faith in Jesus will do works He does. Some disciples of Jesus turned away. Some believes in Jesus became His disciples:
+I believe that generally-speaking, there is no difference between being a disciple of Jesus and a Christian because those who have faith in Jesus will do works He does. Some disciples of Jesus turned away. Some believers in Jesus became His disciples:
 
 > **[Acts 11:21](https://www.biblegateway.com/passage/?search=Acts%2011%3A21&version=ESV)** - And the hand of the Lord was with them, and a great number who believed turned to the Lord. (ESV)
 
@@ -12758,7 +12767,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org2fcf278)
+See: [33.4.1](#org0ede730)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24458,6 +24467,7 @@ The ones who are made perfect are the ones who are being sanctified:
 
 -   <https://biblehub.com/greek/agapa_25.htm>
 -   <https://biblehub.com/greek/agapate_25.htm>
+-   <https://biblehub.com/greek/26.htm>
 
 
 ### Who Christians **must** agape love
@@ -24466,9 +24476,10 @@ The ones who are made perfect are the ones who are being sanctified:
     -   **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - And above all these put on love (**[26. agapé](https://biblehub.com/greek/agape_n_26.htm)**), which binds everything together in perfect harmony. (ESV)
 -   Your spouse
     -   <https://biblehub.com/interlinear/ephesians/5-28.htm>
--   Father God
+-   God (Father God, Jesus Christ and Holy Spirit)
     -   <https://biblehub.com/interlinear/1_john/2-15.htm>
--   Jesus
+    -   <https://biblehub.com/interlinear/matthew/22-37.htm>
+    -   **[Matthew 22:37](https://biblehub.com/interlinear/matthew/22-37.htm)** - And He said to him You shall love (**[25 Agapēseis](https://biblehub.com/greek/25.htm)**) [the] Lord the God of you with all the heart of you and with all the soul of you and with all the mind of you (Interlinear)
     -   <https://biblehub.com/interlinear/john/14-23.htm>
 
 
@@ -26118,7 +26129,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org2fcf278)
+See: [33.4.1](#org0ede730)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30499,6 +30510,7 @@ We must walk in Jesus' commandments and believe that He came from God.
 
 -   <https://biblehub.com/greek/agapa_25.htm>
 -   <https://biblehub.com/greek/agapate_25.htm>
+-   <https://biblehub.com/greek/26.htm>
 -   <https://biblehub.com/greek/agape_n_26.htm>
 
 > **[I Thessalonians 5:18](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A18&version=ESV)** - give thanks in all circumstances; for this is the will of God in Christ Jesus for you. (ESV)
@@ -30510,9 +30522,10 @@ We must walk in Jesus' commandments and believe that He came from God.
     -   **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - And above all these put on love (**[26. agapé](https://biblehub.com/greek/agape_n_26.htm)**), which binds everything together in perfect harmony. (ESV)
 -   Your spouse
     -   <https://biblehub.com/interlinear/ephesians/5-28.htm>
--   Father God
+-   God (Father God, Jesus Christ and Holy Spirit)
     -   <https://biblehub.com/interlinear/1_john/2-15.htm>
--   Jesus
+    -   <https://biblehub.com/interlinear/matthew/22-37.htm>
+    -   **[Matthew 22:37](https://biblehub.com/interlinear/matthew/22-37.htm)** - And He said to him You shall love (**[25 Agapēseis](https://biblehub.com/greek/25.htm)**) [the] Lord the God of you with all the heart of you and with all the soul of you and with all the mind of you (Interlinear)
     -   <https://biblehub.com/interlinear/john/14-23.htm>
 
 
