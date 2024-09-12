@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org91dd7ad) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8a407a9) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1148,6 +1148,28 @@ Agape love must not be to anything of the world:
 Agape-ing things of this world is worldly-mindedness:
 
 > **[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)** - Woe to you Pharisees! For you love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the best seat in the synagogues and greetings in the marketplaces. (ESV)
+
+-   **[youtube.com: Petra - Beyond Belief @time: 29 min 43 sec](https://youtube.com/watch?v=6kElOUN6uS0&t=1783):** I've been looking over your recent stats. You're going to have
+    to run well in this one, guy.  yes sir.
+    We still think you've got potential. The
+    scholarship could be yours, but you're
+    going to have to really want it.  I do sir.
+    Good, cuz as far as your concerned **this race is the most important thing in your life.** Be out there in 30 minutes.
+    
+    Danny, can I ask you something?
+    Sure. When you grow up and move away, would you still be
+    my brother? Chad, you can't change
+    that. You think you'll forget about
+    us? How can I forget about you? You're my
+    brother. Hey, tell you what, I've been
+    wanting to give this to you for a long
+    time. As God is our witness, brothers
+    forever. Woww. okay boys, let's settle down. Dad,
+    can I ask you something? Sure, pal. When we grow up and move
+    away, will you still be my
+    dad? I'll always be your dad and that'll
+    never change. Do you promise?
+    **Son, the most important thing in our our Lives is that we always love each other.** Now, you remember that, okay? Okay boys, prayers.
 
 I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
 
@@ -12767,7 +12789,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgb099461)
+See: [33.4.1](#org421ade2)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26146,7 +26168,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgb099461)
+See: [33.4.1](#org421ade2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

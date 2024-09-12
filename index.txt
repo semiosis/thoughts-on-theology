@@ -1733,6 +1733,19 @@ Agape-ing things of this world is worldly-mindedness:
   Luke 11:43 - Woe to you Pharisees! For you love (agapate) the best seat in the synagogues and greetings in the
   marketplaces. (ESV)
 
+youtube.com: Petra - Beyond Belief @time: 29 min 43 sec
+
+I've been looking over your recent stats. You're going to have to run well in this one, guy. yes sir. We still
+think you've got potential. The scholarship could be yours, but you're going to have to really want it. I do sir.
+Good, cuz as far as your concerned this race is the most important thing in your life. Be out there in 30 minutes.
+
+Danny, can I ask you something? Sure. When you grow up and move away, would you still be my brother? Chad, you
+can't change that. You think you'll forget about us? How can I forget about you? You're my brother. Hey, tell you
+what, I've been wanting to give this to you for a long time. As God is our witness, brothers forever. Woww. okay
+boys, let's settle down. Dad, can I ask you something? Sure, pal. When we grow up and move away, will you still be
+my dad? I'll always be your dad and that'll never change. Do you promise? Son, the most important thing in our our
+Lives is that we always love each other. Now, you remember that, okay? Okay boys, prayers.
+
 I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do not love the
 things of this world with the type of love that we have for God and for people, namely agape love:
 
@@ -47548,7 +47561,7 @@ Date: 2024-09-12 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-12 Thu 20:14
+Created: 2024-09-12 Thu 20:31
 
 Validate
 
