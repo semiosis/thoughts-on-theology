@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org320a4ca) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org91dd7ad) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12767,7 +12767,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org0ede730)
+See: [33.4.1](#orgb099461)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13244,7 +13244,7 @@ We must follow the way righteousness, repenting from sin, and following Jesus Ch
 
 > **[I Peter 2:10](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A10&version=ESV)** - Once you were not a people, but now you are God's people; once you had not received mercy, but now you have received mercy.
 
-> **[Luke 6:36](https://www.biblegateway.com/passage/?search=Luke%206%3A36&version=ESV)** - Be merciful, even as your Father is merciful.
+> **[Luke 6:36](https://www.biblegateway.com/passage/?search=Luke%206%3A36&version=ESV)** - Be merciful, even as your Father is merciful. (ESV)
 
 
 ### Works must serve God, submitted to the righteousness that comes from God
@@ -16370,7 +16370,17 @@ Amen. We seek to love as Christ loved us. God loved us first. Love comes from Go
 -   belief in Christ's atoning sacrifice
 -   we must forgive one another as Christ has forgiven you or face discipline
 
-Also the merciful will receive mercy.
+Mercy comes from God:
+
+> **[Luke 6:36](https://www.biblegateway.com/passage/?search=Luke%206%3A36&version=ESV)** - Be merciful, even as your Father is merciful. (ESV)
+
+Also the merciful will receive mercy:
+
+> **[Matthew 5:7](https://www.biblegateway.com/passage/?search=Matthew%205%3A7&version=ESV)** - Blessed are the merciful, for they shall receive mercy. (ESV)
+
+We need to imitate God:
+
+> **[Ephesians 5:1-2](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1-2&version=ESV)** - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
 
 The law-fulfilling love we produce as a result of justifying faith
 means we are not **under** the Mosaic law as our actions are law-fulfilling. If we have faith in Christ working through love then our actions are law-fulfilling. In other words, as we follow Jesus we are being led by His Spirit and we are not under the law. As we put our trust in Jesus for our justification, exercising obedience to Jesus, our obedient action is law-fulfilling, and since Jesus is our Lord and Master, we have Him as Advocate and High Priest to God and we can live in peace with God.
@@ -20509,6 +20519,11 @@ Doubt is very contrary to faith, even contrary to obedient faith. Ask in obedien
 
 I really think that God is faithful and He's above all things, and we just need to receive the saving gospel message and when trial, tribulation, or the testing of your faith happens, we have to hold fast to the truth and persevere with it.
 
+-   **[youtube.com: Petra - Beyond Belief @time: 21 min 35 sec](https://youtube.com/watch?v=6kElOUN6uS0&t=1295):** Don't you ever get mad at God?
+    Mad at God? Sure, sometimes, but I still trust Him.
+    How? I don't know. I just
+    do. That's what faith is.
+
 I think James is saying that without **holding fast to the word of God** (the truth) and allowing oneself to be influenced and our lives changed, and **to be saved by it**, we are not transformed, and to be not transformed by the word of God is a big issue because it concerns the salvation of our souls:
 
 > **[James 1:21-24](https://www.biblegateway.com/passage/?search=James%201%3A21-24&version=ESV)** - Therefore put away all filthiness and rampant wickedness and receive with meekness the implanted word, which is able to save your souls. But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. (ESV)
@@ -21086,7 +21101,7 @@ We must be like children of God to enter the Kingdom. Children of God are like t
 
 We must absolutely be faithful to God who sees in secret. Having an awareness and a faith in God is very important for behaving as children of God:
 
-> **[Matthew 6:1-4](https://www.biblegateway.com/passage/?search=Matthew%206%3A1-4&version=ESV)** - Beware of practicing your righteousness before other people in order to be seen by them, for then you will have no reward from your Father who is in heaven. Thus, when you give to the needy, sound no trumpet before you, as the hypocrites do in the synagogues and in the streets, that they may be praised by others. Truly, I say to you, they have received their reward. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. (ESV)
+> **[Matthew 6:1-4](https://www.biblegateway.com/passage/?search=Matthew%206%3A1-4&version=ESV)** - Beware of practicing your righteousness before other people <ins>in order to be seen by them</ins>, for then you will have no reward from your Father who is in heaven. Thus, when you give to the needy, sound no trumpet before you, as the hypocrites do in the synagogues and in the streets, that they may be praised by others. Truly, I say to you, they have received their reward. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. (ESV)
 
 
 ### Will for God's will to be done
@@ -25359,7 +25374,9 @@ God justifies.
 
 > **[I Timothy 6:11-16](https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A11-16&version=ESV)** - But as for you, O man of God, flee these things. Pursue righteousness, godliness, faith, love, steadfastness, gentleness.  **Fight the good fight of the faith**. Take hold of the eternal life to which you were called and about which you made the good confession in the presence of many witnesses.  I charge you in the presence of God, who gives life to all things, and of Christ Jesus, who in his testimony before Pontius Pilate made the good confession, to <ins>keep the commandment unstained and free from reproach until the appearing of our Lord Jesus Christ</ins>, which he will display at the proper time—he who is the blessed and only Sovereign, the King of kings and Lord of lords, who alone has immortality, who dwells in unapproachable light, whom no one has ever seen or can see. To him be honor and eternal dominion. Amen.
 
-Confessing and holding to a creed is working faith though.
+Confessing and holding to a creed is working faith though:
+
+-   **Song:** [youtube.com: Petra - Beyond Belief @time: 8 min 49 sec](https://youtube.com/watch?v=6kElOUN6uS0&t=529)
 
 > **[Hebrews 4:14](https://www.biblegateway.com/passage/?search=Hebrews%204%3A14&version=ESV)** - Since then we have a great high priest who has passed through the heavens, Jesus, the Son of God, **let us hold fast our confession**.
 
@@ -26129,7 +26146,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org0ede730)
+See: [33.4.1](#orgb099461)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -28044,7 +28061,7 @@ Be perfect as your heavenly Father is perfect:
 
 Be accountable to God. Do not seek reward from others but from God. Focus on spiritual disciplines for the right reasons.
 
-> **[Matthew 6:1-18](https://www.biblegateway.com/passage/?search=Matthew%206%3A1-18&version=ESV)** - Beware of practicing your righteousness before other people in order to be seen by them, for then you will have no reward from your Father who is in heaven. Thus, when you give to the needy, sound no trumpet before you, as the hypocrites do in the synagogues and in the streets, that they may be praised by others. Truly, I say to you, they have received their reward. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. And when you pray, you must not be like the hypocrites. For they love to stand and pray in the synagogues and at the street corners, that they may be seen by others. Truly, I say to you, they have received their reward. But when you pray, go into your room and shut the door and pray to your Father who is in secret. And your Father who sees in secret will reward you. And when you pray, do not heap up empty phrases as the Gentiles do, for they think that they will be heard for their many words. Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and forgive us our debts, as we also have forgiven our debtors. And lead us not into temptation, but deliver us from evil. For if you forgive others their trespasses, your heavenly Father will also forgive you, but if you do not forgive others their trespasses, neither will your Father forgive your trespasses. And when you fast, do not look gloomy like the hypocrites, for they disfigure their faces that their fasting may be seen by others. Truly, I say to you, they have received their reward. But when you fast, anoint your head and wash your face, that **your fasting may not be seen by others but by your Father** who is in secret. And your Father who sees in secret will reward you. (ESV)
+> **[Matthew 6:1-18](https://www.biblegateway.com/passage/?search=Matthew%206%3A1-18&version=ESV)** - Beware of practicing your righteousness before other people <ins>in order to be seen by them</ins>, for then you will have no reward from your Father who is in heaven. Thus, when you give to the needy, sound no trumpet before you, as the hypocrites do in the synagogues and in the streets, that they may be praised by others. Truly, I say to you, they have received their reward. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. And when you pray, you must not be like the hypocrites. For they love to stand and pray in the synagogues and at the street corners, that they may be seen by others. Truly, I say to you, they have received their reward. But when you pray, go into your room and shut the door and pray to your Father who is in secret. And your Father who sees in secret will reward you. And when you pray, do not heap up empty phrases as the Gentiles do, for they think that they will be heard for their many words. Do not be like them, for your Father knows what you need before you ask him. Pray then like this: Our Father in heaven, hallowed be your name. Your kingdom come, your will be done, on earth as it is in heaven. Give us this day our daily bread, and forgive us our debts, as we also have forgiven our debtors. And lead us not into temptation, but deliver us from evil. For if you forgive others their trespasses, your heavenly Father will also forgive you, but if you do not forgive others their trespasses, neither will your Father forgive your trespasses. And when you fast, do not look gloomy like the hypocrites, for they disfigure their faces that their fasting may be seen by others. Truly, I say to you, they have received their reward. But when you fast, anoint your head and wash your face, that **your fasting may not be seen by others but by your Father** who is in secret. And your Father who sees in secret will reward you. (ESV)
 
 Have a relationship with God:
 
@@ -28279,17 +28296,21 @@ Following Jesus:
 > **[Matthew 5:34-37](https://www.biblegateway.com/passage/?search=Matthew%205%3A34-37&version=ESV)** - But I say to you, Do not take an oath at all, either by heaven, for it is the throne of God, or by the earth, for it is his footstool, or by Jerusalem, for it is the city of the great King. And do not take an oath by your head, for you cannot make one hair white or black. Let what you say be simply Yes or No; anything more than this comes from evil. (ESV)
 
 
-### 
+### Do not render evil for evil
 
-> **[Matthew 5:39-40](https://www.biblegateway.com/passage/?search=Matthew%205%3A39-40&version=ESV)** - But I say to you, Do not resist the one who is evil. But if anyone slaps you on the right cheek, turn to him the other also. And if anyone would sue you and take your tunic, let him have your cloak as well. (ESV)
-
-
-### 
-
-> **[Matthew 5:41](https://www.biblegateway.com/passage/?search=Matthew%205%3A41&version=ESV)** - And if anyone forces you to go one mile, go with him two miles. (ESV)
+> **[Matthew 5:38-40](https://www.biblegateway.com/passage/?search=Matthew%205%3A38-40&version=ESV)** - You have heard that it was said, An eye for an eye and a tooth for a tooth. But I say to you, Do not resist the one who is evil. But if anyone slaps you on the right cheek, turn to him the other also. And if anyone would sue you and take your tunic, let him have your cloak as well. (ESV)
 
 
-### 
+### Overcome evil with good
+
+> **[Matthew 5:40-41](https://www.biblegateway.com/passage/?search=Matthew%205%3A40-41&version=ESV)** - And if anyone would sue you and take your tunic, let him have your cloak as well. And if anyone forces you to go one mile, go with him two miles. (ESV)
+
+Paul following and teaching Christ's teachings:
+
+> **[Romans 12:19-21](https://www.biblegateway.com/passage/?search=Romans%2012%3A19-21&version=ESV)** - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written, Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be overcome by evil, but overcome evil with good. (ESV)
+
+
+### Give to the one who begs from you, and do not refuse the one who would borrow from you
 
 > **[Matthew 5:42](https://www.biblegateway.com/passage/?search=Matthew%205%3A42&version=ESV)** - Give to the one who begs from you, and do not refuse the one who would borrow from you. (ESV)
 
@@ -28310,14 +28331,18 @@ Following Jesus:
     but as much as possible. We provide a testimony.
 
 
-### 
+### Do your good not to get some kind of earthly praise
 
-> **[Matthew 6:1](https://www.biblegateway.com/passage/?search=Matthew%206%3A1&version=ESV)** - Beware of practicing your righteousness before other people in order to be seen by them, for then you will have no reward from your Father who is in heaven. (ESV)
+> **[Matthew 6:1](https://www.biblegateway.com/passage/?search=Matthew%206%3A1&version=ESV)** - Beware of practicing your righteousness before other people <ins>in order to be seen by them</ins>, for then you will have no reward from your Father who is in heaven. (ESV)
+
+> **[Matthew 5:16](https://www.biblegateway.com/passage/?search=Matthew%205%3A16&version=ESV)** - In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven. (ESV)
+
+> **[Matthew 9:11-13](https://www.biblegateway.com/passage/?search=Matthew%209%3A11-13&version=ESV)** - And when the Pharisees saw this, they said to his disciples, Why does your teacher eat with tax collectors and sinners? But when he heard it, he said, Those who are well have no need of a physician, but those who are sick. Go and learn what this means, I desire mercy, and not sacrifice. For I came not to call the righteous, but sinners. (ESV)
 
 
-### 
+### Be merciful
 
-> **[Matthew 6:2-4](https://www.biblegateway.com/passage/?search=Matthew%206%3A2-4&version=ESV)** - Thus, when you give to the needy, sound no trumpet before you, as the hypocrites do in the synagogues and in the streets, that they may be praised by others. Truly, I say to you, they have received their reward. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. (ESV)
+> **[Luke 6:36](https://www.biblegateway.com/passage/?search=Luke%206%3A36&version=ESV)** - Be merciful, even as your Father is merciful. (ESV)
 
 
 ### How to pray
@@ -28453,9 +28478,13 @@ Repentance in the heart:
 > **[Matthew 6:33](https://www.biblegateway.com/passage/?search=Matthew%206%3A33&version=ESV)** - But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
 
 
-### 
+### Do not judge unless you don't mind being judged by the same judgement
 
 > **[Matthew 7:1-2](https://www.biblegateway.com/passage/?search=Matthew%207%3A1-2&version=ESV)** - Judge not, that you be not judged. For with the judgment you pronounce you will be judged, and with the measure you use it will be measured to you. (ESV)
+
+> **[Luke 6:37](https://www.biblegateway.com/passage/?search=Luke%206%3A37&version=ESV)** - , Judge not, and you will not be judged; condemn not, and you will not be condemned; forgive, and you will be forgiven; (ESV)
+
+> **[James 3:1](https://www.biblegateway.com/passage/?search=James%203%3A1&version=ESV)** - Not many of you should become teachers, my brothers, for you know that we who teach will be judged with greater strictness. (ESV)
 
 
 ### 
@@ -28951,14 +28980,20 @@ We should pray for our enemies and bless those who curse us. After all, at one t
 > **[Luke 6:35](https://www.biblegateway.com/passage/?search=Luke%206%3A35&version=ESV)** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
 
 
-### 
+### Be merciful
+
+> **[Matthew 9:11-13](https://www.biblegateway.com/passage/?search=Matthew%209%3A11-13&version=ESV)** - And when the Pharisees saw this, they said to his disciples, Why does your teacher eat with tax collectors and sinners? But when he heard it, he said, Those who are well have no need of a physician, but those who are sick. Go and learn what this means, I desire mercy, and not sacrifice. For I came not to call the righteous, but sinners. (ESV)
 
 > **[Luke 6:36](https://www.biblegateway.com/passage/?search=Luke%206%3A36&version=ESV)** - Be merciful, even as your Father is merciful. (ESV)
 
 
-### 
+### Forgive that we be forgiven
 
 > **[Luke 6:37](https://www.biblegateway.com/passage/?search=Luke%206%3A37&version=ESV)** - , Judge not, and you will not be judged; condemn not, and you will not be condemned; forgive, and you will be forgiven; (ESV)
+
+And absolutely do not bear grudges against those who are in Christ:
+
+> **[Leviticus 19:18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A18&version=ESV)** - You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
 
 
 ### 
@@ -29507,6 +29542,18 @@ Do not worry about tomorrow:
 > **[Matthew 6:25-34](https://www.biblegateway.com/passage/?search=Matthew%206%3A25-34&version=ESV)** - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
 
 > **[James 4:13-14](https://www.biblegateway.com/passage/?search=James%204%3A13-14&version=ESV)** - Come now, you who say, Today or tomorrow we will go into such and such a town and spend a year there and trade and make a profit— yet you do not know what tomorrow will bring. What is your life? For you are a mist that appears for a little time and then vanishes. (ESV)
+
+Jesus taught to overcome evil with good:
+
+> **[Matthew 5:38-41](https://www.biblegateway.com/passage/?search=Matthew%205%3A38-41&version=ESV)** - You have heard that it was said, An eye for an eye and a tooth for a tooth. But I say to you, Do not resist the one who is evil. But if anyone slaps you on the right cheek, turn to him the other also. And if anyone would sue you and take your tunic, let him have your cloak as well. And if anyone forces you to go one mile, go with him two miles. (ESV)
+
+James understood Jesus' teaching regarding not resisting evil people and overcoming evil with good:
+
+> **[James 5:6](https://www.biblegateway.com/passage/?search=James%205%3A6&version=ESV)** - You have condemned; you have murdered the righteous person. He does not resist you. (ESV)
+
+Paul following and teaching Christ's teachings regarding overcoming evil with good:
+
+> **[Romans 12:19-21](https://www.biblegateway.com/passage/?search=Romans%2012%3A19-21&version=ESV)** - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written, Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be overcome by evil, but overcome evil with good. (ESV)
 
 
 # godliness
