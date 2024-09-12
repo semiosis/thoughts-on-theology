@@ -1839,7 +1839,7 @@ Who Christians must agape love:
 
 Who Christians are called to agape love:
 
-- All people
+- All people, even enemies
 - https://biblehub.com/greek/agapa_25.htm
 
 What Christians must not agape love:
@@ -1850,9 +1850,14 @@ Agape love must not be to anything of the world:
 
 - timothykeller.com: Counterfeit Gods - Timothy Keller
 
-I think I John 2:15-17 is essentially saying, do not agape "unconditionally love (idolise)" the
-world or what's in the world. Do not make idols in or of the world. Do not love the things of this
-world with the type of love that we have for God, namely agape love:
+Agape-ing things of this world is worldly-mindedness:
+
+  Luke 11:43 - Woe to you Pharisees! For you love (agapate) the best seat in the synagogues and
+  greetings in the marketplaces. (ESV)
+
+I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do
+not love the things of this world with the type of love that we have for God and for people, namely
+agape love:
 
   I John 2:15-17 - Do not love (agapate) the world or the things in the world. If anyone loves the
   world, the love of the Father is not in him. For all that is in the world-the desires of the flesh
@@ -18424,10 +18429,10 @@ We are the temple of God:
   barbarian, Scythian, slave, free; but Christ is all, and in all. Put on then, as God's chosen
   ones, holy and beloved, compassion, kindness, humility, meekness, and patience, bearing with
   one another and, if one has a complaint against another, forgiving each other; as the Lord has
-  forgiven you, so you also must forgive. And above all these put on love, which binds
-  everything together in perfect harmony. And let the peace of Christ rule in your hearts, to
-  which indeed you were called in one body. And be thankful. Let the word of Christ dwell in you
-  richly, teaching and admonishing one another in all wisdom, singing psalms and hymns and
+  forgiven you, so you also must forgive. And above all these put on love (26. agape), which
+  binds everything together in perfect harmony. And let the peace of Christ rule in your hearts,
+  to which indeed you were called in one body. And be thankful. Let the word of Christ dwell in
+  you richly, teaching and admonishing one another in all wisdom, singing psalms and hymns and
   spiritual songs, with thankfulness in your hearts to God. And whatever you do, in word or
   deed, do everything in the name of the Lord Jesus, giving thanks to God the Father through
   him.
@@ -34544,9 +34549,9 @@ Jesus Himself is the bread of God - Jesus Himself is the source of life:
 
 timothykeller.com: Counterfeit Gods - Timothy Keller
 
-I think I John 2:15-17 is essentially saying, do not agape "unconditionally love (idolise)" the
-world or what's in the world. Do not make idols in or of the world. Do not love the things of this
-world with the type of love that we have for God, namely agape love:
+I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do
+not love the things of this world with the type of love that we have for God and for people, namely
+agape love:
 
   I John 2:15-17 - Do not love (agapate) the world or the things in the world. If anyone loves the
   world, the love of the Father is not in him. For all that is in the world-the desires of the flesh
@@ -37686,6 +37691,9 @@ The ones who are made perfect are the ones who are being sanctified:
 
 54.2.1. Who Christians must agape love
 
+- Others in Christ
+- Colossians 3:14 - And above all these put on love (26. agape), which binds everything
+together in perfect harmony. (ESV)
 - Your spouse
 - https://biblehub.com/interlinear/ephesians/5-28.htm
 - Father God
@@ -37695,7 +37703,7 @@ The ones who are made perfect are the ones who are being sanctified:
 
 54.2.2. Who Christians are called to agape love:
 
-- All people
+- All people, even enemies
 - https://biblehub.com/greek/agapa_25.htm
 
 54.2.3. What Christians must not agape love
@@ -37706,9 +37714,14 @@ Agape love must not be to anything of the world:
 
 - timothykeller.com: Counterfeit Gods - Timothy Keller
 
-I think I John 2:15-17 is essentially saying, do not agape "unconditionally love (idolise)" the
-world or what's in the world. Do not make idols in or of the world. Do not love the things of this
-world with the type of love that we have for God, namely agape love:
+Agape-ing things of this world is worldly-mindedness:
+
+  Luke 11:43 - Woe to you Pharisees! For you love (agapate) the best seat in the synagogues and
+  greetings in the marketplaces. (ESV)
+
+I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do
+not love the things of this world with the type of love that we have for God and for people, namely
+agape love:
 
   I John 2:15-17 - Do not love (agapate) the world or the things in the world. If anyone loves the
   world, the love of the Father is not in him. For all that is in the world-the desires of the flesh
@@ -37877,9 +37890,9 @@ is abiding in the light:
 
 timothykeller.com: Counterfeit Gods - Timothy Keller
 
-I think I John 2:15-17 is essentially saying, do not agape "unconditionally love (idolise)" the
-world or what's in the world. Do not make idols in or of the world. Do not love the things of this
-world with the type of love that we have for God, namely agape love:
+I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do
+not love the things of this world with the type of love that we have for God and for people, namely
+agape love:
 
   I John 2:14 - I write to you, fathers, because you know him who is from the beginning. I write to
   you, young men, because you are strong, and the word of God abides in you, and you have overcome
@@ -46399,9 +46412,16 @@ Christians agape love:
 - https://biblehub.com/interlinear/1_john/2-15.htm
 - https://biblehub.com/greek/agapa_25.htm
 - https://biblehub.com/greek/agapate_25.htm
+- https://biblehub.com/greek/agape_n_26.htm
+
+  I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ
+  Jesus for you. (ESV)
 
 65.3.1. Who Christians must agape love
 
+- Others in Christ
+- Colossians 3:14 - And above all these put on love (26. agape), which binds everything
+together in perfect harmony. (ESV)
 - Your spouse
 - https://biblehub.com/interlinear/ephesians/5-28.htm
 - Father God
@@ -46411,7 +46431,7 @@ Christians agape love:
 
 65.3.2. Who Christians are called to agape love:
 
-- All people
+- All people, even enemies
 - https://biblehub.com/greek/agapa_25.htm
 
 65.3.3. What Christians must not agape love
@@ -46422,18 +46442,18 @@ Agape love must not be to anything of the world:
 
 - timothykeller.com: Counterfeit Gods - Timothy Keller
 
-I think I John 2:15-17 is essentially saying, do not agape "unconditionally love (idolise)" the
-world or what's in the world. Do not make idols in or of the world. Do not love the things of this
-world with the type of love that we have for God, namely agape love:
+  Luke 11:43 - Woe to you Pharisees! For you love (agapate) the best seat in the synagogues and
+  greetings in the marketplaces. (ESV)
+
+I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do
+not love the things of this world with the type of love that we have for God and for people, namely
+agape love:
 
   I John 2:15-17 - Do not love (agapate) the world or the things in the world. If anyone loves the
   world, the love of the Father is not in him. For all that is in the world-the desires of the flesh
   and the desires of the eyes and pride in possessions-is not from the Father but is from the world.
   And the world is passing away along with its desires, but whoever does the will of God abides
   forever. (ESV)
-
-  I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ
-  Jesus for you. (ESV)
 
 65.4. In a way, the Son is the Father as far as we can see because looking upon Jesus we see the Father,
 but the Father is greater
@@ -48349,9 +48369,9 @@ with the AI-generated fiction which is now in the world, otherwise as I have sai
 taking human wives before poor people can, and that to God is an abomination I assure you - and I
 wouldn't want to tempt God.
 
-I think I John 2:15-17 is essentially saying, do not agape "unconditionally love (idolise)" the
-world or what's in the world. Do not make idols in or of the world. Do not love the things of this
-world with the type of love that we have for God, namely agape love:
+I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do
+not love the things of this world with the type of love that we have for God and for people, namely
+agape love:
 
   I John 2:15-17 - Do not love (agapate) the world or the things in the world. If anyone loves the
   world, the love of the Father is not in him. For all that is in the world-the desires of the flesh
@@ -50985,7 +51005,7 @@ Date: 2024-09-12 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-12 Thu 15:24
+Created: 2024-09-12 Thu 16:15
 
 Validate
 
