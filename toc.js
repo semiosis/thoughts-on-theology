@@ -65,14 +65,14 @@ class TOC {
    * @return {string}
    * */
   static build(tocData) {
-    let result = "<ul>"
+    let result = "<ol>"
     tocData.forEach(toc => {
       result += `<li><a href=#${toc.id}>${toc.text}</a></li>`
       if (toc.children.length) {
         result += `${TOC.build(toc.children)}`
       }
     })
-    return result + "</ul>"
+    return result + "</ol>"
   }
 }
 

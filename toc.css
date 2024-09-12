@@ -1,5 +1,15 @@
 @import url('https://fonts.googleapis.com/css2?family=DM+Sans:wght@400;600&display=swap');
 
+fieldset {
+    border: 1em solid #eee;
+    background: #fff;
+    /* font-size: 0.5em; */
+}
+
+::marker {
+  color: red;
+}
+
   /* similar to the bootstrap */
   .fixed-top {
     position: fixed;
@@ -10,8 +20,8 @@
     overflow-y: overlay;
 
     bottom: 0;
-
-    background: #fff;
+    left: 0;
+    right: 0;
 
       scroll-padding: 50px;
     font-family: 'DM Sans', sans-serif;
