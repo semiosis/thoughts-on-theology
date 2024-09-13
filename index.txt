@@ -42,8 +42,8 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
   establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with all
   his saints. (ESV)
 
-This morning I had this running through my head during my sleep and as I was waking up - I love it when God does
-that. I feel much cleaner today:
+This morning (<2024-09-14 Sat>) I had this running through my head during my sleep and as I was waking up - I love
+it when God does that. I feel much cleaner today:
 
 youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video
 
@@ -20131,7 +20131,42 @@ God.
 
 17.6.4. Lordship salvation and free grace - an apparent paradox
 
-I see faith alone and working faith as means of becoming a child of Abraham to be not mutually-exclusive:
+I see faith alone and working faith as means of becoming a child of Abraham to be not mutually-exclusive.
+
+Trusting in God, taking steps of faith in God as Abraham had, the true circumcision (people keeping the precepts
+of the law) may be saved:
+
+  John 8:39-40 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you
+  would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from
+  God. This is not what Abraham did. (ESV)
+
+  Luke 3:8 - Bear fruits in keeping with repentance. And do not begin to say to yourselves, We have Abraham as our
+  father. For I tell you, God is able from these stones to raise up children for Abraham. (ESV)
+
+  Luke 19:8-10 - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor.
+  And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has
+  come to this house, since he also is a son of Abraham. For the Son of Man came to seek and to save the lost.
+  (ESV)
+
+Trusting and continuing to trust in God by trusting the Lord Jesus Christ, anyone (even gentiles) can be saved:
+
+  Acts 16:30-34 - Then he brought them out and said, Sirs, what must I do to be saved? And they said, Believe
+  (4100. pisteuo) in the Lord Jesus, and you will be saved, you and your household. And they spoke the word of the
+  Lord to him and to all who were in his house. And he took them the same hour of the night and washed their
+  wounds; and he was baptized at once, he and all his family. Then he brought them up into his house and set food
+  before them. And he rejoiced along with his entire household that he had believed in God. (ESV)
+
+  I Timothy 1:19 - holding faith and a good conscience. By rejecting this, some have made shipwreck of their
+  faith, (ESV)
+
+Gentiles should absolutely move towards continued faithfulness and obedience to God, producing agape love towards
+God and mankind:
+
+  Romans 2:4 - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that
+  God's kindness is meant to lead you to repentance? (ESV)
+
+  I Timothy 1:5 - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere
+  faith. (ESV)
 
 For as many of you as were baptized into Christ have put on Christ - heirs according to promise:
 
@@ -21349,8 +21384,8 @@ The Biblical basis for this:
   Proverbs 23:7 - For as he thinks within himself, so he is. He says to you, "Eat and drink!" But his heart is not
   with you. (NASB)
 
-This morning I had this running through my head during my sleep and as I was waking up - I love it when God does
-that. I feel much cleaner today:
+This morning (<2024-09-14 Sat>) I had this running through my head during my sleep and as I was waking up - I love
+it when God does that. I feel much cleaner today:
 
 youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video
 
@@ -25458,7 +25493,7 @@ We are waiting for a new heavens and earth in which righteousness dwells:
   fire, being kept until the day of judgment and destruction of the ungodly. (ESV)
 
 The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including
-the planets, galaxies, etc. and the works done on earth with be exposed. It's an extreme event:
+the planets, galaxies, etc. and the works done on earth will be exposed. It's an extreme event:
 
   II Peter 3:10 - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar,
   and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be
@@ -36831,7 +36866,7 @@ We must abide in the teachings of Jesus, believing what Jesus has said, believin
   Luke 21:33 - Heaven and earth will pass away, but my words will not pass away.
 
 The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including
-the planets, galaxies, etc. and the works done on earth with be exposed. It's an extreme event:
+the planets, galaxies, etc. and the works done on earth will be exposed. It's an extreme event:
 
   II Peter 3:10 - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar,
   and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be
@@ -47781,7 +47816,7 @@ Date: 2024-09-14 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-14 Sat 10:22
+Created: 2024-09-14 Sat 11:38
 
 Validate
 

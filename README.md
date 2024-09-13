@@ -23,7 +23,7 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
 
 > **[I Thessalonians 3:11-13](https://www.biblegateway.com/passage/?search=1%20Thessalonians%203%3A11-13&version=ESV)** - Now may our God and Father himself, and our Lord Jesus, direct our way to you, and **may the Lord make you increase and abound in love for one another and for all**, as we do for you, **so that he may establish your hearts blameless in holiness before our God and Father**, at the coming of our Lord Jesus with all his saints. (ESV)
 
-This morning I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
+This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
 
 -   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
     Let me be as gold and precious silver.
@@ -514,7 +514,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3a72329) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org703d922) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12831,7 +12831,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5bb2159)
+See: [33.4.1](#org642d218)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13509,7 +13509,27 @@ Even the demons are subject to the authority of Jesus Christ, but they certainly
 
 ### Lordship salvation and free grace - an apparent paradox
 
-I see faith alone and working faith as means of becoming a child of Abraham to be **not mutually-exclusive**:
+I see faith alone and working faith as means of becoming a child of Abraham to be **not mutually-exclusive**.
+
+Trusting in God, taking steps of faith  in God as Abraham had, the true circumcision (people keeping the precepts of the law) may be saved:
+
+> **[John 8:39-40](https://www.biblegateway.com/passage/?search=John%208%3A39-40&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. (ESV)
+
+> **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - Bear fruits in keeping with repentance. And do not begin to say to yourselves, We have Abraham as our father. For I tell you, God is able from these stones to raise up children for Abraham. (ESV)
+
+> **Luke 19:8-10** - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is a son of Abraham. For the Son of Man came to seek and to save the lost. (ESV)
+
+Trusting and continuing to trust in God by trusting the Lord Jesus Christ, anyone (even gentiles) can be saved:
+
+> **Acts 16:30-34** - Then he brought them out and said, Sirs, what must I do to be saved? And they said, **Believe ([4100. pisteuó](https://biblehub.com/greek/4100.htm)) in the Lord Jesus, and you will be saved**, you and your household. And they spoke **the word of the Lord** to him and to all who were in his house. And he took them the same hour of the night and washed their wounds; and he was baptized at once, he and all his family. Then he brought them up into his house and set food before them. And he rejoiced along with his entire household that he had believed in God. (ESV)
+
+> **[I Timothy 1:19](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A19&version=ESV)** - holding faith and a good conscience. By rejecting this, some have made shipwreck of their faith, (ESV)
+
+Gentiles should absolutely move towards continued faithfulness and obedience to God, producing agape love towards God and mankind:
+
+> **[Romans 2:4](https://www.biblegateway.com/passage/?search=Romans%202%3A4&version=ESV)** - Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? (ESV)
+
+> **[I Timothy 1:5](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A5&version=ESV)** - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere faith. (ESV)
 
 For as many of you as were baptized into Christ have put on Christ - heirs according to promise:
 
@@ -14412,7 +14432,7 @@ The Biblical basis for this:
 
 > **[Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs%2023%3A7&version=ESV)** - For as he thinks within himself, so he is. He says to you, “Eat and drink!” But his heart is not with you. (NASB)
 
-This morning I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
+This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
 
 -   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
     Let me be as gold and precious silver.
@@ -17151,7 +17171,7 @@ We are waiting for a new heavens and earth in which righteousness dwells:
 
 > **[II Peter 3:5-7](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A5-7&version=ESV)** - For they deliberately overlook this fact, that the heavens existed long ago, and the earth was formed out of water and through water by the word of God, and that by means of these the world that then existed was deluged with water and perished. But by the same word **the heavens and earth that now exist are stored up for fire**, <ins>being kept until the day of judgment and destruction of the ungodly.</ins> (ESV)
 
-The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including the planets, galaxies, etc. and the works done on earth with be exposed. It's an extreme event:
+The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including the planets, galaxies, etc. and the works done on earth will be exposed. It's an extreme event:
 
 > **[II Peter 3:10](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A10&version=ESV)** - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar, and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be exposed. (ESV)
 
@@ -25695,7 +25715,7 @@ We must abide in the teachings of Jesus, believing what Jesus has said, believin
 
 > **[Luke 21:33](https://www.biblegateway.com/passage/?search=Luke%2021%3A33&version=ESV)** - Heaven and earth will pass away, but my words will not pass away.
 
-The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including the planets, galaxies, etc. and the works done on earth with be exposed. It's an extreme event:
+The passing away of the heavens and earth looks like the destruction of the present heavens and earth, including the planets, galaxies, etc. and the works done on earth will be exposed. It's an extreme event:
 
 > **[II Peter 3:10](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A10&version=ESV)** - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar, and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be exposed. (ESV)
 
@@ -26270,7 +26290,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5bb2159)
+See: [33.4.1](#org642d218)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
