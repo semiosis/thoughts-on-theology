@@ -23,6 +23,21 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
 
 > **[I Thessalonians 3:11-13](https://www.biblegateway.com/passage/?search=1%20Thessalonians%203%3A11-13&version=ESV)** - Now may our God and Father himself, and our Lord Jesus, direct our way to you, and **may the Lord make you increase and abound in love for one another and for all**, as we do for you, **so that he may establish your hearts blameless in holiness before our God and Father**, at the coming of our Lord Jesus with all his saints. (ESV)
 
+This morning I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
+
+-   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
+    Let me be as gold and precious silver.
+    Purify my heart.
+    Let me be as gold, pure gold.
+    
+    Refiner's fire,
+    My heart's one desire
+    is to be holy,
+    set apart for You, Lord.
+    I choose to be holy,
+    set apart for You, my Master,
+    ready to do Your will
+
 Christ is reigning until all things are placed into subjection under Him. We must come under the Lordship of Christ Jesus. I consider any so-called god which is in rebellion to Christ to be a demon:
 
 > **[I Corinthians 15:25-28](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A25-28&version=ESV)** - For he must reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all. (ESV)
@@ -499,7 +514,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb56be3d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3a72329) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1188,7 +1203,7 @@ We also try to live holy lives - be holy as He is Holy.
 
 We put on Christ:
 
-> **[Galatians 3:27-28](https://www.biblegateway.com/passage/?search=Galatians%203%3A27-28&version=ESV)** - For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. (ESV)
+> **[Galatians 3:27-28](https://www.biblegateway.com/passage/?search=Galatians%203%3A27-28&version=ESV)** - For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. (ESV)
 
 When the day of judgement comes, we must have accepted forgiveness from God, or face the wrath of God:
 
@@ -1655,7 +1670,7 @@ Thus so (**[Houtōs](https://biblehub.com/greek/3779.htm)**) (in this way) did G
 
 We are found in Christ by having faith in Christ and putting on Christ. This was my behaviour during 2022 after being born-again. I was acting obediently and in faith knowing I was born-again and saved already and had to pass on love and forgiveness, and also repent from error - all of these:
 
-> **[Galatians 3:22-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A22-29&version=ESV)** - But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for **in Christ Jesus you are all sons of God, through faith.** For **as many of you as were baptized into Christ have put on Christ.** There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:22-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A22-29&version=ESV)** - But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for **in Christ Jesus you are all sons of God, through faith.** For **as many of you as were baptized into Christ have put on Christ.** There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 -   **Quote from John Piper:** The most profound change in the universe is when a human being passes from death to life - from spiritual deadness to spiritual aliveness and this text is about how to help that change happen.
 
@@ -3040,7 +3055,7 @@ As I understand it, in water baptism we make an appeal to partake in the resurre
 
 I **think** that water baptism in part is an appeal to partake in the baptism of the Holy Spirit:
 
-> **[I Corinthians 12:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A13&version=ESV)** - For in one Spirit we were all baptized into one body—Jews or Greeks, slaves or free—and all were made to drink of one Spirit. (ESV)
+> **[I Corinthians 12:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A13&version=ESV)** - For in one Spirit we were all baptized into one body—Jews or Greeks, slaves or free—and all were made to drink of **one Spirit**. (ESV)
 
 > **[I Corinthians 10:1-4](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-4&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. (ESV)
 
@@ -3517,7 +3532,7 @@ Jesus is the definitive Son of God. But we may be adopted as sons through faith 
 
 > **[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)** - And **the Word became flesh** and dwelt among us, and we have seen his glory, glory as of **the only Son from the Father, full of grace and truth.** (ESV)
 
-> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 Jesus has literally taught people that that if we love our enemies, do good and lend, expecting nothing in return we will be rewarded and be sons of the Most High. This shows that obedience to Jesus is just part of having faith in Jesus:
 
@@ -6882,7 +6897,7 @@ Jesus Christ is the Son of the Living God. Believing on His name is God's will f
 
 The promise to Gentiles:
 
-> **[Galatians 3:8](https://www.biblegateway.com/passage/?search=Galatians%203%3A8&version=ESV)** - And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed. (ESV)
+> **[Galatians 3:8](https://www.biblegateway.com/passage/?search=Galatians%203%3A8&version=ESV)** - And the Scripture, foreseeing that God would justify the Gentiles by faith, **preached the gospel beforehand to Abraham**, saying, In you shall all the nations be blessed. (ESV)
 
 > **[Genesis 12:3](https://www.biblegateway.com/passage/?search=Genesis%2012%3A3&version=ESV)** - I will bless those who bless you, and him who dishonors you I will curse, and in you all the families of the earth shall be blessed. (ESV)
 
@@ -8051,7 +8066,7 @@ Even Christians as children of the promise are supposed to keep the way of the L
 
 > **[Genesis 18:17-19](https://www.biblegateway.com/passage/?search=Genesis%2018%3A17-19&version=ESV)** - The LORD said, Shall I hide from Abraham what I am about to do, seeing that Abraham shall surely become a great and mighty nation, and all the nations of the earth shall be blessed in him? For I have chosen him, **that he may command his children and his household after him to keep the way of the LORD by doing righteousness and justice, so that the LORD may bring to Abraham what he has promised him.** (ESV)
 
-> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and not all are children of Abraham because they are his offspring, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are **the children of God**, but **the children of the promise are counted as offspring.** (ESV)
+> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and **not all are children of Abraham because they are his offspring**, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are **the children of God**, but **the children of the promise are counted as offspring.** (ESV)
 
 God is still collecting children of the promise, children of God:
 
@@ -8766,7 +8781,7 @@ world.
 
 Jesus is the Way, the Truth and the Life:
 
-> **[John 8:39-42](https://www.biblegateway.com/passage/?search=John%208%3A39-42&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual immorality. We have one Father—even God. Jesus said to them, <ins>If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me.</ins>
+> **[John 8:39-42](https://www.biblegateway.com/passage/?search=John%208%3A39-42&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, **If you were Abraham's children, you would be doing what Abraham did**, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual immorality. We have one Father—even God. Jesus said to them, <ins>If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me.</ins>
 
 > **[John 8:43](https://www.biblegateway.com/passage/?search=John%208%3A43&version=ESV)** - Why do you not understand what I say? It is because you cannot bear to hear my word.
 
@@ -9608,7 +9623,7 @@ Circumcision of the flesh does not matter because salvation by faith is availabl
 
 The true circumcised are the ones who obey the precepts of the law, and if they walk in the footsteps of faith which Abraham had before he was circumcised, then that is a valid mode of justification:
 
-> **[Romans 2:25-29](https://www.biblegateway.com/passage/?search=Romans%202%3A25-29&version=ESV)** - For circumcision indeed is of value if you obey the law, but if you break the law, your circumcision becomes uncircumcision. So, if a man who is uncircumcised keeps the precepts of the law, will not his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
+> **[Romans 2:25-29](https://www.biblegateway.com/passage/?search=Romans%202%3A25-29&version=ESV)** - For circumcision indeed is of value if you obey the law, but if you break the law, your circumcision becomes uncircumcision. So, **if a man who is uncircumcised keeps the precepts of the law, will not his uncircumcision be regarded as circumcision?** Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But **a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God**. (ESV)
 
 We must share the faith of Abraham to receive the grace:
 
@@ -10538,7 +10553,7 @@ Abraham is the the father of <ins>all who believe without being circumcised</ins
 
 The true circumcised are the ones who obey the precepts of the law, and if they walk in the footsteps of faith which Abraham had before he was circumcised, then that is a valid mode of justification:
 
-> **[Romans 2:25-29](https://www.biblegateway.com/passage/?search=Romans%202%3A25-29&version=ESV)** - For circumcision indeed is of value if you obey the law, but if you break the law, your circumcision becomes uncircumcision. So, if a man who is uncircumcised keeps the precepts of the law, will not his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
+> **[Romans 2:25-29](https://www.biblegateway.com/passage/?search=Romans%202%3A25-29&version=ESV)** - For circumcision indeed is of value if you obey the law, but if you break the law, your circumcision becomes uncircumcision. So, **if a man who is uncircumcised keeps the precepts of the law, will not his uncircumcision be regarded as circumcision?** Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But **a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God**. (ESV)
 
 So if we have the faith that Abraham had in his walk before circumcision, such as when he refused the gifts from the king of Sodom, or when he put Isaac on the Altar, but in regards to following Jesus. We must give up our old life to live for Christ:
 
@@ -10692,7 +10707,7 @@ We had faith in him. We had a faithful, obedient heart, and were sealed with the
 
 > **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
 
-> **[I Corinthians 12:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A13&version=ESV)** - For in one Spirit we were all baptized into one body—Jews or Greeks, slaves or free—and all were made to drink of one Spirit. (ESV)
+> **[I Corinthians 12:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A13&version=ESV)** - For in one Spirit we were all baptized into one body—Jews or Greeks, slaves or free—and all were made to drink of **one Spirit**. (ESV)
 
 Paul 'hears of their faith' (their working faith; faith works; otherwise, what is to hear about) and their love toward the saints. (ESV)
 
@@ -11754,7 +11769,7 @@ This is what we must come to know in truth - that Jesus came from Father God, an
 2.  Identity in Christ
 
     -   I am a child of God, a born-again son of the Most-High God.
-        -   **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+        -   **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
     -   I have been bought with the precious blood of Jesus Christ, God's Only-Begotten Son, redeemed out of the hand of the enemy and called to be seated in heavenly places with Christ Jesus.
         -   **[I Peter 1:19](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A19&version=ESV)** - but with the precious blood of Christ, like that of a lamb without blemish or spot. (ESV)
         -   **[Psalms 107:2-3](https://www.biblegateway.com/passage/?search=Psalms%20107%3A2-3&version=ESV)** - Let the redeemed of the LORD say so, whom he has redeemed from trouble and gathered in from the lands, from the east and from the west, from the north and from the south. (ESV)
@@ -12816,7 +12831,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org9b9aec9)
+See: [33.4.1](#org5bb2159)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -12859,9 +12874,9 @@ The curse of the law (which is the condemnation which arises from imperfect law 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
 -   <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with respect to having faith in Jesus Christ, but I also this likely counts to adherents of the law of God (i.e. the circumcised) who also walk in the footsteps of the faith that Abraham had before he was circumcised
-    -   **John 8:39** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, (ESV)
+    -   **John 8:39** - They answered him, Abraham is our father. Jesus said to them, **If you were Abraham's children, you would be doing what Abraham did**, (ESV)
 -   faith in Jesus Christ:
-    -   **Galatians 3:7-9** - Know then that it is those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with Abraham, the man of faith. (ESV)
+    -   **Galatians 3:7-9** - Know then that it is those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by faith, **preached the gospel beforehand to Abraham**, saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with Abraham, the man of faith. (ESV)
 
 > **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
@@ -12966,7 +12981,7 @@ I'm sure that James would be referring to what Paul refers to in [Romans 4:11-12
 
 > **[Romans 9:30-32](https://www.biblegateway.com/passage/?search=Romans%209%3A30-32&version=ESV)** - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works. They have stumbled over the stumbling stone, (ESV)
 
-> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him **the father of all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him **the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.** (ESV)
 
 Firstly, God owns everything. Whatever we give God, he already owned. Neither do we give God wages as if we were the previous owner of our gift. And we don't give God advice:
 
@@ -13016,7 +13031,7 @@ If a son of Abraham repents from sin and forgives (return stolen goods) they can
 
 We can be sons of Abraham through faith in Jesus. So if we believe in Jesus, repent and forgive, we can have salvation:
 
-> **[Galatians 3:6-9](https://www.biblegateway.com/passage/?search=Galatians%203%3A6-9&version=ESV)** -  just as Abraham believed God, and it was counted to him as righteousness?  Know then that it is those of faith who are the sons of Abraham.  And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed.  So then, those who are of faith are blessed along with Abraham, the man of faith.  (ESV)
+> **[Galatians 3:6-9](https://www.biblegateway.com/passage/?search=Galatians%203%3A6-9&version=ESV)** -  just as Abraham believed God, and it was counted to him as righteousness?  Know then that it is those of faith who are the sons of Abraham.  And the Scripture, foreseeing that God would justify the Gentiles by faith, **preached the gospel beforehand to Abraham**, saying, In you shall all the nations be blessed.  So then, those who are of faith are blessed along with Abraham, the man of faith.  (ESV)
 
 <ins>We ultimately need God's forgiveness through faith in Jesus</ins>, and so we need to come to realise our spiritual bankruptcy before God and cry out to Him to forgive us as we desire to turn a new leaf and walk in the truth, and God can save us.
 
@@ -13498,7 +13513,7 @@ I see faith alone and working faith as means of becoming a child of Abraham to b
 
 For as many of you as were baptized into Christ have put on Christ - heirs according to promise:
 
-> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 You can see here that faith alone and working faith seem to both be ways to be a child of Abraham:
 
@@ -14396,6 +14411,21 @@ The Biblical basis for this:
 > **[Proverbs 4:23](https://www.biblegateway.com/passage/?search=Proverbs%204%3A23&version=ESV)** - Keep your heart with all vigilance, for from it flow the springs of life. (ESV)
 
 > **[Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs%2023%3A7&version=ESV)** - For as he thinks within himself, so he is. He says to you, “Eat and drink!” But his heart is not with you. (NASB)
+
+This morning I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
+
+-   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
+    Let me be as gold and precious silver.
+    Purify my heart.
+    Let me be as gold, pure gold.
+    
+    Refiner's fire,
+    My heart's one desire
+    is to be holy,
+    set apart for You, Lord.
+    I choose to be holy,
+    set apart for You, my Master,
+    ready to do Your will
 
 When I come under spiritual attack, I think through the lyrics to these songs in my mind and believe them, and this seems to make the attack stop:
 
@@ -17363,7 +17393,7 @@ This looks like an interesting resource about that - [Exodus 25-40 The Tabernacl
 
 > **[Luke 16:16](https://www.biblegateway.com/passage/?search=Luke%2016%3A16&version=ESV)** - The Law and the Prophets were until John; since then the good news of the kingdom of God is preached, and everyone forces his way into it. (ESV)
 
-> **[Galatians 3:19-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A19-29&version=ESV)** - Why then the law? It was added because of transgressions, until the offspring should come to whom the promise had been made, and it was put in place through angels by an intermediary. Now an intermediary implies more than one, but God is one. Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But **the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe**. Now **before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came**, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:19-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A19-29&version=ESV)** - Why then the law? It was added because of transgressions, until the offspring should come to whom the promise had been made, and it was put in place through angels by an intermediary. Now an intermediary implies more than one, but God is one. Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But **the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe**. Now **before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came**, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 The Scripture imprisoned everything under sin.
 Before faith came, we were held captive under the law.
@@ -17372,7 +17402,7 @@ Now that faith has come, we are no longer under a guardian, for in Christ Jesus,
 
 For as many of you as were baptized into Christ have put on Christ - heirs according to promise:
 
-> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **[Galatians 3:26-29](https://www.biblegateway.com/passage/?search=Galatians%203%3A26-29&version=ESV)** - for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 All who `a)` believe without being circumcised (i.e. they are not under the law), and also `b)` those who are circumcised (adhere to the law) but walk in the footsteps of faith that Abraham had before he was circumcised (still walk in faith as Abraham did before circumcision) are <ins>heirs according to promise</ins>:
 
@@ -18966,17 +18996,22 @@ Faith eclipses the law:
 
 > **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
-> **Galatians 3:21-29** - Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+> **Galatians 3:21-29** - Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe. Now before faith came, we were held captive under the law, imprisoned until the coming faith would be revealed. So then, the law was our guardian until Christ came, in order that we might be justified by faith. But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith. For as many of you as were baptized into Christ have put on Christ. There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**. And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
 
 <ins>The ones under the law who also walk in the footsteps of the faith that Abraham had before he was circumcised, come under the umbrella of the faith of Abraham</ins>, which the Gentiles who also share the faith of Abraham are included within.
 
-    1           Faith (Galatians 3:6-9)
-    2         /       \
-    3    Those who     Gentiles who share
-    4  pursue the law      the faith
-    5    by faith          of Abraham
+     1             ‖
+     2            ===
+     3             ‖
+     4             ‖
+     5  
+     6           Faith (Galatians 3:6-9)
+     7         /       \
+     8    Those who     Gentiles who share
+     9  pursue the law      the faith
+    10    by faith          of Abraham
 
-> **[Galatians 3:6-9](https://www.biblegateway.com/passage/?search=Galatians%203%3A6-9&version=ESV)** -  just as Abraham believed God, and it was counted to him as righteousness?  Know then that it is those of faith who are the sons of Abraham.  And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed.  So then, those who are of faith are blessed along with Abraham, the man of faith.  (ESV)
+> **[Galatians 3:6-9](https://www.biblegateway.com/passage/?search=Galatians%203%3A6-9&version=ESV)** -  just as Abraham believed God, and it was counted to him as righteousness?  Know then that it is those of faith who are the sons of Abraham.  And the Scripture, foreseeing that God would justify the Gentiles by faith, **preached the gospel beforehand to Abraham**, saying, In you shall all the nations be blessed.  So then, those who are of faith are blessed along with Abraham, the man of faith.  (ESV)
 
 If a son of Abraham repents from sin and forgives (return stolen goods) they can have salvation:
 
@@ -19005,11 +19040,29 @@ Perhaps it is that James was himself circumcised and walked in the way that Abra
 
 ### One in Christ Jesus - not excluding the adherent of the law
 
+As far as I understand, a person can be a Jew or a Gentile and it's the same gospel, but they're having faith in Christ from two different vantage points:
+
+> **[Galatians 3:7-9](https://www.biblegateway.com/passage/?search=Galatians%203%3A7-9&version=ESV)** - Know then that it is those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by faith, **preached the gospel beforehand to Abraham**, saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with Abraham, the man of faith. (ESV)
+
+> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and **not all are children of Abraham because they are his offspring**, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring. (ESV)
+
+God can raise a person up to keep the precepts of the law with the faith of Abraham, and become a Jew:
+
+> **[Romans 2:25-29](https://www.biblegateway.com/passage/?search=Romans%202%3A25-29&version=ESV)** - For circumcision indeed is of value if you obey the law, but if you break the law, your circumcision becomes uncircumcision. So, **if a man who is uncircumcised keeps the precepts of the law, will not his uncircumcision be regarded as circumcision?** Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But **a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God**. (ESV)
+
+> **[Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs%2023%3A7&version=ESV)** - For as he thinketh in his heart, so is he: Eat and drink, saith he to thee; but his heart is not with thee. (KJV)
+
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him **the father of all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him **the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.** (ESV)
+
+> **[John 8:39](https://www.biblegateway.com/passage/?search=John%208%3A39&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, **If you were Abraham's children, you would be doing what Abraham did**, (ESV)
+
+> **[Matthew 3:9](https://www.biblegateway.com/passage/?search=Matthew%203%3A9&version=ESV)** - And do not presume to say to yourselves, We have Abraham as our father, for I tell you, **God is able from these stones to raise up children for Abraham.** (ESV)
+
 > **[Romans 10:12](https://www.biblegateway.com/passage/?search=Romans%2010%3A12&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him.
 
-> **[I Corinthians 12:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A13&version=ESV)** - For in one Spirit we were all baptized into one body-Jews or Greeks, slaves or free-and all were made to drink of one Spirit.
+> **[I Corinthians 12:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A13&version=ESV)** - For in one Spirit we were all baptized into one body-Jews or Greeks, slaves or free-and all were made to drink of **one Spirit**.
 
-> **[Galatians 3:28](https://www.biblegateway.com/passage/?search=Galatians%203%3A28&version=ESV)** - There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all one in Christ Jesus.
+> **[Galatians 3:28](https://www.biblegateway.com/passage/?search=Galatians%203%3A28&version=ESV)** - There is neither Jew nor Greek, there is neither slave nor free, there is neither male nor female, for you are all **one in Christ Jesus**.
 
 
 ### But we are not justified by the law. We are justified by faith
@@ -20974,7 +21027,7 @@ We should disobey sin, and present ourselves to God as those alive from the dead
 
 > **[Galatians 4:6-7](https://www.biblegateway.com/passage/?search=Galatians%204%3A6-7&version=ESV)** - And because you are sons, God has sent the Spirit of his Son into our hearts, crying, Abba! Father! So you are no longer a slave, but a son, and if a son, then an heir through God. (ESV)
 
-> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and not all are children of Abraham because they are his offspring, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring. (ESV)
+> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and **not all are children of Abraham because they are his offspring**, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring. (ESV)
 
 The Apostle Paul is with Jesus:
 
@@ -26217,14 +26270,14 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org9b9aec9)
+See: [33.4.1](#org5bb2159)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
 -   <ins>walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>, I believe with respect to having faith in Jesus Christ, but I also this likely counts to adherents of the law of God (i.e. the circumcised) who also walk in the footsteps of the faith that Abraham had before he was circumcised
-    -   **John 8:39** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, (ESV)
+    -   **John 8:39** - They answered him, Abraham is our father. Jesus said to them, **If you were Abraham's children, you would be doing what Abraham did**, (ESV)
 -   faith in Jesus Christ:
-    -   **Galatians 3:7-9** - Know then that it is those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham, saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with Abraham, the man of faith. (ESV)
+    -   **Galatians 3:7-9** - Know then that it is those of faith who are the sons of Abraham. And the Scripture, foreseeing that God would justify the Gentiles by faith, **preached the gospel beforehand to Abraham**, saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with Abraham, the man of faith. (ESV)
 
 > **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 
@@ -26246,7 +26299,7 @@ Everyone **in Christ** has Him as their High Priest.
 
 We must be a **child of Abraham.** The blessing comes through being counted as sons of Abraham.
 
-> **[Romans 9:7-8](https://www.biblegateway.com/passage/?search=Romans%209%3A7-8&version=ESV)** - and not all are children of Abraham because they are his offspring, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but <ins>the children of the promise are counted as offspring.</ins> (ESV)
+> **[Romans 9:7-8](https://www.biblegateway.com/passage/?search=Romans%209%3A7-8&version=ESV)** - and **not all are children of Abraham because they are his offspring**, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but <ins>the children of the promise are counted as offspring.</ins> (ESV)
 
 > **[Genesis 17:4](https://www.biblegateway.com/passage/?search=Genesis%2017%3A4&version=ESV)** - Behold, my covenant is with you, and you shall be the father of a multitude of nations. (ESV)
 
@@ -26267,7 +26320,7 @@ who have believing, obeying, trusting,
 faithful **faith** without being circumcised so
 righteousness can be counted to them as well.
 
-> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised. (ESV)
+> **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him **the father of all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him **the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.** (ESV)
 
 The promises go to Christ:
 
