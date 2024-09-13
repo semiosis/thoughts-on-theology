@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb535c35) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb56be3d) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12816,7 +12816,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1f747f3)
+See: [33.4.1](#org9b9aec9)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24904,17 +24904,31 @@ Jesus' friends still serve Jesus, and they obey Jesus but they also know what Je
 
 It's possible while here on earth:
 
-> **[Luke 9:27](https://www.biblegateway.com/passage/?search=Luke%209%3A27&version=ESV)** - But I tell you truly, there are some standing here who will not taste death until they see the kingdom of God.
+> **[Luke 9:27](https://www.biblegateway.com/passage/?search=Luke%209%3A27&version=ESV)** - But I tell you truly, there are some standing here who will not taste death until they **see the kingdom** of God.
 
-Following the commandments properly **from the heart** is a good thing to do.
+We have to be born-again from above. We should start by trusting and believing Jesus:
+
+> **[John 3:3-12](https://www.biblegateway.com/passage/?search=John%203%3A3-12&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot **see the kingdom** of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is born of the Spirit. Nicodemus said to him, How can these things be? Jesus answered him, Are you the teacher of Israel and yet you do not understand these things? Truly, truly, I say to you, we speak of what we know, and bear witness to what we have seen, but you do not receive our testimony. **If I have told you earthly things and you do not believe, how can you believe if I tell you heavenly things?** (ESV)
+
+We must humble ourselves and have believing, trusting faith in God to enter the kingdom:
+
+> **[Matthew 18:2-6](https://www.biblegateway.com/passage/?search=Matthew%2018%3A2-6&version=ESV)** - And calling to him a child, he put him in the midst of them and said, Truly, I say to you, unless you turn and become like children, you will never enter the kingdom of heaven. Whoever humbles himself like this child is the greatest in the kingdom of heaven. Whoever receives one such child in my name receives me, but whoever causes one of these little ones who believe in me to sin, it would be better for him to have a great millstone fastened around his neck and to be drowned in the depth of the sea. (ESV)
+
+Boldly following the commandments properly **from the heart** and in reality, believing God exists, exercising faith, walking in faith, trusting in Jesus, repenting from sin, turning to God is a good thing to do. Humbling ourselves takes a chance on God:
 
 > **[I Kings 11:38](https://www.biblegateway.com/passage/?search=1%20Kings%2011%3A38&version=ESV)** - And if you will listen to all that I command you, and will walk in my ways, and do what is right in my eyes by keeping my statutes and my commandments, as David my servant did, I will be with you and will build you a sure house, as I built for David, **and I will give Israel to you**.
 
-Jesus has to be your Lord in reality, i.e. doing Father God's will.
+We must take a chance on God and do what the Bible says we should do to enter into the Kingdom of Heaven. If we come under Jesus' Lordship and we are trusting and obedient to Jesus then we will do Father God's will:
 
 > **[Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew%207%3A21&version=ESV)** - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. (ESV)
 
+God wants us to stop having an earthly, carnal mind, and for us to pursue Him and be obedient to Him:
+
 > **[1 Thessalonians 4:3](https://www.biblegateway.com/passage/?search=1%20Thessalonians%204%3A3&version=ESV)** - For this is the will of God, your sanctification: that you abstain from sexual immorality; (ESV)
+
+> **[II Corinthians 6:17](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A17&version=ESV)** - Therefore go out from their midst, and be separate from them, says the Lord, and touch no unclean thing; then I will welcome you, (ESV)
+
+God wants us to continue in faith with Him, even when things get challenging:
 
 > **[I Peter 2:15](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A15&version=ESV)** - For this is the will of God, that by doing good you should put to silence the ignorance of foolish people.
 
@@ -26203,7 +26217,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1f747f3)
+See: [33.4.1](#org9b9aec9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
