@@ -1,6 +1,6 @@
 #+TITLE: Thoughts on Faith and Judgement
 #+AUTHOR: Shane Mulligan
-#+DATE: <2024-09-12 Thu>
+#+DATE: <2024-09-13 Fri>
 #+KEYWORDS: faith christianity
 
 #+LATEX_HEADER: \usepackage[margin=0.5in]{geometry}
