@@ -499,7 +499,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8a407a9) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb535c35) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4166,6 +4166,8 @@ It's not loving to make life harder on people by placing higher standards of ext
 
 > **[Luke 11:39](https://www.biblegateway.com/passage/?search=Luke%2011%3A39&version=ESV)** - And the Lord said to him, Now you Pharisees cleanse the outside of the cup and of the dish, but inside you are full of greed and wickedness. (ESV)
 
+[youtube.com: Living For The Lord Jesus - A Fulfilled Life -  Mar Mari Emmanuel](https://www.youtube.com/watch?v=gVaeya0EY5c)
+
 Specific example:
 
 > Let's say there is a poor by appearances (but rich in God) person on the street who loves God with all their heart but has a rough outward appearance and the reason they have a rough outwards appearance is because the world hates them as a result of their faith in Jesus, being obedient to Jesus. Now along comes a worldly person who loves money, the pride of life and the pride of their possessions, and they love and desire money more than they love God (this is one reason why I don't like the prosperity gospel). This worldly person goes up to the poor person on the street and says they must be burdened with sin because of their outward appearance, that they are poor because of sin, rather than because of obedience, that must should their eyes away from following God and focus on worldly things, that they have demons and need to clean up their appearance to be a real Christian, **and they don't lift a finger to help the poor person meet their standard of exterior wellbeing**. The worldly ignorant person has just acted like the blind Pharisees, and not like the good Samaritan. The materially poor person may be in that situation because they were the good Samaritan to someone and saved someone's life.
@@ -7291,6 +7293,14 @@ You **must** obey Jesus, and that is choosing **light** and choosing **love**:
 
 > **[Matthew 23:11-33](https://www.biblegateway.com/passage/?search=Matthew%2023%3A11-33&version=ESV)** - <ins>The greatest among you shall be your servant.</ins> Whoever exalts himself will be humbled, and whoever humbles himself will be exalted. But <ins>woe to you, scribes and Pharisees, hypocrites! For you shut the kingdom of heaven in people's faces. For you neither enter yourselves nor allow those who would enter to go in.</ins> Woe to you, scribes and Pharisees, hypocrites! For you travel across sea and land to make a single proselyte, and when he becomes a proselyte, you make him twice as much a child of hell as yourselves. Woe to you, blind guides, who say, If anyone swears by the temple, it is nothing, but if anyone swears by the gold of the temple, he is bound by his oath. You blind fools! For which is greater, the gold or the temple that has made the gold sacred? And you say, If anyone swears by the altar, it is nothing, but if anyone swears by the gift that is on the altar, he is bound by his oath. You blind men! For which is greater, the gift or the altar that makes the gift sacred? So whoever swears by the altar swears by it and by everything on it. And whoever swears by the temple swears by it and by him who dwells in it. And whoever swears by heaven swears by the throne of God and by him who sits upon it. Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have **neglected** the weightier matters of the law: **justice and mercy and faithfulness**. These you ought to have done, without neglecting the others. You blind guides, straining out a gnat and swallowing a camel! Woe to you, scribes and Pharisees, hypocrites! For you clean the outside of the cup and the plate, but inside they are full of greed and self-indulgence. You blind Pharisee! First <ins>clean the inside of the cup and the plate, that the outside also may be clean.</ins> Woe to you, scribes and Pharisees, hypocrites! For you are like whitewashed tombs, which outwardly appear beautiful, but within are full of dead people's bones and all uncleanness. So you also outwardly appear righteous to others, but within you are **full of hypocrisy and lawlessness**. Woe to you, scribes and Pharisees, hypocrites! For you build the tombs of the prophets and decorate the monuments of the righteous, saying, If we had lived in the days of our fathers, we would not have taken part with them in shedding the blood of the prophets. Thus you witness against yourselves that you are sons of those who murdered the prophets. Fill up, then, the measure of your fathers. You serpents, you brood of vipers, <ins>how are you to escape being sentenced to hell?</ins> (ESV)
 
+We must keep and accept the precepts of God over the precepts of men:
+
+> **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
+
+This passage is condemning **human** submitting to precepts and emploring us to submit to God's precepts:
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If with Christ you **died to the elemental spirits of the world**, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to **human precepts** and teachings? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been **raised with Christ, seek the things that are above**, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
+
 
 ## I believe that I should try as hard as I can to enter via the narrow gate
 
@@ -8256,6 +8266,14 @@ We should continue serving God:
 There are varieties of service, and God empowers us to serve Him:
 
 > **[I Corinthians 12:4-6](https://www.biblegateway.com/passage/?search=1%20Corinthians%2012%3A4-6&version=ESV)** - Now there are varieties of gifts, but the same Spirit; and there are varieties of service, but the same Lord; and there are varieties of activities, but it is the same God who empowers them all in everyone. (ESV)
+
+We must keep and accept the precepts of God over the precepts of men:
+
+> **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
+
+This passage is condemning **human** submitting to precepts and emploring us to submit to God's precepts:
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If with Christ you **died to the elemental spirits of the world**, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to **human precepts** and teachings? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been **raised with Christ, seek the things that are above**, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
 
 
 # Jehovah is Almighty God, Creator of Heaven and Earth
@@ -11791,6 +11809,7 @@ This is what we must come to know in truth - that Jesus came from Father God, an
         -   **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=ESV)** - teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
     -   I choose to worship Him in spirit and in truth, and I will continually offer up the sacrifices of praise and thanksgiving as I recognise Jesus Christ as my Lord, God and Saviour
         -   **[John 4:23-24](https://www.biblegateway.com/passage/?search=John%204%3A23-24&version=ESV)** - But the hour is coming, and is now here, when the true worshipers will worship the Father in spirit and truth, for the Father is seeking such people to worship him. God is spirit, and those who worship him must worship in spirit and truth. (ESV)
+        -   **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
         -   **[Psalms 59:17](https://www.biblegateway.com/passage/?search=Psalms%2059%3A17&version=ESV)** - O my Strength, I will sing praises to you, for you, O God, are my fortress, the God who shows me steadfast love. (ESV)
     -   I can do all things through Christ who strengthens me!
         -   **[Philippians 4:13](https://www.biblegateway.com/passage/?search=Philippians%204%3A13&version=ESV)** - I can do all things through him who strengthens me. (ESV)
@@ -12051,6 +12070,14 @@ I want to bring glory to God by being a living sacrifice - living in a holy mann
 > **[Romans 12:1](https://www.biblegateway.com/passage/?search=Romans%2012%3A1&version=ESV)** - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. (ESV)
 
 > **[I Corinthians 6:20](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A20&version=ESV)** - for you were bought with a price. So glorify God in your body. (ESV)
+
+We must keep and accept the precepts of God over the precepts of men:
+
+> **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
+
+This passage is condemning **human** submitting to precepts and emploring us to submit to God's precepts:
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If with Christ you **died to the elemental spirits of the world**, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to **human precepts** and teachings? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been **raised with Christ, seek the things that are above**, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
 
 > **[1 Thessalonians 5:23](https://biblehub.com/interlinear/1_thessalonians/5-23.htm)** :: Himself now the God - of peace may sanctify you completely and entirely your - spirit (pneuma) and - soul (psyche) and - body (soma blameless at the coming of the Lord of us Jesus Christ may be preserved (Interlinear)
 
@@ -12789,7 +12816,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org421ade2)
+See: [33.4.1](#org1f747f3)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -22971,6 +22998,14 @@ The asceticism [of denying marriage] has no value in stopping the indulgence of 
 
 > **[Colossians 2:18-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-23&version=ESV)** - Let no one disqualify you, insisting on **asceticism** and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to human precepts and teachings? These have indeed an appearance of wisdom in promoting **self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh.** (ESV)
 
+We must keep and accept the precepts of God over the precepts of men:
+
+> **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
+
+This passage is condemning **human** submitting to precepts and emploring us to submit to God's precepts:
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If with Christ you **died to the elemental spirits of the world**, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to **human precepts** and teachings? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been **raised with Christ, seek the things that are above**, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
+
 -   **Sermon:** [youtube.com: The Battle for Sexual Purity](https://www.youtube.com/watch?v=92JXBog4DtM)
 
 Marriage itself is good. So denying it for reasons of self-made religion / worldly precepts actually causes harm because it's not the truth.
@@ -26168,7 +26203,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org421ade2)
+See: [33.4.1](#org1f747f3)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31844,6 +31879,14 @@ True freedom is found in Jesus, not in the AI stuff:
 
 > **[Colossians 2:18-21](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-21&version=ESV)** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (ESV)
 
+We must keep and accept the precepts of God over the precepts of men:
+
+> **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
+
+This passage is condemning **human** submitting to precepts and emploring us to submit to God's precepts:
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If with Christ you **died to the elemental spirits of the world**, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to **human precepts** and teachings? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been **raised with Christ, seek the things that are above**, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
+
 And now I'm in this situation where I feel like:
 
 -   with the first person (a year + before being born-again), the failure was my own fault and I wasn't really in a relationship with God but I wanted a Christian wife. I did not propose to her
@@ -32971,6 +33014,14 @@ spiritual warfare, and I have been constantly
 denied work and a marriage partner!
 
 > **[Colossians 2:18-21](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-21&version=ESV)** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (ESV)
+
+We must keep and accept the precepts of God over the precepts of men:
+
+> **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
+
+This passage is condemning **human** submitting to precepts and emploring us to submit to God's precepts:
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If with Christ you **died to the elemental spirits of the world**, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch (referring to things that all perish as they are used)—according to **human precepts** and teachings? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been **raised with Christ, seek the things that are above**, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
 
 I've kept a good conscience with God, and with men, being obedient to Jesus over the last 2 years:
 
