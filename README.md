@@ -62,11 +62,13 @@ Christ is reigning until all things are placed into subjection under Him. We mus
     him. That's not his
     purpose"
 
-We have no other Lord, King, no other Master than Jesus Christ, but we serve each other:
+We have no other Lord, King, no other Master than Jesus Christ, but we serve Jesus in serving each other:
 
 > **[Matthew 23:8-11](https://www.biblegateway.com/passage/?search=Matthew%2023%3A8-11&version=ESV)** - But you are not to be called rabbi, for you have one teacher, and you are all brothers. And call no man your father on earth, for you have one Father, who is in heaven. Neither be called instructors, for you have one instructor, the Christ. The greatest among you shall be your servant. (ESV)
 
 > **[Matthew 12:28-30](https://www.biblegateway.com/passage/?search=Matthew%2012%3A28-30&version=ESV)** - But if it is by the Spirit of God that I cast out demons, then the kingdom of God has come upon you. Or how can someone enter a strong man's house and plunder his goods, unless he first binds the strong man? Then indeed he may plunder his house. **Whoever is not with me is against me, and whoever does not gather with me scatters.** (ESV)
+
+> **[II Corinthians 4:5](https://www.biblegateway.com/passage/?search=2%20Corinthians%204%3A5&version=ESV)** - For what we proclaim is not ourselves, but **Jesus Christ as Lord**, with **ourselves as your servants for Jesus' sake.** (ESV)
 
 We don't worship foreign gods. We don't worship other servants of God, angels or demons. We worship Jehovah God, and most Christians worship Jesus Christ as God the Son, reigning as God with His Father - that's totally all good:
 
@@ -107,6 +109,10 @@ I'm trying to side with Jesus over issues regarding the evil which is still pres
 > I affirm this man's message:
 > 
 > -   [youtube.com: The most eloquent, well spoken street preacher I've ever heard! | Preaching Times Square, NYC](https://www.youtube.com/watch?v=eb3g3lzOl70)
+> 
+> I appreciated hearing about Tucker Carlson's journey here and I also appreciate Living Waters' very straight-forward gospel message:
+> 
+> -   [youtube.com: Tucker Says Supernatural Beings Are Taking Physical Form. Here's What He Means.](https://www.youtube.com/watch?v=5RboaLY3GDE)
 
 -   **Acknowledgement:** To be able to have affection for God and treasure God, and have a desire for God is such a gift&#x2026;. Thank you John Piper for helping me to see that, and lead me into that truth&#x2026; It makes so much sense in hindsight. Nothing in this world could replace the gift of being able to know God Himself and have an affectionate, treasuring, obedient, believing, desiring love for God.
 
@@ -514,7 +520,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org703d922) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd2e46ee) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12831,7 +12837,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org642d218)
+See: [33.4.1](#orgf9c40f6)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13664,6 +13670,10 @@ We need to accept that God loved us first, and that we need forgiveness from God
 The ones who do not submit to the righteousness of God, but do not accept the love of God and do not accept that we needed God's forgiveness, and do not accept Jesus, and would prefer to be their own god - those people are like thieves. They want to be their own god. Maybe they want to walk on water, and have spiritual experiences, but are content stealing from God:
 
 > **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+
+> **[Malachi 3:8](https://www.biblegateway.com/passage/?search=Malachi%203%3A8&version=ESV)** - **Will man rob God? Yet you are robbing me.** But you say, How have we robbed you? In your tithes and contributions. (ESV)
+
+> **[Malachi 3:15-18](https://www.biblegateway.com/passage/?search=Malachi%203%3A15-18&version=ESV)** - And **now we call the arrogant blessed. Evildoers not only prosper but they put God to the test and they escape.** Then those who feared the LORD spoke with one another. The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. They shall be mine, says the LORD of hosts, in the day when **I make up my treasured possession, and I will spare them as a man spares his son who serves him.** Then once more you shall see the distinction between the righteous and the wicked, **between one who serves God and one who does not serve him.** (ESV)
 
 God loved us first. We must accept that:
 
@@ -17211,6 +17221,11 @@ Then You have Father God, who as Jesus was in the flesh and at that time, Jesus 
 I believe that Jesus is the Alpha and the Omega. This declaration in Revelation shows that Jesus now sees the end:
 
 > **[Revelation of John 22:13-15](https://www.biblegateway.com/passage/?search=Revelation%2022%3A13-15&version=ESV)** - I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may enter the city by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and everyone who loves and practices falsehood. (ESV)
+
+-   [blueletterbible.org 05-in-what-sense-is-jesus-beginning-of-gods-creation.cfm: In What Sense Is Jesus the Beginning of God's Creation? by Don Stewart](https://www.blueletterbible.org/Comm/stewart_don/faq/accusations-against-jesus-answered/05-in-what-sense-is-jesus-beginning-of-gods-creation.cfm)
+-   [mail.biblehub.com 3-14.htm: Revelation 3:14 Interlinear: 'And to the messenger of the assembly of the Laodiceans write: These things saith the Amen, the witness &#x2013; the faithful and true &#x2013; the chief of the creation of God;](https://mail.biblehub.com/interlinear/revelation/3-14.htm)
+
+> **[Revelation of John 3:14](https://www.biblegateway.com/passage/?search=Revelation%203%3A14&version=ESV)** - And to the angel of the church in Laodicea write: The words of the Amen, the faithful and true witness, the beginning of God's creation. (ESV)
 
 > **[Acts 7:56](https://www.biblegateway.com/passage/?search=Acts%207%3A56&version=ESV)** - And he said, Behold, I see the heavens opened, and the Son of Man standing at the right hand of God. (ESV)
 
@@ -26290,7 +26305,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org642d218)
+See: [33.4.1](#orgf9c40f6)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30665,20 +30680,51 @@ The following verse was brought to my mind as I was sleeping:
 
 ### The Word became flesh - Jesus Christ is the Word of God
 
-> **[John 17:5](https://www.biblegateway.com/passage/?search=John%2017%3A5&version=ESV)** - And now, Father, glorify me in your own presence with the glory that I had with you before the world existed. (ESV)
+Jesus is the Word of God become flesh:
 
-> **[John 16:28](https://www.biblegateway.com/passage/?search=John%2016%3A28&version=ESV)** - I came from the Father and have come into the world, and now I am leaving the world and going to the Father.
+> **[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)** - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (ESV)
 
-> **Matthew 1** -23: Behold, the virgin shall conceive and bear a son, and they shall call his name Immanuel (which means, God with us). (ESV)
+> **[John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)** - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except through me. (ESV)
 
-> **[Revelation of John 19:13](https://www.biblegateway.com/passage/?search=Revelation%2019%3A13&version=ESV)** - He is clothed in a robe dipped in blood, and the name by which he is called is The Word of God. (ESV)
+> **[John 17:17](https://www.biblegateway.com/passage/?search=John%2017%3A17&version=ESV)** - Sanctify them in the truth; your word is truth. (ESV)
+
+> **[Psalms 119:160](https://www.biblegateway.com/passage/?search=Psalms%20119%3A160&version=ESV)** - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
+
+> **[John 6:56](https://www.biblegateway.com/passage/?search=John%206%3A56&version=ESV)** - Whoever feeds on my flesh and drinks my blood abides in me, and I in him. (ESV)
+
+> **[John 6:63](https://www.biblegateway.com/passage/?search=John%206%3A63&version=ESV)** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
+
+> **[John 12:49-50](https://www.biblegateway.com/passage/?search=John%2012%3A49-50&version=ESV)** - For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+dwell
+
+> **[Revelation of John 19:11-13](https://www.biblegateway.com/passage/?search=Revelation%2019%3A11-13&version=ESV)** - Then I saw heaven opened, and behold, a white horse! The one sitting on it is called Faithful and True, and in righteousness he judges and makes war. His eyes are like a flame of fire, and on his head are many diadems, and he has a name written that no one knows but himself. He is clothed in a robe dipped in blood, and the name by which he is called is The Word of God. (ESV)
+
+Jesus' flesh was Word. The Word became flesh:
+
+> **[Ephesians 2:11-14](https://www.biblegateway.com/passage/?search=Ephesians%202%3A11-14&version=ESV)** - Therefore remember that at one time you Gentiles in the flesh, called the uncircumcision by what is called the circumcision, which is made in the flesh by hands— remember that you were at that time separated from Christ, alienated from the commonwealth of Israel and strangers to the covenants of promise, having no hope and without God in the world. But now in Christ Jesus you who once were far off have been brought near by the blood of Christ. For he himself is our peace, who has made us both one and has **broken down in his flesh the dividing wall of hostility** (ESV)
+
+> **[Romans 2:28-29](https://www.biblegateway.com/passage/?search=Romans%202%3A28-29&version=ESV)** - For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But a Jew is one inwardly, and **circumcision is a matter of the heart, by the Spirit**, not by the letter. His praise is not from man but from God. (ESV)
+
+
+### Yeshua, the Lion and the Lamb
+
+> **[Genesis 49:9](https://www.biblegateway.com/passage/?search=Genesis%2049%3A9&version=ESV)** - Judah is a lion's cub; from the prey, my son, you have gone up. He stooped down; he crouched as a lion and as a lioness; who dares rouse him? (ESV)
+
+> **[Isaiah 11:6](https://www.biblegateway.com/passage/?search=Isaiah%2011%3A6&version=ESV)** - The wolf shall dwell with the lamb, and the leopard shall lie down with the young goat, and the calf and the lion and the fattened calf together; and a little child shall lead them. (ESV)
+
+> **[Isaiah 65:25](https://www.biblegateway.com/passage/?search=Isaiah%2065%3A25&version=ESV)** - The wolf and the lamb shall graze together; the lion shall eat straw like the ox, and dust shall be the serpent's food. They shall not hurt or destroy in all my holy mountain, says the LORD. (ESV)
 
 
 ### Jesus returned to the Father
 
+> **[John 14:28](https://www.biblegateway.com/passage/?search=John%2014%3A28&version=ESV)** - You heard me say to you, I am going away, and I will come to you. If you loved me, you would have rejoiced, because I am going to the Father, for the Father is greater than I. (ESV)
+
+> **[John 16:28](https://www.biblegateway.com/passage/?search=John%2016%3A28&version=ESV)** - I came from the Father and have come into the world, and now I am leaving the world and going to the Father.
+
 > **[John 16:5](https://www.biblegateway.com/passage/?search=John%2016%3A5&version=ESV)** - But now I am going to him who sent me, and none of you asks me, Where are you going? (ESV)
 
-> **[John 14:28](https://www.biblegateway.com/passage/?search=John%2014%3A28&version=ESV)** - You heard me say to you, I am going away, and I will come to you. If you loved me, you would have rejoiced, because I am going to the Father, for the Father is greater than I. (ESV)
+> **[John 17:5](https://www.biblegateway.com/passage/?search=John%2017%3A5&version=ESV)** - And now, Father, glorify me in your own presence with the glory that I had with you before the world existed. (ESV)
 
 > **[Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah%2055%3A11&version=ESV)** - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
 

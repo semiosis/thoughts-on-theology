@@ -79,7 +79,7 @@ To which I would respond, "You need to think about what you just said, because t
 against his purpose for your life, and his purpose for your life does not mean you should spend 99% of your time
 not thinking about him. That's not his purpose"
 
-We have no other Lord, King, no other Master than Jesus Christ, but we serve each other:
+We have no other Lord, King, no other Master than Jesus Christ, but we serve Jesus in serving each other:
 
   Matthew 23:8-11 - But you are not to be called rabbi, for you have one teacher, and you are all brothers. And
   call no man your father on earth, for you have one Father, who is in heaven. Neither be called instructors, for
@@ -89,6 +89,9 @@ We have no other Lord, King, no other Master than Jesus Christ, but we serve eac
   upon you. Or how can someone enter a strong man's house and plunder his goods, unless he first binds the strong
   man? Then indeed he may plunder his house. Whoever is not with me is against me, and whoever does not gather
   with me scatters. (ESV)
+
+  II Corinthians 4:5 - For what we proclaim is not ourselves, but Jesus Christ as Lord, with ourselves as your
+  servants for Jesus' sake. (ESV)
 
 We don't worship foreign gods. We don't worship other servants of God, angels or demons. We worship Jehovah God,
 and most Christians worship Jesus Christ as God the Son, reigning as God with His Father - that's totally all
@@ -147,6 +150,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
   I affirm this man's message:
 
     o youtube.com: The most eloquent, well spoken street preacher I've ever heard! | Preaching Times Square, NYC
+
+  I appreciated hearing about Tucker Carlson's journey here and I also appreciate Living Waters' very
+  straight-forward gospel message:
+
+    o youtube.com: Tucker Says Supernatural Beings Are Taking Physical Form. Here's What He Means.
 
 Acknowledgement
 To be able to have affection for God and treasure God, and have a desire for God is such a gift.... Thank you John
@@ -20351,6 +20359,16 @@ content stealing from God:
   John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
   way, that man is a thief and a robber. (ESV)
 
+  Malachi 3:8 - Will man rob God? Yet you are robbing me. But you say, How have we robbed you? In your tithes and
+  contributions. (ESV)
+
+  Malachi 3:15-18 - And now we call the arrogant blessed. Evildoers not only prosper but they put God to the test
+  and they escape. Then those who feared the LORD spoke with one another. The LORD paid attention and heard them,
+  and a book of remembrance was written before him of those who feared the LORD and esteemed his name. They shall
+  be mine, says the LORD of hosts, in the day when I make up my treasured possession, and I will spare them as a
+  man spares his son who serves him. Then once more you shall see the distinction between the righteous and the
+  wicked, between one who serves God and one who does not serve him. (ESV)
+
 God loved us first. We must accept that:
 
   I John 4:10-11 - In this is love, not that we have loved God but that he loved us and sent his Son to be the
@@ -25567,6 +25585,15 @@ I believe that Jesus is the Alpha and the Omega. This declaration in Revelation 
   Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may
   enter the city by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and
   idolaters, and everyone who loves and practices falsehood. (ESV)
+
+- blueletterbible.org 05-in-what-sense-is-jesus-beginning-of-gods-creation.cfm: In What Sense Is Jesus the
+Beginning of God's Creation? by Don Stewart
+- mail.biblehub.com 3-14.htm: Revelation 3:14 Interlinear: 'And to the messenger of the assembly of the
+Laodiceans write: These things saith the Amen, the witness - the faithful and true - the chief of the creation
+of God;
+
+  Revelation of John 3:14 - And to the angel of the church in Laodicea write: The words of the Amen, the faithful
+  and true witness, the beginning of God's creation. (ESV)
 
   Acts 7:56 - And he said, Behold, I see the heavens opened, and the Son of Man standing at the right hand of God.
   (ESV)
@@ -43451,34 +43478,80 @@ The following verse was brought to my mind as I was sleeping:
 
 65.2.11. The Word became flesh - Jesus Christ is the Word of God
 
-  John 17:5 - And now, Father, glorify me in your own presence with the glory that I had with you before the world
-  existed. (ESV)
+Jesus is the Word of God become flesh:
 
-  John 16:28 - I came from the Father and have come into the world, and now I am leaving the world and going to
-  the Father.
+  John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+  from the Father, full of grace and truth. (ESV)
 
-  Matthew 1 -23: Behold, the virgin shall conceive and bear a son, and they shall call his name Immanuel (which
-  means, God with us). (ESV)
+  John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
+  through me. (ESV)
 
-  Revelation of John 19:13 - He is clothed in a robe dipped in blood, and the name by which he is called is The
-  Word of God. (ESV)
+  John 17:17 - Sanctify them in the truth; your word is truth. (ESV)
 
-65.2.12. Jesus returned to the Father
+  Psalms 119:160 - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
 
-  John 16:5 - But now I am going to him who sent me, and none of you asks me, Where are you going? (ESV)
+  John 6:56 - Whoever feeds on my flesh and drinks my blood abides in me, and I in him. (ESV)
+
+  John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
+  spirit and life. (ESV)
+
+  John 12:49-50 - For I have not spoken on my own authority, but the Father who sent me has himself given me a
+  commandment-what to say and what to speak. And I know that his commandment is eternal life. What I say,
+  therefore, I say as the Father has told me. (ESV)
+
+dwell
+
+  Revelation of John 19:11-13 - Then I saw heaven opened, and behold, a white horse! The one sitting on it is
+  called Faithful and True, and in righteousness he judges and makes war. His eyes are like a flame of fire, and
+  on his head are many diadems, and he has a name written that no one knows but himself. He is clothed in a robe
+  dipped in blood, and the name by which he is called is The Word of God. (ESV)
+
+Jesus' flesh was Word. The Word became flesh:
+
+  Ephesians 2:11-14 - Therefore remember that at one time you Gentiles in the flesh, called the uncircumcision by
+  what is called the circumcision, which is made in the flesh by hands- remember that you were at that time
+  separated from Christ, alienated from the commonwealth of Israel and strangers to the covenants of promise,
+  having no hope and without God in the world. But now in Christ Jesus you who once were far off have been brought
+  near by the blood of Christ. For he himself is our peace, who has made us both one and has broken down in his
+  flesh the dividing wall of hostility (ESV)
+
+  Romans 2:28-29 - For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But
+  a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise
+  is not from man but from God. (ESV)
+
+65.2.12. Yeshua, the Lion and the Lamb
+
+  Genesis 49:9 - Judah is a lion's cub; from the prey, my son, you have gone up. He stooped down; he crouched as a
+  lion and as a lioness; who dares rouse him? (ESV)
+
+  Isaiah 11:6 - The wolf shall dwell with the lamb, and the leopard shall lie down with the young goat, and the
+  calf and the lion and the fattened calf together; and a little child shall lead them. (ESV)
+
+  Isaiah 65:25 - The wolf and the lamb shall graze together; the lion shall eat straw like the ox, and dust shall
+  be the serpent's food. They shall not hurt or destroy in all my holy mountain, says the LORD. (ESV)
+
+65.2.13. Jesus returned to the Father
 
   John 14:28 - You heard me say to you, I am going away, and I will come to you. If you loved me, you would have
   rejoiced, because I am going to the Father, for the Father is greater than I. (ESV)
 
+  John 16:28 - I came from the Father and have come into the world, and now I am leaving the world and going to
+  the Father.
+
+  John 16:5 - But now I am going to him who sent me, and none of you asks me, Where are you going? (ESV)
+
+  John 17:5 - And now, Father, glorify me in your own presence with the glory that I had with you before the world
+  existed. (ESV)
+
   Isaiah 55:11 - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall
   accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
 
-65.2.13. We also become one with the Father as we are kept in His name
+65.2.14. We also become one with the Father as we are kept in His name
 
   John 17:11 - And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father,
   keep them in your name, which you have given me, that they may be one, even as we are one. (ESV)
 
-65.2.14. We can know Father God directly, while Jesus tells us plainly about Father God
+65.2.15. We can know Father God directly, while Jesus tells us plainly about Father God
 
 We must walk in Jesus' commandments and believe that He came from God.
 
@@ -47812,11 +47885,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-14 Sat 00:00
+Date: 2024-09-15 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-14 Sat 11:38
+Created: 2024-09-15 Sun 09:46
 
 Validate
 
