@@ -329,6 +329,11 @@ wants us to practice His love, His faith, His commandments:
   cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
   sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
 
+  Hebrews 2:16-18 - For surely it is not angels that he helps, but he helps the offspring of Abraham. Therefore he
+  had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest
+  in the service of God, to make propitiation for the sins of the people. For because he himself has suffered when
+  tempted, he is able to help those who are being tempted. (ESV)
+
 This is Christ's law:
 
   John 15:12 - This is my commandment, that you love one another as I have loved you. (ESV)
@@ -897,6 +902,8 @@ God is the justifier, not us:
 
   Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
   of the one who has faith in Jesus. (ESV)
+
+I really like John MacArthur's church's doctrinal statement.
 
 1.1. 1689 Baptist confession of faith
 
@@ -15568,13 +15575,33 @@ dead for our justification.
 Obeying God is obeying Jesus. Having faith in God is having faith in Jesus.
 
 He was raised for our justification; now in order to be justified by faith, we simply need to put our faith in Him
-and follow Him.
+- we need to trusting Jesus Christ.
+
+Trusting in Jesus should result in following Him, believing Jesus' words, walking as he walked, entrusting
+ourselves to Father God who judges righteously.
 
 We have to die to our old self and live for Christ, simply abiding in Him.
 
   II Corinthians 5:14-15 - For the love of Christ controls us, because we have concluded this: that one has died
   for all, therefore all have died; and he died for all, that those who live might no longer live for themselves
   but for him who for their sake died and was raised.
+
+If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, and are doing the
+will of God, then we would love Jesus and Jesus helps us:
+
+  John 8:39-40 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you
+  would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from
+  God. This is not what Abraham did. (ESV)
+
+  Hebrews 2:16-18 - For surely it is not angels that he helps, but he helps the offspring of Abraham. Therefore he
+  had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest
+  in the service of God, to make propitiation for the sins of the people. For because he himself has suffered when
+  tempted, he is able to help those who are being tempted. (ESV)
+
+  Mark 3:35 - Whoever does the will of God, he is my brother and sister and mother. (ESV)
+
+  John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
+  came not of my own accord, but he sent me. (ESV)
 
 If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, but having faith
 in God by obeying Jesus Christ who was raised for our justification then we have Jesus Christ's righteousness; we
@@ -20139,7 +20166,12 @@ God.
 
 17.6.4. Lordship salvation and free grace - an apparent paradox
 
-I see faith alone and working faith as means of becoming a child of Abraham to be not mutually-exclusive.
+Jesus' words never expire:
+
+  Matthew 24:35 - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
+I see faith alone for justification and working faith as means of becoming a child of Abraham to be not
+mutually-exclusive.
 
 Trusting in God, taking steps of faith in God as Abraham had, the true circumcision (people keeping the precepts
 of the law) may be saved:
@@ -22820,6 +22852,69 @@ get to be conformed to the image of Christ!:
   live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will
   live. For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of slavery to
   fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba! Father!
+
+Even Jesus kept entrusting Himself to Father God. We should walk in the Truth, walking the Light, while entrusting
+ourselves to God who judges justly:
+
+  I Peter 2:23 - When he was reviled, he did not revile in return; when he suffered, he did not threaten, but
+  continued entrusting himself to him who judges justly. (ESV)
+
+That's what we're supposed to do:
+
+  I Peter 4:19 - Therefore let those who suffer according to God's will entrust their souls to a faithful Creator
+  while doing good. (ESV)
+
+We have assurance in Lordship Salvation because we believe what Jesus said:
+
+  Luke 6:35 - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be
+  great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+Father God makes many sons. For it was fitting that he (Father God), for whom and by whom all things exist, in
+bringing many sons to glory, should make the founder of their salvation (Jesus Christ) perfect through suffering:
+
+  #+BEGIN[QUOTE] Hebrews 2:10 - For it was fitting that he, for whom and by whom all things exist, in bringing
+  many sons to glory, should make the founder of their salvation perfect through suffering. (ESV)
+
+He was raised for our justification; now in order to be justified by faith, we simply need to put our faith in Him
+- we need to trusting Jesus Christ.
+
+Trusting in Jesus should result in following Him, believing Jesus' words, walking as he walked, entrusting
+ourselves to Father God who judges righteously.
+
+We have to die to our old self and live for Christ, simply abiding in Him.
+
+  II Corinthians 5:14-15 - For the love of Christ controls us, because we have concluded this: that one has died
+  for all, therefore all have died; and he died for all, that those who live might no longer live for themselves
+  but for him who for their sake died and was raised.
+
+If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, and are doing the
+will of God, then we would love Jesus and Jesus helps us:
+
+  John 8:39-40 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you
+  would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from
+  God. This is not what Abraham did. (ESV)
+
+  Hebrews 2:16-18 - For surely it is not angels that he helps, but he helps the offspring of Abraham. Therefore he
+  had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest
+  in the service of God, to make propitiation for the sins of the people. For because he himself has suffered when
+  tempted, he is able to help those who are being tempted. (ESV)
+
+  Mark 3:35 - Whoever does the will of God, he is my brother and sister and mother. (ESV)
+
+  John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
+  came not of my own accord, but he sent me. (ESV)
+
+If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, but having faith
+in God by obeying Jesus Christ who was raised for our justification then we have Jesus Christ's righteousness; we
+have the righteeousness of faith in God.
+
+  Romans 4:22-23 - That is why his faith was counted to him as righteousness. But the words it was counted to him
+  were not written for his sake alone, (ESV)
+
+And the promise will be ours also, because Jesus is our Lord, and we belong to Him.
+
+  Romans 4:24-25 - but for ours also. It will be counted to us who believe in him who raised from the dead Jesus
+  our Lord, who was delivered up for our trespasses and raised for our justification. (ESV)
 
 Even as we are going through hardship for following Jesus, we should rejoice because we are more than conquerors
 through Him who loved us:
@@ -36608,6 +36703,9 @@ youtube.com: The Person and Work of the Holy Spirit | Billy Graham
 
 54.28. Just saying a creed doesn't guarantee that a person is saved (I think)
 
+Read
+gracechurch.org: Lordship Salvation | Grace Community Church
+
 God chooses who is saved, and how they are saved.
 
   II Corinthians 10:18 - For it is not the one who commends himself who is approved, but the one whom the Lord
@@ -47889,7 +47987,7 @@ Date: 2024-09-15 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-15 Sun 09:46
+Created: 2024-09-15 Sun 16:21
 
 Validate
 

@@ -229,6 +229,8 @@ Thanks to Jesus' endurance, His spirit empowers us to live as He lived, and to b
 
 > **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
 
+> **[Hebrews 2:16-18](https://www.biblegateway.com/passage/?search=Hebrews%202%3A16-18&version=ESV)** - For surely it is not angels that he helps, but he helps the offspring of Abraham. Therefore he had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest in the service of God, to make propitiation for the sins of the people. For **because he himself has suffered when tempted, he is able to help those who are being tempted.** (ESV)
+
 This is Christ's law:
 
 > **[John 15:12](https://www.biblegateway.com/passage/?search=John%2015%3A12&version=ESV)** - **This is my commandment**, that you love one another as I have loved you. (ESV)
@@ -520,7 +522,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd2e46ee) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org319aceb) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -561,6 +563,8 @@ The general order of salvation from what I can dilvulge from **Acts 26** and **A
 God is the justifier, not us:
 
 > **[Romans 3:26](https://www.biblegateway.com/passage/?search=Romans%203%3A26&version=ESV)** - It was to show his righteousness at the present time, so that he might be just **and** the ***justifier*** of the one who has faith in Jesus. (ESV)
+
+I really like John MacArthur's church's [doctrinal statement](https://www.gracechurch.org/about/doctrinal-statement).
 
 
 ## 1689 Baptist confession of faith
@@ -10539,11 +10543,23 @@ from the dead for our justification.
 
 Obeying God is obeying Jesus. Having faith in God is having faith in Jesus.
 
-He was raised **for** our justification; now in order to be justified by faith, we simply need to put our faith in Him and follow Him.
+He was raised **for** our justification; now in order to be justified by faith, we simply need to put our faith in Him - we need to trusting Jesus Christ.
+
+Trusting in Jesus should result in following Him, believing Jesus' words, walking as he walked, entrusting ourselves to Father God who judges righteously.
 
 We have to die to our old self and live for Christ, simply abiding in Him.
 
 > **[II Corinthians 5:14-15](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A14-15&version=ESV)** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and he died for all, that <ins>those who live might no longer live for themselves but for him who for their sake died and was raised.</ins>
+
+If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, and are doing the will of God, then we would love Jesus and Jesus helps us:
+
+> **[John 8:39-40](https://www.biblegateway.com/passage/?search=John%208%3A39-40&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. (ESV)
+
+> **[Hebrews 2:16-18](https://www.biblegateway.com/passage/?search=Hebrews%202%3A16-18&version=ESV)** - For surely it is not angels that he helps, but **he helps the offspring of Abraham**. Therefore he had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest in the service of God, to make propitiation for the sins of the people. For **because he himself has suffered when tempted, he is able to help those who are being tempted.** (ESV)
+
+> **[Mark 3:35](https://www.biblegateway.com/passage/?search=Mark%203%3A35&version=ESV)** - Whoever does the will of God, he is my brother and sister and mother. (ESV)
+
+> **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV)** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
 
 If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, but having faith in God by obeying Jesus Christ who was raised for our justification then we have Jesus Christ's righteousness; we have the righteeousness of faith in God.
 
@@ -12837,7 +12853,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgf9c40f6)
+See: [33.4.1](#org8cf040b)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13513,11 +13529,15 @@ Even the demons are subject to the authority of Jesus Christ, but they certainly
 > **[John 6:70](https://www.biblegateway.com/passage/?search=John%206%3A70&version=ESV)** - Jesus answered them, Did I not choose you, the Twelve? And yet one of you is a devil. (ESV)
 
 
-### Lordship salvation and free grace - an apparent paradox
+### [Lordship salvation](https://www.gracechurch.org/about/distinctives/lordship-salvation) and free grace - an apparent paradox
 
-I see faith alone and working faith as means of becoming a child of Abraham to be **not mutually-exclusive**.
+Jesus' words never expire:
 
-Trusting in God, taking steps of faith  in God as Abraham had, the true circumcision (people keeping the precepts of the law) may be saved:
+> **[Matthew 24:35](https://www.biblegateway.com/passage/?search=Matthew%2024%3A35&version=ESV)** - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
+I see faith alone for justification and working faith as means of becoming a child of Abraham to be **not mutually-exclusive**.
+
+Trusting in God, taking steps of faith in God as Abraham had, the true circumcision (people keeping the precepts of the law) may be saved:
 
 > **[John 8:39-40](https://www.biblegateway.com/passage/?search=John%208%3A39-40&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. (ESV)
 
@@ -15528,6 +15548,49 @@ I think that is the correct way to see the following Scripture:
 The obedient are led by the Spirit of God. But it isn't a Spirit of slavery, it's a Spirit of sonship, where we get to be conformed to the image of Christ!:
 
 > **[Romans 8:12-15](https://www.biblegateway.com/passage/?search=Romans%208%3A12-15&version=ESV)** - So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of slavery to fall back into fear, but you have received <ins>the Spirit of adoption as sons, by whom we cry, Abba! Father!</ins>
+
+Even Jesus kept **entrusting Himself** to Father God. We should walk in the Truth, walking the Light, while entrusting ourselves to God who judges justly:
+
+> **[I Peter 2:23](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A23&version=ESV)** - When he was reviled, he did not revile in return; when he suffered, he did not threaten, but continued entrusting himself to him who judges justly. (ESV)
+
+That's what we're supposed to do:
+
+> **[I Peter 4:19](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A19&version=ESV)** - Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing good. (ESV)
+
+We have assurance in Lordship Salvation because we believe what Jesus said:
+
+> **[Luke 6:35](https://www.biblegateway.com/passage/?search=Luke%206%3A35&version=ESV)** - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+Father God makes many sons. For it was fitting that he (Father God), for whom and by whom all things exist, in bringing many sons to glory, should make the founder of their salvation (Jesus Christ) perfect through suffering:
+
+> \#+BEGIN<sub>QUOTE</sub>
+> **[Hebrews 2:10](https://www.biblegateway.com/passage/?search=Hebrews%202%3A10&version=ESV)** - For it was fitting that he, for whom and by whom all things exist, in bringing many sons to glory, should make the founder of their salvation perfect through suffering. (ESV)
+
+He was raised **for** our justification; now in order to be justified by faith, we simply need to put our faith in Him - we need to trusting Jesus Christ.
+
+Trusting in Jesus should result in following Him, believing Jesus' words, walking as he walked, entrusting ourselves to Father God who judges righteously.
+
+We have to die to our old self and live for Christ, simply abiding in Him.
+
+> **[II Corinthians 5:14-15](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A14-15&version=ESV)** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and he died for all, that <ins>those who live might no longer live for themselves but for him who for their sake died and was raised.</ins>
+
+If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, and are doing the will of God, then we would love Jesus and Jesus helps us:
+
+> **[John 8:39-40](https://www.biblegateway.com/passage/?search=John%208%3A39-40&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. (ESV)
+
+> **[Hebrews 2:16-18](https://www.biblegateway.com/passage/?search=Hebrews%202%3A16-18&version=ESV)** - For surely it is not angels that he helps, but **he helps the offspring of Abraham**. Therefore he had to be made like his brothers in every respect, so that he might become a merciful and faithful high priest in the service of God, to make propitiation for the sins of the people. For **because he himself has suffered when tempted, he is able to help those who are being tempted.** (ESV)
+
+> **[Mark 3:35](https://www.biblegateway.com/passage/?search=Mark%203%3A35&version=ESV)** - Whoever does the will of God, he is my brother and sister and mother. (ESV)
+
+> **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV)** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+
+If we walk in the footsteps of the faith that our father Abraham had before he was circumcised, but having faith in God by obeying Jesus Christ who was raised for our justification then we have Jesus Christ's righteousness; we have the righteeousness of faith in God.
+
+> **[Romans 4:22-23](https://www.biblegateway.com/passage/?search=Romans%204%3A22-23&version=ESV)** - That is why his faith was counted to him as righteousness. But <ins>the words it was counted to him were not written for his sake alone,</ins> (ESV)
+
+And the promise will be ours also, because Jesus is our Lord, and we belong to Him.
+
+> **[Romans 4:24-25](https://www.biblegateway.com/passage/?search=Romans%204%3A24-25&version=ESV)** - but for ours also. It will be counted to us who believe in him who <ins>raised from the dead Jesus our Lord,</ins> who was delivered up for our trespasses and raised for our justification. (ESV)
 
 Even as we are going through hardship for following Jesus, we should rejoice because we are more than conquerors through Him who loved us:
 
@@ -25525,6 +25588,8 @@ I think this is generally the order of things.
 
 ## Just saying a creed doesn't guarantee that a person is saved (I think)
 
+-   **Read:** [gracechurch.org: Lordship Salvation | Grace Community Church](https://www.gracechurch.org/about/distinctives/lordship-salvation)
+
 God chooses who is saved, and how they are saved.
 
 > **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
@@ -26305,7 +26370,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgf9c40f6)
+See: [33.4.1](#org8cf040b)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
