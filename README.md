@@ -522,7 +522,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org319aceb) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb77fa04) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12853,7 +12853,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org8cf040b)
+See: [33.4.1](#org28ec5d1)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24438,9 +24438,29 @@ It's not of my own interpretation though:
     > 
     > And I also prayed that I would not have any out of body experiences like this.
     
-    I saw a dark spot around my rib when I was born-again.
+    I saw a dark spot around my rib when I was born-again. What I experienced I believe was the regeneration of my spirit-man:
     
     <https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/>
+    
+    I believe that God has been raising me up as a son:
+    
+    > **[Hebrews 2:10](https://www.biblegateway.com/passage/?search=Hebrews%202%3A10&version=ESV)** - For it was fitting that he, for whom and by whom all things exist, in bringing many sons to glory, should make the founder of their salvation perfect through suffering. (ESV)
+    
+    I think likely my spirit-man was regenerated. I believe that Jesus Christ gave me life - even **[Hebrews 2:10](https://www.biblegateway.com/passage/?search=Hebrews%202%3A10&version=ESV)** saying that Jesus Father God, for whom and by whom all things exist made Jesus Christ, the founder of my salvation, perfect through suffering shows that Jesus is the founder of my salvation:
+    
+    > **[I Corinthians 15:45](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A45&version=ESV)** - Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. (ESV)
+    
+    > **[Galatians 4:6](https://www.biblegateway.com/passage/?search=Galatians%204%3A6&version=ESV)** - And because you are sons, God has sent the Spirit of his Son into our hearts, crying, Abba! Father! (ESV)
+    
+    What's interesting to me is that Jesus is the bridegroom of His church:
+    
+    > **[Hosea 2:19-20](https://www.biblegateway.com/passage/?search=Hosea%202%3A19-20&version=ESV)** - And I will betroth you to me forever. I will betroth you to me in righteousness and in justice, in steadfast love and in mercy. I will betroth you to me in faithfulness. And you shall know the LORD. (ESV)
+    
+    -   **Read:** [alexiscarucci.com: Jesus is The Bridegroom - Living the Abundant Life](https://alexiscarucci.com/2022/05/18/jesus-is-the-bridegroom/)
+    
+    And Adam had a rib taken from Him to make Eve:
+    
+    > **[Genesis 2:22](https://www.biblegateway.com/passage/?search=Genesis%202%3A22&version=ESV)** - And the rib that the LORD God had taken from the man he made into a woman and brought her to the man. (ESV)
     
     Being born-again of the Spirit gave me insight, and I believed God was real.
     
@@ -26370,7 +26390,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org8cf040b)
+See: [33.4.1](#org28ec5d1)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
