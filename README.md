@@ -23,7 +23,7 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
 
 > **[I Thessalonians 3:11-13](https://www.biblegateway.com/passage/?search=1%20Thessalonians%203%3A11-13&version=ESV)** - Now may our God and Father himself, and our Lord Jesus, direct our way to you, and **may the Lord make you increase and abound in love for one another and for all**, as we do for you, **so that he may establish your hearts blameless in holiness before our God and Father**, at the coming of our Lord Jesus with all his saints. (ESV)
 
-This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
+This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today. This morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-18 Wed&gt; </span></span> (4 days later) I was hit with some spiritual attack (including strange dreams) so I purposefully stayed up singing this song in my heart and mind and as I did, trying to 'will from the heart' to desire to do God's will and I was able to beat the spiritual attack back this morning :):
 
 -   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
     Let me be as gold and precious silver.
@@ -160,7 +160,11 @@ When we are living in faith in God for His promises we are living in an obedient
     chapter 1 (i.e. [I Peter 1]), means "hoping faith is the
     assurance of things hoped for."
 
-Our faith should be in God and our hope should be for God's promises. God has spoken a lot already in the Scriptures and about how we should listen to Jesus. Saving faith trusts God. Both belief and obedience come out of a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
+Our faith should be in God and our hope should be for God's promises. God has spoken a lot already in the Scriptures and about how we should listen to Jesus. Saving faith trusts God:
+
+> **[I Peter 1:20-23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A20-23&version=ESV)** - He was foreknown before the foundation of the world but was made manifest in the last times for your sake, who through him are believers in God, who raised him from the dead and gave him glory, **so that your faith and hope are in God**. Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; (ESV)
+
+Both belief and obedience come out of a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
 
 When we trust in the name (**[onoma](https://biblehub.com/greek/3686.htm)**) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts in Jesus receives forgiveness of sins through His name:
 
@@ -522,7 +526,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org536d679) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7458b87) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1168,7 +1172,9 @@ What Christians **must not** agape love:
 
 Agape love must not be to anything of the world:
 
--   [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+-   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+
+-   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
 Agape-ing things of this world is worldly-mindedness:
 
@@ -12231,9 +12237,11 @@ But for the person born of God, they have died to sin, it no longer has a legal 
 
 ### Bad desire - leads to death. We do not want to be enslaved to corruption
 
--   Lust is super bad, even after born-again.
+-   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
 
-[timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+-   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
+
+Lust is super bad, even after born-again:
 
 > **[II Peter 2:19-21](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A19-21&version=ESV)** - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first. For it would have been better for them never to have known **the way of righteousness** than after knowing it to turn back from the holy commandment delivered to them.
 
@@ -12873,7 +12881,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdcba700)
+See: [33.4.1](#orge4662e5)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14482,7 +14490,7 @@ The Biblical basis for this:
 
 > **[Proverbs 23:7](https://www.biblegateway.com/passage/?search=Proverbs%2023%3A7&version=ESV)** - For as he thinks within himself, so he is. He says to you, “Eat and drink!” But his heart is not with you. (NASB)
 
-This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today:
+This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today. This morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-18 Wed&gt; </span></span> (4 days later) I was hit with some spiritual attack (including strange dreams) so I purposefully stayed up singing this song in my heart and mind and as I did, trying to 'will from the heart' to desire to do God's will and I was able to beat the spiritual attack back this morning :):
 
 -   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
     Let me be as gold and precious silver.
@@ -22657,7 +22665,9 @@ Jesus Himself is the bread of God - Jesus Himself **is** the source of life:
 
 > **[Psalms 106:20](https://www.biblegateway.com/passage/?search=Psalms%20106%3A20&version=ESV)** - They exchanged the glory of God for the image of an ox that eats grass. (ESV)
 
-[timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+-   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+
+-   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
 I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
 
@@ -24758,7 +24768,9 @@ The ones who are made perfect are the ones who are being sanctified:
 
 Agape love must not be to anything of the world:
 
--   [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+-   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+
+-   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
 Agape-ing things of this world is worldly-mindedness:
 
@@ -24873,7 +24885,9 @@ We must accept Jesus, believe in Jesus, believe Jesus, and keep Jesus' words - a
 
 > **[I John 2:17](https://www.biblegateway.com/passage/?search=1%20John%202%3A17&version=ESV)** - And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
-[timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+-   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+
+-   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
 I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
 
@@ -26410,7 +26424,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdcba700)
+See: [33.4.1](#orge4662e5)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30883,7 +30897,9 @@ We must walk in Jesus' commandments and believe that He came from God.
 
 Agape love must not be to anything of the world:
 
--   [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+-   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
+
+-   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
 > **[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)** - Woe to you Pharisees! For you love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the best seat in the synagogues and greetings in the marketplaces. (ESV)
 

@@ -43,7 +43,10 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
   his saints. (ESV)
 
 This morning (<2024-09-14 Sat>) I had this running through my head during my sleep and as I was waking up - I love
-it when God does that. I feel much cleaner today:
+it when God does that. I feel much cleaner today. This morning <2024-09-18 Wed> (4 days later) I was hit with some
+spiritual attack (including strange dreams) so I purposefully stayed up singing this song in my heart and mind and
+as I did, trying to 'will from the heart' to desire to do God's will and I was able to beat the spiritual attack
+back this morning :):
 
 youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video
 
@@ -226,9 +229,17 @@ God is providing. Faith in all these truths of chapter 1 (i.e. [I Peter 1]), mea
 of things hoped for."
 
 Our faith should be in God and our hope should be for God's promises. God has spoken a lot already in the
-Scriptures and about how we should listen to Jesus. Saving faith trusts God. Both belief and obedience come out of
-a trust of God in the heart. So our faith should be based on hope that is based on truth. We must understand the
-truth in our hearts, and allow it to work itself out in us. The word of God in the heart saves us.
+Scriptures and about how we should listen to Jesus. Saving faith trusts God:
+
+  I Peter 1:20-23 - He was foreknown before the foundation of the world but was made manifest in the last times
+  for your sake, who through him are believers in God, who raised him from the dead and gave him glory, so that
+  your faith and hope are in God. Having purified your souls by your obedience to the truth for a sincere
+  brotherly love, love one another earnestly from a pure heart, since you have been born again, not of perishable
+  seed but of imperishable, through the living and abiding word of God; (ESV)
+
+Both belief and obedience come out of a trust of God in the heart. So our faith should be based on hope that is
+based on truth. We must understand the truth in our hearts, and allow it to work itself out in us. The word of God
+in the heart saves us.
 
 When we trust in the name (onoma) of the Son of God, we receive forgiveness of sins. Everyone who believes/trusts
 in Jesus receives forgiveness of sins through His name:
@@ -1751,7 +1762,11 @@ What Christians must not agape love:
 
 Agape love must not be to anything of the world:
 
-- timothykeller.com: Counterfeit Gods - Timothy Keller
+Book
+timothykeller.com: Counterfeit Gods - Timothy Keller
+
+Sermon
+youtube.com: Counterfeit Gods - Tim Keller
 
 Agape-ing things of this world is worldly-mindedness:
 
@@ -18118,9 +18133,13 @@ on doing it, they absolutely hate the sin, we are being sanctified.
 
 16.9.2. Bad desire - leads to death. We do not want to be enslaved to corruption
 
-- Lust is super bad, even after born-again.
-
+Book
 timothykeller.com: Counterfeit Gods - Timothy Keller
+
+Sermon
+youtube.com: Counterfeit Gods - Tim Keller
+
+Lust is super bad, even after born-again:
 
   II Peter 2:19-21 - They promise them freedom, but they themselves are slaves of corruption. For whatever
   overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
@@ -21474,7 +21493,10 @@ The Biblical basis for this:
   with you. (NASB)
 
 This morning (<2024-09-14 Sat>) I had this running through my head during my sleep and as I was waking up - I love
-it when God does that. I feel much cleaner today:
+it when God does that. I feel much cleaner today. This morning <2024-09-18 Wed> (4 days later) I was hit with some
+spiritual attack (including strange dreams) so I purposefully stayed up singing this song in my heart and mind and
+as I did, trying to 'will from the heart' to desire to do God's will and I was able to beat the spiritual attack
+back this morning :):
 
 youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video
 
@@ -32473,7 +32495,11 @@ Jesus Himself is the bread of God - Jesus Himself is the source of life:
 
   Psalms 106:20 - They exchanged the glory of God for the image of an ox that eats grass. (ESV)
 
+Book
 timothykeller.com: Counterfeit Gods - Timothy Keller
+
+Sermon
+youtube.com: Counterfeit Gods - Tim Keller
 
 I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do not love the
 things of this world with the type of love that we have for God and for people, namely agape love:
@@ -35469,7 +35495,11 @@ heart of you and with all the soul of you and with all the mind of you (Interlin
 
 Agape love must not be to anything of the world:
 
-- timothykeller.com: Counterfeit Gods - Timothy Keller
+Book
+timothykeller.com: Counterfeit Gods - Timothy Keller
+
+Sermon
+youtube.com: Counterfeit Gods - Tim Keller
 
 Agape-ing things of this world is worldly-mindedness:
 
@@ -35633,7 +35663,11 @@ the light:
   I John 2:17 - And the world is passing away along with its desires, but whoever does the will of God abides
   forever. (ESV)
 
+Book
 timothykeller.com: Counterfeit Gods - Timothy Keller
+
+Sermon
+youtube.com: Counterfeit Gods - Tim Keller
 
 I think I John 2:15-17 is essentially saying, do not agape love the world or what's in the world. Do not love the
 things of this world with the type of love that we have for God and for people, namely agape love:
@@ -43765,7 +43799,11 @@ heart of you and with all the soul of you and with all the mind of you (Interlin
 
 Agape love must not be to anything of the world:
 
-- timothykeller.com: Counterfeit Gods - Timothy Keller
+Book
+timothykeller.com: Counterfeit Gods - Timothy Keller
+
+Sermon
+youtube.com: Counterfeit Gods - Tim Keller
 
   Luke 11:43 - Woe to you Pharisees! For you love (agapate) the best seat in the synagogues and greetings in the
   marketplaces. (ESV)
@@ -48052,11 +48090,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-17 Tue 00:00
+Date: 2024-09-18 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-17 Tue 18:24
+Created: 2024-09-18 Wed 09:35
 
 Validate
 
