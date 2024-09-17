@@ -82,7 +82,7 @@ I'm trying to side with Jesus over issues regarding the evil which is still pres
 
 -   **[Quote from Mari Mari Emmanuel](https://youtube.com/watch?v=11z22HR1KHo&t=421):** So fear nothing, love everyone, but be firm when it comes to speaking the truth. Truth cannot be compromised. It cannot be sold.
 
--   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
+-   **Amen:** [youtube.com youtube.com: Day 9: Repent New York City | Phillip Blair](https://www.youtube.com/watch?v=FYgc_dIuhYohttps://www.youtube.com/watch?v=FYgc_dIuhYo)
 
 > I agree whole heartedly with Keith Green here:
 > 
@@ -522,7 +522,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb77fa04) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org536d679) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -753,9 +753,9 @@ And brought into doing the will of God:
 
 > **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
--   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+-   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-Yeah, I agree with John Piper, for the most part. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him [due praise](https://youtu.be/YCz-AN6tO-c?t=1798), and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief, desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
+Yeah, I agree with John Piper, for the most part. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), and treasure His word, and treasure His commandments, to give Him [due praise](https://youtu.be/YCz-AN6tO-c?t=1798), and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief, desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
 
 God wants Him to be our treasure. We must obey Jesus and Jehovah Jireh will provide:
 
@@ -1689,6 +1689,26 @@ AMEN!
 -   **[youtube.com: How to Seek the Holy Spirit @time: 48 min 13 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=2893):** "If anyone keeps Jesus' word, holds fast, treasures it, in obedience, that person will not be quenching the Spirit, that person will not be grieving the Spirit, but will know the fullness and sweetness of fellowship with the Father and the Son."
 
 AMEN to that, John Piper.
+
+> **[Ephesians 3:6](https://www.biblegateway.com/passage/?search=Ephesians%203%3A6&version=ESV)** - This mystery is that the Gentiles are fellow heirs, members of the same body, and partakers of the promise in Christ Jesus through the gospel. (ESV)
+
+We must be children of the promise:
+
+> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For <ins>not all who are descended from Israel belong to Israel</ins>, and <ins>not all are children of Abraham because they are his offspring</ins>, but Through Isaac shall your offspring be named. This means that **it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring.** (ESV)
+
+> **[Romans 2:26-29](https://www.biblegateway.com/passage/?search=Romans%202%3A26-29&version=ESV)** - So, if a man who is uncircumcised keeps the precepts of the law, will not his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one outwardly, nor is circumcision outward and physical. But **a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter.** His praise is not from man but from God. (ESV)
+
+The promise is to be an [heir of the world](https://www.youtube.com/watch?v=CH0UBUfI5PI&ab_channel=DesiringGod):
+
+> **[Romans 4:13](https://www.biblegateway.com/passage/?search=Romans%204%3A13&version=ESV)** - For <ins>the promise to Abraham and his offspring</ins> that <ins>he would be heir of the world</ins> did not come through the law but <ins>through the righteousness of faith</ins>. (ESV)
+
+We trust/believe in the one true God who raised Jesus Christ our Lord from the dead. We have peace with God through trusting faith:
+
+> **[Romans 4:23-25](https://www.biblegateway.com/passage/?search=Romans%204%3A23-25&version=ESV),5:1-2** - But the words it was counted to him were not written for his sake alone, but for ours also. **It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification**. Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+We need to call on God for help:
+
+> **[Romans 10:8-13](https://www.biblegateway.com/passage/?search=Romans%2010%3A8-13&version=ESV)** - But what does it say? The word is near you, in your mouth and in your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him. For everyone who calls on the name of the Lord will be saved. (ESV)
 
 
 ### Any spiritual experience should be in the character of the Holy Spirit
@@ -4344,7 +4364,7 @@ Priorities:
 
 > **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
--   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+-   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
 We should be able to live while having confidence that Jesus is all we need. The fear of not having enough money should not be stopping us from obeying God and treasuring God above all things and loving one another as God has instructed.
 
@@ -4358,7 +4378,7 @@ We must accept Jesus as Master over us:
 
 > **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
 
-But not only that; We also have to want God, treasure God and love God. And that means loving Him, treasure Him, love Him in trust and in belief and obedience. In order to follow Jesus, sometimes you will **have to** sacrifice financial security because there are many people you around you who need you to lighten their burdens. Also God may even test you to see if you love your money more than Him:
+But not only that; We also have to want God, treasure God and love God. And that means loving Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), love Him in trust and in belief and obedience. In order to follow Jesus, sometimes you will **have to** sacrifice financial security because there are many people you around you who need you to lighten their burdens. Also God may even test you to see if you love your money more than Him:
 
 > **[I Peter 4:12](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A12&version=ESV)** - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though something strange were happening to you. (ESV)
 
@@ -10852,9 +10872,9 @@ It was inevitable. The Scripture **had** to be fulfilled:
 
 > **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
--   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+-   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-Yeah, I agree with John Piper, for the most part. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him [due praise](https://youtu.be/YCz-AN6tO-c?t=1798), and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief, desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
+Yeah, I agree with John Piper, for the most part. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), and treasure His word, and treasure His commandments, to give Him [due praise](https://youtu.be/YCz-AN6tO-c?t=1798), and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief, desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
 
 As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping the commandments of God and struggling with sin then we should make Him our number one love heart's desire and treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's true.
 
@@ -12853,7 +12873,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org28ec5d1)
+See: [33.4.1](#orgdcba700)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -18106,7 +18126,7 @@ Also, I still think that people, and acts of kindness towards people can be heav
 
 > **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
--   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+-   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
 Jesus certainly does command us to have emotions for things. For example:
 
@@ -18464,9 +18484,9 @@ The knowledge of Jesus Christ our God and Saviour comes through His words and ob
 
 > **[Matthew 6:19-21](https://www.biblegateway.com/passage/?search=Matthew%206%3A19-21&version=ESV)** - Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also.
 
--   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+-   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
-Yeah, I agree with John Piper, for the most part. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him, and treasure His word, and treasure His commandments, to give Him [due praise](https://youtu.be/YCz-AN6tO-c?t=1798), and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief, desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
+Yeah, I agree with John Piper, for the most part. Loving God is not actually **first** working for God. But it is to truly desire God, and treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), and treasure His word, and treasure His commandments, to give Him [due praise](https://youtu.be/YCz-AN6tO-c?t=1798), and to honour God, and give Him the glory, to love Him in the affectionate and treasuring sense is what God wants of us, and Jesus says that if we love Him then we will keep His commandments. Where John Piper says 'affectionate love comes before obedience', I prefer to say that 'treasuring God includes a heart of obedience, trust, belief, desiring God, and affectionate love' and I also think that obedience (being in the will of God) may produce work for God but doesn't strictly mean work. We want to keep His commandments so I believe we should treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we have to make God our number one love.
 
 As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping the commandments of God and struggling with sin then we should make Him our number one love heart's desire and treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's true.
 
@@ -26390,7 +26410,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org28ec5d1)
+See: [33.4.1](#orgdcba700)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -33025,7 +33045,7 @@ Now I'm saying that it's all in God's hands, and I've made an effort to have Jes
 
 > **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
 
--   **God wants us to love Him, treasure Him, value Him with **all** our heart, and love and value and treasure one another as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
+-   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
 I have absolutely no unforgiveness or grudge with anyone involved regarding what has happened with the marriage proposal and I just want God to completely deliver me from the evil.
 
