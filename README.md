@@ -486,6 +486,7 @@ A short version of my testimony of being born-again and Jesus setting me free:
 -   I've been writing software since then
 -   Life had been hard. I was a slave to the world, to sin and was in darkness (I could only see the world, and didn't have a love for God)
     -   I was a hopeless case. I was looking for salvation through working harder, and trying to get ahead of the curve with AI stuff
+        -   **[Ephesians 2:12](https://www.biblegateway.com/passage/?search=Ephesians%202%3A12&version=ESV)** - remember that you were at that time separated from Christ, alienated from the commonwealth of Israel and strangers to the covenants of promise, having no hope and without God in the world. (ESV)
     -   I was full of guilt, and I had so much shame and life has always been difficult
     -   I didn't have much love for Jesus. I struggled to believe He was for-me.
     -   My priorities were not in order. God wasn't my number one love or treasure
@@ -515,6 +516,10 @@ A short version of my testimony of being born-again and Jesus setting me free:
     -   [web.archive.org mullikine.github.io: The Tapestry of Truth // Bodacious Blog](https://web.archive.org/web/20220703044748/https://mullikine.github.io/posts/the-tapestry-of-truth/)
 -   I had an [immersive vision of healing people with compassion](https://web.archive.org/web/20220702053809/https://mullikine.github.io/posts/astral-projection-pt-3/) soon after, just 2-3 weeks before Pentecost that year
 
+I really affirm Marc's message here:
+
+-   [youtube.com: When You Become Chosen You Will Find Yourself Alone](https://www.youtube.com/watch?v=MTgy_-2QXdk)
+
 I'll also add Geoff Winter's testimony:
 
 -   [youtube.com: Testimony of Geoff Winter, 2017](https://www.youtube.com/watch?v=a62axv-oNQc)
@@ -526,7 +531,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7458b87) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf4a1bd4) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2980,6 +2985,10 @@ Those are my current eschatological thoughts, but I am no expert.
 
 "When Jesus became my Lord and Savior, a battle between good and evil started." as one commenter said on [this video](https://www.youtube.com/watch?v=CTaeOKhiI1k&t=731s&ab_channel=DesiringGod).
 
+After I began obeying Jesus, and especially repenting and denouncing sin and heresy, that's when I started getting attacked spiritually, as this guy ([MarcTheMessenger](https://www.youtube.com/@MarcTheMessengerLive)) describes:
+
+-   [youtube.com: God Leveled Me Up Now I'm Depressed](https://www.youtube.com/watch?v=AXY5OtY7fYY)
+
 > **[Matthew 3:10](https://www.biblegateway.com/passage/?search=Matthew%203%3A10&version=ESV)** - Even now the axe is laid to the root of the trees. Every tree therefore that does not bear good fruit is cut down and thrown into the fire. (ESV)
 
 Even regards to the rapture, ultimately we leave this world behind. Ultimately, I think we need to go all-in for Jesus and get used to relying on God completely, and be ready to leave this world behind. If we go all-in for Jesus now then we will experience the kingdom of God on earth.
@@ -4514,6 +4523,14 @@ Obedience to Jesus' commandments (repentance from sin):
 Obedience to Jesus' commandments (becoming disciples, obeying Jesus' commandments):
 
 > **[Matthew 28:18-20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A18-20&version=ESV)** - And Jesus came up and spoke to them, saying, “All authority has been given to Me in heaven and on earth. Go therefore and make disciples of all the nations, baptizing them in the name of the Father and the Son and **the Holy Spirit**, teaching them to observe **all that I commanded you**; and lo, I am with you always, even to the end of the age.”
+
+Keeping the commandments is how to love and Christian's are called to keep God's commandments
+
+> **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For neither circumcision counts for anything nor uncircumcision, but keeping the commandments of God. (ESV)
+
+We're sure that we abide in Christ when we are keeping His commandments:
+
+> **[I John 2:1-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A1-6&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and not for ours only but also for the sins of the whole world. And **by this we know that we have come to know him, if we keep his commandments.** Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but **whoever keeps his word, in him truly the love of God is perfected.** <ins>By this we may be sure that we are in him: whoever says he abides in him ought to walk in the same way in which he walked.</ins> (ESV)
 
 The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
 
@@ -12881,7 +12898,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge4662e5)
+See: [33.4.1](#org13f8517)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14572,6 +14589,8 @@ I also put on a piece of paper over my body like this:
 
 > **[Mark 1:25](https://www.biblegateway.com/passage/?search=Mark%201%3A25&version=ESV)** - But Jesus rebuked him, saying, Be silent, and come out of him! (ESV)
 
+-   **Example:** [youtube.com: Deliverance from the Kundalini spirit](https://www.youtube.com/watch?v=eEot02XA49E)
+
 
 ### Demons are not rare
 
@@ -15171,7 +15190,7 @@ We must receive Jesus' words, walk in them and come to **know in truth** (we mus
 > **[John 17:8](https://www.biblegateway.com/passage/?search=John%2017%3A8&version=ESV)** - For I have given them the words that you gave me, and they have received them and have **come to know in truth that I came from you**; and they have believed that you sent me.
 
 Therefore, we should obey Jesus and arrive at the truth. Obedience is a part of faith. Like Abraham obeying God, or like Israel crossing through the Red Sea, it's obedience which leads to sure belief.
-And the obedience doesn't end.
+And the [obedience doesn't end](https://www.youtube.com/watch?v=AXY5OtY7fYY&ab_channel=MarcTheMessengerLive).
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=NASB)** - So Jesus was saying to those Jews who had believed Him, “If you **continue in My word**, then you are truly disciples of Mine; and **you will know the truth**, and the truth will make you free.” (NASB)
 
@@ -18540,7 +18559,11 @@ We now live for the will of God:
 ## We are certainly supposed to keep the commandments - we're supposed to love God and our neighbour in truth
 
 
-### Keeping the commandments is how to love.
+### Keeping the commandments is how to love and Christian's are called to keep God's commandments
+
+> **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For neither circumcision counts for anything nor uncircumcision, but keeping the commandments of God. (ESV)
+
+> **[I John 2:1-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A1-6&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and not for ours only but also for the sins of the whole world. And **by this we know that we have come to know him, if we keep his commandments.** Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but **whoever keeps his word, in him truly the love of God is perfected.** By this we may be sure that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
 
 > **[Romans 13:9](https://www.biblegateway.com/passage/?search=Romans%2013%3A9&version=ESV)** - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself.
 
@@ -18576,6 +18599,8 @@ Yup - and in truth. I think the commandments often need to be looked at to see w
 > **[Romans 3:31](https://www.biblegateway.com/passage/?search=Romans%203%3A31&version=ESV)** - Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 AMEN!!
+
+-   **Watch:** [youtube.com: When You Become Chosen You Will Find Yourself Alone](https://www.youtube.com/watch?v=MTgy_-2QXdk)
 
 
 ### It matters that we are loving, going into eternity
@@ -26424,7 +26449,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge4662e5)
+See: [33.4.1](#org13f8517)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -27034,7 +27059,11 @@ Works:
     -   keeping God's commandments
 -   patient endurance (time)
 
-If a person is believing (verb) that Jesus Christ is the Son of the Living God then they abide in Christ:
+We're sure that we abide in Christ when we are keeping His commandments:
+
+> **[I John 2:1-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A1-6&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and not for ours only but also for the sins of the whole world. And **by this we know that we have come to know him, if we keep his commandments.** Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but **whoever keeps his word, in him truly the love of God is perfected.** <ins>By this we may be sure that we are in him: whoever says he abides in him ought to walk in the same way in which he walked.</ins> (ESV)
+
+If a person is trusting/believing (verb) that Jesus Christ is the Son of the Living God then they abide in Christ:
 
 > **[I John 4:16](https://www.biblegateway.com/passage/?search=1%20John%204%3A16&version=ESV)** - So **we have come to know and to believe** the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. (ESV)
 

@@ -779,6 +779,9 @@ A short version of my testimony of being born-again and Jesus setting me free:
 didn't have a love for God)
 - I was a hopeless case. I was looking for salvation through working harder, and trying to get ahead of the
 curve with AI stuff
+- Ephesians 2:12 - remember that you were at that time separated from Christ, alienated from the
+commonwealth of Israel and strangers to the covenants of promise, having no hope and without God in
+the world. (ESV)
 - I was full of guilt, and I had so much shame and life has always been difficult
 - I didn't have much love for Jesus. I struggled to believe He was for-me.
 - My priorities were not in order. God wasn't my number one love or treasure
@@ -817,6 +820,10 @@ didn't know what was going on but asking him to save me
 - web.archive.org mullikine.github.io: The Tapestry of Truth // Bodacious Blog
 - I had an immersive vision of healing people with compassion soon after, just 2-3 weeks before Pentecost that
 year
+
+I really affirm Marc's message here:
+
+- youtube.com: When You Become Chosen You Will Find Yourself Alone
 
 I'll also add Geoff Winter's testimony:
 
@@ -4556,6 +4563,11 @@ Those are my current eschatological thoughts, but I am no expert.
 "When Jesus became my Lord and Savior, a battle between good and evil started." as one commenter said on this
 video.
 
+After I began obeying Jesus, and especially repenting and denouncing sin and heresy, that's when I started getting
+attacked spiritually, as this guy (MarcTheMessenger) describes:
+
+- youtube.com: God Leveled Me Up Now I'm Depressed
+
   Matthew 3:10 - Even now the axe is laid to the root of the trees. Every tree therefore that does not bear good
   fruit is cut down and thrown into the fire. (ESV)
 
@@ -6782,6 +6794,20 @@ Obedience to Jesus' commandments (becoming disciples, obeying Jesus' commandment
   and on earth. Go therefore and make disciples of all the nations, baptizing them in the name of the Father and
   the Son and the Holy Spirit, teaching them to observe all that I commanded you; and lo, I am with you always,
   even to the end of the age."
+
+Keeping the commandments is how to love and Christian's are called to keep God's commandments
+
+  I Corinthians 7:19 - For neither circumcision counts for anything nor uncircumcision, but keeping the
+  commandments of God. (ESV)
+
+We're sure that we abide in Christ when we are keeping His commandments:
+
+  I John 2:1-6 - My little children, I am writing these things to you so that you may not sin. But if anyone does
+  sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and
+  not for ours only but also for the sins of the whole world. And by this we know that we have come to know him,
+  if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth
+  is not in him, but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure
+  that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
 
 The word tereo means (to keep, observe, obey, follow). Commandments are for obeying. That's all they are for. This
 observance means to remember and practice. Nowhere in the Bible does it teach to disobey God:
@@ -21555,6 +21581,9 @@ with you. I bought you. You're mine. No one can snatch you out of my hand. I wil
 
   Mark 1:25 - But Jesus rebuked him, saying, Be silent, and come out of him! (ESV)
 
+Example
+youtube.com: Deliverance from the Kundalini spirit
+
 18.10.3. Demons are not rare
 
   Mark 1:39 - And he went throughout all Galilee, preaching in their synagogues and casting out demons. (ESV)
@@ -27513,7 +27542,17 @@ We now live for the will of God:
 
 30.4. We are certainly supposed to keep the commandments - we're supposed to love God and our neighbour in truth
 
-30.4.1. Keeping the commandments is how to love.
+30.4.1. Keeping the commandments is how to love and Christian's are called to keep God's commandments
+
+  I Corinthians 7:19 - For neither circumcision counts for anything nor uncircumcision, but keeping the
+  commandments of God. (ESV)
+
+  I John 2:1-6 - My little children, I am writing these things to you so that you may not sin. But if anyone does
+  sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and
+  not for ours only but also for the sins of the whole world. And by this we know that we have come to know him,
+  if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth
+  is not in him, but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure
+  that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
 
   Romans 13:9 - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You
   shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as
@@ -27564,6 +27603,9 @@ Yup - and in truth. I think the commandments often need to be looked at to see w
   Romans 3:31 - Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 AMEN!!
+
+Watch
+youtube.com: When You Become Chosen You Will Find Yourself Alone
 
 30.4.2. It matters that we are loving, going into eternity
 
@@ -38912,7 +38954,16 @@ Works:
 - keeping God's commandments
 - patient endurance (time)
 
-If a person is believing (verb) that Jesus Christ is the Son of the Living God then they abide in Christ:
+We're sure that we abide in Christ when we are keeping His commandments:
+
+  I John 2:1-6 - My little children, I am writing these things to you so that you may not sin. But if anyone does
+  sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and
+  not for ours only but also for the sins of the whole world. And by this we know that we have come to know him,
+  if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth
+  is not in him, but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure
+  that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
+
+If a person is trusting/believing (verb) that Jesus Christ is the Son of the Living God then they abide in Christ:
 
   I John 4:16 - So we have come to know and to believe the love that God has for us. God is love, and whoever
   abides in love abides in God, and God abides in him. (ESV)
@@ -48094,7 +48145,7 @@ Date: 2024-09-18 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-18 Wed 09:35
+Created: 2024-09-18 Wed 17:41
 
 Validate
 
