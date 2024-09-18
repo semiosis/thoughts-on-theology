@@ -531,7 +531,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1d2f70a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga48e61c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2152,17 +2152,21 @@ Jesus gives both repentance and forgiveness:
 
 > **[Acts 5:31-32](https://www.biblegateway.com/passage/?search=Acts%205%3A31-32&version=ESV)** - God exalted him at his right hand as Leader and Savior, to give repentance to Israel and forgiveness of sins. And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey him. (ESV)
 
-Stephen stressed the importance of being **circumcised in heart** and links that in the same sentence to resisting the Holy Spirit:
+Stephen stressed the importance of being **circumcised in the heart** (something that they should have been able to be) and in the same sentence implies that to be uncircumcised in heart is to resist the Holy Spirit:
 
 > **[Acts 7:51-53](https://www.biblegateway.com/passage/?search=Acts%207%3A51-53&version=ESV)** - **You stiff-necked people, uncircumcised in heart and ears, you always resist the Holy Spirit**. As your fathers did, so do you. Which of the prophets did not your fathers persecute? And they killed those who announced beforehand the coming of the Righteous One, whom you have now betrayed and murdered, you who received the law as delivered by angels and did not keep it. (ESV)
 
-We must repent in this way:
+It's totally fair to say that anybody should be able to circumcise themself to the LORD, and that makes a person a Jew inwardly. We must repent in this way:
 
-> **[Jeremiah 4:4](https://www.biblegateway.com/passage/?search=Jeremiah%204%3A4&version=ESV)** - Circumcise yourselves to the LORD; remove the foreskin of your hearts, O men of Judah and inhabitants of Jerusalem; lest my wrath go forth like fire, and burn with none to quench it, because of the evil of your deeds. (ESV)
+> **[Jeremiah 4:4](https://www.biblegateway.com/passage/?search=Jeremiah%204%3A4&version=ESV)** - **Circumcise yourselves to the LORD**; remove the foreskin of your hearts, O men of Judah and inhabitants of Jerusalem; lest my wrath go forth like fire, and burn with none to quench it, because of the evil of your deeds. (ESV)
+
+> **[Romans 2:29](https://www.biblegateway.com/passage/?search=Romans%202%3A29&version=ESV)** - But a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
+
+I know I had begun to repent according to the 10 commandments even a year in advance of being born-again of the Spirit in an effort to seek God and I got born-again.
 
 It's been commanded all the way back here in Deuteronomy:
 
-> **[Deuteronomy 10:12-17](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A12-17&version=ESV)** - And now, Israel, what does the LORD your God require of you, but to fear the LORD your God, to walk in all his ways, to love him, to serve the LORD your God with all your heart and with all your soul, and to keep the commandments and statutes of the LORD, which I am commanding you today for your good? Behold, to the LORD your God belong heaven and the heaven of heavens, the earth with all that is in it. Yet the LORD set his heart in love on your fathers and chose their offspring after them, you above all peoples, as you are this day. Circumcise therefore the foreskin of your heart, and be no longer stubborn. For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and takes no bribe. (ESV)
+> **[Deuteronomy 10:12-17](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A12-17&version=ESV)** - And now, Israel, what does the LORD your God require of you, but to fear the LORD your God, to walk in all his ways, to love him, to serve the LORD your God with all your heart and with all your soul, and to **keep the commandments and statutes of the LORD**, which I am commanding you today for your good? Behold, to the LORD your God belong heaven and the heaven of heavens, the earth with all that is in it. Yet the LORD set his heart in love on your fathers and chose their offspring after them, you above all peoples, as you are this day. **Circumcise therefore the foreskin of your heart, and be no longer stubborn**. For the LORD your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and takes no bribe. (ESV)
 
 Simon had believed and been baptized but he needed to repent so that his heart was right before God:
 
@@ -12948,7 +12952,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org095c826)
+See: [33.4.1](#org0929c27)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26499,7 +26503,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org095c826)
+See: [33.4.1](#org0929c27)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
