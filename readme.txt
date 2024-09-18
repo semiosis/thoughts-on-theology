@@ -3196,6 +3196,35 @@ as through the hands of the Apostles:
 For me it was years after being baptised in water that I was born-again of the Spirit, and being born-again of the
 Spirit happened shortly after I had begun seeking God in truth, and repenting from sin.
 
+I think this guy puts it well here:
+
+- youtube.com: There Is No Baptism In The Holy Spirit Without Repentance | Bishop Macedo Meditation @time: 15
+min 19 sec
+
+|  I believe that this answers the
+|  questions of many people that say,
+|    "Oh, I've bent over backwards to receive the
+|    Holy Spirit and I still don't have Him.
+|    I've been the church for 30, 50 years, I'm
+|    in the church for 47 years and I still
+|    haven't received the Holy Spirit."
+| 
+|  Why? because you haven't repented. You have
+|   not repented. And if you are waiting to feel
+|   something in order to repent you never
+|   repent because it doesn't depend on a
+|   feeling.
+|  
+|    ...
+|  
+|    But they do not make the decision to
+|    abandon their old life. The same thing,
+|    you get married but you don't want to
+|    stop being single, you want to continue
+|    acting as though you are single. Of
+|    course your marriage won't work - it's a
+|    pretense, it's fake.
+
 3.11.1. Water baptism as an appeal to God
 
 Water baptism is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
@@ -11983,11 +12012,14 @@ Jesus pre-existed before Creation:
 5.15.19. Faith and law-keeping as a Christian
 
 When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our
-own level of law adherence while we follow and adhere to Jesus first and foremost, but we should be being
+own commitment to law adherence while we follow and adhere to Jesus first and foremost, but we should be being
 sanctified by obedience to the Truth, so we should be becoming more holy and loving and coming to imitate Jesus.
 
 John Piper on Faith and Law-Keeping
 youtube.com: How Our Faith and Law-Keeping Work Together in the Christian Life
+
+  II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
+  into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
   Romans 2:11-12 - For God shows no partiality. For all who have sinned without the law will also perish without
   the law, and all who have sinned under the law will be judged by the law. (ESV)
@@ -48145,7 +48177,7 @@ Date: 2024-09-18 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-18 Wed 17:41
+Created: 2024-09-18 Wed 20:47
 
 Validate
 

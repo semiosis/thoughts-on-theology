@@ -531,7 +531,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf4a1bd4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb09f465) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2119,6 +2119,34 @@ Again, these people were baptised in the name of the Lord Jesus, but they hadn't
 > **[Acts 8:14-17](https://www.biblegateway.com/passage/?search=Acts%208%3A14-17&version=ESV)** - Now when the apostles at Jerusalem heard that Samaria had received the word of God, they sent to them Peter and John, who came down and prayed for them that they might receive the Holy Spirit, for he had not yet fallen on any of them, but they had only been baptized in the name of the Lord Jesus. Then they laid their hands on them and they received the Holy Spirit. (ESV)
 
 For me it was years after being baptised in water that I was born-again of the Spirit, and being born-again of the Spirit happened shortly after I had begun seeking God in truth, and repenting from sin.
+
+I think this guy puts it well here:
+
+-   [youtube.com: There Is No Baptism In The Holy Spirit Without Repentance | Bishop Macedo Meditation @time: 15 min 19 sec](https://youtube.com/watch?v=nqnYYt6kEN0&t=919)
+
+     1  I believe that this answers the
+     2  questions of many people that say,
+     3    "Oh, I've bent over backwards to receive the
+     4    Holy Spirit and I still don't have Him.
+     5    I've been the church for 30, 50 years, I'm
+     6    in the church for 47 years and I still
+     7    haven't received the Holy Spirit."
+     8  
+     9  Why? because you haven't repented. You have
+    10  not repented. And if you are waiting to feel
+    11  something in order to repent you never
+    12  repent because it doesn't depend on a
+    13  feeling.
+    14  
+    15   ...
+    16  
+    17   But they do not make the decision to
+    18   abandon their old life. The same thing,
+    19   you get married but you don't want to
+    20   stop being single, you want to continue
+    21   acting as though you are single. Of
+    22   course your marriage won't work - it's a
+    23   pretense, it's fake.
 
 
 ### Water baptism as an appeal to God
@@ -8108,10 +8136,12 @@ Jesus pre-existed before Creation:
 
 ### Faith and law-keeping as a Christian
 
-When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own level of law adherence
+When it comes to following the law as a Christian, it's a matter of being accountable to God personally over our own commitment to law adherence
 while we follow and adhere to Jesus first and foremost, but we should be being sanctified by obedience to the Truth, so we should be becoming more holy and loving and coming to imitate Jesus.
 
 -   **John Piper on Faith and Law-Keeping:** [youtube.com: How Our Faith and Law-Keeping Work Together in the Christian Life](https://www.youtube.com/watch?v=clrbUjkbNsM)
+
+> **[II Corinthians 3:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%203%3A18&version=ESV)** - And we all, with unveiled face, beholding the glory of the Lord, are being <ins>transformed into the same image</ins> **from one degree of glory to another**. For this comes from the Lord who is the Spirit. (ESV)
 
 > **[Romans 2:11-12](https://www.biblegateway.com/passage/?search=Romans%202%3A11-12&version=ESV)** - For **God shows no partiality**. For all who have sinned without the law will also perish without the law, and all who have sinned under the law will be judged by the law. (ESV)
 
@@ -12898,7 +12928,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org13f8517)
+See: [33.4.1](#orgd64f9da)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26449,7 +26479,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org13f8517)
+See: [33.4.1](#orgd64f9da)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
