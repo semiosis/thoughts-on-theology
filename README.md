@@ -25,7 +25,7 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
 
 This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today. This morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-18 Wed&gt; </span></span> (4 days later) I was hit with some spiritual attack (including strange dreams) so I purposefully stayed up singing this song in my heart and mind and as I did, trying to 'will from the heart' to desire to do God's will and I was able to beat the spiritual attack back this morning :):
 
--   **[youtube.com: PURIFY MY HEART | Praise & Worship Song lyric video](https://www.youtube.com/watch?v=OfH9j-TLg3U):** Purify my heart.
+-   **[youtube.com: Purify My Heart {Refiner's Fire} | Jeremy Riddle - Worship Moment](https://www.youtube.com/watch?v=ayH5iV5zmrI&list=RDurnl_qYQ9l0&index=2):** Purify my heart.
     Let me be as gold and precious silver.
     Purify my heart.
     Let me be as gold, pure gold.
@@ -531,7 +531,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga48e61c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5f968c9) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1417,13 +1417,33 @@ We must live in the spirit the way God does, not for human passions, but for the
 
 When we believe God's word given through Jesus, we have passed from death to life. We should definitely then listen to Jesus to see what He has actually spoken.
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
+
+In trusting Jesus' words - or even His name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) and He is the judge - we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement:
+
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears (**[191. akouó](https://biblehub.com/greek/191.htm)**) my word (**[3056. logos](https://biblehub.com/greek/3056.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes (**[pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm)**) in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) of the only Son of God. (ESV)
+
+An indication that we have passed from death to life is that we [agapé](https://biblehub.com/interlinear/1_john/3-14.htm) / treasure our family in Christ:
+
+> **[I John 3:14-20](https://www.biblegateway.com/passage/?search=1%20John%203%3A14-20&version=ESV)** - We know that we have passed out of death into life, because we love (**[agapōmen](https://biblehub.com/interlinear/1_john/3-14.htm)**) the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for whenever our heart condemns us, God is greater than our heart, and he knows everything. (ESV)
 
 Belief (in the heart) that Jesus is the Son of God leads to:
 
 -   experiencing the love of God, and
 -   overcoming the world, which feels like:
     -   God's commandments are not burdensome
+        -   Having agape for God and family in Christ and even for other people, and
+        -   not having agape for the world or worldly things
 
 > **[I John 5:3-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A3-5&version=ESV)** - For this is the love of God, that **we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world.** And this is the victory that has overcome the world—our faith. **Who is it that overcomes the world except the one who believes that Jesus is the Son of God?** (ESV)
 
@@ -2594,7 +2614,15 @@ Jesus Christ is our Lord and Teacher - that means we believe and obey Him:
 
 If you hear Jesus' word and believe Father God, then you have eternal life, and don't come into judgement. I don't doubt it. We must continue trusting. But the enemy will certainly try to condemn the person after they are born-again:
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
 
 If we actually believe Jesus Christ is who He says He is, the Son of God, Messiah, we are not condemned.
 We're never condemned if we are believing in Jesus Christ, Son of God:
@@ -2722,7 +2750,15 @@ We are not condemned if we believe in the name of Jesus Christ, the only Son of 
 
 AMEN!!
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
 
 AMEN!!
 
@@ -2934,7 +2970,15 @@ We receive / walk into the eternal life through faith in Jesus:
 
 If you hear Jesus' words which came from God and trust God then you have eternal life:
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
 
 > **[John 7:16](https://www.biblegateway.com/passage/?search=John%207%3A16&version=ESV)** - So Jesus answered them, My teaching is not mine, but his who sent me. (ESV)
 
@@ -2970,11 +3014,11 @@ Jesus doesn't delay. We must be vigilant and ready to serve Jesus:
 
 > **[Matthew 24:48](https://www.biblegateway.com/passage/?search=Matthew%2024%3A48&version=ESV)** - But if that wicked servant says to himself, My master is delayed, (ESV)
 
-God wants as many people as possible to be saved (I think of this a bit like as 'delaying' the second coming - my own speculation on eschatology is just me speculating), but not like delaying Jesus' work, as we should be vigilant about anticipating Jesus. Jesus does not delay. Jesus literally visits people imminently in this life time, and we should also consider the second coming of the Lord Jesus Christ to be imminent:
-
-> **[John 1:12-13](https://www.biblegateway.com/passage/?search=John%201%3A12-13&version=ESV)** - But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (NASB)
+God wants as many people as possible to be saved (I think of this a bit like as 'delaying' the second coming - my [own speculation](https://www.youtube.com/watch?v=mp8eWueUkA0&ab_channel=DesiringGod) on eschatology is just me speculating), but not like delaying Jesus' work, as we should be vigilant about anticipating Jesus. Jesus does not delay. Jesus literally visits people imminently in this life time, and we should also consider the second coming of the Lord Jesus Christ to be imminent:
 
 > **[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)** - who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+
+> **[John 1:12-13](https://www.biblegateway.com/passage/?search=John%201%3A12-13&version=ESV)** - But as many as received Him, to them He gave the right to become children of God, even to those who believe in His name, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (NASB)
 
 -   **[hymnary.org: All People That on Earth Do Dwell | Hymnary.org](https://hymnary.org/text/all_people_that_on_earth_do_dwell):** All people that on earth do dwell,
     sing to the LORD with cheerful voice;
@@ -2984,6 +3028,30 @@ God wants as many people as possible to be saved (I think of this a bit like as 
 > **[II Peter 3:9](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A9&version=ESV)** - The Lord is not slow to fulfill his promise as some count slowness, but is patient toward you, not wishing that any should perish, but that all should reach repentance. (ESV)
 
 > **[Ezekiel 18:23](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A23&version=ESV)** - Have I any pleasure in the death of the wicked, declares the Lord GOD, and not rather that he should turn from his way and live? (ESV)
+
+Receiving Jesus, we have the 'right', the 'authority' to become children of God, even by receiving Him through the knowledge of His name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**):
+
+> **[John 1:12](https://biblehub.com/interlinear/john/1-12.htm)** - As many as however received Him He gave to them authority children of God to be to those believing in the name of Him (Interlinear)
+
+     1  3745       1161     2983     846       1325     846
+     2  hosoi      de       elabon   auton     edōken   autois
+     3  ὅσοι       δὲ       ἔλαβον   αὐτόν  ,  ἔδωκεν   αὐτοῖς
+     4  As many as however  received Him       He gave  to them
+     5  RelPro-NMP Conj     V-AIA-3P PPro-AM3S V-AIA-3S PPro-DM3P
+     6  
+     7  1849      5043     2316   1096        3588     4100
+     8  exousian  tekna    Theou  genesthai   tois     pisteuousin
+     9  ἐξουσίαν  τέκνα    Θεοῦ   γενέσθαι  , τοῖς     πιστεύουσιν
+    10  authority children of God to be       to those believing
+    11  N-AFS     N-ANP    N-GMS  V-ANM       Art-DMP  V-PPA-DMP
+    12  
+    13  1519 3588    3686  846
+    14  eis  to      onoma autou
+    15  εἰς  τὸ      ὄνομα αὐτοῦ  ,
+    16  in   the     name  of Him
+    17  Prep Art-ANS N-ANS PPro-GM3S
+
+> **[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)** - For this is the will of my Father, that everyone who looks (**[2334. theóreó](https://biblehub.com/greek/2334.htm)**) on the Son and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) in him should have eternal life, and I will raise him up on the last day. (ESV)
 
 I consider the 'coming of the Lord' to be something which happens during one's time on earth probably to every servant of the Lord:
 
@@ -2996,7 +3064,7 @@ Just as it is inevitable that every son or daughter of God will be disciplined:
 > **[Hebrews 12:6](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A6&version=ESV)** - For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
 
 I still hold *imminence* with regards to rapture a possibility on the basis that when I was born of the Spirit, things progressed very rapidly
-I was quickly baptised in the Holy Spirit and I asked God in prayer that the whole of my city would be saved. My words seemed to have a lot of impact during this time. This is my own speculation. I was riding by the seat of my pants after being born of the spirit.
+I was quickly baptised in the Holy Spirit and I asked God in prayer that the whole of my city would be saved. My words seemed to have a lot of impact during this time. This is my [own speculation](https://www.youtube.com/watch?v=mp8eWueUkA0&ab_channel=DesiringGod). I was riding by the seat of my pants after being born of the spirit.
 
 -   **video:** [youtube.com: Life or Death by Your Tongue](https://www.youtube.com/watch?v=WcGhzysmCl8)
 
@@ -4445,7 +4513,7 @@ We must accept Jesus as Master over us:
 
 > **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
 
-But not only that; We also have to want God, treasure God and love God. And that means loving Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), love Him in trust and in belief and obedience. In order to follow Jesus, sometimes you will **have to** sacrifice financial security because there are many people you around you who need you to lighten their burdens. Also God may even test you to see if you love your money more than Him:
+But not only that; We also have to want God, treasure God and love God. And that means loving Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), love Him in trust and in belief and obedience. In order to follow Jesus, sometimes you will **have to** sacrifice financial security because there are many people you around you who need you to lighten their burdens because we value/treasure ([25. agapaó](https://biblehub.com/greek/25.htm)) people more than material/worldly things. Also God may even test you to see if you love your money more than Him:
 
 > **[I Peter 4:12](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A12&version=ESV)** - Beloved, do not be surprised at the fiery trial when it comes upon you to test you, as though something strange were happening to you. (ESV)
 
@@ -4467,7 +4535,7 @@ AMEN!!
 
 -   **Sermon:** [Seven Reasons We Must Pursue Supreme Satisfaction in God - YouTube](https://www.youtube.com/watch?v=aUPSZBm1OjY)
 
-We must get on the path of having faith in Jesus, believe in the name of Jesus, God's Son, and obey God to have confidence:
+We must get on the path of having faith in Jesus, believe in the name (**[onoma](https://biblehub.com/greek/3686.htm)**) of Jesus, God's Son, and obey God to have confidence:
 
 > **[Proverbs 10:17](https://www.biblegateway.com/passage/?search=Proverbs%2010%3A17&version=ESV)** - Whoever heeds instruction is on the path to life, but he who rejects reproof leads others astray. (ESV)
 
@@ -5411,7 +5479,7 @@ It's those that believe in him (trust Him, receive Him, <ins>expect to receive H
 
 We <ins>must honour Jesus Christ in our bodies and in our lives</ins> - fruitful labour, so that we can be confident with [John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV). AMEN!! We must be slaves of righteousness, leading to sanctification, which at its end is eternal life:
 
-> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes (G4100 **pisteuo**) him who sent me has eternal life</ins>. He does not come into judgment, but has passed from death to life.
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes (G4100 **pisteuo**) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life.
 
 I believe [John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV) is a true statement and that it should not be read outside of the words Jesus said directly before it (`Whoever does not honor the Son does not honor the Father who sent him`).
 
@@ -5983,7 +6051,15 @@ This belief is a free gift which has to be received in faith (you have to believ
 
 God wants to bring people to the obedience of faith. We have to hear Jesus' word and believe God who sent Him - we have to believe what God has told Jesus to tell us:
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
 
 Therefore, I believe that believing Jesus is the Christ (Messiah), the Son of God, who has come into the world, is God's gift to us and it is a very easy to receive (low barrier to entry) act of obedience to Him:
 
@@ -6921,7 +6997,7 @@ We have **always obeyed** - God works through us:
 
 We must honour Jesus Christ:
 
-> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes (G4100 **pisteuo**) him who sent me has eternal life</ins>. He does not come into judgment, but has passed from death to life.
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes (G4100 **pisteuo**) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life.
 
 I believe [John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV) is a true statement and that it should not be read outside of the words Jesus said directly before it (`Whoever does not honor the Son does not honor the Father who sent him`).
 
@@ -7710,7 +7786,7 @@ We must love Jesus and follow Him. Jesus is the judge.
 Our obedience to Jesus matters. Because the righteousness of God is received through faith.
 We are implored to strive to follow Jesus to our best ability:
 
-> **[John 5:17-29](https://www.biblegateway.com/passage/?search=John%205%3A17-29&version=ESV)** - But Jesus answered them, My Father is working until now, and I am working. This was why the Jews were seeking all the more to kill him, because not only was he breaking the Sabbath, but he was even calling God his own Father, making himself equal with God. So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but only what he sees the Father doing. For whatever the Father does, that the Son does likewise. For the Father loves the Son and shows him all that he himself is doing. And greater works than these will he show him, so that you may marvel. For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him.</ins> Truly, truly, I say to you, <ins>whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life.</ins> Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For as the Father has life in himself, so he has granted the Son also to have life in himself. And he has given him authority to execute judgment, because he is the Son of Man. Do not marvel at this, for an hour is coming when all who are in the tombs will hear his voice and come out, <ins>those who have done good to the resurrection of life, and those who have done evil to the resurrection of judgment.</ins> (ESV)
+> **[John 5:17-29](https://www.biblegateway.com/passage/?search=John%205%3A17-29&version=ESV)** - But Jesus answered them, My Father is working until now, and I am working. This was why the Jews were seeking all the more to kill him, because not only was he breaking the Sabbath, but he was even calling God his own Father, making himself equal with God. So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but only what he sees the Father doing. For whatever the Father does, that the Son does likewise. For the Father loves the Son and shows him all that he himself is doing. And greater works than these will he show him, so that you may marvel. For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him.</ins> Truly, truly, I say to you, <ins>whoever hears my word and believes him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life.</ins> Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For as the Father has life in himself, so he has granted the Son also to have life in himself. And he has given him authority to execute judgment, because he is the Son of Man. Do not marvel at this, for an hour is coming when all who are in the tombs will hear his voice and come out, <ins>those who have done good to the resurrection of life, and those who have done evil to the resurrection of judgment.</ins> (ESV)
 
 
 ### The gospel has to be obeyed
@@ -8918,7 +8994,7 @@ We must obey His commandments to walk in the same way He walked so we get to kno
 
 > **[John 8:48-49](https://www.biblegateway.com/passage/?search=John%208%3A48-49&version=ESV)** - The Jews answered him, Are we not right in saying that you are a Samaritan and have a demon? Jesus answered, I do not have a demon, but I honor my Father, and you dishonor me.
 
-> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes (G4100 **pisteuo**) him who sent me has eternal life</ins>. He does not come into judgment, but has passed from death to life.
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes (G4100 **pisteuo**) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life.
 
 
 ### We are implored to keep Jesus' words
@@ -8967,7 +9043,7 @@ Whoever honours Jesus by obeying Him, honours Father God. Whoever hears these wo
 
 And in obeying Jesus we are performing good works which are works done in faith towards God.
 
-> **[John 5:17-29](https://www.biblegateway.com/passage/?search=John%205%3A17-29&version=ESV)** - But Jesus answered them, My Father is working until now, and I am working. This was why the Jews were seeking all the more to kill him, because not only was he breaking the Sabbath, but he was even calling God his own Father, making himself equal with God. So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but only what he sees the Father doing. For whatever the Father does, that the Son does likewise. For the Father loves the Son and shows him all that he himself is doing. And greater works than these will he show him, so that you may marvel. For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him.</ins> Truly, truly, I say to you, <ins>whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life.</ins> Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For as the Father has life in himself, so he has granted the Son also to have life in himself. And he has given him authority to execute judgment, because he is the Son of Man. Do not marvel at this, for an hour is coming when all who are in the tombs will hear his voice and come out, <ins>those who have done good to the resurrection of life, and those who have done evil to the resurrection of judgment.</ins> (ESV)
+> **[John 5:17-29](https://www.biblegateway.com/passage/?search=John%205%3A17-29&version=ESV)** - But Jesus answered them, My Father is working until now, and I am working. This was why the Jews were seeking all the more to kill him, because not only was he breaking the Sabbath, but he was even calling God his own Father, making himself equal with God. So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but only what he sees the Father doing. For whatever the Father does, that the Son does likewise. For the Father loves the Son and shows him all that he himself is doing. And greater works than these will he show him, so that you may marvel. For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. <ins>Whoever does not honor the Son does not honor the Father who sent him.</ins> Truly, truly, I say to you, <ins>whoever hears my word and believes him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life.</ins> Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For as the Father has life in himself, so he has granted the Son also to have life in himself. And he has given him authority to execute judgment, because he is the Son of Man. Do not marvel at this, for an hour is coming when all who are in the tombs will hear his voice and come out, <ins>those who have done good to the resurrection of life, and those who have done evil to the resurrection of judgment.</ins> (ESV)
 
 
 ### Having faith (living in accordance with the truth, and in relationship with God) is asked of us - faith continues
@@ -12952,7 +13028,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org0929c27)
+See: [33.4.1](#org3bcccb0)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -17795,7 +17871,11 @@ I think it's possible but you have to expect to receive it:
 
 AMEN!!
 
-**True** faith (does a person actually believe) is enough, but that means that **no distrust** would cause the person to unwaver. I still think that trust itself elicits obedience. Since God commanded us to place our faith in Him, then to have faith itself is to have begun to obey God.
+Like Abraham we trust God who is reliable. We can be unreliable but we trust God who is reliable and faithful.
+
+I still think that trust elicits obedience. Since God commanded us to place our faith in Him, then to have faith itself is to have begun to obey God.
+
+Abraham was unwavering in trusting God who is absolutely reliable.
 
 The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
 
@@ -19113,7 +19193,7 @@ To follow the law by faith, I think, is to not lie, commit adultery, idolize, et
 
 This is the key, I think, to following the law by faith: **praise from God and not men**.
 
-> **[Romans 2:29](https://www.biblegateway.com/passage/?search=Romans%202%3A29&version=ESV)** - But he is a Jew who is one inwardly; and **circumcision is that which is of the heart, by the Spirit**, not by the letter; and his praise is not from men, but from God.
+> **[Romans 2:29](https://www.biblegateway.com/passage/?search=Romans%202%3A29&version=ESV)** - But he is a Jew who is one inwardly; and **circumcision is that which is of the heart, by the Spirit**, not by the letter; and **his praise is not from men, but from God**.
 
 Actually complying with the law (not breaking it) is good:
 
@@ -19311,7 +19391,7 @@ Be humble:
 
 ## Both Father God and Jesus Christ God's Son have life in Himself and the power to resurrect
 
-> **[John 5:24-26](https://www.biblegateway.com/passage/?search=John%205%3A24-26&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For as the Father has life in himself, so he has granted the Son also to have life in himself.
+> **[John 5:24-26](https://www.biblegateway.com/passage/?search=John%205%3A24-26&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life. Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. For as the Father has life in himself, so he has granted the Son also to have life in himself.
 
 > **[John 5:21](https://www.biblegateway.com/passage/?search=John%205%3A21&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. (ESV)
 
@@ -24395,7 +24475,15 @@ I 100% believe that anyone who has faith in Jesus Christ can be saved / spared f
 
 Believers have eternal life and are not condemned:
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
 
 All who have believed will marvel:
 
@@ -26503,7 +26591,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org0929c27)
+See: [33.4.1](#org3bcccb0)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30300,7 +30388,15 @@ God wants everyone who comes to Jesus and place their trust in Him to have etern
 
 If you hear Jesus' word and believe Father God, then you have eternal life, and don't come into judgement. I don't doubt it. We must continue trusting. But the enemy will certainly try to condemn the person after they are born-again:
 
-> **[John 5:24](https://www.biblegateway.com/passage/?search=John%205%3A24&version=ESV)** - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He does not come into judgment, but has passed from death to life. (ESV)
+Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
+
+> **John 5:21-24** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears my word (**[191. akouó](https://biblehub.com/greek/191.htm)**) and believes (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
+
+I think it's probably more accurate to translate [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) with "passes" rather than "has passed", but I'm not the Judge.
+
+-   ****[2064. erchomai](https://biblehub.com/greek/2064.htm)**:** to come, go
+
+-   ****[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**:** to pass over, withdraw, depart
 
 It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
