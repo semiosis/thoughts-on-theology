@@ -225,6 +225,10 @@ We must act out our new nature:
     itself out in visible actions and behaviors
     and attitudes. Become what you are within."
 
+-   **[Mathetes to Diognetus](https://www.earlychristianwritings.com/text/diognetus-roberts.html):** They dwell in their own countries, but simply as sojourners. As citizens, they share in all things with others, and yet endure all things as if foreigners. Every foreign land is to them as their native country, and every land of their birth as a land of strangers. They marry, as do all [others]; they beget children; but they do not destroy their offspring. They have a common table, but not a common bed. They are in the flesh, but they do not live after the flesh. They pass their days on earth, but they are citizens of heaven. They obey the prescribed laws, and at the same time surpass the laws by their lives. They love all men, and are persecuted by all. They are unknown and condemned; they are put to death, and restored to life. They are poor, yet make many rich; they are in lack of all things, and yet abound in all; they are dishonoured, and yet in their very dishonour are glorified. They are evil spoken of, and yet are justified; they are reviled, and bless; they are insulted, and repay the insult with honour; they do good, yet are punished as evil-doers. When punished, they rejoice as if quickened into life; they are assailed by the Jews as foreigners, and are persecuted by the Greeks; yet those who hate them are unable to assign any reason for their hatred.
+
+> **[Philippians 2:15](https://www.biblegateway.com/passage/?search=Philippians%202%3A15&version=ESV)** - that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, (ESV)
+
 Jesus follows us and supports us:
 
 > **[I Corinthians 10:4](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A4&version=ESV)** - and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. (ESV)
@@ -480,7 +484,7 @@ We're saved and rescued from idolatry and from other lawlessness, and in order t
 
 > **[Ezekiel 36:25-27](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-27&version=ESV)** - I will sprinkle clean water on you, and you shall be clean from all your uncleannesses, and from all your idols I will cleanse you. And I will give you a new heart, and a new spirit I will put within you. And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my Spirit within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
 
-A short version of my testimony of being born-again and Jesus setting me free:
+A short version of my testimony of being born-again and Jesus [setting me free](https://www.youtube.com/watch?v=GLugRDi7uH0&ab_channel=TheRockChurch):
 
 -   Baptised as a teenager in Vanuatu in 2005
 -   I've been writing software since then
@@ -531,7 +535,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org810253f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbe249d5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1747,6 +1751,10 @@ The promise is to be an [heir of the world](https://www.youtube.com/watch?v=CH0U
 We trust/believe in the one true God who raised Jesus Christ our Lord from the dead. We have peace with God through trusting faith:
 
 > **[Romans 4:23-25](https://www.biblegateway.com/passage/?search=Romans%204%3A23-25&version=ESV),5:1-2** - But the words it was counted to him were not written for his sake alone, but for ours also. **It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification**. Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+We have faith in Almighty God who gives life to the dead and calls into existence the things that do not exist. Our faith is modeled on Abraham's:
+
+> **[Romans 4:16-17](https://www.biblegateway.com/passage/?search=Romans%204%3A16-17&version=ESV)** - That is why it depends on faith, in order that the promise may rest on grace and be guaranteed to all his offspring—not only to the adherent of the law but also to the one who shares the faith of Abraham, who is the father of us all, as it is written, I have made you the father of many nations—in the presence of the God in whom he believed, **who gives life to the dead and calls into existence the things that do not exist.** (ESV)
 
 We need to call on God for help:
 
@@ -13193,7 +13201,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbaf7237)
+See: [33.4.1](#orga80fc58)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -17572,7 +17580,19 @@ The promise is eternal life which is knowing and never being disconnected from G
 
 > **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
 
-To be justified, a person must have the faith like Abraham's but in Christ Jesus. By faith Abraham trusted God, was faithful to God, believed God and obeyed God. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
+To be justified, a person must have the faith like Abraham's but in God the Father of Christ Jesus, and our faith is in Christ Jesus as Father God sent Jesus.
+
+-   **Sermon:** [youtube.com: What Do We Believe?](https://www.youtube.com/watch?v=kSA32FvkVEs)
+
+We trust/believe in the one true God who raised Jesus Christ our Lord from the dead. We have peace with God through trusting faith:
+
+> **[Romans 4:23-25](https://www.biblegateway.com/passage/?search=Romans%204%3A23-25&version=ESV),5:1-2** - But the words it was counted to him were not written for his sake alone, but for ours also. **It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification**. Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+We have faith in Almighty God who gives life to the dead and calls into existence the things that do not exist. Our faith is modeled on Abraham's faith:
+
+> **[Romans 4:16-17](https://www.biblegateway.com/passage/?search=Romans%204%3A16-17&version=ESV)** - That is why it depends on faith, in order that the promise may rest on grace and be guaranteed to all his offspring—not only to the adherent of the law but **also to the one who shares the faith of Abraham, who is the father of us all**, as it is written, I have made you the father of many nations—in the presence of the God in whom he believed, **who gives life to the dead and calls into existence the things that do not exist.** (ESV)
+
+By faith Abraham trusted God, was faithful to God, believed God and obeyed God. So the faith has the fruit of <ins>walking in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
 I think it is especially necessary for those who are circumcised (under the law) to maintain the faith of Abraham:
 
 > **[Romans 4:9-12](https://www.biblegateway.com/passage/?search=Romans%204%3A9-12&version=ESV)** - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him <ins>the father of all who believe without being circumcised</ins>, so that righteousness would be counted to them as well, and <ins>to make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised</ins>.
@@ -18075,7 +18095,7 @@ Abraham was unwavering in trusting God who is absolutely reliable.
 
 The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
 
-> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust  (\*apistia**) made him waver\* concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
     1  apistia: unbelief
     2  Original Word: ἀπιστία, ας, ἡ
@@ -26795,7 +26815,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbaf7237)
+See: [33.4.1](#orga80fc58)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -28455,7 +28475,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[I Corinthians 15:50](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A50&version=ESV)** - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does the perishable inherit the imperishable.
     
-    > **[I Corinthians 15:51-54](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A51-54&version=ESV)** - Behold! I tell you a mystery. We shall not all sleep, but we shall all be changed, in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised imperishable, and we shall be changed.
+    > **I Corinthians 15:51-54** - Behold! I tell you a mystery. We shall not all sleep, but we shall all be changed, in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised imperishable, and we shall be changed. For this perishable body must put on the imperishable, and this mortal body must put on immortality. When the perishable puts on the imperishable, and the mortal puts on immortality, then shall come to pass the saying that is written: Death is swallowed up in victory. (ESV)
 
 2.  The mortal puts on immortality (at the resurrection)
 

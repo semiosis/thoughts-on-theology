@@ -326,6 +326,23 @@ put clothing around yourself you give something for people to look at that's pre
 "clothe yourselves, put on your new nature," he means, "let that inner reality that God has created work itself
 out in visible actions and behaviors and attitudes. Become what you are within."
 
+Mathetes to Diognetus
+They dwell in their own countries, but simply as sojourners. As citizens, they share in all things with others,
+and yet endure all things as if foreigners. Every foreign land is to them as their native country, and every land
+of their birth as a land of strangers. They marry, as do all [others]; they beget children; but they do not
+destroy their offspring. They have a common table, but not a common bed. They are in the flesh, but they do not
+live after the flesh. They pass their days on earth, but they are citizens of heaven. They obey the prescribed
+laws, and at the same time surpass the laws by their lives. They love all men, and are persecuted by all. They are
+unknown and condemned; they are put to death, and restored to life. They are poor, yet make many rich; they are in
+lack of all things, and yet abound in all; they are dishonoured, and yet in their very dishonour are glorified.
+They are evil spoken of, and yet are justified; they are reviled, and bless; they are insulted, and repay the
+insult with honour; they do good, yet are punished as evil-doers. When punished, they rejoice as if quickened into
+life; they are assailed by the Jews as foreigners, and are persecuted by the Greeks; yet those who hate them are
+unable to assign any reason for their hatred.
+
+  Philippians 2:15 - that you may be blameless and innocent, children of God without blemish in the midst of a
+  crooked and twisted generation, among whom you shine as lights in the world, (ESV)
+
 Jesus follows us and supports us:
 
   I Corinthians 10:4 - and all drank the same spiritual drink. For they drank from the spiritual Rock that
@@ -2587,6 +2604,14 @@ through trusting faith:
   for our trespasses and raised for our justification. Therefore, since we have been justified by faith, we have
   peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace
   in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+We have faith in Almighty God who gives life to the dead and calls into existence the things that do not exist.
+Our faith is modeled on Abraham's:
+
+  Romans 4:16-17 - That is why it depends on faith, in order that the promise may rest on grace and be guaranteed
+  to all his offspring-not only to the adherent of the law but also to the one who shares the faith of Abraham,
+  who is the father of us all, as it is written, I have made you the father of many nations-in the presence of the
+  God in whom he believed, who gives life to the dead and calls into existence the things that do not exist. (ESV)
 
 We need to call on God for help:
 
@@ -26122,10 +26147,32 @@ True God, Father God, and Jesus, God's Son:
   John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
   (ESV)
 
-To be justified, a person must have the faith like Abraham's but in Christ Jesus. By faith Abraham trusted God,
-was faithful to God, believed God and obeyed God. So the faith has the fruit of walking in the footsteps of the
-faith that our father Abraham had before he was circumcised. I think it is especially necessary for those who are
-circumcised (under the law) to maintain the faith of Abraham:
+To be justified, a person must have the faith like Abraham's but in God the Father of Christ Jesus, and our faith
+is in Christ Jesus as Father God sent Jesus.
+
+Sermon
+youtube.com: What Do We Believe?
+
+We trust/believe in the one true God who raised Jesus Christ our Lord from the dead. We have peace with God
+through trusting faith:
+
+  Romans 4:23-25,5:1-2 - But the words it was counted to him were not written for his sake alone, but for ours
+  also. It will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up
+  for our trespasses and raised for our justification. Therefore, since we have been justified by faith, we have
+  peace with God through our Lord Jesus Christ. Through him we have also obtained access by faith into this grace
+  in which we stand, and we rejoice in hope of the glory of God. (ESV)
+
+We have faith in Almighty God who gives life to the dead and calls into existence the things that do not exist.
+Our faith is modeled on Abraham's faith:
+
+  Romans 4:16-17 - That is why it depends on faith, in order that the promise may rest on grace and be guaranteed
+  to all his offspring-not only to the adherent of the law but also to the one who shares the faith of Abraham,
+  who is the father of us all, as it is written, I have made you the father of many nations-in the presence of the
+  God in whom he believed, who gives life to the dead and calls into existence the things that do not exist. (ESV)
+
+By faith Abraham trusted God, was faithful to God, believed God and obeyed God. So the faith has the fruit of
+walking in the footsteps of the faith that our father Abraham had before he was circumcised. I think it is
+especially necessary for those who are circumcised (under the law) to maintain the faith of Abraham:
 
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
   was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
@@ -26848,7 +26895,7 @@ The reason Abraham's faith was counted as righteousness is because no distrust m
 trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good indicator
 that Abraham was totally trusting of God is that Abraham walked in the promise of God:
 
-  Romans 4:20-22 - No distrust (*apistia) made him waver* concerning the promise of God, but he grew strong in his
+  Romans 4:20-22 - No distrust (apistia) made him waver concerning the promise of God, but he grew strong in his
   faith as he gave glory to God, fully convinced that God was able to do what he had promised. That is why his
   faith was counted to him as righteousness. (ESV)
 
@@ -40865,7 +40912,9 @@ And then it's possible to inherit the imperishable:
 
   I Corinthians 15:51-54 - Behold! I tell you a mystery. We shall not all sleep, but we shall all be changed,
   in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will
-  be raised imperishable, and we shall be changed.
+  be raised imperishable, and we shall be changed. For this perishable body must put on the imperishable, and
+  this mortal body must put on immortality. When the perishable puts on the imperishable, and the mortal puts
+  on immortality, then shall come to pass the saying that is written: Death is swallowed up in victory. (ESV)
 
  2. The mortal puts on immortality (at the resurrection)
 
@@ -48880,11 +48929,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-20 Fri 00:00
+Date: 2024-09-21 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-20 Fri 17:54
+Created: 2024-09-21 Sat 08:57
 
 Validate
 
