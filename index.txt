@@ -338,7 +338,11 @@ lack of all things, and yet abound in all; they are dishonoured, and yet in thei
 They are evil spoken of, and yet are justified; they are reviled, and bless; they are insulted, and repay the
 insult with honour; they do good, yet are punished as evil-doers. When punished, they rejoice as if quickened into
 life; they are assailed by the Jews as foreigners, and are persecuted by the Greeks; yet those who hate them are
-unable to assign any reason for their hatred.
+unable to assign any reason for their hatred. To sum up all in one word-what the soul is in the body, that are
+Christians in the world. The soul is dispersed through all the members of the body, and Christians are scattered
+through all the cities of the world. The soul dwells in the body, yet is not of the body; and Christians dwell in
+the world, yet are not of the world. The invisible soul is guarded by the visible body, and Christians are known
+indeed to be in the world, but their godliness remains invisible.
 
   Philippians 2:15 - that you may be blameless and innocent, children of God without blemish in the midst of a
   crooked and twisted generation, among whom you shine as lights in the world, (ESV)
@@ -48933,7 +48937,7 @@ Date: 2024-09-21 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-21 Sat 08:57
+Created: 2024-09-21 Sat 09:07
 
 Validate
 

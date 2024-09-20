@@ -225,7 +225,7 @@ We must act out our new nature:
     itself out in visible actions and behaviors
     and attitudes. Become what you are within."
 
--   **[Mathetes to Diognetus](https://www.earlychristianwritings.com/text/diognetus-roberts.html):** They dwell in their own countries, but simply as sojourners. As citizens, they share in all things with others, and yet endure all things as if foreigners. Every foreign land is to them as their native country, and every land of their birth as a land of strangers. They marry, as do all [others]; they beget children; but they do not destroy their offspring. They have a common table, but not a common bed. They are in the flesh, but they do not live after the flesh. They pass their days on earth, but they are citizens of heaven. They obey the prescribed laws, and at the same time surpass the laws by their lives. They love all men, and are persecuted by all. They are unknown and condemned; they are put to death, and restored to life. They are poor, yet make many rich; they are in lack of all things, and yet abound in all; they are dishonoured, and yet in their very dishonour are glorified. They are evil spoken of, and yet are justified; they are reviled, and bless; they are insulted, and repay the insult with honour; they do good, yet are punished as evil-doers. When punished, they rejoice as if quickened into life; they are assailed by the Jews as foreigners, and are persecuted by the Greeks; yet those who hate them are unable to assign any reason for their hatred.
+-   **[Mathetes to Diognetus](https://www.earlychristianwritings.com/text/diognetus-roberts.html):** They dwell in their own countries, but simply as sojourners. As citizens, they share in all things with others, and yet endure all things as if foreigners. Every foreign land is to them as their native country, and every land of their birth as a land of strangers. They marry, as do all [others]; they beget children; but they do not destroy their offspring. They have a common table, but not a common bed. They are in the flesh, but they do not live after the flesh. They pass their days on earth, but they are citizens of heaven. They obey the prescribed laws, and at the same time surpass the laws by their lives. They love all men, and are persecuted by all. They are unknown and condemned; they are put to death, and restored to life. They are poor, yet make many rich; they are in lack of all things, and yet abound in all; they are dishonoured, and yet in their very dishonour are glorified. They are evil spoken of, and yet are justified; they are reviled, and bless; they are insulted, and repay the insult with honour; they do good, yet are punished as evil-doers. When punished, they rejoice as if quickened into life; they are assailed by the Jews as foreigners, and are persecuted by the Greeks; yet those who hate them are unable to assign any reason for their hatred. To sum up all in one word&#x2013;what the soul is in the body, that are Christians in the world. The soul is dispersed through all the members of the body, and Christians are scattered through all the cities of the world. The soul dwells in the body, yet is not of the body; and Christians dwell in the world, yet are not of the world. The invisible soul is guarded by the visible body, and Christians are known indeed to be in the world, but their godliness remains invisible.
 
 > **[Philippians 2:15](https://www.biblegateway.com/passage/?search=Philippians%202%3A15&version=ESV)** - that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, (ESV)
 
@@ -535,7 +535,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbe249d5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org735824c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13201,7 +13201,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga80fc58)
+See: [33.4.1](#org0786de9)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26815,7 +26815,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga80fc58)
+See: [33.4.1](#org0786de9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
