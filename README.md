@@ -531,7 +531,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org34abe1e) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org810253f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -10205,9 +10205,11 @@ If you're unrighteously angry then watch out:
 
 > **John 7:19-25** - Has not Moses given you the law? Yet none of you keeps the law. <ins>Why do you seek to kill me?</ins> The crowd answered, You have a demon! Who is seeking to kill you? Jesus answered them, I did one deed, and you all marvel at it. Moses gave you circumcision (not that it is from Moses, but from the fathers), and you circumcise a man on the Sabbath. If on the Sabbath a man receives circumcision, so that the law of Moses may not be broken, **are you angry with me because** <ins>on the Sabbath I made a man's whole body well?</ins> *Do not judge by appearances, but judge with right judgment.* Some of the people of Jerusalem therefore said, <ins>Is not this the man whom they seek to kill?</ins> (ESV)
 
-Because to be angry at Jesus for doing good sparked Jesus' anger in [John 7:19-25](https://www.biblegateway.com/passage/?search=John%207%3A19-25&version=ESV). Who would win that dispute in God's court? Jesus would:
+-   ****[3709. orgé](https://biblehub.com/greek/3709.htm)**:** "Orgē comes from the verb oragō meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst, but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so Hendriksen)" (D. E. Hiebert, at [1 Thes 1:10](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A10&version=ESV)).
 
-> **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And **he looked around at them with anger**, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
+Jesus' *anger* here was a godly grief:
+
+> **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And **he looked around at them with anger ([3709. orgé](https://biblehub.com/greek/3709.htm))**, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
 
 We must forgive our family in Christ from the heart:
 
@@ -13191,7 +13193,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga1eb90e)
+See: [33.4.1](#orgbaf7237)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -16313,7 +16315,11 @@ My faith and God's law came up against the imperfect NZ law:
 
 > **[Proverbs 3:29-30](https://www.biblegateway.com/passage/?search=Proverbs%203%3A29-30&version=ESV)** - Do not plan evil against your neighbor, who dwells trustingly beside you. Do not contend with a man for no reason, when he has done you no harm. (ESV)
 
-> **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And he looked around at them with anger, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
+-   ****[3709. orgé](https://biblehub.com/greek/3709.htm)**:** "Orgē comes from the verb oragō meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst, but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so Hendriksen)" (D. E. Hiebert, at [1 Thes 1:10](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A10&version=ESV)).
+
+Jesus' *anger* here was a godly grief:
+
+> **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And **he looked around at them with anger ([3709. orgé](https://biblehub.com/greek/3709.htm))**, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
 
 Also, the reason to take the sentence can also be to simply not drag things out!
 
@@ -16361,7 +16367,7 @@ We should be imitators of God's love:
 
 -   ****[3709. orgé](https://biblehub.com/greek/3709.htm)**:** "Orgē comes from the verb oragō meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst, but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so Hendriksen)" (D. E. Hiebert, at [1 Thes 1:10](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A10&version=ESV)).
 
-Jesus' *anger* here was different. It was certainly a godly grief:
+Jesus' *anger* here was a godly grief:
 
 > **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And **he looked around at them with anger ([3709. orgé](https://biblehub.com/greek/3709.htm))**, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
 
@@ -26789,7 +26795,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga1eb90e)
+See: [33.4.1](#orgbaf7237)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -32848,7 +32854,7 @@ If you're unrighteously angry then watch out:
 
 -   ****[3709. orgé](https://biblehub.com/greek/3709.htm)**:** "Orgē comes from the verb oragō meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst, but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so Hendriksen)" (D. E. Hiebert, at [1 Thes 1:10](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A10&version=ESV)).
 
-Jesus' *anger* here was different. It was certainly a godly grief:
+Jesus' *anger* here was a godly grief:
 
 > **[Mark 3:4-5](https://www.biblegateway.com/passage/?search=Mark%203%3A4-5&version=ESV)** - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill? But they were silent. And **he looked around at them with anger ([3709. orgé](https://biblehub.com/greek/3709.htm))**, grieved at their hardness of heart, and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
 

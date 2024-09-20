@@ -15169,12 +15169,16 @@ If you're unrighteously angry then watch out:
   judge with right judgment. Some of the people of Jerusalem therefore said, Is not this the man whom they seek to
   kill? (ESV)
 
-Because to be angry at Jesus for doing good sparked Jesus' anger in John 7:19-25. Who would win that dispute in
-God's court? Jesus would:
+3709. orge
+"Orge comes from the verb orago meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst,
+but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so
+Hendriksen)" (D. E. Hiebert, at 1 Thes 1:10).
+
+Jesus' anger here was a godly grief:
 
   Mark 3:4-5 - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill?
-  But they were silent. And he looked around at them with anger, grieved at their hardness of heart, and said to
-  the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
+  But they were silent. And he looked around at them with anger (3709. orge), grieved at their hardness of heart,
+  and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
 
 We must forgive our family in Christ from the heart:
 
@@ -24078,9 +24082,16 @@ My faith and God's law came up against the imperfect NZ law:
   Proverbs 3:29-30 - Do not plan evil against your neighbor, who dwells trustingly beside you. Do not contend with
   a man for no reason, when he has done you no harm. (ESV)
 
+3709. orge
+"Orge comes from the verb orago meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst,
+but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so
+Hendriksen)" (D. E. Hiebert, at 1 Thes 1:10).
+
+Jesus' anger here was a godly grief:
+
   Mark 3:4-5 - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill?
-  But they were silent. And he looked around at them with anger, grieved at their hardness of heart, and said to
-  the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
+  But they were silent. And he looked around at them with anger (3709. orge), grieved at their hardness of heart,
+  and said to the man, Stretch out your hand. He stretched it out, and his hand was restored. (ESV)
 
 Also, the reason to take the sentence can also be to simply not drag things out!
 
@@ -24178,7 +24189,7 @@ We should be imitators of God's love:
 but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so
 Hendriksen)" (D. E. Hiebert, at 1 Thes 1:10).
 
-Jesus' anger here was different. It was certainly a godly grief:
+Jesus' anger here was a godly grief:
 
   Mark 3:4-5 - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill?
   But they were silent. And he looked around at them with anger (3709. orge), grieved at their hardness of heart,
@@ -46518,7 +46529,7 @@ If you're unrighteously angry then watch out:
 but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so
 Hendriksen)" (D. E. Hiebert, at 1 Thes 1:10).
 
-Jesus' anger here was different. It was certainly a godly grief:
+Jesus' anger here was a godly grief:
 
   Mark 3:4-5 - And he said to them, Is it lawful on the Sabbath to do good or to do harm, to save life or to kill?
   But they were silent. And he looked around at them with anger (3709. orge), grieved at their hardness of heart,
@@ -48873,7 +48884,7 @@ Date: 2024-09-20 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-20 Fri 16:51
+Created: 2024-09-20 Fri 17:54
 
 Validate
 
