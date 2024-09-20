@@ -535,7 +535,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org735824c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfd288b0) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4875,7 +4875,7 @@ Jesus' perfect example of patience in mercy towards Paul is to:
 
 We are set free from sin to become slaves of God. The fruit of being a slave to God leads to sanctification and at its end, eternal life:
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
+> **Romans 6:22-23** - But now that you have been **set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life**. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
 > **[Romans 6:7](https://www.biblegateway.com/passage/?search=Romans%206%3A7&version=ESV)** - For one who has died has been set free from sin. (ESV)
 
@@ -7224,7 +7224,7 @@ See:
 
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=NASB)** - But now having been freed from sin and **enslaved to God**, you derive your benefit, <ins>resulting in sanctification</ins>, and the outcome, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (NASB)
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+> **Romans 6:22-23** - But now that you have been **set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life**. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
 > **[Romans 6:7](https://www.biblegateway.com/passage/?search=Romans%206%3A7&version=ESV)** - For one who has died has been set free from sin. (ESV)
 
@@ -8093,6 +8093,8 @@ Father God keeps us in His name so that we may be one with Them:
 By posing the question, Jesus doesn't deny that he is good. But we agree, affirming what Jesus has spoken that God is good:
 
 > **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)** - And Jesus said to him, Why do you call me good? <ins>No one is good except God alone.</ins> (ESV)
+
+-   **[Mathetes to Diognetus](https://www.earlychristianwritings.com/text/diognetus-roberts.html):** For, who of men at all understood before His coming what God is? Do you accept of the vain and silly doctrines of those who are deemed trustworthy philosophers? &#x2026; But such declarations are simply the startling and erroneous utterances of deceivers; and no man has either seen Him, or made Him known, but He has revealed Himself. And <ins>He has manifested Himself through faith, to which alone it is given to behold God.</ins> For God, the Lord and Fashioner of all things, who made all things, and assigned them their several positions, proved Himself not merely a friend of mankind, but also long-suffering [in His dealings with them.] Yea, <span class="underline">He was always of such a character, and still is, and will ever be, kind and good, and **[dispassionate](https://www.earlychristianwritings.com/text/diognetus-lightfoot.html)** (<del>free from wrath</del>), and true, and the only one who is [absolutely] good;</span> and He formed in His mind a great and unspeakable conception, which He communicated to His Son alone. As long, then, as He held and preserved His own wise counsel in concealment, He appeared to neglect us, and to have no care over us. But after He revealed and laid open, through His beloved Son, the things which had been prepared from the beginning, <ins>He conferred every blessing all at once upon us, so that we should both share in His benefits, and see and be active [in His service].</ins> Who of us would ever have expected these things? He was aware, then, of all things in His own mind, along with His Son, according to the relation subsisting between them.
 
 I believe there is only one good shepherd, and that is Jesus Christ, Immanuel (God with us, God incarnate, and not merely in the flesh, but the Word became flesh):
 
@@ -9220,7 +9222,7 @@ We must obey! This obedience is being led by the Spirit.
     
     It is a gift to be able to be obedient to Lord Jesus Christ, trusting in Him so that we may become obedient to Him:
     
-    > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+    > **Romans 6:22-23** - But now that you have been **set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life**. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
 2.  We must live sowing to the Spirit
 
@@ -11588,7 +11590,7 @@ Repentance involves turning away from sin, and all believers are supposed to tur
 
 We must stop doing evil:
 
-> **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+> **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: **to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life**; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
 
 Eternal judgement:
 
@@ -13201,7 +13203,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org0786de9)
+See: [33.4.1](#orgacd7f14)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -21502,6 +21504,16 @@ But the goodness of God should lead us to repentance:
 
 # Entering and inheriting the kingdom
 
+Through the power of God working in us as we hold faith in Jesus we may enter the Kingdom of God:
+
+-   **[Mathetes to Diognetus](https://www.earlychristianwritings.com/text/diognetus-roberts.html):** This was not that He at all delighted in our sins, but that He simply endured them; nor that He approved the time of working iniquity which then was, but that He sought to form a mind conscious of righteousness, so that being convinced in that time of our unworthiness of attaining life through our own works, it should now, through the kindness of God, be vouchsafed to us; and having made it manifest that <ins>in ourselves we were unable to enter into the kingdom of God</ins>, **we might through the power of God be made able.**
+
+> **[Luke 18:24-30](https://www.biblegateway.com/passage/?search=Luke%2018%3A24-30&version=ESV)** - Jesus, looking at him with sadness, said, How difficult it is for those who have wealth to enter the kingdom of God! For it is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. Those who heard it said, Then who can be saved (**[4982. sózó](https://biblehub.com/greek/4982.htm)**)? But he said, **What is impossible with men is possible with God.** And Peter said, See, we have left our homes and followed you. And he said to them, Truly, I say to you, there is no one who has left house or wife or brothers or parents or children, for the sake of the kingdom of God, who will not receive many times more in this time, <ins>and in the age (**[165. aión](https://biblehub.com/greek/165.htm)**) to come eternal (**[166. aiónios](https://biblehub.com/greek/166.htm)**) life (**[2222. zóé](https://biblehub.com/greek/2222.htm)**).</ins> (ESV)
+
+-   **[4982 sṓzō (from sōs, "safe, rescued")](https://biblehub.com/greek/4982.htm):** properly, deliver out of danger and into safety; used principally of God rescuing believers from the penalty and power of sin – and into His provisions (safety).
+
+> **[I Timothy 1:15-16](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A15-16&version=ESV)** - The saying is trustworthy and deserving of full acceptance, that Christ Jesus came into the world to save sinners, of whom I am the foremost. But I received mercy for this reason, that in me, as the foremost, Jesus Christ might display his perfect patience as an example to those who were to believe in him for eternal life. (ESV)
+
 At the time we believe, the kingdom of God to us is a promise for which we hope. When do you enter the kingdom of God? That's a good question. I think a reasonable answer is: hold the faith, fight the good fight of faith, and be the 'good soil':
 
 > **[Acts 14:22](https://www.biblegateway.com/passage/?search=Acts%2014%3A22&version=ESV)** - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying that through many tribulations we must enter the kingdom of God. (ESV)
@@ -21512,9 +21524,17 @@ We must be the good soil:
 
 > **[Matthew 13:22-23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A22-23&version=ESV)** - As for what was sown among thorns, this is the one who hears the word, but the cares of the world and the deceitfulness of riches choke the word, and it proves unfruitful. As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
 
+Being the good soil is walking in the light, in the truth, the word of truth, the gospel, and that bearing good fruit:
+
+> **[I John 2:24-25](https://www.biblegateway.com/passage/?search=1%20John%202%3A24-25&version=ESV)** - Let what you heard from the beginning abide in you. If what you heard from the beginning abides in you, then you too will abide in the Son and in the Father. And this is the promise that he made to us—eternal life. (ESV)
+
+> **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: **to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life**; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+
+> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been **set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life**. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
 We do need a lot of faith (faith, faithfulness, obedience) in God to **inherit** the Kingdom of God:
 
-> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? (ESV)
+> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and **heirs of the kingdom, which he has promised to those who love him?** (ESV)
 
 It's received as an inheritance by being found **in Christ**. We believe we have it while we are found **in Christ**, and continue working it out, and we do need repentance from sin to inherit it. We need to be believing and obedient to Jesus. We need to be faithful to Jesus. We need to follow Jesus:
 
@@ -21979,7 +21999,11 @@ Zacchaeus was repentant, and was saved through Jesus as he had the faith of Abra
 > **[Luke 19:1-10](https://www.biblegateway.com/passage/?search=Luke%2019%3A1-10&version=ESV)** - He entered Jericho and was passing through. And there was a man named Zacchaeus. He was a chief tax collector and was rich. And he was seeking to see who Jesus was, but on account of the crowd he could not, because he was small of stature. So he ran on ahead and climbed up into a sycamore tree to see him, for he was about to pass that way. And when Jesus came to the place, he looked up and said to him, Zacchaeus, hurry and come down, for I must stay at your house today. So he hurried and came down and received him joyfully. And when they saw it, they all grumbled, He has gone in to be the guest of a man who is a sinner. And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, <ins>Today salvation has come to this house, since he also is a son of Abraham. For the Son of Man came to seek and to save the lost.</ins> (ESV)
 
 
-## Inheriting the kingdom
+## Inheriting the kingdom (being an Heir of the Kingdom)
+
+> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and **heirs of the kingdom, which he has promised to those who love him?** (ESV)
+
+> **[Romans 8:16-17](https://www.biblegateway.com/passage/?search=Romans%208%3A16-17&version=ESV)** - The Spirit himself bears witness with our spirit that we are children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
 
 
 ### We must be born-again
@@ -22127,7 +22151,7 @@ We must be slaves to righteousness, which leads to our sanctification:
 
 At the end of sanctification is eternal life:
 
-> **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
+> **Romans 6:22-23** - But now that you have been **set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life**. For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 
 
 ## Compliance with the Torah (Law) is not self-righteousness, but obedience
@@ -26815,7 +26839,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org0786de9)
+See: [33.4.1](#orgacd7f14)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -33420,7 +33444,7 @@ opportunity in what felt like a graceless situation to demonstrate Christ's love
 to make testimony of Jesus, and to 'take any
 log out of my own eye' - to be corrected -
 because despite already walking in obedience
-to Jesus, He is my Lord and teacher, and I
+to Jesus, He is my Lord and Teacher, and I
 want to love Jesus more and be taught by Jesus
 more.
 
@@ -33526,11 +33550,11 @@ I think it's dangerous and probably incorrect to say, "I've been justified and s
 
 [We don't justify ourselves ever](https://youtu.be/S5E_MqEqk-U?t=606), but we still have faith that we are justified already by God as we hold faith in Jesus, and we don't necessarily know **when** God has personally justified us by faith because, like Abraham's faith, it's from obedience to God's commandments that we get personal assurance. But if we are hoping in God's promises while serving Jesus then we certainly can have confidence that God will/has justified us, where if we are not agapé-ing God and our family in Christ, serving Jesus then I think to say that we are justified and saved from God's wrath while going on doing evil is very daring and I wouldn't be surprised if that person receives the wrath of God.
 
-> **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+> **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: **to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life**; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
 
 > **[II Peter 2:4-9](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A4-9&version=ESV)** - For if God did not spare angels when they sinned, but cast them into hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot, greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows how to rescue the godly from trials, and to **keep the unrighteous under punishment until the day of judgment**, (ESV)
 
-faith maintains hope in God to fulfill His promises:
+Faith maintains hope in God to fulfill His promises:
 
 -   **[youtube.com: Future-Oriented Faith](https://www.youtube.com/watch?v=aLf7WrwqBLE):** Justifying faith, the faith that justifies you that
     makes you right with God that receives
@@ -33911,7 +33935,7 @@ Doing the will of God is important for **inheriting** the kingdom of God:
 
 We do need a lot of faith (faith, faithfulness, obedience) in God to **inherit** the Kingdom of God:
 
-> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? (ESV)
+> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and **heirs of the kingdom, which he has promised to those who love him?** (ESV)
 
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)**- But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification **and its end, eternal life.** For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
 

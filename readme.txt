@@ -7347,7 +7347,7 @@ its end, eternal life:
 
   Romans 6:22-23 - But now that you have been set free from sin and have become slaves of God, the fruit you get
   leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
-  eternal life in Christ Jesus our Lord.
+  eternal life in Christ Jesus our Lord. (ESV)
 
   Romans 6:7 - For one who has died has been set free from sin. (ESV)
 
@@ -11937,6 +11937,21 @@ By posing the question, Jesus doesn't deny that he is good. But we agree, affirm
 is good:
 
   Mark 10:18 - And Jesus said to him, Why do you call me good? No one is good except God alone. (ESV)
+
+Mathetes to Diognetus
+For, who of men at all understood before His coming what God is? Do you accept of the vain and silly doctrines of
+those who are deemed trustworthy philosophers? ... But such declarations are simply the startling and erroneous
+utterances of deceivers; and no man has either seen Him, or made Him known, but He has revealed Himself. And He
+has manifested Himself through faith, to which alone it is given to behold God. For God, the Lord and Fashioner of
+all things, who made all things, and assigned them their several positions, proved Himself not merely a friend of
+mankind, but also long-suffering [in His dealings with them.] Yea, He was always of such a character, and still
+is, and will ever be, kind and good, and dispassionate (free from wrath), and true, and the only one who is
+[absolutely] good; and He formed in His mind a great and unspeakable conception, which He communicated to His Son
+alone. As long, then, as He held and preserved His own wise counsel in concealment, He appeared to neglect us, and
+to have no care over us. But after He revealed and laid open, through His beloved Son, the things which had been
+prepared from the beginning, He conferred every blessing all at once upon us, so that we should both share in His
+benefits, and see and be active [in His service]. Who of us would ever have expected these things? He was aware,
+then, of all things in His own mind, along with His Son, according to the relation subsisting between them.
 
 I believe there is only one good shepherd, and that is Jesus Christ, Immanuel (God with us, God incarnate, and not
 merely in the flesh, but the Word became flesh):
@@ -30853,6 +30868,32 @@ But the goodness of God should lead us to repentance:
 
 40. Entering and inheriting the kingdom
 
+Through the power of God working in us as we hold faith in Jesus we may enter the Kingdom of God:
+
+Mathetes to Diognetus
+This was not that He at all delighted in our sins, but that He simply endured them; nor that He approved the time
+of working iniquity which then was, but that He sought to form a mind conscious of righteousness, so that being
+convinced in that time of our unworthiness of attaining life through our own works, it should now, through the
+kindness of God, be vouchsafed to us; and having made it manifest that in ourselves we were unable to enter into
+the kingdom of God, we might through the power of God be made able.
+
+  Luke 18:24-30 - Jesus, looking at him with sadness, said, How difficult it is for those who have wealth to enter
+  the kingdom of God! For it is easier for a camel to go through the eye of a needle than for a rich person to
+  enter the kingdom of God. Those who heard it said, Then who can be saved (4982. sozo)? But he said, What is
+  impossible with men is possible with God. And Peter said, See, we have left our homes and followed you. And he
+  said to them, Truly, I say to you, there is no one who has left house or wife or brothers or parents or
+  children, for the sake of the kingdom of God, who will not receive many times more in this time, and in the age
+  (165. aion) to come eternal (166. aionios) life (2222. zoe). (ESV)
+
+4982 sozo (from sos, "safe, rescued")
+properly, deliver out of danger and into safety; used principally of God rescuing believers from the penalty and
+power of sin - and into His provisions (safety).
+
+  I Timothy 1:15-16 - The saying is trustworthy and deserving of full acceptance, that Christ Jesus came into the
+  world to save sinners, of whom I am the foremost. But I received mercy for this reason, that in me, as the
+  foremost, Jesus Christ might display his perfect patience as an example to those who were to believe in him for
+  eternal life. (ESV)
+
 At the time we believe, the kingdom of God to us is a promise for which we hope. When do you enter the kingdom of
 God? That's a good question. I think a reasonable answer is: hold the faith, fight the good fight of faith, and be
 the 'good soil':
@@ -30872,6 +30913,23 @@ We must be the good soil:
   world and the deceitfulness of riches choke the word, and it proves unfruitful. As for what was sown on good
   soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a
   hundredfold, in another sixty, and in another thirty. (ESV)
+
+Being the good soil is walking in the light, in the truth, the word of truth, the gospel, and that bearing good
+fruit:
+
+  I John 2:24-25 - Let what you heard from the beginning abide in you. If what you heard from the beginning abides
+  in you, then you too will abide in the Son and in the Father. And this is the promise that he made to us-eternal
+  life. (ESV)
+
+  Romans 2:6-11 - He will render to each one according to his works: to those who by patience in well-doing seek
+  for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not
+  obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress
+  for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for
+  everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+
+  Romans 6:22-23 - But now that you have been set free from sin and have become slaves of God, the fruit you get
+  leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
+  eternal life in Christ Jesus our Lord. (ESV)
 
 We do need a lot of faith (faith, faithfulness, obedience) in God to inherit the Kingdom of God:
 
@@ -31557,7 +31615,14 @@ Zacchaeus was repentant, and was saved through Jesus as he had the faith of Abra
   anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is
   a son of Abraham. For the Son of Man came to seek and to save the lost. (ESV)
 
-40.4. Inheriting the kingdom
+40.4. Inheriting the kingdom (being an Heir of the Kingdom)
+
+  James 2:5 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith
+  and heirs of the kingdom, which he has promised to those who love him? (ESV)
+
+  Romans 8:16-17 - The Spirit himself bears witness with our spirit that we are children of God, and if children,
+  then heirs-heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be
+  glorified with him. (ESV)
 
 40.4.1. We must be born-again
 
@@ -31796,7 +31861,7 @@ At the end of sanctification is eternal life:
 
   Romans 6:22-23 - But now that you have been set free from sin and have become slaves of God, the fruit you get
   leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
-  eternal life in Christ Jesus our Lord.
+  eternal life in Christ Jesus our Lord. (ESV)
 
 41.4. Compliance with the Torah (Law) is not self-righteousness, but obedience
 
@@ -47358,7 +47423,7 @@ Our work for God is not in vain, and it's all grace:
 But at the time I was being led by the Spirit, walking in seeking to know Jesus Christ through following His
 commandments, so I decided I would use it as an opportunity in what felt like a graceless situation to demonstrate
 Christ's love and to make testimony of Jesus, and to 'take any log out of my own eye' - to be corrected - because
-despite already walking in obedience to Jesus, He is my Lord and teacher, and I want to love Jesus more and be
+despite already walking in obedience to Jesus, He is my Lord and Teacher, and I want to love Jesus more and be
 taught by Jesus more.
 
 Most importantly is a good conscience with God, but I try also to do right with my fellow man, even if I disagree
@@ -47582,7 +47647,7 @@ of God.
   soul over their lawless deeds that he saw and heard); then the Lord knows how to rescue the godly from trials,
   and to keep the unrighteous under punishment until the day of judgment, (ESV)
 
-faith maintains hope in God to fulfill His promises:
+Faith maintains hope in God to fulfill His promises:
 
 youtube.com: Future-Oriented Faith
 
@@ -48937,7 +49002,7 @@ Date: 2024-09-21 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-21 Sat 09:07
+Created: 2024-09-21 Sat 11:26
 
 Validate
 
