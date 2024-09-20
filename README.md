@@ -62,7 +62,7 @@ Christ is reigning until all things are placed into subjection under Him. We mus
     him. That's not his
     purpose"
 
-We have no other Lord, King, no other Master than Jesus Christ, but we serve Jesus in serving each other:
+We have no other [Lord, King, no other Master](https://biblehub.com/greek/2962.htm) than Jesus Christ, but we serve Jesus in serving each other:
 
 > **[Matthew 23:8-11](https://www.biblegateway.com/passage/?search=Matthew%2023%3A8-11&version=ESV)** - But you are not to be called rabbi, for you have one teacher, and you are all brothers. And call no man your father on earth, for you have one Father, who is in heaven. Neither be called instructors, for you have one instructor, the Christ. The greatest among you shall be your servant. (ESV)
 
@@ -531,7 +531,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga90a0b4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org86ddc43) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -6399,9 +6399,19 @@ Clearly 'believe' means also 'to be obedient' to because the ones that <ins>foll
 
 > **[John 10:26-38](https://www.biblegateway.com/passage/?search=John%2010%3A26-38&version=ESV)** - but you do not believe (G4100 **pisteuo**) because you are not part of my flock. My sheep <ins>hear my voice,</ins> and <ins>I know them, and they follow me.</ins> I give them eternal life, and they will never perish, and no one will snatch them out of my hand. My Father, who has given them to me, is greater than all, and no one is able to snatch them out of the Father's hand. I and the Father are one.
 
-Those enslaved by corruption are not sons:
+We come into walking in the will of God:
 
-> **[II Peter 2:19](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A19&version=ESV)** - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to that he is enslaved.
+> **[Romans 8:13-17](https://www.biblegateway.com/passage/?search=Romans%208%3A13-17&version=ESV)** - For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. For **all who are led by the Spirit of God are sons of God**. For you did not receive the spirit of slavery to fall back into fear, but you have received **the Spirit of adoption** as sons, by whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that we are children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
+
+Those in the process of being sanctified by Jesus are sons:
+
+> **[Hebrews 12:5-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A5-8&version=ESV)** - And have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not discipline? If you are left without discipline, in which all have participated, then you are illegitimate children and not sons. (ESV)
+
+> **[Hebrews 2:10-13](https://www.biblegateway.com/passage/?search=Hebrews%202%3A10-13&version=ESV)** - For it was fitting that he, for whom and by whom all things exist, in bringing many sons to glory, should make the founder of their salvation perfect through suffering. For **he who sanctifies and those who are sanctified all have one origin. That is why he is not ashamed to call them brothers**, saying, I will tell of your name to my brothers; in the midst of the congregation I will sing your praise. And again, I will put my trust in him. And again, Behold, I and the children God has given me. (ESV)
+
+We put our trust in Jehovah God. We put our trust in Jesus:
+
+> **[Isaiah 12:2](https://www.biblegateway.com/passage/?search=Isaiah%2012%3A2&version=ESV)** - Behold, God is my salvation; I will trust, and will not be afraid; for the LORD GOD is my strength and my song, and he has become my salvation. (ESV)
 
 People fall away if they are not freed from sin. We're seeking to be freed from sin:
 
@@ -11677,6 +11687,8 @@ I do actually consider theology to be quite important but we should not be white
 
 I think the person's lifestyle should be 'pure and undefiled religion' as James defines it.
 
+> **[[[https://www.biblegateway.com/passage/?search=1%20Peter%203%3A16&version=ESV][1 Peter 3:16](https://biblehub.com/interlinear/1_peter/3-16.htm)]]** - a conscience having good so that in this they might speak against you they shall be ashamed those reviling your - <ins>good **in Christ** manner of life</ins> ([391. anastrophé](https://biblehub.com/greek/391.htm)) (Interlinear)
+
 I should probably actually do my own Bible study though because there's a lot of false religion out there.
 Rather than fill my mind with other people's doctrines and religion, we should obey God, knowing God knows.
 
@@ -13124,7 +13136,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1fa79bd)
+See: [33.4.1](#orgf42aad7)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26687,7 +26699,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1fa79bd)
+See: [33.4.1](#orgf42aad7)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -32456,7 +32468,9 @@ and my need to plead guilty was in the light of the knowledge of my error.
 
 I understand now from experience that spreading heresy is a very dangerous thing to do:
 
-> **[II Peter 2:1](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1&version=ESV)** - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. (ESV)
+> **[II Peter 2:1](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1&version=ESV)** - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even **denying the Master who bought them, bringing upon themselves swift destruction**. (ESV)
+
+> **[II Peter 2:15-16](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A15-16&version=ESV)** - Forsaking the right way, they have gone astray. They have followed the way of Balaam, the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a speechless donkey spoke with human voice and restrained the prophet's madness. (ESV)
 
 I am not the judge of people. There is only one judge. But I am repentant from sin and affirm God's precepts, not sin.
 
