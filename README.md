@@ -553,7 +553,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8e6714b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5482716) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13317,7 +13317,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org020fac2)
+See: [33.4.1](#orgd27a99b)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -24341,10 +24341,9 @@ I'm not going to allow the devil to try to frame it as though:
 -   I was trying to be my own god, which I certainly was not trying to do, but I was interested in getting to know Jesus and "union with Christ"
 
 The devil wanted to make me think I was not
-forgiven by the one True God already, and prey on my active Fruit
-of the Holy Spirit desire to marry the girl I loved with a pure heart,
-and make it look like covetousness / licentiousness / lewdness when it was not - it was love.
-
+forgiven by the one True God already after I was joyfully telling people about being born-again and learning about Jesus,
+and the devil preyed on my active Fruit of the Holy Spirit desire to marry the girl I loved with a pure heart,
+and make it look like covetousness / licentiousness / lewdness when it was not - it was basically entirely agape love.
 I hold to that belief / knowledge.
 
 But the real test is that I couldn't plead not guilty because being obedient to Jesus I have to admit in court that I am not perfect and I am guilty:
@@ -24353,6 +24352,18 @@ But the real test is that I couldn't plead not guilty because being obedient to 
 
 The devil tried to steal my blessings, and tried to push me back into bondage, and into sin, by slamming me with lewd dreams and visions,
 meanwhile bombarding me with accusations of my past, and I've had to fight like heaven to get out of the intense condemnation I've faced.
+
+I'm not a perfect person but I've been attacked by pure evil.
+And as a result of what's happened I have felt so subsequently harassed by demons through people, even my own family members, I have felt defiled even from being raped and by demons for well over a year, it has somewhat stripped me of joy and the enthusiasm for Jesus which I had initially when I was born-again:
+
+-   demons trying to bury my testimony of Jesus
+-   demons trying to paint me as autistic
+-   demons trying to paint me as a threat
+-   demons isolating me
+-   demons touching me at night and putting lewd, antichrist dreams into my head
+
+The spiritual attack I've endured as a baby born-again Christian was so inordinate and I'm still asking God to deliver me.
+This testimony of what's happened and what's happening will remain in the light for all to see and I hope to be able to report one day that I've been delivered from demonic harassment. I'm continue focusing on studying and putting God's Word into practice.
 
 I find it extremely difficult to believe (but not outside the realm of possibility) that the relationship possibility was not grace, but whatever is the case I am still obligated to obey Jesus, forward on to others love and forgiveness like the love and forgiveness that Jesus has loved me with and deny self (deny selfishness), and be faithful to Jesus:
 
@@ -27028,7 +27039,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org020fac2)
+See: [33.4.1](#orgd27a99b)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
