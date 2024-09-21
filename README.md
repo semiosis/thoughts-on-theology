@@ -23,6 +23,16 @@ Jesus is preparing us to be able to stand before Father God blamelessly:
 
 > **[I Thessalonians 3:11-13](https://www.biblegateway.com/passage/?search=1%20Thessalonians%203%3A11-13&version=ESV)** - Now may our God and Father himself, and our Lord Jesus, direct our way to you, and **may the Lord make you increase and abound in love for one another and for all**, as we do for you, **so that he may establish your hearts blameless in holiness before our God and Father**, at the coming of our Lord Jesus with all his saints. (ESV)
 
+Our relationship with God is based on our purity, not just our forgiveness:
+
+> **[II Corinthians 6:16-18](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A16-18&version=ESV)** - What agreement has the temple of God with idols? For we are the temple of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God, and they shall be my people. Therefore **go out from their midst, and be separate from them**, says the Lord, **and touch no unclean thing**; then **I will welcome you, and I will be a father to you, and you shall be sons and daughters to me, says the Lord Almighty.** (ESV)
+
+Father God is pleased with showing love for people, especially those who the world neglects. Father God is pleased when we keep ourselves unstained from the world, and not in love with the world and not in love with the lusts of the world. We should have agape love for people (treasuring people) and no agape for the world:
+
+> **[James 1:27](https://www.biblegateway.com/passage/?search=James%201%3A27&version=ESV)** - Religion that is pure and undefiled ([283. amiantos](https://biblehub.com/greek/283.htm)) before God, the Father, is this: to **visit orphans and widows in their affliction**, and to <ins>keep oneself unstained from the world</ins>. (ESV)
+
+> **[James 4:4](https://www.biblegateway.com/passage/?search=James%204%3A4&version=ESV)** - You *adulterous* people! Do you not know that **friendship with the world is enmity with God**? Therefore whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
+
 This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-14 Sat&gt;</span></span>) I had this running through my head during my sleep and as I was waking up - I love it when God does that. I feel much cleaner today. This morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-09-18 Wed&gt; </span></span> (4 days later) I was hit with some spiritual attack (including strange dreams) so I purposefully stayed up singing this song in my heart and mind and as I did, trying to 'will from the heart' to desire to do God's will and I was able to beat the spiritual attack back this morning :):
 
 -   **[youtube.com: Purify My Heart {Refiner's Fire} | Jeremy Riddle - Worship Moment](https://www.youtube.com/watch?v=ayH5iV5zmrI&list=RDurnl_qYQ9l0&index=2):** Purify my heart.
@@ -37,6 +47,14 @@ This morning (<span class="timestamp-wrapper"><span class="timestamp">&lt;2024-0
     I choose to be holy,
     set apart for You, my Master,
     ready to do Your will
+
+-   **Sermon:** [youtube.com: Unstained from the World: The Battle for Purity - Tim Conway](https://www.youtube.com/watch?v=JGX-MByxwyo)
+
+To let go and let God purify us is generally incorrect. The [Bible teaches](https://www.biblelyfe.com/blog/bible-verses-about-a-clean-heart) that **we** should cleanse our hearts, and it also teaches that God will cleanse our heart:
+
+> **[James 4:8](https://www.biblegateway.com/passage/?search=James%204%3A8&version=ESV)** - Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your hearts, you double-minded. (ESV)
+
+> **[Acts 15:9](https://www.biblegateway.com/passage/?search=Acts%2015%3A9&version=ESV)** - and he made no distinction between us and them, having cleansed their hearts by faith. (ESV)
 
 Christ is reigning until all things are placed into subjection under Him. We must come under the Lordship of Christ Jesus. I consider any so-called god which is in rebellion to Christ to be a demon:
 
@@ -535,7 +553,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfd288b0) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgcb04693) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11399,7 +11417,54 @@ Even belief must be in the heart:
 > **[Romans 10:10](https://www.biblegateway.com/passage/?search=Romans%2010%3A10&version=ESV)**- For with the heart one believes and is justified, and with the mouth one confesses and is saved. (ESV)
 
 
+### We should align our hearts and minds to God's precepts, not submit to worldly precepts which are fictions
+
+-   **Sermon:** + [youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 30 min 28 sec](https://youtube.com/watch?v=JGX-MByxwyo&t=1828)
+
+> **[Colossians 2:20-23](https://www.biblegateway.com/passage/?search=Colossians%202%3A20-23&version=ESV),3:1-6** - If **with Christ you died to the elemental spirits of the world, why, as if you were still alive in the world, do you submit to regulations— Do not handle, Do not taste, Do not touch** (referring to things that all perish as they are used)—according to **human precepts and teachings**? These have indeed an appearance of wisdom in promoting self-made religion and asceticism and severity to the body, but they are of no value in stopping the indulgence of the flesh. If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. **Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming.** (ESV)
+
+> **[James 1:27](https://www.biblegateway.com/passage/?search=James%201%3A27&version=ESV)** - Religion that is pure and undefiled before God, the Father, is this: to visit orphans and widows in their affliction, and to **keep oneself unstained from the world.** (ESV)
+
+
+### We must cleanse <ins>ourself</ins> of defilement if we want God to use us more, and if we want to see with faith and hear God more clearly
+
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+-   [youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 46 min 30 sec](https://youtube.com/watch?v=JGX-MByxwyo&t=2790) :; This is not a
+    cleansing from
+    guilt - that's not what this is. This is a
+    cleansing from the pollution of the world.
+
+God's servants may remain 'shelved' because they're unfit for use.
+
+-   **[Daniel 12:10-12](https://www.biblegateway.com/passage/?search=Daniel%2012:10-12&version=YLT):** Purify themselves, yea, **make themselves white, yea**, refined are many: and the wicked have done wickedly, and none of the wicked understand, and those acting wisely do understand; (YLT)
+
+> **[II Timothy 2:20-23](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A20-23&version=ESV)** - Now in a great house there are not only vessels of gold and silver but also of wood and clay, some for honorable use, some for dishonorable. Therefore, **if anyone cleanses himself from what is dishonorable, he will be a vessel for honorable use**, set apart as holy, useful to the master of the house, ready for every good work. So flee youthful passions and pursue righteousness, faith, love, and peace, along with those who call on the Lord from a pure heart. Have nothing to do with foolish, ignorant controversies; you know that they breed quarrels. (ESV)
+
+This is a sanctifying cleansing. We are sanctified by obedience to the Truth, faith in Christ, obedience to Christ, trust in Christ:
+
+> **[John 15:3](https://www.biblegateway.com/passage/?search=John%2015%3A3&version=ESV)** - Already you are clean because of the word that I have spoken to you. (ESV)
+
+> **[Ephesians 5:25-26](https://www.biblegateway.com/passage/?search=Ephesians%205%3A25-26&version=ESV)** - Husbands, love your wives, as Christ loved the church and gave himself up for her, that he might sanctify her, having cleansed her by the washing of water with the word, (ESV)
+
+Since we await Jesus, we want to be found by Him without spot or blemish. We're supposed to put a stop to sin, fall out of agape love with the world, and be sanctified:
+
+> **[II Peter 3:13-14](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A13-14&version=ESV)** - But according to his promise we are waiting for new heavens and a new earth in which righteousness dwells. Therefore, beloved, since you are waiting for these, **be diligent to be found by him without spot or blemish, and at peace.** (ESV)
+
+> **[Revelation of John 22:14](https://www.biblegateway.com/passage/?search=Revelation%2022%3A14&version=ESV)** - Blessed are **those who wash their robes**, so that they may have the right to the tree of life and that they may enter the city by the gates. (ESV)
+
+Our relationship with God is based on our purity, not just our forgiveness:
+
+> **[II Corinthians 6:16-18](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A16-18&version=ESV)** - What agreement has the temple of God with idols? For we are the temple of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God, and they shall be my people. Therefore **go out from their midst, and be separate from them**, says the Lord, **and touch no unclean thing**; then **I will welcome you, and I will be a father to you, and you shall be sons and daughters to me, says the Lord Almighty.** (ESV)
+
+Though we are God's children, we should purify ourself as He is pure. Everyone who has this hope acts on that hope:
+
+> **[I John 3:2-4](https://www.biblegateway.com/passage/?search=1%20John%203%3A2-4&version=ESV)** - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
+
+
 ### Impurity lies the heart
+
+> **[Luke 11:41](https://www.biblegateway.com/passage/?search=Luke%2011%3A41&version=ESV)** - But give as alms those things **that are within**, and behold, everything is clean for you. (ESV)
 
 > **[Matthew 15:19](https://www.biblegateway.com/passage/?search=Matthew%2015%3A19&version=ESV)** - For out of the heart come evil thoughts, murder, adultery, sexual immorality, theft, false witness, slander. (ESV)
 
@@ -11743,6 +11808,20 @@ Our works must be done in faith:
     are not filthy rags.
 
 > **[Galatians 1:10](https://www.biblegateway.com/passage/?search=Galatians%201%3A10&version=ESV)** - For am I now seeking the approval of man, or of God? Or am I trying to please man? If I were still trying to please man, I would not be a servant of Christ. (ESV)
+
+-   **[youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 57 min 19 sec](https://youtube.com/watch?v=JGX-MByxwyo&t=3439):** You have to do it. Those reflexive
+    pronouns mean **your**
+    responsibility. God doesn't do it for you.
+    You do it. The person sitting next to you,
+    your spouse doesn't do it for you, your
+    friends don't do it. **You** need to be
+    determined ,and deliberate and
+    intentional, and this is a battle, and we
+    are up against these great strongholds
+    of thought that the world and the god of
+    this world bombards us with.
+    This is no easy
+    thing.
 
 > **[James 1:27](https://www.biblegateway.com/passage/?search=James%201%3A27&version=ESV)** - Religion that is pure and undefiled before God, the Father, is this: to visit orphans and widows in their affliction, and to keep oneself unstained from the world. (ESV)
 
@@ -12144,8 +12223,9 @@ This is what we must come to know in truth - that Jesus came from Father God, an
         -   **[I Peter 1:19](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A19&version=ESV)** - but with the precious blood of Christ, like that of a lamb without blemish or spot. (ESV)
         -   **[Psalms 107:2-3](https://www.biblegateway.com/passage/?search=Psalms%20107%3A2-3&version=ESV)** - Let the redeemed of the LORD say so, whom he has redeemed from trouble and gathered in from the lands, from the east and from the west, from the north and from the south. (ESV)
         -   **[Ephesians 2:6](https://www.biblegateway.com/passage/?search=Ephesians%202%3A6&version=ESV)** - and raised us up with him and seated us with him in the heavenly places in Christ Jesus, (ESV)
-    -   I have been born-again, not with corruptible seed, but with the incorruptible seed of the word of God and the washing of regeneration by the Holy Spirit.
         -   **[Psalms 106:10](https://www.biblegateway.com/passage/?search=Psalms%20106%3A10&version=ESV)** - So he saved them from the hand of the foe and redeemed them from the power of the enemy. (ESV)
+    -   I have been born-again, not with corruptible seed, but with the incorruptible seed of the word of God and the washing of regeneration by the Holy Spirit.
+        -   **[I Peter 1:23-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23-25&version=ESV)** - since **you have been born again**, not of perishable seed but of imperishable, **through the living and abiding word of God**; for All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And **this word is the good news that was preached to you**. (ESV)
     -   I can do all things through Christ who strengthens me.
         -   **[Philippians 4:13](https://www.biblegateway.com/passage/?search=Philippians%204%3A13&version=ESV)** - I can do all things through him who strengthens me. (ESV)
     -   The same Holy Spirit that raised Jesus from the dead lives in me and greater is He that is in my than he that is in the world.
@@ -13203,7 +13283,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgacd7f14)
+See: [33.4.1](#orgb386dba)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -21043,6 +21123,7 @@ It says unless **you** turn - The onus is on you.
 It says unless **your** righteousness.
 
 Faith in Jesus probably qualifies a person to 'enter' the Kingdom of Heaven.
+
 Also, following the law by faith in truth I think qualifies a person to enter the Kingdom of Heaven.
 Also the Kingdom of Heaven, I think is from Heaven to Earth.
 
@@ -26839,7 +26920,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgacd7f14)
+See: [33.4.1](#orgb386dba)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31705,6 +31786,53 @@ Live in the spirit the way God does:
 
 > **[I Peter 4:1-6](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-6&version=ESV)** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. With respect to this they are surprised when you do not join them in the same flood of debauchery, and they malign you; but they will give account to him who is ready to judge the living and the dead. For this is why the gospel was preached even to those who are dead, that though judged in the flesh the way people are, they might **live in the spirit the way God does.** (ESV)
 
+-   **[youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 16 min 34 sec](https://youtube.com/watch?v=JGX-MByxwyo&t=994):** Unspotted by the world is mainly a mind thing.
+    
+    Listen what Paul says, "Do not be conformed to this world."
+    
+    That's the issue. Don't be spotted by it.
+    Don't be conformed to it.
+    
+    But be transformed by the renewal
+    of your mind. You see where the battle is?
+    
+    Brethren, to be unspotted from the world,
+    this is largely for us to be unspspotted by the ways that this world
+    thinks, its theories, its belief systems. We're talking **strongholds of thought**
+    and Brethren, you know what, you had a world out there and it's like
+    they have this fortification around
+    their head, around their
+    thoughts, around how they
+    think, and they live in it.
+    
+    And they're
+    trapped in these things and our
+    responsibility is to seek to come and
+    dash these
+    things. John MacArthur says, heard him say
+    that these things become their tombs. They die in there.
+    
+    Oh, they appear so lofty,
+    scientific, intelligent, intellectual. This all seems good,
+    and you know what Paul
+    said, listen you know what he said? Every
+    lofty opinion, we destroy arguments, every
+    lofty opinion raised against the
+    knowledge of God. It's all against the
+    knowledge of God. You see what people are
+    fortifying themselves with? Systems that
+    are anti-god, anti-christ and, listen, to the
+    degree you embibe this, the way the world
+    thinks, you're stained by it, you're
+    adulterated by it.
+    
+    We got to get the
+    world's ideologies out of our mind and
+    stop being double-headed, stop being
+    adulterated in the mind. You know what
+    we're striving after? Your virginity of
+    the mind.
+
 
 ## Shoes of the Gospel of Peace
 
@@ -31870,6 +31998,53 @@ This is not just any weapon, but it is our offensive tool in spiritual battles, 
 We use scripture to demolish strongholds and take every thought captive for Christ as mentioned in [2 Corinthians 10:4-5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-5&version=ESV)
 
 > **[II Corinthians 10:4-5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-5&version=ESV)** - For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, (ESV)
+
+-   **[youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 16 min 34 sec](https://youtube.com/watch?v=JGX-MByxwyo&t=994):** Unspotted by the world is mainly a mind thing.
+    
+    Listen what Paul says, "Do not be conformed to this world."
+    
+    That's the issue. Don't be spotted by it.
+    Don't be conformed to it.
+    
+    But be transformed by the renewal
+    of your mind. You see where the battle is?
+    
+    Brethren, to be unspotted from the world,
+    this is largely for us to be unspspotted by the ways that this world
+    thinks, its theories, its belief systems. We're talking **strongholds of thought**
+    and Brethren, you know what, you had a world out there and it's like
+    they have this fortification around
+    their head, around their
+    thoughts, around how they
+    think, and they live in it.
+    
+    And they're
+    trapped in these things and our
+    responsibility is to seek to come and
+    dash these
+    things. John MacArthur says, heard him say
+    that these things become their tombs. They die in there.
+    
+    Oh, they appear so lofty,
+    scientific, intelligent, intellectual. This all seems good,
+    and you know what Paul
+    said, listen you know what he said? Every
+    lofty opinion, we destroy arguments, every
+    lofty opinion raised against the
+    knowledge of God. It's all against the
+    knowledge of God. You see what people are
+    fortifying themselves with? Systems that
+    are anti-god, anti-christ and, listen, to the
+    degree you embibe this, the way the world
+    thinks, you're stained by it, you're
+    adulterated by it.
+    
+    We got to get the
+    world's ideologies out of our mind and
+    stop being double-headed, stop being
+    adulterated in the mind. You know what
+    we're striving after? Your virginity of
+    the mind.
 
 I want to [let the Bible smash bad theology](https://www.youtube.com/watch?v=N2aJ1q-SBr4&t=55s) - not just my own bad theology.
 
