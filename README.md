@@ -553,7 +553,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgcb04693) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org843aab3) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1396,7 +1396,41 @@ And I'm convinced that Martin Luther also loved God and God loved Martin Luther.
 
 Jesus says that the one who loves Him is the one who keeps His commandments. Amen.
 
-If you're obeying Jesus because you love Jesus then you'll be loved by Jehovah God, Abba Father God:
+I love it when I have the [II Corinthians 8:2](https://www.biblegateway.com/passage/?search=2%20Corinthians%208%3A2&version=ESV) joy which spills over into following Jesus' commandments - it makes it much easer!
+
+We should be serving in gladness and joy because we have perspective - we have God, and we should have joy in serving God and being used by God:
+
+-   **[youtube.com: Overcoming Spiritual Dryness @time: 9 min 7 sec](https://youtube.com/watch?v=3lMlHSu0_zA&t=547):** The fight for joy is not a fight to be comfortable or have security or be prosperous or any other of the American 'ideals' that are advertised to us every day.
+    It is a fight to join Jesus on the Calvary road.
+    The fight to be happy is a fight to join Jesus on the Calvary road.
+    
+    It's not a praise God anyhow road. It's a road of suffering, it's a road of tears, it's a road of empathy with all the dying people that you're aware of, or who's marriages are in trouble or who's kids are on drugs. It's the people you know that are broken in your vicinity and your joy is going to become a high pressure zone that begins to make wind when it bumps up against low-pressure zones of need and that wind is called love. Because your joy is moving out  and spilling over - "I have so much in Jesus, I know I have a lot of stuff but oh I'm brimming with what really counts in life and I'm going to use my stuff and my time and my energy to make your day for Jesus. I want to serve you for Jesus."
+
+Joy in God spilling over into serving God is where we want to be:
+
+> **[II Corinthians 8:2](https://www.biblegateway.com/passage/?search=2%20Corinthians%208%3A2&version=ESV)** - for in a severe test of affliction, their abundance of joy and their extreme poverty have overflowed in a wealth of generosity on their part. (ESV)
+
+This is the road we should be on:
+
+> **[Hebrews 12:2](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A2&version=ESV)** - looking to Jesus, the founder and perfecter of our faith, who <ins>for **the joy** that was set before him endured the cross, despising the shame,</ins> and is seated at the right hand of the throne of God. (ESV)
+
+-   [youtube.com: Overcoming Spiritual Dryness](https://www.youtube.com/watch?v=3lMlHSu0_zA)
+
+It's good to have God. Having God is truly having everything we need:
+
+> **[II Corinthians 6:10](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A10&version=ESV)** - as sorrowful, yet always rejoicing; as poor, yet making many rich; as having nothing, **yet possessing everything**. (ESV)
+
+We're actually commanded to delight ourselves in God, and it's for our own good. It's the correct way to think:
+
+> **[Psalms 37:4](https://www.biblegateway.com/passage/?search=Psalms%2037%3A4&version=ESV)** - Delight yourself in the LORD, and he will give you the desires of your heart. (ESV)
+
+> **[Philippians 4:4](https://www.biblegateway.com/passage/?search=Philippians%204%3A4&version=ESV)** - Rejoice in the Lord always; again I will say, Rejoice. (ESV)
+
+-   **[Cesare Borgia (Atheist)](https://www.azquotes.com/author/28652-Cesare_Borgia):** While I lived, I provided for everything but death. Now I must die and I'm unprepared to die.
+
+-   **[Sir Thomas Scott](https://www.google.cat/books?id=fy20dDbgu-MC&pg=PA468&focus=viewport&vq=piety&dq=editions:UOM39015023545141&lr=&as_brr=0&hl=ca&output=html_text):** a privy councillor of James V. of Scotland, was a noted persecutor of the reformers. Being taken suddenly ill, and finding himself dying, he cried out to the Roman priests who sought to comfort him, "Begone, you and your trumpery; **until this moment I believed that there was neither a God nor a hell. Now I know and I feel that there are both, and I am doomed to perdition by the just judgment of the Almighty.**"
+
+If you're keeping Jesus' words, and valuing them and seeking to live by them then you'll be loved by Jehovah God, Abba Father God for loving Jesus:
 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
@@ -13283,7 +13317,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgb386dba)
+See: [33.4.1](#orgbcdb0dc)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -26920,7 +26954,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgb386dba)
+See: [33.4.1](#orgbcdb0dc)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
