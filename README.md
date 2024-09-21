@@ -553,7 +553,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org843aab3) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8e6714b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13317,7 +13317,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbcdb0dc)
+See: [33.4.1](#org020fac2)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -17951,6 +17951,12 @@ Old Testament theology is supposed to be profitable for:
 -   correction
 -   **training in righteousness**
 
+For example, **[Deuteronomy 28:47-48](https://www.biblegateway.com/passage/?search=Deuteronomy%2028%3A47-48&version=ESV)** shows that when serving God it should be out of joy in Him. It is <ins>correct</ins> that we should have joy in God and that out of that joy we delight in God and that overflows into sharing the love of God to others. We must come to a place where we see this law as correct. It's an important one.
+
+We are supposed to serve God out of joy!
+
+> **[Deuteronomy 28:47-48](https://www.biblegateway.com/passage/?search=Deuteronomy%2028%3A47-48&version=ESV)** - Because you did not **serve the LORD your God with joyfulness and gladness of heart**, because of the abundance of all things, therefore you shall serve your enemies whom the LORD will send against you, in hunger and thirst, in nakedness, and lacking everything. And he will put a yoke of iron on your neck until he has destroyed you. (ESV)
+
 Jesus Christ is the bread from heaven:
 
 > **[John 21:15-17](https://www.biblegateway.com/passage/?search=John%2021%3A15-17&version=ESV)** - When they had finished breakfast, Jesus said to Simon Peter, Simon, son of John, do you love me more than these? He said to him, Yes, Lord; you know that I love you. He said to him, Feed my lambs. He said to him a second time, Simon, son of John, do you love me? He said to him, Yes, Lord; you know that I love you. He said to him, Tend my sheep. He said to him the third time, Simon, son of John, do you love me? Peter was grieved because he said to him the third time, Do you love me? and he said to him, Lord, you know everything; you know that I love you. Jesus said to him, Feed my sheep.
@@ -18547,6 +18553,74 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 > **[John 15:13](https://www.biblegateway.com/passage/?search=John%2015%3A13&version=ESV)** - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
 
 
+## We must agape love God, we must agape people and we must not agape the things of the world
+
+God also wants us to have joy in Him.
+
+-   **[youtube.com: Overcoming Spiritual Dryness @time: 21 min 24 sec](https://youtube.com/watch?v=3lMlHSu0_zA&t=1284):** A lot of preaching of the law
+    (and I think that's a good thing) deals with the
+    law just at a 'do' level - a deed level -
+    don't commit adultery, don't lie, don't
+    steal, and doesn't probe the depths of
+    commandment number 10 which is the root of all the others.
+    
+    Thou shalt not desire things in ways you shouldn't - covet.
+    
+    Desire is the root problem in the
+    law and so when we preach not enough
+    people probe people's consciences and
+    hearts as to **what do you delight in**?
+    
+    ..
+    
+    To know that my heart has to
+    change my whole structure of motivation
+    has to change my whole priority of
+    treasuring things in the world has to
+    change I'm damned I'm just I there's
+    nothing I can do I feel totally
+    devastated by this indictment.
+    That's a third reason why I think we
+    should not just say *"pursue"* God.
+    
+    &#x2026;
+    
+    Because you know what people will do with the
+    word pursue? They'll just fill in all the verbs they feel comfortable with:
+        "I'll read about him."
+        "I'll talk about him."
+        "I'll do some things for him."
+        "[But] don't you touch my heart because I'm in love with money, and I'm
+        in love with the praise of man."
+    
+    So don't connect "pursue god" with "pursue joy in God".
+    
+    We are after God in a **certain way**, not to indict him,
+    not to ignore him, not merely to say
+    right things about him. We're after God to enjoy him.
+    and if we don't, we don't honor him.
+    
+    It's a huge, huge issue.
+    My goal is God and happiness in all that
+    he is for me.
+
+**[Deuteronomy 28:47-48](https://www.biblegateway.com/passage/?search=Deuteronomy%2028%3A47-48&version=ESV)** shows that when serving God it should be out of joy in Him. It is <ins>correct</ins> that we should have joy in God and that out of that joy we delight in God and that overflows into sharing the love of God to others. We must come to a place where we see this law as correct. It's an important one.
+
+We are supposed to serve God out of joy!
+
+> **[Deuteronomy 28:47-48](https://www.biblegateway.com/passage/?search=Deuteronomy%2028%3A47-48&version=ESV)** - Because you did not **serve the LORD your God with joyfulness and gladness of heart**, because of the abundance of all things, therefore you shall serve your enemies whom the LORD will send against you, in hunger and thirst, in nakedness, and lacking everything. And he will put a yoke of iron on your neck until he has destroyed you. (ESV)
+
+So how do we get to this place of serving God in joy? Through the power of the atonement, through having faith in Jesus Christ, trusting Him, we can be set free from sin - we can have our hearts and minds renewed.
+
+Thus so (**[Houtōs](https://biblehub.com/greek/3779.htm)**) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
+
+[biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son &#x2013; the only begotten &#x2013; He gave, that every one who is believing in him may not perish, but may have life age-during.](https://biblehub.com/interlinear/john/3-16.htm)
+
+> **[John 3:16-17](https://www.biblegateway.com/passage/?search=John%203%3A16-17&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. (ESV)
+
+> **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+
+
 ## We must love Jesus
 
 > **[Matthew 10:37](https://www.biblegateway.com/passage/?search=Matthew%2010%3A37&version=ESV)** - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. (ESV)
@@ -18558,7 +18632,7 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 
 > **[John 5:42](https://www.biblegateway.com/passage/?search=John%205%3A42&version=ESV)** - But I know that you do not have the love of God within you. (ESV)
 
-Loving Jesus is the test of whether you love God.
+When confronted with Jesus, loving Jesus is the test of whether you love God.
 
 
 ## What is the nature of this love?
@@ -26954,7 +27028,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbcdb0dc)
+See: [33.4.1](#org020fac2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

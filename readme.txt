@@ -26728,6 +26728,17 @@ Old Testament theology is supposed to be profitable for:
 - correction
 - training in righteousness
 
+For example, Deuteronomy 28:47-48 shows that when serving God it should be out of joy in Him. It is correct that
+we should have joy in God and that out of that joy we delight in God and that overflows into sharing the love of
+God to others. We must come to a place where we see this law as correct. It's an important one.
+
+We are supposed to serve God out of joy!
+
+  Deuteronomy 28:47-48 - Because you did not serve the LORD your God with joyfulness and gladness of heart,
+  because of the abundance of all things, therefore you shall serve your enemies whom the LORD will send against
+  you, in hunger and thirst, in nakedness, and lacking everything. And he will put a yoke of iron on your neck
+  until he has destroyed you. (ESV)
+
 Jesus Christ is the bread from heaven:
 
   John 21:15-17 - When they had finished breakfast, Jesus said to Simon Peter, Simon, son of John, do you love me
@@ -27549,21 +27560,81 @@ Jesus laid down His life. Maybe this says something about how we should also lay
 
   John 15:13 - Greater love has no one than this, that someone lays down his life for his friends. (ESV)
 
-29.1. We must love Jesus
+29.1. We must agape love God, we must agape people and we must not agape the things of the world
+
+God also wants us to have joy in Him.
+
+youtube.com: Overcoming Spiritual Dryness @time: 21 min 24 sec
+
+A lot of preaching of the law (and I think that's a good thing) deals with the law just at a 'do' level - a deed
+level - don't commit adultery, don't lie, don't steal, and doesn't probe the depths of commandment number 10 which
+is the root of all the others.
+
+Thou shalt not desire things in ways you shouldn't - covet.
+
+Desire is the root problem in the law and so when we preach not enough people probe people's consciences and
+hearts as to what do you delight in?
+
+..
+
+To know that my heart has to change my whole structure of motivation has to change my whole priority of treasuring
+things in the world has to change I'm damned I'm just I there's nothing I can do I feel totally devastated by this
+indictment. That's a third reason why I think we should not just say "pursue" God.
+
+...
+
+Because you know what people will do with the word pursue? They'll just fill in all the verbs they feel
+comfortable with: "I'll read about him." "I'll talk about him." "I'll do some things for him." "[But] don't you
+touch my heart because I'm in love with money, and I'm in love with the praise of man."
+
+So don't connect "pursue god" with "pursue joy in God".
+
+We are after God in a certain way, not to indict him, not to ignore him, not merely to say right things about him.
+We're after God to enjoy him. and if we don't, we don't honor him.
+
+It's a huge, huge issue. My goal is God and happiness in all that he is for me.
+
+Deuteronomy 28:47-48 shows that when serving God it should be out of joy in Him. It is correct that we should have
+joy in God and that out of that joy we delight in God and that overflows into sharing the love of God to others.
+We must come to a place where we see this law as correct. It's an important one.
+
+We are supposed to serve God out of joy!
+
+  Deuteronomy 28:47-48 - Because you did not serve the LORD your God with joyfulness and gladness of heart,
+  because of the abundance of all things, therefore you shall serve your enemies whom the LORD will send against
+  you, in hunger and thirst, in nakedness, and lacking everything. And he will put a yoke of iron on your neck
+  until he has destroyed you. (ESV)
+
+So how do we get to this place of serving God in joy? Through the power of the atonement, through having faith in
+Jesus Christ, trusting Him, we can be set free from sin - we can have our hearts and minds renewed.
+
+Thus so (Houtos) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is
+trusting/believing in Him may not perish, but may have life everlasting:
+
+biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
+gave, that every one who is believing in him may not perish, but may have life age-during.
+
+  John 3:16-17 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
+  perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
+  that the world might be saved through him. (ESV)
+
+  John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+
+29.2. We must love Jesus
 
   Matthew 10:37 - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or
   daughter more than me is not worthy of me. (ESV)
 
-29.2. What's the relationship between loving God and loving Jesus?
+29.3. What's the relationship between loving God and loving Jesus?
 
   John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
   came not of my own accord, but he sent me. (ESV)
 
   John 5:42 - But I know that you do not have the love of God within you. (ESV)
 
-Loving Jesus is the test of whether you love God.
+When confronted with Jesus, loving Jesus is the test of whether you love God.
 
-29.3. What is the nature of this love?
+29.4. What is the nature of this love?
 
 Required to satisfy the "Christ's love" criteria I believe are:
 
@@ -27578,7 +27649,7 @@ Required to satisfy the "Christ's love" criteria I believe are:
 - We should endeavour to love not just on occasion, but at all times, continually, as Jesus did, and give our
 all
 
-29.3.1. It's affectionate and treasuring
+29.4.1. It's affectionate and treasuring
 
 In a way the love of Jesus is like the love of your children:
 
@@ -27595,7 +27666,7 @@ Jesus has to be our Pearl of Great price:
 Song
 youtube.com: Be the Centre - Michael Frye
 
-29.3.2. Heavenly treasure and the Pearl of Great Price
+29.4.2. Heavenly treasure and the Pearl of Great Price
 
 The Pearl of Great Price, Jesus and Jesus' gospel:
 
@@ -27629,7 +27700,7 @@ treasure, and we then go after Jesus as our Pearl of Great Price:
 Also, I still think that people, and acts of kindness towards people can be heavenly treasure, but they should not
 be our number 1 treasure. Jesus must be.
 
-29.3.3. We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
+29.4.3. We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
 
   Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
   Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
@@ -27648,24 +27719,24 @@ Jesus certainly does command us to have emotions for things. For example:
 - we should be earnest
 - we should hope
 
-29.3.4. The person who has Jesus' commandments and keeps them, loves Jesus
+29.4.4. The person who has Jesus' commandments and keeps them, loves Jesus
 
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
 
-29.3.5. If we love Jesus, then we will keep Jesus' commandments
+29.4.5. If we love Jesus, then we will keep Jesus' commandments
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
 
 So in order to make it much easier to keep Jesus' commandments, we should make Jesus our Pearl of Great Price, our
 #1 love. If we don't make Jesus our #1 love then it will be much harder to keep Jesus' commandments.
 
-29.4. How do we get to this place of treasuring Jesus?
+29.5. How do we get to this place of treasuring Jesus?
 
   Luke 7:47 - Therefore I tell you, her sins, which are many, are forgiven-for she loved much. But he who is
   forgiven little, loves little. (ESV)
 
-29.5. If we don't love Jesus, we wont have Jesus
+29.6. If we don't love Jesus, we wont have Jesus
 
   Matthew 10:37 - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or
   daughter more than me is not worthy of me. (ESV)
@@ -49223,11 +49294,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-21 Sat 00:00
+Date: 2024-09-22 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-21 Sat 23:06
+Created: 2024-09-22 Sun 00:12
 
 Validate
 
