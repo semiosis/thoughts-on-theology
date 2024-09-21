@@ -10393,6 +10393,10 @@ We have always obeyed, participating in the Spirit, having one mind, that of a s
   have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation
   with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
+  I Corinthians 3:6-8 - I planted, Apollos watered, but God gave the growth. So neither he who plants nor he who
+  waters is anything, but only God who gives the growth. He who plants and he who waters are one, and each will
+  receive his wages according to his labor. (ESV)
+
 Song
 youtube.com: John Fischer - Naphtali - 09 Live in the Power
 
@@ -29306,7 +29310,7 @@ come under the umbrella of the faith of Abraham, which the Gentiles who also sha
 included within.
 
 |             ?
-|            ===
+|           =====
 |             ?
 |             ?
 | 
@@ -49365,7 +49369,7 @@ Date: 2024-09-22 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-22 Sun 01:28
+Created: 2024-09-22 Sun 01:57
 
 Validate
 

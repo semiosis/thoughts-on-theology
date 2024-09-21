@@ -553,7 +553,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5e4ff4a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd8b3daf) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -6545,7 +6545,7 @@ Good work is rewarded. Lazy, disobedient belief is punished, and the worthless s
 
 It's all about the heart though, as Ignatius says *"Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be."*:
 
-> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+> **[Ignatius to the Magnesians 10](https://www.earlychristianwritings.com/text/ignatius-magnesians-longer.html)** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 The righteous obey Jesus, and love our neighbour as He loved them; as He commanded:
 
@@ -7052,6 +7052,8 @@ Jesus makes it clear that the ones who believe do the same works He does:
 We have **always obeyed**, participating in the Spirit, having one mind, that of a servant - God works through us:
 
 > **[Philippians 2:1-13](https://www.biblegateway.com/passage/?search=Philippians%202%3A1-13&version=ESV)** - So if there is any encouragement in Christ, any comfort from love, any <ins>participation in the Spirit,</ins> any affection and sympathy, complete my joy by being of the same mind, having the same love, being in full accord and of one mind. Do nothing from rivalry or conceit, but in humility count others more significant than yourselves. Let each of you look not only to his own interests, but also to the interests of others. Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the form of God, did not count equality with God a thing to be grasped, but made himself nothing, **taking the form of a servant**, being born in the likeness of men. And being found in human form, he humbled himself by becoming obedient to the point of death, even death on a cross. Therefore God has highly exalted him and bestowed on him the name that is above every name, so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, **work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work** for his good pleasure. (ESV)
+
+> **[I Corinthians 3:6-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A6-8&version=ESV)** - I planted, Apollos watered, but God gave the growth. So neither he who plants nor he who waters is anything, but only God who gives the growth. He who plants and he who waters are one, and each will receive his wages according to his labor. (ESV)
 
 -   **Song:** [youtube.com: John Fischer - Naphtali - 09 Live in the Power](https://www.youtube.com/watch?v=Mqk5mMvvih4&list=RDMqk5mMvvih4&start_radio=1)
 
@@ -13317,7 +13319,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgb90297f)
+See: [33.4.1](#org235078a)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -17420,7 +17422,7 @@ God's commandments through Jesus is within the Law of God. Faith in Jesus is how
 
 Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism):
 
-> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+> **[Ignatius to the Magnesians 10](https://www.earlychristianwritings.com/text/ignatius-magnesians-longer.html)** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 I read the following as, as we have faith in Jesus, following Him, where we have fallen short, Jesus has covered us, but we still try to live righteously. We still live with faith in God.
 
@@ -17579,7 +17581,7 @@ We may abide in Jesus' love by keeping His commandments, and we may abide in Fat
 
 ### Christians do not Judaize (Christians do not instruct Gentiles to conform to Judaism)
 
-> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+> **[Ignatius to the Magnesians 10](https://www.earlychristianwritings.com/text/ignatius-magnesians-longer.html)** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 
 ### Jesus' commandments don't contradict the rest of the commandments
@@ -19693,7 +19695,7 @@ Faith eclipses the law:
 <ins>The ones under the law who also walk in the footsteps of the faith that Abraham had before he was circumcised, come under the umbrella of the faith of Abraham</ins>, which the Gentiles who also share the faith of Abraham are included within.
 
      1             ‖
-     2            ===
+     2           =====
      3             ‖
      4             ‖
      5  
@@ -22373,7 +22375,7 @@ The law certainly still exists:
 
 But Christians are not <ins>under</ins> the law while we are led by the Spirit:
 
-> **Ignatius to the Magnesians 8** - Be not deceived with *strange doctrines*, nor with *old fables*, which are unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace. For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being inspired by His grace to fully convince the unbelieving that there is **one God, who has manifested Himself by Jesus Christ His Son, who is His eternal Word**, not proceeding forth from silence, and who in all things pleased Him that sent Him.
+> **[Ignatius to the Magnesians 8](https://www.earlychristianwritings.com/text/ignatius-magnesians-longer.html)** - Be not deceived with *strange doctrines*, nor with *old fables*, which are unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace. For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being inspired by His grace to fully convince the unbelieving that there is **one God, who has manifested Himself by Jesus Christ His Son, who is His eternal Word**, not proceeding forth from silence, and who in all things pleased Him that sent Him.
 
 **If** we are led by the spirit (if we're serving Jesus Christ, seeking justification through faith in Jesus Christ) then we are not under the Mosaic law, but we are trying to bear one another's burdens without partiality and seeking to not harming our neighbour, and we are seeking to not allowing sin to reign in our mortal bodies. Inheriting the Kingdom of God is for those who abide by God's law, and conform to Christ's image, and do not allow sin to reign in their mortal body:
 
@@ -23224,7 +23226,7 @@ Jesus Christ is God's servant. We are Jesus' servants. It is a kingdom of servan
 
 ## Not all religions are equal. There is only one true God, the <ins>Father of Jesus Christ who has **revealed Himself** in Jesus Christ</ins>
 
-> **Ignatius to the Magnesians 8** - Be not deceived with *strange doctrines*, nor with *old fables*, which are unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace. For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being inspired by His grace to fully convince the unbelieving that there is **one God, who has manifested Himself by Jesus Christ His Son, who is His eternal Word**, not proceeding forth from silence, and who in all things pleased Him that sent Him.
+> **[Ignatius to the Magnesians 8](https://www.earlychristianwritings.com/text/ignatius-magnesians-longer.html)** - Be not deceived with *strange doctrines*, nor with *old fables*, which are unprofitable. For if we still live according to the Jewish law, we acknowledge that we have not received grace. For the divinest prophets lived according to Christ Jesus. On this account also they were persecuted, being inspired by His grace to fully convince the unbelieving that there is **one God, who has manifested Himself by Jesus Christ His Son, who is His eternal Word**, not proceeding forth from silence, and who in all things pleased Him that sent Him.
 
 The **only way** to Father God is through Jesus:
 
@@ -27040,7 +27042,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgb90297f)
+See: [33.4.1](#org235078a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -27875,7 +27877,7 @@ We should be able to see the transformation described in the sermon of the mount
 
 The "salt of the earth" are the disciples of Jesus.
 
-> **Ignatius to the Magnesians 10** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
+> **[Ignatius to the Magnesians 10](https://www.earlychristianwritings.com/text/ignatius-magnesians-longer.html)** - Let us not, therefore, be insensible to His kindness. For were He to reward us according to our works, we should cease to be. Therefore, **having become His disciples, let us learn to live according to the principles of Christianity**. For whosoever is called by any other name besides this, is not of God. Lay aside, therefore, the evil, the old, the sour leaven, and be ye changed into the new leaven, which is Jesus Christ. Be ye **salted** in Him, lest any one among you should be corrupted, since *by your savour ye shall be convicted*. It is absurd to profess Christ Jesus, and to Judaize. For <ins>Christianity did not embrace Judaism, but Judaism Christianity, that so every tongue which believeth might be gathered together to God</ins>.
 
 People may take offense to disciples of Jesus as they did to Jesus, but we should still remain 'salty', which would predictably offend some people while it hasn't lost its taste, and it's desirable for Jesus' disciples to be set apart for God, and distinct the world.
 
