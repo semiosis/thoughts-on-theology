@@ -11177,7 +11177,7 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning human submitting to precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -12854,7 +12854,7 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning human submitting to precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -18672,7 +18672,7 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning human submitting to precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -20296,6 +20296,14 @@ God rewards faith and may choose to reveal Himself after a while serving God in 
 - Romans 4:2 - For if Abraham was justified by works, he has something to boast about, but not before God.
 (ESV)
 - Thirdly, "working for God" is as step beyond obedient action.
+- I Corinthians 9:12,9:15-18 - If others share this rightful claim on you, do not we even more?
+Nevertheless, we have not made use of this right, but we endure anything rather than put an obstacle in
+the way of the gospel of Christ. But I have made no use of any of these rights, nor am I writing these
+things to secure any such provision. For I would rather die than have anyone deprive me of my ground for
+boasting. For if I preach the gospel, that gives me no ground for boasting. For necessity is laid upon
+me. Woe to me if I do not preach the gospel! For if I do this of my own will, I have a reward, but not of
+my own will, I am still entrusted with a stewardship. What then is my reward? That in my preaching I may
+present the gospel free of charge, so as not to make full use of my right in the gospel. (ESV)
 
 In God's mercy He has shown us the Way to be reconciled with Him. He has given us Jesus, and we just need to have
 faith in Him. He has told us what to believe and what to do, and we can choose to be obedient in believing and
@@ -34148,7 +34156,7 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning human submitting to precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -46508,7 +46516,7 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning human submitting to precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -48256,6 +48264,50 @@ warfare, and I have been constantly denied work and a marriage partner!
   God. If with Christ you died to the elemental spirits of the world, why, as if you were still alive in the
   world, do you submit to regulations- Do not handle, Do not taste, Do not touch (ESV)
 
+Paul says:
+
+- He has the right to eat and drink
+- He has the right to take along a believing wife, just like other believers
+- It seems just even by God's law that as working as an apostle he may reap material things from the ones he is
+serving
+- If we have sown spiritual things among you, is it too much if we reap material things from you
+- He has the right to refrain from working for a living
+- Because he is working for God
+- Who serves as a soldier at his own expense?
+- Who plants a vineyard without eating any of its fruit?
+- Or who tends a flock without getting some of the milk?
+- Even God's law says the same:
+- Do I say these things on human authority? Does not the Law say the same? For it is written in the Law of
+Moses, You shall not muzzle an ox when it treads out the grain. Is it for oxen that God is concerned?
+Does he not speak entirely for our sake? It was written for our sake, because the plowman should plow in
+hope and the thresher thresh in hope of sharing in the crop.
+
+  I Corinthians 9:3-14 - This is my defense to those who would examine me. Do we not have the right to eat and
+  drink? Do we not have the right to take along a believing wife, as do the other apostles and the brothers of the
+  Lord and Cephas? Or is it only Barnabas and I who have no right to refrain from working for a living? Who serves
+  as a soldier at his own expense? Who plants a vineyard without eating any of its fruit? Or who tends a flock
+  without getting some of the milk? Do I say these things on human authority? Does not the Law say the same? For
+  it is written in the Law of Moses, You shall not muzzle an ox when it treads out the grain. Is it for oxen that
+  God is concerned? Does he not speak entirely for our sake? It was written for our sake, because the plowman
+  should plow in hope and the thresher thresh in hope of sharing in the crop. If we have sown spiritual things
+  among you, is it too much if we reap material things from you? If others share this rightful claim on you, do
+  not we even more? Nevertheless, we have not made use of this right, but we endure anything rather than put an
+  obstacle in the way of the gospel of Christ. Do you not know that those who are employed in the temple service
+  get their food from the temple, and those who serve at the altar share in the sacrificial offerings? In the same
+  way, the Lord commanded that those who proclaim the gospel should get their living by the gospel. (ESV)
+
+Paul doesn't claim his full rights (even by God's law) that He might receive reward from God for going beyond the
+call of His duty:
+
+  I Corinthians 9:12,9:15-18 - If others share this rightful claim on you, do not we even more? Nevertheless, we
+  have not made use of this right, but we endure anything rather than put an obstacle in the way of the gospel of
+  Christ. But I have made no use of any of these rights, nor am I writing these things to secure any such
+  provision. For I would rather die than have anyone deprive me of my ground for boasting. For if I preach the
+  gospel, that gives me no ground for boasting. For necessity is laid upon me. Woe to me if I do not preach the
+  gospel! For if I do this of my own will, I have a reward, but not of my own will, I am still entrusted with a
+  stewardship. What then is my reward? That in my preaching I may present the gospel free of charge, so as not to
+  make full use of my right in the gospel. (ESV)
+
 We must keep and accept the precepts of God over the precepts of men:
 
   Mark 7:6-9 - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, This people
@@ -48263,7 +48315,7 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning human submitting to precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -49313,7 +49365,7 @@ Date: 2024-09-22 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-22 Sun 00:56
+Created: 2024-09-22 Sun 01:28
 
 Validate
 
