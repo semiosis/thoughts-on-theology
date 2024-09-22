@@ -13,6 +13,10 @@ I've also added parts of my own testimony. It's my hope that this Bible study he
 
 > **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
 
+This is short preview of where I'm at with my theology. I don't claim to know everything or to have perfect theology:
+
+    1  If we believe on Yeshua's (Jesus's) name it's typically the initial act of obedience of a Christian, Jesus having commanded us to believe on His name as Son of God, Christ, Messiah as foretold by the prophets. I'm quite sure trust, obedience, belief and faith are not really separate things when it comes to believing the Word of God, and if a person has put their trust in Jesus then they've done something which is in the will of God. Our faith and obedience are supposed to increase as we are sanctified. Trust, belief and obedience, and even agape and knowledge of God when they are settled in the heart is what God sees and God is our justifier, and He justifies the one who puts their faith/trust in Jesus Christ. We believe by faith that we are justified by the blood of Jesus and just get to serving God with agape love proceeding from a good conscience having believed the Gospel and placed their faith in Christ. Christ died for our sins according to the Scriptures, that he was buried, that he was raised on the third day according to the Scriptures, and that he appeared to many eye-witnesses. In this way did God agape love (treasure/value) the world, that He gave His Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting which is to be reconciled to our Creator and His Son, in relationship with God forever, never perishing nor being cut off from our source of life and all that is good. Agape love is a treasuring/valuing love and God the Father and Jesus God the Son should be our first agape love, and those in the family of Christ we must also agape love, and our spouses we must agape love and we are even called to agape all people, but we're supposed to have no agape for this world. Agape-loving our neighbour as ourself includes not bearing a grudge against our neighbour and not taking vengeance - it's loving as we have been loved and forgiven by God through Jesus, passing the agape love and mercy forwards. We move forward serving God with hope to see His glory. Obedience is in the heart, along with belief in the Truth and understanding of the gospel. Obedience can exist without work. Jesus said, "The spirit is indeed willing but the flesh is weak." The law can also be followed by faith where it's a matter of seeking praise from God and not from men. Our faith should be modelled on Abraham's faith. We're supposed to have joy in our obedience to God. We're supposed to go from agapeing darkness to agapeing God's light, and into walking in the light, walking in God's will, and we're supported by God's Spirit as we are doing this.
+
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are found in Christ Jesus:
 
 > **[I Corinthians 8:5-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A5-7&version=ESV)** - For although <ins>there may be so-called gods in heaven or on earth</ins> — *as indeed there are many gods and many lords* — yet **for us there is one God, the Father, from whom are all things and for whom we exist, and one Lord, Jesus Christ, through whom are all things and through whom we exist**. However, <ins>not all possess this knowledge. But some, through former association with idols, eat food as really offered to an idol, and their conscience, being weak, is defiled.</ins> (ESV)
@@ -576,7 +580,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf23aba2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org04f8037) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13368,7 +13372,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1b69484)
+See: [33.4.1](#org3a0ae6f)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -27133,7 +27137,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1b69484)
+See: [33.4.1](#org3a0ae6f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
