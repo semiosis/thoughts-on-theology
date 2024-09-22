@@ -639,6 +639,16 @@ saved. Later on I got the doctrine. But I'd met Jesus and I just want to tell yo
 meet Jesus and stay the same. You can join a church and remain unchanged. You can believe all sorts of things with
 your head and remain unchanged, but when you meet the resurrected Christ it's transforming and it's permanent.
 
+youtube.com: Jesus Is Not Just A Prophet Or A Guru @time: 3 min 52 sec
+
+I'd been deeply involved in yoga. And when I was challenged with the gospel and the presentation of Jesus Christ,
+I simply was not able to acknowledge Him as Son of God and Messiah until I had a tremendous deliverance.
+
+That was the first deliverance I was ever in, it was the middle of the night, it was in an army barrack room.
+
+I was flat on my back on the floor and I have no idea how many demons came out of me. But many. And the moment
+that yoga demon left I knew that Jesus is the Son of God, I didn't have any more doubt.
+
 When I was born again of the Spirit, in faith I confessed Jesus - I wasn't told 'this is Jesus here' making You
 born-again - I asked Jesus to save me, and then continued walking in faith, believing I had an experience with
 God, so I believed God existed, but I sought then to demonstrate my faith to Jesus in my walk, through my inward
@@ -1811,16 +1821,36 @@ See where else this word used to describe agape love is used:
 - https://biblehub.com/greek/agapate_25.htm
 - https://biblehub.com/greek/26.htm
 
+Agape-love can be misplaced. We go from agape-loving (treasuring, valuing) darkness to agape-loving (treasuring,
+valuing) light:
+
+  John 3:16-20 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
+  perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
+  that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not
+  believe is condemned already, because he has not believed in the name of the only Son of God. And this is the
+  judgment: the light has come into the world, and people loved (25. agapao) the darkness rather than the light
+  (5457. phos) because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. (ESV)
+
+Thus so (Houtos) (in this way) did God love (25. agapao - value,treasure) the world, that He gave His
+Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
+
+biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
+gave, that every one who is believing in him may not perish, but may have life age-during.
+
 Who Christians must agape love:
 
-- Your spouse
-- https://biblehub.com/interlinear/ephesians/5-28.htm
 - God (Father God, Jesus Christ and Holy Spirit)
 - https://biblehub.com/interlinear/1_john/2-15.htm
 - https://biblehub.com/interlinear/matthew/22-37.htm
 - Matthew 22:37 - And He said to him You shall love (25 Agapeseis) [the] Lord the God of you with all the
 heart of you and with all the soul of you and with all the mind of you (Interlinear)
 - https://biblehub.com/interlinear/john/14-23.htm
+- Your spouse
+- https://biblehub.com/interlinear/ephesians/5-28.htm
+- Others in Christ
+- Colossians 3:14 - And above all these put on love (26. agape), which binds everything together in perfect
+harmony. (ESV)
 
 Who Christians are called to agape love:
 
@@ -2101,7 +2131,7 @@ convinced that Martin Luther also loved God and God loved Martin Luther.
 Jesus says that the one who loves Him is the one who keeps His commandments. Amen.
 
 I love it when I have the II Corinthians 8:2 joy which spills over into following Jesus' commandments - it makes
-it much easer!
+it much easier!
 
 We should be serving in gladness and joy because we have perspective - we have God, and we should have joy in
 serving God and being used by God:
@@ -2625,8 +2655,8 @@ Verses such as this demonstrate the holy justice of God. God nearly put Moses to
   bridegroom of blood to me! So he let him alone. It was then that she said, A bridegroom of blood, because of the
   circumcision. (ESV)
 
-Thus so (Houtos) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is
-trusting/believing in Him may not perish, but may have life everlasting:
+Thus so (Houtos) (in this way) did God love (25. agapao - value,treasure) the world, that He gave His
+Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
 
 biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
 gave, that every one who is believing in him may not perish, but may have life age-during.
@@ -5342,6 +5372,19 @@ simultaneously, because people misconstrue Jesus' words to their own destruction
 
 Fighting sin is both a gift from God and a duty we act.
 
+We have been given stewardship to exercise love that issues from a pure heart, good conscience and sincere faith,
+as Paul was given stewardship:
+
+  I Timothy 1:4-5 - nor to devote themselves to myths and endless genealogies, which promote speculations rather
+  than the stewardship (3622. oikonomia) from God that is by faith. The aim of our charge is love that issues from
+  a pure heart and a good conscience and a sincere faith. (ESV)
+
+  Ephesians 3:2 - assuming that you have heard of the stewardship (3622. oikonomia) of God's grace that was given
+  to me for you, (ESV)
+
+3622. oikonomia
+Usage: management of household affairs, stewardship, administration.
+
 Increasing holiness is both a gift and a duty.
 
 It is a gift of grace that we receive from Jesus and the way that we receive a gift that involves your thoughts,
@@ -7041,7 +7084,14 @@ type of thinking is emnity against God. That's making money #1 and Jesus after t
 
 The thoughts that go through our minds must be:
 
-- How can I help other people / where can I sow money to help other people.
+- How can I serve God agape-ing God, (valuing and treasuring Him, His name, His words, His precepts), and agape
+the light of the glory of God in Christ, cease to agape the world or the lusts of the world, and help to bring
+about the obedience of faith in Christ in other people, and agape other people. Where can I sow into the
+Kingdom of God? How can I agape people and show people that God agape's them, especially the neglected and
+needy, like in James 1:27.
+
+  James 1:27 - Religion that is pure and undefiled before God, the Father, is this: to visit orphans and widows in
+  their affliction, and to keep oneself unstained from the world. (ESV)
 
   Luke 9:23 - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily
   and follow me. (ESV)
@@ -10490,8 +10540,8 @@ Verses such as this demonstrate the holy justice of God. God nearly put Moses to
   bridegroom of blood to me! So he let him alone. It was then that she said, A bridegroom of blood, because of the
   circumcision. (ESV)
 
-Thus so (Houtos) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is
-trusting/believing in Him may not perish, but may have life everlasting:
+Thus so (Houtos) (in this way) did God love (25. agapao - value,treasure) the world, that He gave His
+Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
 
 biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
 gave, that every one who is believing in him may not perish, but may have life age-during.
@@ -11181,7 +11231,8 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly / human precepts and emploring us to submit to God's precepts.
+It's not condemning God's precepts but imploring us to put to death what is against God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -12858,7 +12909,8 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly / human precepts and emploring us to submit to God's precepts.
+It's not condemning God's precepts but imploring us to put to death what is against God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -16962,8 +17014,8 @@ hear God more clearly
   II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
   body and spirit, bringing holiness to completion in the fear of God. (ESV)
 
-- youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 46 min 30 sec :; This is not
-a cleansing from guilt - that's not what this is. This is a cleansing from the pollution of the world.
+youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 46 min 30 sec
+This is not a cleansing from guilt - that's not what this is. This is a cleansing from the pollution of the world.
 
 God's servants may remain 'shelved' because they're unfit for use.
 
@@ -17578,9 +17630,8 @@ I do actually consider theology to be quite important but we should not be white
 
 I think the person's lifestyle should be 'pure and undefiled religion' as James defines it.
 
-  [[https://www.biblegateway.com/passage/?search=1%20Peter%203%3A16&version=ESV][1 Peter 3:16]] - a conscience
-  having good so that in this they might speak against you they shall be ashamed those reviling your - good in
-  Christ manner of life (391. anastrophe) (Interlinear)
+  1 Peter 3:16 - a conscience having good so that in this they might speak against you they shall be ashamed those
+  reviling your - good in Christ manner of life (391. anastrophe) (Interlinear)
 
 I should probably actually do my own Bible study though because there's a lot of false religion out there. Rather
 than fill my mind with other people's doctrines and religion, we should obey God, knowing God knows.
@@ -18676,7 +18727,8 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly / human precepts and emploring us to submit to God's precepts.
+It's not condemning God's precepts but imploring us to put to death what is against God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -22194,7 +22246,7 @@ this seems to make the attack stop:
 
 - youtube.com: Charity Gayle - I Speak Jesus {feat. Steven Musso} Live
 - multitracks.com: I Speak Jesus by Charity Gayle | MultiTracks.com
-- I just want to speak the name of Jesus till every dark addiction Starts to break, declaring there is
+- I just want to speak the name of Jesus till every dark addiction starts to break, declaring there is
 hope and there is freedom. I speak Jesus
 - youtube.com: Nothing But the Blood {Hymn} - Victory Worship, AWAKE84
 - hymnal.net: Hymn: What can wash away my sin
@@ -22450,8 +22502,13 @@ Keith Green - To Obey Is Better Than Sacrifice (live)
   Galatians 3:14 - so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might
   receive the promised Spirit through faith. (ESV)
 
+We need well-grounded (faith in Jesus), well-placed (on the right stuff) agape love for God, those in Christ, our
+spouse, and even called to agape love all people with agape love, but not agape-ing the world or the world's
+lusts:
+
   I Corinthians 13:2 - And if I have prophetic powers, and understand all mysteries and all knowledge, and if I
-  have all faith, so as to remove mountains, but have not love, I am nothing. (ESV)
+  have all faith, so as to remove mountains, but have not love (26. agape - treasuring, valuing love), I am
+  nothing. (ESV)
 
 Our hope should not be on our own lustful or idolatrous desires, but our hope should be on God's promises:
 
@@ -22680,7 +22737,7 @@ Belief and action are like a vector.
 |         Serving God plane            /|
 |                                     /                       From past
 |                                    /                          baggage          o     _
-|  An obedient    __              __/                         persecuting       /       /|
+|  An obedient    __     agape    __/       agape             persecuting       /       /|
 |  and believing   /| 1x Love      /|    2x Love               Jesus           /       /
 |  heart          /               /                           to receiving    /   ->   /
 |    _           /               /                             forgiveness   /       /
@@ -22690,14 +22747,14 @@ Belief and action are like a vector.
 |   --------------------------------------------+-------------+----------------------------
 |                                               |  Dead faith |    Impossible to be
 |         Faithless plane                       |             |     simultaneously
-|         Serving yourself plane                |      o      |
+|         Serving yourself plane                |      o      |   agape-ing,
 |         Justifying yourself plane             |             |   yoked to God  _
 |              __                               | disobedient |  (led by)       /|
 |               /| Dead works                   +-------------+                /
 |              /                                              |    while      o
 |             /                                               |              /
 |            /            These are entirely worthless        |            |/_
-|           x                                                 |  (led by)
+|           x                                                 |  (led by) agape-ing,
 |                                                             |   yoked to money
 
 Faith has 'substance/magnitude' and may be described as a vector:
@@ -24600,6 +24657,14 @@ youtube.com: Hell and Heaven Are at Stake with Money: Galatians 6:6-10, Part 1 @
   It's a very anti-Mary, pro-Martha spirit in a situation which is the same as the one Mary and Martha were in. In
   that situation, Mary was in the right to listen to Jesus. That is my situation, so by focusing on Jesus, I am
   doing the correct thing, but this antichrist spirit has been opposing that.
+
+  Deuteronomy 24:5 - When a man is newly married, he shall not go out with the army or be liable for any other
+  public duty. He shall be free at home one year to be happy with his wife whom he has taken. (ESV)
+
+  Luke 5:33-35 - And they said to him, The disciples of John fast often and offer prayers, and so do the disciples
+  of the Pharisees, but yours eat and drink. And Jesus said to them, Can you make wedding guests fast while the
+  bridegroom is with them? The days will come when the bridegroom is taken away from them, and then they will fast
+  in those days. (ESV)
 
   I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
 
@@ -27355,8 +27420,13 @@ obey Him. But God is sovereign to save.
 I made these equations to describe my understanding that faith is actually closely related to belief, obedience,
 hope and love, and they actually are not completely separate things.
 
+We need well-grounded (faith in Jesus), well-placed (on the right stuff) agape love for God, those in Christ, our
+spouse, and even called to agape love all people with agape love, but not agape-ing the world or the world's
+lusts:
+
   I Corinthians 13:2 - And if I have prophetic powers, and understand all mysteries and all knowledge, and if I
-  have all faith, so as to remove mountains, but have not love, I am nothing. (ESV)
+  have all faith, so as to remove mountains, but have not love (26. agape - treasuring, valuing love), I am
+  nothing. (ESV)
 
 |  Faith-in-God = Hope-from/in-God * Work/Love/Walking-By-Faith
 | 
@@ -27620,8 +27690,8 @@ We are supposed to serve God out of joy!
 So how do we get to this place of serving God in joy? Through the power of the atonement, through having faith in
 Jesus Christ, trusting Him, we can be set free from sin - we can have our hearts and minds renewed.
 
-Thus so (Houtos) (in this way) did God love the world, that He gave His Only-Begotten Son that everyone who is
-trusting/believing in Him may not perish, but may have life everlasting:
+Thus so (Houtos) (in this way) did God love (25. agapao - value,treasure) the world, that He gave His
+Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
 
 biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
 gave, that every one who is believing in him may not perish, but may have life age-during.
@@ -33535,6 +33605,15 @@ firstborn of the dead:
   through him to reconcile to himself all things, whether on earth or in heaven, making peace by the blood of his
   cross.
 
+youtube.com: Jesus Is Not Just A Prophet Or A Guru @time: 5 min 50 sec
+
+Now, in a natural human birth what's the first part of the body that normally emerges? The head.
+
+And so in this birth out of death, which is the resurrection, the first part of the body to emerge was the head.
+
+And when the head emerges, that's the guarantee that the body's going to follow, see? So He's the head, the
+firstborn from the dead.
+
 Jesus is before creation:
 
   Colossians 1:17 - And he is before all things, and in him all things hold together. (ESV)
@@ -33974,6 +34053,17 @@ If you know why I'm writing this, there's some people I have already forgiven ab
 certain marriage proposal. But I have forgiven them, and I believe it's best to put Jesus first and to have no
 idols before or besides Him, and I believe that marriage or a spouse can be an idol, and in my case it was.
 
+  Colossians 1:18 - And he is the head of the body, the church. He is the beginning, the firstborn from the dead,
+  that in everything he might be preeminent. (ESV)
+
+  Luke 14:28-33 - For which of you, desiring to build a tower, does not first sit down and count the cost, whether
+  he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it
+  begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to
+  encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to
+  meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he
+  sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he
+  has cannot be my disciple. (ESV)
+
 I know I was pretty messed up at the time and I'm not without any guilt, and my theology was quite warped. While I
 believe Kingdom marriage could be a thing, I also believe that we should still not allow anything or anyone to be
 held up as an idol before or alongside Father God, or before or alongside our Saviour and God Jesus Christ:
@@ -34160,7 +34250,8 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly / human precepts and emploring us to submit to God's precepts.
+It's not condemning God's precepts but imploring us to put to death what is against God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -34916,14 +35007,22 @@ that I am not perfect and I am guilty:
 
   Romans 3:23 - for all have sinned and fall short of the glory of God, (ESV)
 
-The devil tried to steal my blessings, and tried to push me back into bondage, and into sin, by slamming me with
-lewd dreams and visions, meanwhile bombarding me with accusations of my past, and I've had to fight like heaven to
-get out of the intense condemnation I've faced.
+It felt like the devil tried to steal my blessings and push me back into sin and bury my testimony of Jesus and
+tried to push me back into bondage, and into sin, by slamming me with lewd dreams and visions, and isolating me,
+meanwhile bombarding me with accusations of my past, and I've had to fight extremely hard to get out of the
+intense condemnation I've faced.
 
-I'm not a perfect person but I've been attacked by pure evil. And as a result of what's happened I have felt so
-subsequently harassed by demons through people, even my own family members, I have felt defiled even from being
-raped and by demons for well over a year, it has somewhat stripped me of joy and the enthusiasm for Jesus which I
-had initially when I was born-again:
+I'm not a perfect person but I've been attacked by pure evil or by what seemed like pure evil. I realise that I'm
+still going through sanctification, and I hold no grudge. I'm not pointing the blame on the people on the other
+side of court. They are valued people in God's sight. I was neck-deep in sinful behaviour before I was born-again,
+and I'm very thankful that Jesus has been covering me and sanctifying me.
+
+But as a result of what's happened in every instance of the chronic and relentless spiritual attack I've received,
+whether it feels like friendly-fire rebuking fellow Christians, the crucifixion of agape love for someone I wanted
+to marry, 'feeling' like darkness is my closest friend Psalm 88:18, I have felt so subsequently harassed by demons
+through people, even my own family members, I have felt defiled even from feeling as though I've been raped by
+demons for well over a year, it has somewhat stripped me of joy and the enthusiasm for Jesus which I had initially
+when I was born-again:
 
 - demons trying to bury my testimony of Jesus
 - demons trying to paint me as autistic
@@ -34931,10 +35030,12 @@ had initially when I was born-again:
 - demons isolating me
 - demons touching me at night and putting lewd, antichrist dreams into my head
 
-The spiritual attack I've endured as a baby born-again Christian was so inordinate and I'm still asking God to
-deliver me. This testimony of what's happened and what's happening will remain in the light for all to see and I
-hope to be able to report one day that I've been delivered from demonic harassment. I'm continue focusing on
-studying and putting God's Word into practice.
+The spiritual attack I've endured as a baby born-again Christian with barely any Bible knowledge was so inordinate
+and I'm still asking God to deliver me.
+
+This testimony of what's happened and what's happening will remain in the light for all to see and I hope to be
+able to report one day that I've been delivered from demonic harassment. I'm continue focusing on studying and
+putting God's Word into practice.
 
 I find it extremely difficult to believe (but not outside the realm of possibility) that the relationship
 possibility was not grace, but whatever is the case I am still obligated to obey Jesus, forward on to others love
@@ -35128,6 +35229,17 @@ Satan
 Going from darkness to light and arriving at a genuine understanding in the heart to agree with the truth
 coincides with a clash of beliefs between you (who has come into the light) and the world (which is still in
 darkness).
+
+Agape-love can be misplaced. We go from agape-loving (treasuring, valuing) darkness to agape-loving (treasuring,
+valuing) light:
+
+  John 3:16-20 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
+  perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
+  that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not
+  believe is condemned already, because he has not believed in the name of the only Son of God. And this is the
+  judgment: the light has come into the world, and people loved (25. agapao) the darkness rather than the light
+  (5457. phos) because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. (ESV)
 
 In order to be faithful to God, you will start acting unpredictably to others who are still in darkness. Firstly,
 as happened to me, you may tell someone about Jesus for the first time. Also, you will be led amongst people in
@@ -36428,19 +36540,36 @@ The ones who are made perfect are the ones who are being sanctified:
 - https://biblehub.com/greek/agapate_25.htm
 - https://biblehub.com/greek/26.htm
 
+Agape-love can be misplaced. We go from agape-loving (treasuring, valuing) darkness to agape-loving (treasuring,
+valuing) light:
+
+  John 3:16-20 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
+  perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
+  that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not
+  believe is condemned already, because he has not believed in the name of the only Son of God. And this is the
+  judgment: the light has come into the world, and people loved (25. agapao) the darkness rather than the light
+  (5457. phos) because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. (ESV)
+
+Thus so (Houtos) (in this way) did God love (25. agapao - value,treasure) the world, that He gave His
+Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
+
+biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son - the only begotten - He
+gave, that every one who is believing in him may not perish, but may have life age-during.
+
 54.2.1. Who Christians must agape love
 
-- Others in Christ
-- Colossians 3:14 - And above all these put on love (26. agape), which binds everything together in perfect
-harmony. (ESV)
-- Your spouse
-- https://biblehub.com/interlinear/ephesians/5-28.htm
 - God (Father God, Jesus Christ and Holy Spirit)
 - https://biblehub.com/interlinear/1_john/2-15.htm
 - https://biblehub.com/interlinear/matthew/22-37.htm
 - Matthew 22:37 - And He said to him You shall love (25 Agapeseis) [the] Lord the God of you with all the
 heart of you and with all the soul of you and with all the mind of you (Interlinear)
 - https://biblehub.com/interlinear/john/14-23.htm
+- Your spouse
+- https://biblehub.com/interlinear/ephesians/5-28.htm
+- Others in Christ
+- Colossians 3:14 - And above all these put on love (26. agape), which binds everything together in perfect
+harmony. (ESV)
 
 54.2.2. Who Christians are called to agape love:
 
@@ -44760,17 +44889,17 @@ agape love:
 
 65.3.1. Who Christians must agape love
 
-- Others in Christ
-- Colossians 3:14 - And above all these put on love (26. agape), which binds everything together in perfect
-harmony. (ESV)
-- Your spouse
-- https://biblehub.com/interlinear/ephesians/5-28.htm
 - God (Father God, Jesus Christ and Holy Spirit)
 - https://biblehub.com/interlinear/1_john/2-15.htm
 - https://biblehub.com/interlinear/matthew/22-37.htm
 - Matthew 22:37 - And He said to him You shall love (25 Agapeseis) [the] Lord the God of you with all the
 heart of you and with all the soul of you and with all the mind of you (Interlinear)
 - https://biblehub.com/interlinear/john/14-23.htm
+- Your spouse
+- https://biblehub.com/interlinear/ephesians/5-28.htm
+- Others in Christ
+- Colossians 3:14 - And above all these put on love (26. agape), which binds everything together in perfect
+harmony. (ESV)
 
 65.3.2. Who Christians are called to agape love:
 
@@ -46520,7 +46649,8 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly / human precepts and emploring us to submit to God's precepts.
+It's not condemning God's precepts but imploring us to put to death what is against God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -47947,13 +48077,13 @@ fulfill His promises.
   Hebrews 3:14-15 - For we share in Christ, if indeed we hold our original confidence firm to the end. As it is
   said, Today, if you hear his voice, do not harden your hearts as in the rebellion. (ESV)
 
-We don't justify ourselves ever, but we still have faith that we are justified already by God as we hold faith in
-Jesus, and we don't necessarily know when God has personally justified us by faith because, like Abraham's faith,
-it's from obedience to God's commandments that we get personal assurance. But if we are hoping in God's promises
-while serving Jesus then we certainly can have confidence that God will/has justified us, where if we are not
-agape-ing God and our family in Christ, serving Jesus then I think to say that we are justified and saved from
-God's wrath while going on doing evil is very daring and I wouldn't be surprised if that person receives the wrath
-of God.
+We aren't the justifiers of ourselves ever, but we still have faith that we are justified already by God as we
+hold faith in Jesus, and we don't necessarily know when God has personally justified us by faith because, like
+Abraham's faith, it's from obedience to God's commandments that we get personal assurance. But if we are hoping in
+God's promises while serving Jesus then we certainly can have confidence that God will/has justified us, where if
+we are not agape-ing God and our family in Christ, serving Jesus then I think to say that we are justified and
+saved from God's wrath while going on doing evil is very daring and I wouldn't be surprised if that person
+receives the wrath of God.
 
   Romans 2:6-11 - He will render to each one according to his works: to those who by patience in well-doing seek
   for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not
@@ -48319,7 +48449,8 @@ We must keep and accept the precepts of God over the precepts of men:
   commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
   have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
 
-This passage is condemning submitting to worldly*/*human precepts and emploring us to submit to God's precepts:
+This passage is condemning submitting to worldly / human precepts and emploring us to submit to God's precepts.
+It's not condemning God's precepts but imploring us to put to death what is against God's precepts:
 
   Colossians 2:20-23,3:1-6 - If with Christ you died to the elemental spirits of the world, why, as if you were
   still alive in the world, do you submit to regulations- Do not handle, Do not taste, Do not touch (referring to
@@ -49369,7 +49500,7 @@ Date: 2024-09-22 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-22 Sun 01:57
+Created: 2024-09-22 Sun 11:56
 
 Validate
 
