@@ -13,9 +13,9 @@ I've also added parts of my own testimony. It's my hope that this Bible study he
 
 > **[Romans 14:4](https://www.biblegateway.com/passage/?search=Romans%2014%3A4&version=ESV)** - Who are you to pass judgment on the servant of another? **It is before his own master that he stands or falls.** And <ins>he will be upheld, for the Lord is able to make him stand.</ins> (ESV)
 
-This is short preview of where I'm at with my theology. I don't claim to know everything or to have perfect theology:
+This is a short preview of where I'm at with my theology. I don't claim to know everything or to have perfect theology:
 
-    1  If we believe on Yeshua's (Jesus's) name it's typically the initial act of obedience of a Christian, Jesus having commanded us to believe on His name as Son of God, Christ, Messiah as foretold by the prophets. I'm quite sure trust, obedience, belief and faith are not really separate things when it comes to believing the Word of God, and if a person has put their trust in Jesus then they've done something which is in the will of God. Our faith and obedience are supposed to increase as we are sanctified. Trust, belief and obedience, and even agape and knowledge of God when they are settled in the heart is what God sees and God is our justifier, and He justifies the one who puts their faith/trust in Jesus Christ. We believe by faith that we are justified by the blood of Jesus and just get to serving God with agape love proceeding from a good conscience having believed the Gospel and placed their faith in Christ. Christ died for our sins according to the Scriptures, that he was buried, that he was raised on the third day according to the Scriptures, and that he appeared to many eye-witnesses. In this way did God agape love (treasure/value) the world, that He gave His Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting which is to be reconciled to our Creator and His Son, in relationship with God forever, never perishing nor being cut off from our source of life and all that is good. Agape love is a treasuring/valuing love and God the Father and Jesus God the Son should be our first agape love, and those in the family of Christ we must also agape love, and our spouses we must agape love and we are even called to agape all people, but we're supposed to have no agape for this world. Agape-loving our neighbour as ourself includes not bearing a grudge against our neighbour and not taking vengeance - it's loving as we have been loved and forgiven by God through Jesus, passing the agape love and mercy forwards. We move forward serving God with hope to see His glory. Obedience is in the heart, along with belief in the Truth and understanding of the gospel. Obedience can exist without work. Jesus said, "The spirit is indeed willing but the flesh is weak." The law can also be followed by faith where it's a matter of seeking praise from God and not from men. Our faith should be modelled on Abraham's faith. We're supposed to have joy in our obedience to God. We're supposed to go from agapeing darkness to agapeing God's light, and into walking in the light, walking in God's will, and we're supported by God's Spirit as we are doing this.
+    1  If we believe on Yeshua's (Jesus's) name it's typically the initial act of obedience of a Christian, Jesus having commanded us to believe on His name as Son of God, Christ, Messiah as foretold by the prophets. I'm quite sure trust, obedience, belief and faith are not really separate things when it comes to believing the Word of God, and if a person has put their trust in Jesus then they've done something which is in the will of God. Our faith and obedience are supposed to increase as we are sanctified. Trust, belief and obedience, and even agape and knowledge of God when they are settled in the heart is what God sees and God is our justifier, and He justifies the one who puts their faith/trust in Jesus Christ. We believe by faith that we are justified by the blood of Jesus and just get to serving God with agape love proceeding from a good conscience having believed the Gospel and placed their faith in Christ. Christ died for our sins according to the Scriptures, He was buried, He was raised on the third day according to the Scriptures, and He appeared to many eye-witnesses. In this way did God agape love (treasure/value) the world, that He gave His Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting which is to be reconciled to our Creator and His Son, in relationship with God forever, never perishing nor being cut off from our source of life and all that is good. Agape love is a treasuring/valuing love and God the Father and Jesus God the Son should be our first agape love, and those in the family of Christ we must also agape love, and our spouses we must agape love and we are even called to agape all people, but we're supposed to have no agape for this world. Agape-loving our neighbour as ourself includes not bearing a grudge against our neighbour and not taking vengeance - it's loving as we have been loved and forgiven by God through Jesus, passing the agape love and mercy forwards. We move forward serving God with hope to see His glory. Obedience is in the heart, along with belief in the Truth and understanding of the gospel. Obedience can exist without work. Jesus said, "The spirit is indeed willing but the flesh is weak." The law can also be followed by faith where it's a matter of seeking praise from God and not from men. Our faith should be modelled on Abraham's faith. We're supposed to have joy in our obedience to God. We're supposed to go from agapeing darkness to agapeing God's light, and into walking in the light, walking in God's will, and we're supported by God's Spirit as we are doing this.
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are found in Christ Jesus:
 
@@ -580,7 +580,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org04f8037) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org623a211) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13372,7 +13372,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org3a0ae6f)
+See: [33.4.1](#orgdf4b754)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -18744,11 +18744,13 @@ The Pearl of Great Price is Jesus and we want to gain Christ, know Christ and in
 
 > **[Mark 8:35](https://www.biblegateway.com/passage/?search=Mark%208%3A35&version=ESV)** - For whoever would save his life will lose it, but whoever loses his life for my sake and the gospel's will save it. (ESV)
 
-Heavenly treasure - we give up our earthly treasure and help other people with it and this becomes heavenly treasure, and we then go after Jesus as our Pearl of Great Price:
+I'm pretty convinced that what Jesus means by the following is that by giving up earthly treasure in the pursuit of Jesus, heavenly treasure is acquired. I'd say it's likely that the heavenly treasure is simply helping those people. So selling what a person possesses and giving to those in need, though apart from faith in Jesus isn't a "requirement for eternal life", it is a fast track to serving Jesus and getting our heart in heaven and leaning on Jesus, so doing as Jesus said in obedient faith is already starting to follow Jesus and store up heavenly treasure. Seek heavenly reward, not earthly reward. Have a heart seeking reward from God and not from man. Have your heart in heaven, not in earth. We give up our earthly treasure and help other people with it and this becomes heavenly treasure, and we then go after Jesus as our Pearl of Great Price:
 
 > **[Matthew 6:19-21](https://www.biblegateway.com/passage/?search=Matthew%206%3A19-21&version=ESV)** - Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also. (ESV)
 
 > **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+> **[Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A6&version=ESV)** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him. (ESV)
 
 Also, I still think that people, and acts of kindness towards people can be heavenly treasure, but they should not be our number 1 treasure. Jesus must be.
 
@@ -25988,7 +25990,13 @@ Jesus reigns and inherits all things. Jesus is the radiance of the glory of God:
 
 > **[John 12:25](https://www.biblegateway.com/passage/?search=John%2012%3A25&version=ESV)** - Whoever loves his life loses it, and whoever hates his life in this world will keep it for eternal life. (ESV)
 
+I'm pretty convinced that what Jesus means by the following is that by giving up earthly treasure in the pursuit of Jesus, heavenly treasure is acquired. I'd say it's likely that the heavenly treasure is simply helping those people. So selling what a person possesses and giving to those in need, though apart from faith in Jesus isn't a "requirement for eternal life", it is a fast track to serving Jesus and getting our heart in heaven and leaning on Jesus, so doing as Jesus said in obedient faith is already starting to follow Jesus and store up heavenly treasure. Seek heavenly reward, not earthly reward. Have a heart seeking reward from God and not from man. Have your heart in heaven, not in earth. We give up our earthly treasure and help other people with it and this becomes heavenly treasure, and we then go after Jesus as our Pearl of Great Price:
+
 > **[Matthew 6:19-21](https://www.biblegateway.com/passage/?search=Matthew%206%3A19-21&version=ESV)** - Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also. (ESV)
+
+> **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+> **[Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A6&version=ESV)** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him. (ESV)
 
 
 ### Eternal life is receiving an eternal name, I think
@@ -27137,7 +27145,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org3a0ae6f)
+See: [33.4.1](#orgdf4b754)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -29062,9 +29070,13 @@ Have a relationship with God:
 
 > **[Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A6&version=ESV)** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him. (ESV)
 
-Seek heavenly reward, not earthly reward. Have a heart seeking reward from God and not from man. Have your heart in heaven, not in earth:
+I'm pretty convinced that what Jesus means by the following is that by giving up earthly treasure in the pursuit of Jesus, heavenly treasure is acquired. I'd say it's likely that the heavenly treasure is simply helping those people. So selling what a person possesses and giving to those in need, though apart from faith in Jesus isn't a "requirement for eternal life", it is a fast track to serving Jesus and getting our heart in heaven and leaning on Jesus, so doing as Jesus said in obedient faith is already starting to follow Jesus and store up heavenly treasure. Seek heavenly reward, not earthly reward. Have a heart seeking reward from God and not from man. Have your heart in heaven, not in earth. We give up our earthly treasure and help other people with it and this becomes heavenly treasure, and we then go after Jesus as our Pearl of Great Price:
 
 > **[Matthew 6:19-21](https://www.biblegateway.com/passage/?search=Matthew%206%3A19-21&version=ESV)** - Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also. (ESV)
+
+> **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+> **[Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A6&version=ESV)** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him. (ESV)
 
 Seek God's kingdom and His righteousness first of all:
 
@@ -29452,20 +29464,18 @@ Repentance in the heart:
 
 ### Lay up treasure in heaven, not on earth - have your heart in heaven, not on earth
 
+I'm pretty convinced that what Jesus means by the following is that by giving up earthly treasure in the pursuit of Jesus, heavenly treasure is acquired. I'd say it's likely that the heavenly treasure is simply helping those people. So selling what a person possesses and giving to those in need, though apart from faith in Jesus isn't a "requirement for eternal life", it is a fast track to serving Jesus and getting our heart in heaven and leaning on Jesus, so doing as Jesus said in obedient faith is already starting to follow Jesus and store up heavenly treasure. Seek heavenly reward, not earthly reward. Have a heart seeking reward from God and not from man. Have your heart in heaven, not in earth. We give up our earthly treasure and help other people with it and this becomes heavenly treasure, and we then go after Jesus as our Pearl of Great Price:
+
 > **[Matthew 6:19-21](https://www.biblegateway.com/passage/?search=Matthew%206%3A19-21&version=ESV)** - Do not lay up for yourselves treasures on earth, where moth and rust destroy and where thieves break in and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust destroys and where thieves do not break in and steal. For where your treasure is, there your heart will be also. (ESV)
+
+> **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+> **[Hebrews 11:6](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A6&version=ESV)** - And without faith it is impossible to please him, for whoever would draw near to God must believe that he exists and that he rewards those who seek him. (ESV)
 
 
 ### Trust in God to provide
 
-> **[Matthew 6:25](https://www.biblegateway.com/passage/?search=Matthew%206%3A25&version=ESV)** - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? (ESV)
-
-> **[Matthew 6:26](https://www.biblegateway.com/passage/?search=Matthew%206%3A26&version=ESV)** - Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? (ESV)
-
-> **[Matthew 6:28](https://www.biblegateway.com/passage/?search=Matthew%206%3A28&version=ESV)** - And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, (ESV)
-
-> **[Matthew 6:31-32](https://www.biblegateway.com/passage/?search=Matthew%206%3A31-32&version=ESV)** - Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. (ESV)
-
-> **[Matthew 6:34](https://www.biblegateway.com/passage/?search=Matthew%206%3A34&version=ESV)** - Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
+> \*[Matthew 6:25-34](https://www.biblegateway.com/passage/?search=Matthew%206%3A25-34&version=ESV) - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
 
 
 ### Seek first the Kingdom of God and His righteousness
