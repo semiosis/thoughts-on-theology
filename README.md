@@ -368,6 +368,10 @@ In believing we have eternal life, but we need to continue in obedience to Jesus
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 Bonhoeffer says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
 
 -   **Read:** [gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
@@ -580,7 +584,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org711261f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga9654cf) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2716,6 +2720,10 @@ In believing we have eternal life, but we need to continue in obedience to Jesus
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 Jesus Christ is our Lord and Teacher - that means we believe and obey Him:
 
 > **[John 13:13-14](https://www.biblegateway.com/passage/?search=John%2013%3A13-14&version=ESV)** - You call me Teacher and Lord, and you are right, for so I am. If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. (ESV)
@@ -3050,6 +3058,10 @@ That's confirmed here:
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -5002,6 +5014,10 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 I think believing in the Son is also obedience, but it is an act of obedience which is a gift to us.
 
 It's God's grace that enables us to be saved through faith. While we are saved exercising obedient, trusting, believing faith, Paul says it was actually God's doing:
@@ -6308,6 +6324,10 @@ We need to obey Jesus to see the life. That obedience isn't "working" but it is 
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 On the other hand, if we obey Jesus we will never see death:
 
 > **[John 8:51](https://www.biblegateway.com/passage/?search=John%208%3A51&version=ESV)** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
@@ -6425,6 +6445,10 @@ Jesus commands us to take His yoke (obey Him) and learn from Him (believe Him):
 Whoever believes Jesus obeys Jesus - His sheep hear his voice, <ins>trust and obey</ins>:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 God loves those who love Him and keep His commandments:
 
@@ -6915,6 +6939,10 @@ If a person doesn't obey Jesus and His commandments then they probably are not s
 or they do not have the heart to obey and receive salvation - so they are a goat, not a sheep.
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 
 ### Doing the will of God
@@ -7427,6 +7455,10 @@ The Holy Spirit is received through faith:
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -7949,6 +7981,10 @@ We are implored to strive to follow Jesus to our best ability:
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
 
@@ -9562,6 +9598,10 @@ It's imperative that as we go ahead, we **must** abide in the teaching of Christ
 You **must** obey Jesus, and that is choosing **light** and choosing **agape love** towards God and people and not towards the world or worldly things:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 
 ### Get to know Jesus by believing Him and following His commandments
@@ -12901,6 +12941,10 @@ Where there is perfect belief, I think there is perfect obedience. i.e. if we ho
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
@@ -13386,7 +13430,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org320ede2)
+See: [33.4.1](#orgdae6a9f)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13512,6 +13556,10 @@ The reason we do our good deeds is not as if we are trying to earn our acceptanc
 Believing in Jesus and obeying Jesus go hand in hand. Believing in Jesus, obeying Jesus, trusting in Jesus, His words and promises, are all in the heart and not the head. I'm going to keep trying to do all of those things, and not make any sweeping statements about free will:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 Jesus' commandments are all about selfless love. We must abide in Jesus' teaching and believe. It's imperative that as we go ahead, we **must** abide in the teaching of Christ. Confessing the coming of Jesus Christ in the flesh, and walking according to Jesus' commandments go hand in hand:
 
@@ -14229,6 +14277,10 @@ Seriously, this verse:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews <ins>who had believed in him</ins>, **If you abide in my word, you are truly my disciples, and you will know the truth**, <ins>and the truth will set you free.</ins> (ESV)
 
 Trusting and obeying Jesus qualifies, but belief without obedience or trust in the heart doesn't qualify, I am **quite** sure. But I am not the judge, God is.
@@ -14342,6 +14394,10 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 
 ### Yield to God
@@ -22180,6 +22236,10 @@ Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 > **[John 5:34](https://www.biblegateway.com/passage/?search=John%205%3A34&version=ESV)** - Not that the testimony that I receive is from man, but I say these things so that you may be saved. (ESV)
 
 > **[John 6:47](https://www.biblegateway.com/passage/?search=John%206%3A47&version=ESV)** - Truly, truly, I say to you, whoever believes has eternal life. (ESV)
@@ -23311,6 +23371,10 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
 Therefore, I don't want to flat-out disqualify people who do not have precisely the correct doctrine or theology.
 
@@ -27144,6 +27208,10 @@ Obeying Jesus is very important:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
+But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+
+> **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
+
 -   **Song:** [youtube.com: Charity Gayle - Thank You Jesus for the Blood {Live}](https://www.youtube.com/watch?v=dhU-Omwg2rU&list=RDdhU-Omwg2rU&start_radio=1)
 
 
@@ -27203,7 +27271,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org320ede2)
+See: [33.4.1](#orgdae6a9f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
