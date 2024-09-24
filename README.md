@@ -505,11 +505,15 @@ The law is good. It's not our source of justification but we don't teach people 
 
 > **[Romans 14:10-14](https://www.biblegateway.com/passage/?search=Romans%2014%3A10-14&version=ESV)** - Why do you pass judgment on your brother? Or you, why do you despise your brother? For we will all stand before the judgment seat of God; for it is written, As I live, says the Lord, every knee shall bow to me, and every tongue shall confess to God. So then each of us will give an account of himself to God. Therefore let us not pass judgment on one another any longer, but rather decide never to put a stumbling block or hindrance in the way of a brother. I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. (ESV)
 
-While the law of God revives the soul while we are actually meditating on it and doing it, the law doesn't save to perfection:
-
-> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the law **made nothing perfect**); but on the other hand, a better hope is introduced, through which we draw near to God. (ESV)
+The command to believe is the same as the command to action. The command to action is not the law but to trust Jesus. While the law of God revives the soul while we are actually meditating on it and doing it, the law doesn't save to perfection:
 
 > **[Psalms 19:7-9](https://www.biblegateway.com/passage/?search=Psalms%2019%3A7-9&version=ESV)** - The law of the LORD is perfect, **reviving** the soul; the testimony of the LORD is sure, making wise the simple; the precepts of the LORD are right, rejoicing the heart; the commandment of the LORD is pure, enlightening the eyes; the fear of the LORD is clean, enduring forever; the rules of the LORD are true, and righteous altogether. (ESV)
+
+> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the **law made nothing perfect**); but *on the other hand*, **a better hope** is introduced, **through which we draw near to God**. (ESV)
+
+The obedience we have in the heart which saves is trust in Jesus Christ Himself where we become trusting, believing and obedient to Jesus, and as we hold fast to His gospel, Jesus brings us to God:
+
+> **[I Peter 3:18-20](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A18-20&version=ESV)** - For Christ also suffered once for sins, the righteous for the unrighteous, **that he might bring us to God**, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the spirits in prison, **because they formerly did not obey**, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, eight persons, **were brought safely through water**. (ESV)
 
 And, if we live in the flesh, the sinful passions are aroused by the law to bear fruit for death:
 
@@ -584,7 +588,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga9654cf) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org44cf243) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -6485,7 +6489,7 @@ The good news must be united by obedient faith (putting Jesus' words into action
 
 > **[Hebrews 4:1-2](https://www.biblegateway.com/passage/?search=Hebrews%204%3A1-2&version=ESV)** - Therefore, while the promise of entering his rest still stands, let us fear lest any of you should seem to have failed to reach it. For good news came to us just as to them, but the message they heard did not benefit them, because they were not united by faith with those who listened. (ESV)
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (katergazomai) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
 
 I believe in 'once saved, always saved, <ins>while doing the will of God</ins>'. So someone must be a both a believer and a follower of Jesus.
 
@@ -12891,7 +12895,7 @@ Through faith in Jesus / obedience to Jesus we can have faith in Father God:
 
 You can't even have faith in God without obeying Jesus because the one who has faith in God has already obeyed Jesus whether they know about [Mark 11:22](https://www.biblegateway.com/passage/?search=Mark%2011%3A22&version=ESV) or not. So it's not a dead work.
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (katergazomai) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
 
 Having believed in Jesus, having begun to trust in Jesus, we have become obedient to Jesus. Jesus works on us as we trust in Him even before we understand what He's doing, and we have become obedient because he commanded us to trust Him:
 
@@ -13430,7 +13434,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdae6a9f)
+See: [33.4.1](#org092ade7)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14023,15 +14027,23 @@ Believing Father God Jehovah, loving Him, obeying His commandments, loving and o
 
 > **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
-The command to believe is the same as the command to action. The command to action is not the law but to trust Jesus.
+The command to believe is the same as the command to action. The command to action is not the law but to trust Jesus. While the law of God revives the soul while we are actually meditating on it and doing it, the law doesn't save to perfection. The obedience we have in the heart which saves is trust in Jesus Christ Himself where we become trusting, believing and obedient to Jesus, and as we hold fast to His gospel, Jesus brings us to God:
 
-> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the law made nothing perfect); but on the other hand, **a better hope** is introduced, **through which we draw near to God**. (ESV)
+> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the **law made nothing perfect**); but *on the other hand*, **a better hope** is introduced, **through which we draw near to God**. (ESV)
 
 > **[I Peter 3:18-20](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A18-20&version=ESV)** - For Christ also suffered once for sins, the righteous for the unrighteous, **that he might bring us to God**, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the spirits in prison, **because they formerly did not obey**, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, eight persons, **were brought safely through water**. (ESV)
 
-The Mosaic law is a little bit separate because the faith we have in Jesus is based on better hope and better promises and because the Mosaic Law is eclipsed by faith as Abraham received the promise before the law was given through Moses. But the precepts to agape (value, treasure) God, and one's neighbour and faith and obedience to God have been around since the very beginning. We don't say that obedience is only to the Mosaic law - it's not - we can trust God, believe and obey God's voice directly directly as Abraham did. We trust Jesus. A disobedient faith is not faith at all.
+The faith we have in Jesus is based on better hope and better promises and because the Mosaic Law is eclipsed by faith as Abraham received the promise before the law was given through Moses, even Abraham was obedient to God before the Mosaic Law was given. So to relegate obedience to being merely a Mosaic Law thing is incorrect. But we obey Jesus:
 
-Faith doesn't exist without obedience. Obedience doesn't exist without faith. The obedient will love Jesus, obeying Jesus, having faith in Jesus.
+> **[Galatians 3:24-27](https://www.biblegateway.com/passage/?search=Galatians%203%3A24-27&version=ESV)** - So then, the law was our guardian until Christ came, in order that we might be justified by faith. But **now that faith has come, we are no longer under a guardian, for in Christ Jesus you are all sons of God, through faith**. For **as many of you as were baptized into Christ have put on Christ.** (ESV)
+
+But the precepts to agape (value, treasure) God, and one's neighbour and faith and obedience to God have been around since the very beginning. We don't say that obedience is only to the Mosaic law - it's not - we can trust God, believe and obey God's voice directly directly as Abraham did. We trust Jesus. A disobedient faith is not faith at all but in coming to trust in Jesus Christ, God's Son, we have become obedient to God through faith.
+
+But we are obedient slaves now to righteousness, slaves of God, as slaves of Christ:
+
+> **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient **from the heart** to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+Faith doesn't exist without obedience. Obedience doesn't exist without faith. The obedient will love Jesus, obeying Jesus, having faith in Jesus:
 
 > **[James 2:18](https://www.biblegateway.com/passage/?search=James%202%3A18&version=ESV)** - But someone will say, You have faith and I have works. Show me your faith apart from your works, and I will show you my faith by my works.
 
@@ -27271,7 +27283,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdae6a9f)
+See: [33.4.1](#org092ade7)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

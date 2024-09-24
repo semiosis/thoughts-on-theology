@@ -1073,12 +1073,10 @@ people to disobey it, especially those who follow it by faith.
   know and am persuaded in the Lord Jesus that nothing is unclean in
   itself, but it is unclean for anyone who thinks it unclean. (ESV)
 
-While the law of God revives the soul while we are actually meditating
-on it and doing it, the law doesn't save to perfection:
-
-  Hebrews 7:19 - (for the law made nothing perfect); but on the other
-  hand, a better hope is introduced, through which we draw near to God.
-  (ESV)
+The command to believe is the same as the command to action. The command
+to action is not the law but to trust Jesus. While the law of God
+revives the soul while we are actually meditating on it and doing it,
+the law doesn't save to perfection:
 
   Psalms 19:7-9 - The law of the LORD is perfect, reviving the soul; the
   testimony of the LORD is sure, making wise the simple; the precepts of
@@ -1086,6 +1084,22 @@ on it and doing it, the law doesn't save to perfection:
   is pure, enlightening the eyes; the fear of the LORD is clean,
   enduring forever; the rules of the LORD are true, and righteous
   altogether. (ESV)
+
+  Hebrews 7:19 - (for the law made nothing perfect); but on the other
+  hand, a better hope is introduced, through which we draw near to God.
+  (ESV)
+
+The obedience we have in the heart which saves is trust in Jesus Christ
+Himself where we become trusting, believing and obedient to Jesus, and
+as we hold fast to His gospel, Jesus brings us to God:
+
+  I Peter 3:18-20 - For Christ also suffered once for sins, the
+  righteous for the unrighteous, that he might bring us to God, being
+  put to death in the flesh but made alive in the spirit, in which he
+  went and proclaimed to the spirits in prison, because they formerly
+  did not obey, when God's patience waited in the days of Noah, while
+  the ark was being prepared, in which a few, that is, eight persons,
+  were brought safely through water. (ESV)
 
 And, if we live in the flesh, the sinful passions are aroused by the law
 to bear fruit for death:
@@ -27588,7 +27602,12 @@ to have a sound definition of what love is:
   burdensome.
 
 The command to believe is the same as the command to action. The command
-to action is not the law but to trust Jesus.
+to action is not the law but to trust Jesus. While the law of God
+revives the soul while we are actually meditating on it and doing it,
+the law doesn't save to perfection. The obedience we have in the heart
+which saves is trust in Jesus Christ Himself where we become trusting,
+believing and obedient to Jesus, and as we hold fast to His gospel,
+Jesus brings us to God:
 
   Hebrews 7:19 - (for the law made nothing perfect); but on the other
   hand, a better hope is introduced, through which we draw near to God.
@@ -27602,19 +27621,41 @@ to action is not the law but to trust Jesus.
   the ark was being prepared, in which a few, that is, eight persons,
   were brought safely through water. (ESV)
 
-The Mosaic law is a little bit separate because the faith we have in
-Jesus is based on better hope and better promises and because the Mosaic
-Law is eclipsed by faith as Abraham received the promise before the law
-was given through Moses. But the precepts to agape (value, treasure)
-God, and one's neighbour and faith and obedience to God have been around
-since the very beginning. We don't say that obedience is only to the
-Mosaic law - it's not - we can trust God, believe and obey God's voice
-directly directly as Abraham did. We trust Jesus. A disobedient faith is
-not faith at all.
+The faith we have in Jesus is based on better hope and better promises
+and because the Mosaic Law is eclipsed by faith as Abraham received the
+promise before the law was given through Moses, even Abraham was
+obedient to God before the Mosaic Law was given. So to relegate
+obedience to being merely a Mosaic Law thing is incorrect. But we obey
+Jesus:
+
+  Galatians 3:24-27 - So then, the law was our guardian until Christ
+  came, in order that we might be justified by faith. But now that faith
+  has come, we are no longer under a guardian, for in Christ Jesus you
+  are all sons of God, through faith. For as many of you as were
+  baptized into Christ have put on Christ. (ESV)
+
+But the precepts to agape (value, treasure) God, and one's neighbour and
+faith and obedience to God have been around since the very beginning. We
+don't say that obedience is only to the Mosaic law - it's not - we can
+trust God, believe and obey God's voice directly directly as Abraham
+did. We trust Jesus. A disobedient faith is not faith at all but in
+coming to trust in Jesus Christ, God's Son, we have become obedient to
+God through faith.
+
+But we are obedient slaves now to righteousness, slaves of God, as
+slaves of Christ:
+
+  Romans 6:16-18 - Do you not know that if you present yourselves to
+  anyone as obedient slaves, you are slaves of the one whom you obey,
+  either of sin, which leads to death, or of obedience, which leads to
+  righteousness? But thanks be to God, that you who were once slaves of
+  sin have become obedient from the heart to the standard of teaching to
+  which you were committed, and, having been set free from sin, have
+  become slaves of righteousness. (ESV)
 
 Faith doesn't exist without obedience. Obedience doesn't exist without
 faith. The obedient will love Jesus, obeying Jesus, having faith in
-Jesus.
+Jesus:
 
   James 2:18 - But someone will say, You have faith and I have works.
   Show me your faith apart from your works, and I will show you my faith
@@ -65340,7 +65381,7 @@ Date: 2024-09-25 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-25 Wed 11:00
+Created: 2024-09-25 Wed 11:43
 
 Validate
 
