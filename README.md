@@ -364,9 +364,9 @@ Slaves worship idols. Christians obey God, and in obeying God we are free. We lo
 
 > **[Exodus 20:2-3](https://www.biblegateway.com/passage/?search=Exodus%2020%3A2-3&version=ESV)** - I am the LORD your God, who brought you out of the land of Egypt, out of the house of slavery. You shall have no other gods before me. (ESV)
 
-In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God:
+In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God. Even if "[apeitheó](https://biblehub.com/greek/544.htm)" is better translated to "not be pursuaded", trusting in Jesus Christ is still obedience. Unless you believe that trusting in Jesus is disobedience, which it is not. It's obedient to trust in Jesus because He commanded it in [John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV). They're not separate things. A heart that is pursuaded to trust Jesus is an obedient heart:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 Bonhoeffer says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
 
@@ -580,7 +580,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3692454) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org711261f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -599,8 +599,8 @@ The general order of salvation from what I can dilvulge from **Acts 26** and **A
         -   **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
     -   They believe in / trust in Jesus Christ's name
         -   **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
-    -   They become trusting to God, believing and obedient
-        -   **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+    -   They become trusting to God, pursuaded in the heart, believing and obedient
+        -   **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
         -   **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going. (ESV)
 -   Turn from the power of Satan to God
     -   Satan stops controlling them. God starts working through them, as we believe and obey, and our house is built.
@@ -2712,9 +2712,9 @@ There is always more chances to believe:
 
 > **[Romans 11:23-24](https://www.biblegateway.com/passage/?search=Romans%2011%3A23-24&version=ESV)** - And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. (ESV)
 
-In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God:
+In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God. Even if "[apeitheó](https://biblehub.com/greek/544.htm)" is better translated to "not be pursuaded", trusting in Jesus Christ is still obedience. Unless you believe that trusting in Jesus is disobedience, which it is not. It's obedient to trust in Jesus because He commanded it in [John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV). They're not separate things. A heart that is pursuaded to trust Jesus is an obedient heart:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 Jesus Christ is our Lord and Teacher - that means we believe and obey Him:
 
@@ -3049,7 +3049,7 @@ That's confirmed here:
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -5000,7 +5000,7 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 I think believing in the Son is also obedience, but it is an act of obedience which is a gift to us.
 
@@ -5993,7 +5993,7 @@ Faith is both believing and obedient, even faith in the heart:
 <tr>
 <td class="org-left"><a href="https://www.biblegateway.com/passage/?search=John%203%3A36&amp;version=ESV">John 3:36</a></td>
 <td class="org-left">Whoever believes in the Son has eternal life</td>
-<td class="org-left">whoever does not obey the Son shall not see life</td>
+<td class="org-left">whoever does not obey (<a href="https://biblehub.com/greek/544.htm">544. apeitheó</a>) the Son shall not see life</td>
 </tr>
 
 
@@ -6306,7 +6306,7 @@ We need to obey Jesus in order to have a good life, and without obedience to Jes
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -6424,7 +6424,7 @@ Jesus commands us to take His yoke (obey Him) and learn from Him (believe Him):
 
 Whoever believes Jesus obeys Jesus - His sheep hear his voice, <ins>trust and obey</ins>:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 God loves those who love Him and keep His commandments:
 
@@ -6914,7 +6914,7 @@ We must live for the will of God:
 If a person doesn't obey Jesus and His commandments then they probably are not saved because they either deny they have the spiritual circumcision which causes us to obey,
 or they do not have the heart to obey and receive salvation - so they are a goat, not a sheep.
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 
 ### Doing the will of God
@@ -7426,7 +7426,7 @@ The Holy Spirit is received through faith:
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -7948,7 +7948,7 @@ We are implored to strive to follow Jesus to our best ability:
 
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
 
@@ -9561,7 +9561,7 @@ It's imperative that as we go ahead, we **must** abide in the teaching of Christ
 
 You **must** obey Jesus, and that is choosing **light** and choosing **agape love** towards God and people and not towards the world or worldly things:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 
 ### Get to know Jesus by believing Him and following His commandments
@@ -12899,7 +12899,7 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
 
@@ -13386,7 +13386,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgcb6049b)
+See: [33.4.1](#org320ede2)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13511,7 +13511,7 @@ The reason we do our good deeds is not as if we are trying to earn our acceptanc
 
 Believing in Jesus and obeying Jesus go hand in hand. Believing in Jesus, obeying Jesus, trusting in Jesus, His words and promises, are all in the heart and not the head. I'm going to keep trying to do all of those things, and not make any sweeping statements about free will:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 Jesus' commandments are all about selfless love. We must abide in Jesus' teaching and believe. It's imperative that as we go ahead, we **must** abide in the teaching of Christ. Confessing the coming of Jesus Christ in the flesh, and walking according to Jesus' commandments go hand in hand:
 
@@ -13641,7 +13641,7 @@ Obedient action is not dead works, and I believe that obedient action is just wo
 
 Being disobedient to Jesus means disbelieving in Jesus:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 > **[Romans 4:2](https://www.biblegateway.com/passage/?search=Romans%204%3A2&version=ESV)** - For if Abraham was justified by works, he has something to boast about, but not before God.
 
@@ -13987,9 +13987,33 @@ Faith doesn't exist without obedience. Obedience doesn't exist without faith. Th
 
 > **[James 2:18](https://www.biblegateway.com/passage/?search=James%202%3A18&version=ESV)** - But someone will say, You have faith and I have works. Show me your faith apart from your works, and I will show you my faith by my works.
 
-It's wrong to equate law with obedience. We were called to obedience before the Mosaic law was even given:
+It's wrong to equate Mosaic law with obedience. We were called to obedience before the Mosaic law was even given:
 
 > **[Romans 1:1-7](https://www.biblegateway.com/passage/?search=Romans%201%3A1-7&version=ESV)** - Paul, a servant of Christ Jesus, called to be an apostle, set apart for the **gospel of God**, which **he promised beforehand through his prophets in the holy Scriptures**, concerning his Son, who was descended from David according to the flesh and was declared to be the Son of God in power according to the Spirit of holiness by his resurrection from the dead, Jesus Christ our Lord, through whom we have received grace and apostleship to bring about the **obedience of faith for the sake of his name** among all the nations, including you who are called to belong to Jesus Christ, To all those in Rome who are loved by God and called to be saints: Grace to you and peace from God our Father and the Lord Jesus Christ. (ESV)
+
+And justification is a matter of obedience of faith (in the heart) for the sake of his name. So we become obedient at the same time as we truly believe:
+
+> **[Romans 10:10](https://www.biblegateway.com/passage/?search=Romans%2010%3A10&version=ESV)** - For with the heart one believes and is justified, and with the mouth one confesses and is saved. (ESV)
+
+> **[Ezekiel 36:24-27](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A24-27&version=ESV)** - I will take you from the nations and gather you from all the countries and bring you into your own land. I will sprinkle clean water on you, and you shall be clean from all your uncleannesses, and from all your idols I will cleanse you. And I will give you a new heart, and a new spirit I will put within you. And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my Spirit within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
+
+It makes sense that the basis for continued obedience is trust. But I think the real problem with a lot of theology these days is that people think that obedience means "having produced work".
+
+> **[Romans 6:17-18](https://www.biblegateway.com/passage/?search=Romans%206%3A17-18&version=ESV)** - But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+> **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
+
+> **[I Corinthians 3:15](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A15&version=ESV)** - If anyone's work is burned up, he will suffer loss, though he himself will be saved, but only as through fire. (ESV)
+
+A person can be obedient even before they're given an instruction - like someone waiting for an instruction, after having a heart which is now obedient. Willing to do God's will - and that is not self-seeking.
+
+> **[John 7:17-18](https://www.biblegateway.com/passage/?search=John%207%3A17-18&version=ESV)** - If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am speaking on my own authority. The one who speaks on his own authority seeks his own glory, but the one who seeks the glory of him who sent him is true, and in him there is no falsehood. (ESV)
+
+I think that coming to trust in Jesus is a free gift to us. It's a really low barrier of entry for us to begin doing the will of God. When we place our faith in Jesus we have become obedient to the heart, but we are supposed to go on becoming obedient in the heart to the standard of teaching we are committed to which comes from Jesus.
+
+> **[Romans 6:17-18](https://www.biblegateway.com/passage/?search=Romans%206%3A17-18&version=ESV)** - But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV) 
 
 Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings), even from reading it as described in the Old Testament ([Romans 1:1-2](https://www.biblegateway.com/passage/?search=Romans%201%3A1-2&version=ESV)). Sharing the gospel is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and **in trusting Jesus' words we trust in Jesus**:
 
@@ -14203,7 +14227,7 @@ Probably not justified:
 
 Seriously, this verse:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews <ins>who had believed in him</ins>, **If you abide in my word, you are truly my disciples, and you will know the truth**, <ins>and the truth will set you free.</ins> (ESV)
 
@@ -14317,7 +14341,7 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 
 ### Yield to God
@@ -18221,7 +18245,7 @@ An obedient heart is required for it to not be 'dead faith'.
 
 > **[Ephesians 5:6](https://www.biblegateway.com/passage/?search=Ephesians%205%3A6&version=ESV)** - Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience.
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 > **[Hebrews 2:2](https://www.biblegateway.com/passage/?search=Hebrews%202%3A2&version=ESV)** - For since the message declared by angels proved to be reliable and every transgression or disobedience received a just retribution,
 
@@ -21750,7 +21774,7 @@ Where **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%
 
 Faith and obedience are not mutually exclusive but they are mutually inclusive:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 When we obey His commandments we have obeyed Him. It's all obedience, and it's all belief. Even belief is obedience. So obedient faith is still faith and a person can be obedient to God even with regards to Mosaic law while being obedient to Jesus and placing faith in Jesus for our justification. Jesus did the work that we may be justified by faith in Him, and that includes the adherent of the law and the Gentiles. We believe that we are justified by faith in Him thanks to His perfect obedience but we **must** obey Jesus to see life. If a person is totally disobedient to Jesus then they haven't believed Him. It doesn't help in the slightest bit to be disobedient to Jesus. Obedience is an intrinsic part of faith:
 
@@ -22154,7 +22178,7 @@ Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
 > **[Romans 4:5](https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV)** - And to the one who does not work but **trusts** (G4100 **pisteuo**) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 > **[John 5:34](https://www.biblegateway.com/passage/?search=John%205%3A34&version=ESV)** - Not that the testimony that I receive is from man, but I say these things so that you may be saved. (ESV)
 
@@ -23286,7 +23310,7 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 Therefore, I don't want to flat-out disqualify people who do not have precisely the correct doctrine or theology.
 
@@ -24118,7 +24142,7 @@ AMEN!! If only someone had told me this first. We're saved from walking in evil 
 
 It's a serious act of treason when you love other things more than God; When you love something else more than God, and do not obey God, and do not believe God and do not turn from doing the will of satan to doing the will of God:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 We are instructed to do good, and to stop doing evil. We're supposed to repent from doing evil:
 
@@ -27118,7 +27142,7 @@ The ones who adhere to the Law (i.e. the true circumcision) should also walk in 
 
 Obeying Jesus is very important:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   **Song:** [youtube.com: Charity Gayle - Thank You Jesus for the Blood {Live}](https://www.youtube.com/watch?v=dhU-Omwg2rU&list=RDdhU-Omwg2rU&start_radio=1)
 
@@ -27179,7 +27203,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgcb6049b)
+See: [33.4.1](#org320ede2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
