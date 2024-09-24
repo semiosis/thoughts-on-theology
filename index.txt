@@ -5849,8 +5849,8 @@ after He has washed us:
 
     o Eph 2:8 - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is
       the gift (G1435 doron) of God; (NASB)
-    o Eph 2:9 - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
-    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God
+    o Eph 2:9 - not as a result of works (G1435 doron), so that no one may boast. (NASB)
+    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G1435 doron), which God
       prepared beforehand so that we would walk in them. (NASB)
 
 |  :  1435  doron  do'-ron
@@ -18322,6 +18322,13 @@ bought me so that I can now serve Him, obey Him and be zealous for good works
 creation. (ESV)
 - Matthew 28:20 - teaching them to observe all that I have commanded you. And behold, I am with you
 always, to the end of the age. (ESV)
+- We are to preach the gospel and not just live out the gospel
+- Romans 10:14-17 - But how are they to call on him in whom they have not believed? And how are
+they to believe in him of whom they have never heard? And how are they to hear without someone
+preaching? And how are they to preach unless they are sent? As it is written, How beautiful are
+the feet of those who preach the good news! But they have not all obeyed the gospel. For Isaiah
+says, Lord, who has believed what he has heard from us? So faith comes from hearing, and
+hearing through the word of Christ. (ESV)
 - I choose to worship Him in spirit and in truth, and I will continually offer up the sacrifices of praise
 and thanksgiving as I recognise Jesus Christ as my Lord, God and Saviour
 - John 4:23-24 - But the hour is coming, and is now here, when the true worshipers will worship the
@@ -19289,9 +19296,25 @@ a gift to us - us being in Him:
 
     o Eph 2:8 - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is
       the gift (G1435 doron) of God; (NASB)
-    o Eph 2:9 - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
-    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God
+    o Eph 2:9 - not as a result of works (G1435 doron), so that no one may boast. (NASB)
+    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G1435 doron), which God
       prepared beforehand so that we would walk in them. (NASB)
+
+84;0;0c John Piper puts it this way: "The first act of saving faith justifies and the subsequent ones justify
+too". That's an interesting theory, but it's also God who justifies, not us, so we should let God be God, trust
+Jesus and serve Him:
+
+youtube.com: Though Our Faith May Falter @time: 8 min 52 sec
+The faith to which God looks when He justifies us is a kind of faith which perseveres by God's design so that He
+can look at that faith at it's first twinkling awakening and say, "Not guilty. You are justified, accepted,
+forgiven and the righteousness of my Son is yours on the basis of that faith." And, He can look at any given point
+at the unfolding of that faith throughout your life and say, "For this you are justified, and for this you are
+justified and for this you are justified." So the continuance of faith is the faith which justifies and the reason
+you can say, "I am and have been justified", as Romans 5:1-2 does say "having been justified", is because that
+perseverance is a property as it were contained in the authenticity of the first act of saving faith.
+
+  Romans 3:26 - It was to show his righteousness at the present time, so that he might be just and the justifier
+  of the one who has faith in Jesus. (ESV)
 
 By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus:
 It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the
@@ -20832,14 +20855,49 @@ must be true together, even to have a sound definition of what love is:
   I John 5:2-3 - By this we know that we love the children of God, when we love God and obey his commandments. For
   this is the love of God, that we keep his commandments. And his commandments are not burdensome.
 
+The command to believe is the same as the command to action. The command to action is not the law but to trust
+Jesus.
+
+  Hebrews 7:19 - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through
+  which we draw near to God. (ESV)
+
+  I Peter 3:18-20 - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring
+  us to God, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the
+  spirits in prison, because they formerly did not obey, when God's patience waited in the days of Noah, while the
+  ark was being prepared, in which a few, that is, eight persons, were brought safely through water. (ESV)
+
+The Mosaic law is a little bit separate because the faith we have in Jesus is based on better hope and better
+promises and because the Mosaic Law is eclipsed by faith as Abraham received the promise before the law was given
+through Moses. But the precepts to agape (value, treasure) God, and one's neighbour and faith and obedience to God
+have been around since the very beginning. We don't say that obedience is only to the Mosaic law - it's not - we
+can trust God, believe and obey God's voice directly directly as Abraham did. We trust Jesus. A disobedient faith
+is not faith at all.
+
 Faith doesn't exist without obedience. Obedience doesn't exist without faith. The obedient will love Jesus,
 obeying Jesus, having faith in Jesus.
 
   James 2:18 - But someone will say, You have faith and I have works. Show me your faith apart from your works,
   and I will show you my faith by my works.
 
-  Romans 1:5 - through whom we have received grace and apostleship to bring about the obedience of faith for the
-  sake of his name among all the nations, (ESV)
+It's wrong to equate law with obedience. We were called to obedience before the Mosaic law was even given:
+
+  Romans 1:1-7 - Paul, a servant of Christ Jesus, called to be an apostle, set apart for the gospel of God, which
+  he promised beforehand through his prophets in the holy Scriptures, concerning his Son, who was descended from
+  David according to the flesh and was declared to be the Son of God in power according to the Spirit of holiness
+  by his resurrection from the dead, Jesus Christ our Lord, through whom we have received grace and apostleship to
+  bring about the obedience of faith for the sake of his name among all the nations, including you who are called
+  to belong to Jesus Christ, To all those in Rome who are loved by God and called to be saints: Grace to you and
+  peace from God our Father and the Lord Jesus Christ. (ESV)
+
+Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings), even from reading it
+as described in the Old Testament (Romans 1:1-2). Sharing the gospel is speak to people what Jesus has spoken and
+allowing them to trust Jesus' words, and in trusting Jesus' words we trust in Jesus:
+
+  Romans 10:14-17 - But how are they to call on him in whom they have not believed? And how are they to believe in
+  him of whom they have never heard? And how are they to hear without someone preaching? And how are they to
+  preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news! But
+  they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us? So faith
+  comes from hearing, and hearing through the word of Christ. (ESV)
 
 God's commandment is to bring about the obedience of faith (having faith is in God and through Jesus Christ is
 being obedient to God):
@@ -32826,11 +32884,11 @@ youtube.com: This Is The Day {Garratt}
 
 45.7. Without lack
 
-  James 1:4 - And let endurance have its perfect (G5046 teleios) result (G2041 ergon), so that you may be perfect
+  James 1:4 - And let endurance have its perfect (G5046 teleios) result (G1435 doron), so that you may be perfect
   (G5046 teleios) and complete, lacking in nothing.
 
-  James 2:22 - You see that faith (G4102 pistis) was working with his works (G2041 ergon), and as a result of the
-  works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
+  James 2:22 - You see that faith (G4102 pistis) was working with his works (G1435 doron), and as a result of the
+  works (G1435 doron), faith (G4102 pistis) was perfected (G5048 teleioo);
 
   I John 2:5 - but whoever keeps His word (G3056 logos), in him the love (G26 agape) of God (G2316 theos) has
   truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him:
@@ -36820,6 +36878,18 @@ Discern the will of God.
   you may discern what is the will of God, what is good and acceptable and perfect.
 
 Yes, believing in Jesus is obeying the gospel - but there is so much more to the gospel! Doing the will of God.
+
+Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings). Sharing the gospel
+is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and in trusting Jesus' words we
+trust in Jesus:
+
+  Romans 10:14-17 - But how are they to call on him in whom they have not believed? And how are they to believe in
+  him of whom they have never heard? And how are they to hear without someone preaching? And how are they to
+  preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news! But
+  they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us? So faith
+  comes from hearing, and hearing through the word of Christ. (ESV)
+
+Those that obey Jesus' voice He will give eternal life:
 
   Romans 2:7-8 - to those who by patience in well-doing seek for glory and honor and immortality, he will give
   eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will
@@ -43646,7 +43716,7 @@ immorality and other sin
   godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires
   all people to be saved and to come to the knowledge of the truth.
 
-  I Timothy 2:10 - but rather by means of good works (G2041 ergon), as is proper for women making a claim to
+  I Timothy 2:10 - but rather by means of good works (G1435 doron), as is proper for women making a claim to
   godliness.
 
   I Timothy 3:16 - By common confession, great is the mystery (G3466 musterion) of godliness (G2150 eusebeia): He
@@ -49548,11 +49618,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-24 Tue 00:00
+Date: 2024-09-25 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-24 Tue 09:27
+Created: 2024-09-25 Wed 09:34
 
 Validate
 

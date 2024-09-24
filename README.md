@@ -580,7 +580,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org623a211) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3692454) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2992,7 +2992,7 @@ These should really go hand in hand:
 
 We ***endeavour*** to be justified in Christ - in Christ means abiding in Christ - through faith; trusting, believing, obedient faith:
 
-> **[Galatians 2:16-19](https://www.biblegateway.com/passage/?search=Galatians%202%3A16-19&version=ESV)** - yet we know that a person is not **justified** by works of the law but **through faith (G4102 pistis) in Jesus Christ**, so we also have believed (G4100 **pisteuo**) in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in our endeavor to be **justified in Christ**, we too were found to be sinners, is Christ then a servant of sin? Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law I died to the law, so that I might live to God. (ESV)
+> **[Galatians 2:16-19](https://www.biblegateway.com/passage/?search=Galatians%202%3A16-19&version=ESV)** - yet we know that a person is not **justified** by works of the law but **through faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Jesus Christ**, so we also have believed (G4100 **pisteuo**) in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in our endeavor to be **justified in Christ**, we too were found to be sinners, is Christ then a servant of sin? Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law I died to the law, so that I might live to God. (ESV)
 
 Abraham's **trusting** faith was counted to him as righteousness. I guess it was counted because he was **fully conviced**, and trusting God. This same justification **will be** counted to those who trust in God who raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification:
 
@@ -3838,9 +3838,9 @@ I just want to be clear that good works we do in obedience to Jesus are still co
 
 > **[Ephesians 2:8-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-9&version=ESV)** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
-> -   **[Eph 2:8](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8&version=NASB)** - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is the gift (G1435 doron) of God; (NASB)
-> -   **[Eph 2:9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A9&version=NASB)** - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
-> -   **[Eph 2:10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A10&version=NASB)** - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God prepared beforehand so that we would walk in them. (NASB)
+> -   **[Eph 2:8](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8&version=NASB)** - For by grace you have been saved through faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)); and that not of yourselves, it is the gift (G1435 doron) of God; (NASB)
+> -   **[Eph 2:9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A9&version=NASB)** - not as a result of works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), so that no one may boast. (NASB)
+> -   **[Eph 2:10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A10&version=NASB)** - For we are His workmanship, created in Christ Jesus for good works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), which God prepared beforehand so that we would walk in them. (NASB)
 
     1  :  1435  doron  do'-ron
     2  
@@ -9848,7 +9848,7 @@ We call upon the Lord to be saved. And everyone needs saving.
 
 Confessing that Jesus is Lord is becoming obedient to Him:
 
-> **[Romans 10:8-9](https://www.biblegateway.com/passage/?search=Romans%2010%3A8-9&version=NASB)** - But what does it say? “The word is near you, in your mouth and in your heart”&#x2013; that is, the word (G4487 rhema) of faith (G4102 pistis) which we are preaching, that if you confess (G3670 homologeo) with your mouth Jesus as Lord, and <ins>believe (G4100 **pisteuo**) in your heart</ins> (G2588 kardia) that God raised Him from the dead, you will be saved; (NASB)
+> **[Romans 10:8-9](https://www.biblegateway.com/passage/?search=Romans%2010%3A8-9&version=NASB)** - But what does it say? “The word is near you, in your mouth and in your heart”&#x2013; that is, the word (G4487 rhema) of faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) which we are preaching, that if you confess (G3670 homologeo) with your mouth Jesus as Lord, and <ins>believe (G4100 **pisteuo**) in your heart</ins> (G2588 kardia) that God raised Him from the dead, you will be saved; (NASB)
 
 It's faith in the heart which we need; obedience to Jesus Christ and belief in Jesus Christ in the heart, and belief and obedience to God who has <ins>raised from the dead Jesus our Lord, who was delivered up for our trespasses and raised for our justification</ins>.
 
@@ -11376,7 +11376,7 @@ Yes, Jesus has set us free, but it's to serve God by serving Christ. We are free
 
 We ***endeavour*** to be justified in Christ - in Christ means abiding in Christ - through faith; trusting, believing, obedient faith:
 
-> **[Galatians 2:16-19](https://www.biblegateway.com/passage/?search=Galatians%202%3A16-19&version=ESV)** - yet we know that a person is not **justified** by works of the law but **through faith (G4102 pistis) in Jesus Christ**, so we also have believed (G4100 **pisteuo**) in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in our endeavor to be **justified in Christ**, we too were found to be sinners, is Christ then a servant of sin? Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law I died to the law, so that I might live to God. (ESV)
+> **[Galatians 2:16-19](https://www.biblegateway.com/passage/?search=Galatians%202%3A16-19&version=ESV)** - yet we know that a person is not **justified** by works of the law but **through faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Jesus Christ**, so we also have believed (G4100 **pisteuo**) in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. But if, in our endeavor to be **justified in Christ**, we too were found to be sinners, is Christ then a servant of sin? Certainly not! For if I rebuild what I tore down, I prove myself to be a transgressor. For through the law I died to the law, so that I might live to God. (ESV)
 
 Trusting, believing, obedient faith is faith which trusts Jesus Christ and obeys Jesus Christ's commandments. The word 'law' should not be anathema. It it possible to be justified by obedience to Christ's commandments which include Christ's law, because obedience to Jesus is a part of faith and is an intrinsic quality of faith, as is belief.
 
@@ -12361,6 +12361,8 @@ This is what we must come to know in truth - that Jesus came from Father God, an
     -   I am anointed to preach the gospel of good news, how God has made a way through the death, burial and resurrection of Jesus Christ and His blood, to deliver me from destruction and the power of sin and my sinful nature and has translated me into the kingdom of God and His love where He has loved me first and bought me so that I can now serve Him, obey Him and be zealous for good works
         -   **[Mark 16:15](https://www.biblegateway.com/passage/?search=Mark%2016%3A15&version=ESV)** - And he said to them, Go into all the world and proclaim the gospel to the whole creation. (ESV)
         -   **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=ESV)** - teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
+        -   We are to preach the gospel and not just live out the gospel
+            -   **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us? So faith comes from hearing, and hearing through the word of Christ. (ESV)
     -   I choose to worship Him in spirit and in truth, and I will continually offer up the sacrifices of praise and thanksgiving as I recognise Jesus Christ as my Lord, God and Saviour
         -   **[John 4:23-24](https://www.biblegateway.com/passage/?search=John%204%3A23-24&version=ESV)** - But the hour is coming, and is now here, when the true worshipers will worship the Father in spirit and truth, for the Father is seeking such people to worship him. God is spirit, and those who worship him must worship in spirit and truth. (ESV)
         -   **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
@@ -12988,9 +12990,21 @@ The redemption (ongoing sanctification) is granted as a gift through faith in Je
 
 Justification by working-faith (obedience to the gospel producing works) and justification by so-called 'faith alone' is, in my opinion, not a dichotomy, because all the good works we do as a consequence of being redeemed are a gift to us - us being **in** Him:
 
-> -   **[Eph 2:8](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8&version=NASB)** - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is the gift (G1435 doron) of God; (NASB)
-> -   **[Eph 2:9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A9&version=NASB)** - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
-> -   **[Eph 2:10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A10&version=NASB)** - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God prepared beforehand so that we would walk in them. (NASB)
+> -   **[Eph 2:8](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8&version=NASB)** - For by grace you have been saved through faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)); and that not of yourselves, it is the gift ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)) of God; (NASB)
+> -   **[Eph 2:9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A9&version=NASB)** - not as a result of works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), so that no one may boast. (NASB)
+> -   **[Eph 2:10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A10&version=NASB)** - For we are His workmanship, created in Christ Jesus for good works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), which God prepared beforehand so that we would walk in them. (NASB)
+
+84;0;0c
+John Piper puts it this way: "The first act of saving faith justifies and the subsequent ones justify too". That's an interesting theory, but it's also God who justifies, not us, so we should [let God be God, trust Jesus](https://www.biblegateway.com/passage/?search=Romans%203%3A26&version=ESV) and [serve Him](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-19&version=ESV):
+
+-   **[youtube.com: Though Our Faith May Falter @time: 8 min 52 sec](https://youtube.com/watch?v=8tdJbRgnb-c&t=532):** The faith to which God looks when He justifies us is a kind of faith which perseveres by God's design so that He can look at
+    that faith at it's first twinkling awakening and say, "Not guilty. You are justified, accepted, forgiven and the righteousness of my Son
+    is yours on the basis of that faith." And, He can look at any given point at the unfolding of that faith throughout your life and say,
+    "For this you are justified, and for this you are justified and for this you are justified." So the continuance of faith is the faith
+    which justifies and the reason you can say, "I am and have been justified", as [Romans 5:1-2](https://www.biblegateway.com/passage/?search=Romans%205%3A1-2&version=ESV) does say "having been justified", is because
+    that perseverance is a property as it were contained in the authenticity of the first act of saving faith.
+
+> **[Romans 3:26](https://www.biblegateway.com/passage/?search=Romans%203%3A26&version=ESV)** - It was to show his righteousness at the present time, so that he might be just and **the justifier of the one who has faith in Jesus**. (ESV)
 
 By His grace we have to actually come into obeying Jesus to find life. Think about what it means to obey Jesus: It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' commandments, to seek to follow the pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if you have faith in Him, believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
@@ -13347,7 +13361,7 @@ A person is justified when God justifies the person, not just because a person s
 
 But works of the law is different from works:
 
-> **[Romans 3:28](https://www.biblegateway.com/passage/?search=Romans%203%3A28&version=NASB)** - For we maintain that a man is justified by faith (G4102 pistis) apart from works of the Law. (NASB)
+> **[Romans 3:28](https://www.biblegateway.com/passage/?search=Romans%203%3A28&version=NASB)** - For we maintain that a man is justified by faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) apart from works of the Law. (NASB)
 
     1  :  4102  pistis  pis'-tis
     2  
@@ -13372,7 +13386,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdf4b754)
+See: [33.4.1](#orgcb6049b)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -13961,11 +13975,25 @@ Believing Father God Jehovah, loving Him, obeying His commandments, loving and o
 
 > **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
+The command to believe is the same as the command to action. The command to action is not the law but to trust Jesus.
+
+> **[Hebrews 7:19](https://www.biblegateway.com/passage/?search=Hebrews%207%3A19&version=ESV)** - (for the law made nothing perfect); but on the other hand, **a better hope** is introduced, **through which we draw near to God**. (ESV)
+
+> **[I Peter 3:18-20](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A18-20&version=ESV)** - For Christ also suffered once for sins, the righteous for the unrighteous, **that he might bring us to God**, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the spirits in prison, **because they formerly did not obey**, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, eight persons, **were brought safely through water**. (ESV)
+
+The Mosaic law is a little bit separate because the faith we have in Jesus is based on better hope and better promises and because the Mosaic Law is eclipsed by faith as Abraham received the promise before the law was given through Moses. But the precepts to agape (value, treasure) God, and one's neighbour and faith and obedience to God have been around since the very beginning. We don't say that obedience is only to the Mosaic law - it's not - we can trust God, believe and obey God's voice directly directly as Abraham did. We trust Jesus. A disobedient faith is not faith at all.
+
 Faith doesn't exist without obedience. Obedience doesn't exist without faith. The obedient will love Jesus, obeying Jesus, having faith in Jesus.
 
 > **[James 2:18](https://www.biblegateway.com/passage/?search=James%202%3A18&version=ESV)** - But someone will say, You have faith and I have works. Show me your faith apart from your works, and I will show you my faith by my works.
 
-> **[Romans 1:5](https://www.biblegateway.com/passage/?search=Romans%201%3A5&version=ESV)** - through whom we have received grace and apostleship to bring about the **obedience of faith** for the sake of his name among all the nations, (ESV)
+It's wrong to equate law with obedience. We were called to obedience before the Mosaic law was even given:
+
+> **[Romans 1:1-7](https://www.biblegateway.com/passage/?search=Romans%201%3A1-7&version=ESV)** - Paul, a servant of Christ Jesus, called to be an apostle, set apart for the **gospel of God**, which **he promised beforehand through his prophets in the holy Scriptures**, concerning his Son, who was descended from David according to the flesh and was declared to be the Son of God in power according to the Spirit of holiness by his resurrection from the dead, Jesus Christ our Lord, through whom we have received grace and apostleship to bring about the **obedience of faith for the sake of his name** among all the nations, including you who are called to belong to Jesus Christ, To all those in Rome who are loved by God and called to be saints: Grace to you and peace from God our Father and the Lord Jesus Christ. (ESV)
+
+Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings), even from reading it as described in the Old Testament ([Romans 1:1-2](https://www.biblegateway.com/passage/?search=Romans%201%3A1-2&version=ESV)). Sharing the gospel is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and **in trusting Jesus' words we trust in Jesus**:
+
+> **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But **they have not all obeyed the gospel**. For Isaiah says, Lord, **who has believed what he has heard from us**? So **faith comes from hearing, and hearing through the word of Christ.** (ESV)
 
 God's commandment is to bring about the obedience of faith (having faith is in God and through Jesus Christ is being obedient to God):
 
@@ -22816,9 +22844,9 @@ We should be more confident with the light!
 
 ## Without lack
 
-> **[James 1:4](https://www.biblegateway.com/passage/?search=James%201%3A4&version=ESV)** - And let endurance have its perfect (G5046 teleios) result (G2041 ergon), so that you may be perfect (G5046 teleios) and complete, lacking in nothing.
+> **[James 1:4](https://www.biblegateway.com/passage/?search=James%201%3A4&version=ESV)** - And let endurance have its perfect (G5046 teleios) result ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), so that you may be perfect (G5046 teleios) and complete, lacking in nothing.
 
-> **[James 2:22](https://www.biblegateway.com/passage/?search=James%202%3A22&version=ESV)** - You see that faith (G4102 pistis) was working with his works (G2041 ergon), and as a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
+> **[James 2:22](https://www.biblegateway.com/passage/?search=James%202%3A22&version=ESV)** - You see that faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was working with his works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), and as a result of the works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was perfected (G5048 teleioo);
 
 > **[I John 2:5](https://www.biblegateway.com/passage/?search=1%20John%202%3A5&version=ESV)** - but whoever keeps His word (G3056 logos), in him the love (G26 agape) of God (G2316 theos) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him:
 
@@ -25641,7 +25669,13 @@ Discern the will of God.
 
 Yes, believing in Jesus is obeying the gospel - but there is so much more to the gospel! Doing the will of God.
 
-> **[Romans 2:7-8](https://www.biblegateway.com/passage/?search=Romans%202%3A7-8&version=ESV)** - to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury.
+Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings). Sharing the gospel is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and **in trusting Jesus' words we trust in Jesus**:
+
+> **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But **they have not all obeyed the gospel**. For Isaiah says, Lord, **who has believed what he has heard from us**? So **faith comes from hearing, and hearing through the word of Christ.** (ESV)
+
+Those that obey Jesus' voice He will give eternal life:
+
+> **[Romans 2:7-8](https://www.biblegateway.com/passage/?search=Romans%202%3A7-8&version=ESV)** - to those who by patience in well-doing seek for glory and honor and immortality, **he will give eternal life**; but for those who are self-seeking and **do not obey the truth, but obey unrighteousness**, there will be wrath and fury.
 
 
 ### Every human being who does evil will receive tribulation and distress. God is fair.
@@ -27145,7 +27179,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdf4b754)
+See: [33.4.1](#orgcb6049b)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -27890,9 +27924,9 @@ A person must/should **do** what Jesus said.
 
 > **[Galatians 2:15](https://www.biblegateway.com/passage/?search=Galatians%202%3A15&version=ESV)** - "We are Jews (G2453 Ioudaios) by nature (G5449 phusis) and not sinners (G268 hamartolos) from among (G1537 ek) the Gentiles (G1484 ethnos);
 
-Justified ***through (G1223 dia) faith (G4102 pistis) in Christ.***
+Justified ***through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ.***
 
-> **[Galatians 2:16](https://www.biblegateway.com/passage/?search=Galatians%202%3A16&version=ESV)** - nevertheless (G1161 de) knowing (G3609 oikeios) that a man (G444 anthropos) is not justified (G1344 dikaioo) by the works (G2041 ergon) of the Law (G3551 nomos) but through (G1223 dia) faith (G4102 pistis) in Christ (G5547 Christos) Jesus (G2424 Iesous), even (G2532 kai) we have believed (G4100 pisteuo) in Christ (G5547 Christos) Jesus (G2424 Iesous), so (G2443 hina) that we may be justified (G1344 dikaioo) by faith (G4102 pistis) in Christ (G5547 Christos) and not by the works (G2041 ergon) of the Law (G3551 nomos); since (G3754 hoti) by the works (G2041 ergon) of the Law (G3551 nomos) no (G3756 ou) (G3956 pas) flesh (G4561 sarx) will be justified (G1344 dikaioo).
+> **[Galatians 2:16](https://www.biblegateway.com/passage/?search=Galatians%202%3A16&version=ESV)** - nevertheless (G1161 de) knowing (G3609 oikeios) that a man (G444 anthropos) is not justified (G1344 dikaioo) by the works (G2041 ergon) of the Law (G3551 nomos) but through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ (G5547 Christos) Jesus (G2424 Iesous), even (G2532 kai) we have believed (G4100 pisteuo) in Christ (G5547 Christos) Jesus (G2424 Iesous), so (G2443 hina) that we may be justified (G1344 dikaioo) by faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ (G5547 Christos) and not by the works (G2041 ergon) of the Law (G3551 nomos); since (G3754 hoti) by the works (G2041 ergon) of the Law (G3551 nomos) no (G3756 ou) (G3956 pas) flesh (G4561 sarx) will be justified (G1344 dikaioo).
 
 Justified through (G1223 dia) faith (G4102 **pistis**) in Christ (G5547 Christos) Jesus (G2424 Iesous).
 Pistis is a strong word for faith that doesn't merely encapsulate belief, but it includes trust.
@@ -27908,7 +27942,7 @@ Faith is a relationship with God.
 Before Abraham believed God, he obeyed God.
 Faith requires belief but it's more than belief.
 
-> **[I Timothy 4:1](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A1&version=NASB)**: But the Spirit (G4151 pneuma) explicitly says that in later times some will fall away from the faith (G4102 pistis), paying attention to deceitful spirits (G4151 pneuma) and doctrines of demons (G1140 daimonion), (NASB)
+> **[I Timothy 4:1](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A1&version=NASB)**: But the Spirit (G4151 pneuma) explicitly says that in later times some will fall away from the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)), paying attention to deceitful spirits (G4151 pneuma) and doctrines of demons (G1140 daimonion), (NASB)
 
 Faith is ongoing. Ongoing faith is patience endurance. Jesus says patience endurance is a work.
 
@@ -30565,7 +30599,7 @@ Paul following and teaching Christ's teachings regarding overcoming evil with go
 
 The word godliness, I think means, to <ins>act in a way fitting of having true knowledge of our God, and of our Lord and Saviour Jesus Christ</ins>, and preparing oneself for eternity.
 
-> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God (G2316 theos) and an apostle of Jesus (G2424 Iesous) Christ (G5547 Christos), for the faith (G4102 pistis) of those chosen of God (G2316 theos) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
+> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God (G2316 theos) and an apostle of Jesus (G2424 Iesous) Christ (G5547 Christos), for the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) of those chosen of God (G2316 theos) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
 
 Perfect godliness revealing God through Jesus Christ:
 
@@ -30751,7 +30785,7 @@ Perfect godliness revealing God through Jesus Christ:
 
 > **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires all people to be saved and to come to the knowledge of the truth.
 
-> **[I Timothy 2:10](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A10&version=ESV)** - but rather by means of good works (G2041 ergon), as is proper for women making a claim to godliness.
+> **[I Timothy 2:10](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A10&version=ESV)** - but rather by means of good works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), as is proper for women making a claim to godliness.
 
 > **[I Timothy 3:16](https://www.biblegateway.com/passage/?search=1%20Timothy%203%3A16&version=ESV)** - By common confession, great is the mystery (G3466 musterion) of godliness (G2150 eusebeia): He who (G3739 hos) was revealed in the flesh (G4561 sarx), Was vindicated in the Spirit (G4151 pneuma), Seen by angels, Proclaimed among the nations, Believed on in the world (G2889 kosmos), Taken up in glory (G1391 doxa).
 
@@ -30765,7 +30799,7 @@ Perfect godliness revealing God through Jesus Christ:
 
 > **[II Timothy 3:5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A5&version=ESV)** - holding to a form of godliness (G2150 eusebeia), although they have denied its power (G1411 dunamis); Avoid such men as these.
 
-> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God (G2316 theos) and an apostle of Jesus (G2424 Iesous) Christ (G5547 Christos), for the faith (G4102 pistis) of those chosen of God (G2316 theos) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
+> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God (G2316 theos) and an apostle of Jesus (G2424 Iesous) Christ (G5547 Christos), for the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) of those chosen of God (G2316 theos) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
 
 > **[Titus 2:11-14](https://www.biblegateway.com/passage/?search=Titus%202%3A11-14&version=ESV)** - For the grace of God has appeared, bringing **salvation for all people**, training us to **renounce ungodliness and worldly passions**, and to **live self-controlled, upright, and godly lives** <ins>in the present age</ins>, **waiting for our blessed hope**, the appearing of the glory of our great God and Savior Jesus Christ, who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works.
 
