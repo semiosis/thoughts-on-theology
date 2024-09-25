@@ -588,7 +588,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org50004b3) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org990b5fe) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1202,7 +1202,7 @@ And we should be building each other up, helping each other attain unity of fait
 
 It's unity in faith and truth and love:
 
-> **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - Beyond all (G3956 pas) these things put on love (G26 agape), which (G3739 hos) is the perfect bond of unity.
+> **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - Beyond all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) these things put on love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)), which ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) is the perfect bond of unity.
 
 > **[John 17:23](https://www.biblegateway.com/passage/?search=John%2017%3A23&version=ESV)** - I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me. (ESV)
 
@@ -7152,7 +7152,7 @@ We are saved through faith - it's not our own doing - it's not a **result** of w
 
 Whoever trusts in Jesus Christ shouldn't perish, but they should have eternal life. We've just got to have faith in Jesus:
 
-> **[John 3:16-21](https://www.biblegateway.com/passage/?search=John%203%3A16-21&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever (G3956 pas) believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But <ins>whoever does what is true comes to the light</ins>, so that <ins>it may be clearly seen that his deeds have been carried out in God</ins>. (ESV)
+> **[John 3:16-21](https://www.biblegateway.com/passage/?search=John%203%3A16-21&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But <ins>whoever does what is true comes to the light</ins>, so that <ins>it may be clearly seen that his deeds have been carried out in God</ins>. (ESV)
 
 The gospel *involves* having <ins>believing</ins> **and** <ins>obedient</ins> heart. The entrypoint is believing in Jesus Christ to be saved - that itself is an act of obedience.
 
@@ -12207,7 +12207,7 @@ Everyone who names the name of the Lord must depart from iniquity:
 
 Our bodies are a vessel for Jesus' holiness to shine out of. It's the vessel of **the Holy Spirit**:
 
-> **[1 Thessalonians 4:3-5](https://www.biblegateway.com/passage/?search=1%20Thessalonians%204%3A3-5&version=NASB)** - For this is the will of God, your sanctification; that is, that you abstain from sexual immorality; that each of you know how to possess his own (G1438 heautou) vessel (G4632 skeuos) in sanctification and honor, not in lustful passion, like the Gentiles who do not know God; (NASB)
+> **[1 Thessalonians 4:3-5](https://www.biblegateway.com/passage/?search=1%20Thessalonians%204%3A3-5&version=NASB)** - For this is the will of God, your sanctification; that is, that you abstain from sexual immorality; that each of you know how to possess his own ([G1438 heautou](https://www.blueletterbible.org/lexicon/g1438/kjv/tr/0-1/)) vessel ([G4632 skeuos](https://www.blueletterbible.org/lexicon/g4632/kjv/tr/0-1/)) in sanctification and honor, not in lustful passion, like the Gentiles who do not know God; (NASB)
 
 We should not deceive our brothers by lying about the matter of sanctifying our bodies:
 
@@ -13435,7 +13435,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7bbc3d4)
+See: [33.4.1](#org40edd22)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -16149,7 +16149,7 @@ And <ins>willing</ins> to do the will of God must become <ins>'doing'</ins>.
 
 > **[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. (ESV)
 
-> **[John 3:16](https://www.biblegateway.com/passage/?search=John%203%3A16&version=ESV)** - "For God so loved (G25 agapao) the world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)), that He gave His only (G3439 monogenes) begotten (G3439 monogenes) Son (G5207 huios), that whoever believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Him shall not perish, but have eternal (G166 aionios) life (G2222 zoe).
+> **[John 3:16](https://www.biblegateway.com/passage/?search=John%203%3A16&version=ESV)** - "For God so loved ([G25 agapao](https://www.blueletterbible.org/lexicon/g25/kjv/tr/0-1/)) the world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)), that He gave His only (G3439 monogenes) begotten (G3439 monogenes) Son (G5207 huios), that whoever believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Him shall not perish, but have eternal ([G166 aionios](https://www.blueletterbible.org/lexicon/g166/kjv/tr/0-1/)) life (G2222 zoe).
 
     1  :  4100  pisteuo  pist-yoo'-o
     2  
@@ -22615,7 +22615,7 @@ Whoever believes in him who God has sent.
 
 ### Look upon, consider and have faith (which is a relationship with God)
 
-> **[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)** - For this (G3778 houtos) is the will ([G2307 thelema](https://www.blueletterbible.org/lexicon/g2307/kjv/tr/0-1/)) of My Father (G3962 pater), that everyone (G3956 pas) who beholds (G2334 theoreo) the Son (G5207 huios) and believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Him will have (G2192 echo) eternal (G166 aionios) life (G2222 zoe), and I Myself (G1473 ego) will raise (G450 anistemi) him up on the last (G2078 eschatos) day (G2250 hemera).”
+> **[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)** - For this (G3778 houtos) is the will ([G2307 thelema](https://www.blueletterbible.org/lexicon/g2307/kjv/tr/0-1/)) of My Father (G3962 pater), that everyone ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) who beholds (G2334 theoreo) the Son (G5207 huios) and believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Him will have (G2192 echo) eternal ([G166 aionios](https://www.blueletterbible.org/lexicon/g166/kjv/tr/0-1/)) life (G2222 zoe), and I Myself (G1473 ego) will raise (G450 anistemi) him up on the last (G2078 eschatos) day (G2250 hemera).”
 
     1  :  2334  theoreo  theh-o-reh'-o
     2  
@@ -22884,13 +22884,13 @@ We should be more confident with the light!
 
 ## Unity in faith and truth and love
 
-> **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - Beyond all (G3956 pas) these things put on love (G26 agape), which (G3739 hos) is the perfect bond of unity.
+> **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - Beyond all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) these things put on love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)), which ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) is the perfect bond of unity. (NASB)
 
 > **[John 17:23](https://www.biblegateway.com/passage/?search=John%2017%3A23&version=ESV)** - I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me. (ESV)
 
 > **[II Timothy 1:13](https://www.biblegateway.com/passage/?search=2%20Timothy%201%3A13&version=ESV)** - Follow the pattern of the sound words that you have heard from me, in the faith and love that are in Christ Jesus. (ESV)
 
-> **[John 17:23](https://www.biblegateway.com/passage/?search=John%2017%3A23&version=ESV)** - I in them and You in Me, that they may be perfected (G5048 teleioo) in unity, so that the world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)) may know (G1097 ginosko) that You sent Me, and loved (G25 agapao) them, even as You have loved (G25 agapao) Me.
+> **[John 17:23](https://www.biblegateway.com/passage/?search=John%2017%3A23&version=ESV)** - I in them and You in Me, that they may be perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)) in unity, so that the world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)) may know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that You sent Me, and loved ([G25 agapao](https://www.blueletterbible.org/lexicon/g25/kjv/tr/0-1/)) them, even as You have loved ([G25 agapao](https://www.blueletterbible.org/lexicon/g25/kjv/tr/0-1/)) Me. (NASB)
 
 > **[I Peter 3:8-12](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A8-12&version=ESV)** - Finally, all of you, have **unity of mind, sympathy, brotherly love, a tender heart, and a humble mind.** Do not repay evil for evil or reviling for reviling, but on the contrary, bless, for to this you were called, that you may obtain a blessing. For Whoever desires to love life and see good days, let him keep his tongue from evil and his lips from speaking deceit; let him turn away from evil and do good; let him seek peace and pursue it. For the eyes of the Lord are on the righteous, and his ears are open to their prayer. But the face of the Lord is against those who do evil. (ESV)
 
@@ -22924,30 +22924,32 @@ We should be more confident with the light!
 
 ## It's cleaning ourselves up from all defilement of flesh and spirit
 
-> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves (G1438 heautou) from all (G3956 pas) defilement of flesh (G4561 sarx) and spirit (G4151 pneuma), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves ([G1438 heautou](https://www.blueletterbible.org/lexicon/g1438/kjv/tr/0-1/)) from all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) defilement of flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) and spirit ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
 
 
 ## It's a process leading to the day of Christ Jesus
 
-> **[Philippians 3:12](https://www.biblegateway.com/passage/?search=Philippians%203%3A12&version=ESV)** - Not that I have already obtained (G2983 lambano) it or have already become perfect (G5048 teleioo), but I press on so that I may lay hold of that for which (G3739 hos) also I was laid hold of by Christ (G5547 Christos) Jesus (G2424 Iesous).
+> **[Philippians 3:12](https://www.biblegateway.com/passage/?search=Philippians%203%3A12&version=ESV)** - Not that I have already obtained ([G2983 lambano](https://www.blueletterbible.org/lexicon/g2983/kjv/tr/0-1/)) it or have already become perfect ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)), but I press on so that I may lay hold of that for which ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) also I was laid hold of by Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
 
-> **[Philippians 1:6](https://www.biblegateway.com/passage/?search=Philippians%201%3A6&version=ESV)** - For I am confident of this very thing, that He who began a good work (G2041 ergon) in you will perfect it until the day (G2250 hemera) of Christ (G5547 Christos) Jesus (G2424 Iesous).
+> **[Philippians 1:6](https://www.biblegateway.com/passage/?search=Philippians%201%3A6&version=ESV)** - For I am confident of this very thing, that He who began a good work (G2041 ergon) in you will perfect it until the day (G2250 hemera) of Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
 
 
 ## Having suffered for righteousness-sake
 
-> **[I Peter 5:10](https://www.biblegateway.com/passage/?search=1%20Peter%205%3A10&version=ESV)** - After you have suffered (G3958 pascho) for a little (G3641 oligos) while (G3641 oligos), the God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) of all (G3956 pas) grace (G5485 charis), who called (G2564 kaleo) you to His eternal (G166 aionios) glory (G1391 doxa) in Christ (G5547 Christos), will Himself (G846 autos) perfect (G2675 katartizo), confirm (G4741 sterizo), strengthen (G4599 sthenoo) and establish (G2311 themelioo) you.
+Jesus mends ([G2675 katartizo](https://www.blueletterbible.org/lexicon/g2675/kjv/tr/0-1/)) us after a little suffering, and stabilises ([G4741 sterizo](https://www.blueletterbible.org/lexicon/g4741/kjv/tr/0-1/)) us, makes us strong ([G4599 sthenoo](https://www.blueletterbible.org/lexicon/g4599/kjv/tr/0-1/)) and makes us stable ([G2311 themelioo](https://www.blueletterbible.org/lexicon/g2311/kjv/tr/0-1/)), establishing us:
+
+> **[I Peter 5:10](https://www.biblegateway.com/passage/?search=1%20Peter%205%3A10&version=ESV)** - After you have suffered ([G3958 pascho](https://www.blueletterbible.org/lexicon/g3958/kjv/tr/0-1/)) for a little ([G3641 oligos](https://www.blueletterbible.org/lexicon/g3641/kjv/tr/0-1/)) while ([G3641 oligos](https://www.blueletterbible.org/lexicon/g3641/kjv/tr/0-1/)), the God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) of all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) grace ([G5485 charis](https://www.blueletterbible.org/lexicon/g5485/kjv/tr/0-1/)), who called ([G2564 kaleo](https://www.blueletterbible.org/lexicon/g2564/kjv/tr/0-1/)) you to His eternal ([G166 aionios](https://www.blueletterbible.org/lexicon/g166/kjv/tr/0-1/)) glory ([G1391 doxa](https://www.blueletterbible.org/lexicon/g1391/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)), will Himself ([G846 autos](https://www.blueletterbible.org/lexicon/g846/kjv/tr/0-1/)) perfect ([G2675 katartizo](https://www.blueletterbible.org/lexicon/g2675/kjv/tr/0-1/)), confirm ([G4741 sterizo](https://www.blueletterbible.org/lexicon/g4741/kjv/tr/0-1/)), strengthen ([G4599 sthenoo](https://www.blueletterbible.org/lexicon/g4599/kjv/tr/0-1/)) and establish ([G2311 themelioo](https://www.blueletterbible.org/lexicon/g2311/kjv/tr/0-1/)) you.
 
 
 ## Without lack
 
 > **[James 1:4](https://www.biblegateway.com/passage/?search=James%201%3A4&version=ESV)** - And let endurance have its perfect (G5046 teleios) result ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), so that you may be perfect (G5046 teleios) and complete, lacking in nothing.
 
-> **[James 2:22](https://www.biblegateway.com/passage/?search=James%202%3A22&version=ESV)** - You see that faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was working with his works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), and as a result of the works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was perfected (G5048 teleioo);
+> **[James 2:22](https://www.biblegateway.com/passage/?search=James%202%3A22&version=ESV)** - You see that faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was working with his works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), and as a result of the works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/));
 
-> **[I John 2:5](https://www.biblegateway.com/passage/?search=1%20John%202%3A5&version=ESV)** - but whoever keeps His word (G3056 logos), in him the love (G26 agape) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him:
+> **[I John 2:5](https://www.biblegateway.com/passage/?search=1%20John%202%3A5&version=ESV)** - but whoever keeps His word (G3056 logos), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him:
 
-> **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has seen God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) at any time; if we love (G25 agapao) one another, God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) abides in us, and His love (G26 agape) is perfected (G5048 teleioo) in us.
+> **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has seen God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) at any time; if we love ([G25 agapao](https://www.blueletterbible.org/lexicon/g25/kjv/tr/0-1/)) one another, God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) abides in us, and His love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) is perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)) in us.
 
 
 ## Perfection is the result of sanctification
@@ -22958,7 +22960,7 @@ We should be more confident with the light!
 
 > **[Hebrews 2:11-12](https://www.biblegateway.com/passage/?search=Hebrews%202%3A11-12&version=ESV)** -  For he who sanctifies and those who are sanctified all have one origin.  That is why he is not ashamed to call them brothers, saying, I will tell of your name to my brothers; in the midst of the congregation I will sing your praise.  (ESV)
 
-> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves (G1438 heautou) from all (G3956 pas) defilement of flesh (G4561 sarx) and spirit (G4151 pneuma), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves ([G1438 heautou](https://www.blueletterbible.org/lexicon/g1438/kjv/tr/0-1/)) from all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) defilement of flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) and spirit ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
 
 
 ### Faith
@@ -22970,7 +22972,7 @@ We should be more confident with the light!
 
 ### Spirit
 
-> **[Hebrews 12:23](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A23&version=ESV):** - to the general assembly and church of the firstborn who are enrolled in heaven (G3772 ouranos), and to God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)), the Judge of all (G3956 pas), and to the spirits (G4151 pneuma) of the righteous (G1342 dikaios) made (G5048 teleioo) perfect (G5048 teleioo),
+> **[Hebrews 12:23](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A23&version=ESV):** - to the general assembly and church of the firstborn who are enrolled in heaven ([G3772 ouranos](https://www.blueletterbible.org/lexicon/g3772/kjv/tr/0-1/)), and to God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)), the Judge of all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)), and to the spirits ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)) of the righteous ([G1342 dikaios](https://www.blueletterbible.org/lexicon/g1342/kjv/tr/0-1/)) made ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)) perfect ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)),
 
 
 ### Holiness
@@ -23351,7 +23353,7 @@ For that reason, I would have more confidence before God if I was serving Him, h
 
 Unity in Christ is unity in **faith** and **truth** and **love**:
 
-> **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - Beyond all (G3956 pas) these things put on love (G26 agape), which (G3739 hos) is the perfect bond of unity.
+> **[Colossians 3:14](https://www.biblegateway.com/passage/?search=Colossians%203%3A14&version=ESV)** - Beyond all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) these things put on love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)), which ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) is the perfect bond of unity.
 
 > **[John 17:23](https://www.biblegateway.com/passage/?search=John%2017%3A23&version=ESV)** - I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me. (ESV)
 
@@ -27284,7 +27286,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7bbc3d4)
+See: [33.4.1](#org40edd22)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -28031,9 +28033,9 @@ A person must/should **do** what Jesus said.
 
 Justified ***through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ.***
 
-> **[Galatians 2:16](https://www.biblegateway.com/passage/?search=Galatians%202%3A16&version=ESV)** - nevertheless (G1161 de) knowing (G3609 oikeios) that a man (G444 anthropos) is not justified (G1344 dikaioo) by the works (G2041 ergon) of the Law (G3551 nomos) but through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ (G5547 Christos) Jesus (G2424 Iesous), even (G2532 kai) we have believed ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Christ (G5547 Christos) Jesus (G2424 Iesous), so (G2443 hina) that we may be justified (G1344 dikaioo) by faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ (G5547 Christos) and not by the works (G2041 ergon) of the Law (G3551 nomos); since (G3754 hoti) by the works (G2041 ergon) of the Law (G3551 nomos) no (G3756 ou) (G3956 pas) flesh (G4561 sarx) will be justified (G1344 dikaioo).
+> **[Galatians 2:16](https://www.biblegateway.com/passage/?search=Galatians%202%3A16&version=ESV)** - nevertheless (G1161 de) knowing (G3609 oikeios) that a man (G444 anthropos) is not justified (G1344 dikaioo) by the works (G2041 ergon) of the Law (G3551 nomos) but through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)), even (G2532 kai) we have believed ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)), so (G2443 hina) that we may be justified (G1344 dikaioo) by faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) and not by the works (G2041 ergon) of the Law (G3551 nomos); since (G3754 hoti) by the works (G2041 ergon) of the Law (G3551 nomos) no (G3756 ou) ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) will be justified (G1344 dikaioo).
 
-Justified through (G1223 dia) faith (G4102 **pistis**) in Christ (G5547 Christos) Jesus (G2424 Iesous).
+Justified through (G1223 dia) faith (G4102 **pistis**) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
 Pistis is a strong word for faith that doesn't merely encapsulate belief, but it includes trust.
 
 The greeks can turn the noun faith into the verb believing faith ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)).
@@ -28047,7 +28049,7 @@ Faith is a relationship with God.
 Before Abraham believed God, he obeyed God.
 Faith requires belief but it's more than belief.
 
-> **[I Timothy 4:1](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A1&version=NASB)**: But the Spirit (G4151 pneuma) explicitly says that in later times some will fall away from the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)), paying attention to deceitful spirits (G4151 pneuma) and doctrines of demons (G1140 daimonion), (NASB)
+> **[I Timothy 4:1](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A1&version=NASB)**: But the Spirit ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)) explicitly says that in later times some will fall away from the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)), paying attention to deceitful spirits ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)) and doctrines of demons ([G1140 daimonion](https://www.blueletterbible.org/lexicon/g1140/kjv/tr/0-1/)), (NASB)
 
 Faith is ongoing. Ongoing faith is patience endurance. Jesus says patience endurance is a work.
 
@@ -28507,7 +28509,7 @@ Make yourself ready <ins>imminently</ins>:
 
 > **[Matthew 7:3](https://www.biblegateway.com/passage/?search=Matthew%207%3A3&version=ESV)** - Why do you see the speck that is in your brother's eye, but do not notice the log that is in your own eye?  Or how can you say to your brother, Let me take the speck out of your eye, when there is the log in your own eye?  You hypocrite, first take the log out of your own eye, and then you will see clearly to take the speck out of your brother's eye.
 
-> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves (G1438 heautou) from all (G3956 pas) defilement of flesh (G4561 sarx) and spirit (G4151 pneuma), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves ([G1438 heautou](https://www.blueletterbible.org/lexicon/g1438/kjv/tr/0-1/)) from all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) defilement of flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) and spirit ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
 
 > **[Revelation of John 22:14](https://www.biblegateway.com/passage/?search=Revelation%2022%3A14&version=ESV)** - Blessed are those who wash their robes, so that they may have the right to the tree of life and that they may enter the city by the gates. (ESV)
 
@@ -30704,7 +30706,7 @@ Paul following and teaching Christ's teachings regarding overcoming evil with go
 
 The word godliness, I think means, to <ins>act in a way fitting of having true knowledge of our God, and of our Lord and Saviour Jesus Christ</ins>, and preparing oneself for eternity.
 
-> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and an apostle of Jesus (G2424 Iesous) Christ (G5547 Christos), for the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) of those chosen of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
+> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and an apostle of Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)) Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)), for the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) of those chosen of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
 
 Perfect godliness revealing God through Jesus Christ:
 
@@ -30884,17 +30886,17 @@ Perfect godliness revealing God through Jesus Christ:
 
 > **[Isaiah 32:6](https://www.biblegateway.com/passage/?search=Isaiah%2032%3A6&version=ESV)** - For a fool speaks nonsense, And his heart inclines toward wickedness: To practice ungodliness and to speak error against the Lord (H3068 Yhovah), To keep the hungry person unsatisfied And to withhold drink from the thirsty.
 
-> **[Romans 1:18](https://www.biblegateway.com/passage/?search=Romans%201%3A18&version=ESV)** - For the wrath of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) is revealed from heaven (G3772 ouranos) against all (G3956 pas) ungodliness and unrighteousness of men who suppress the truth (G225 aletheia) in unrighteousness,
+> **[Romans 1:18](https://www.biblegateway.com/passage/?search=Romans%201%3A18&version=ESV)** - For the wrath of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) is revealed from heaven ([G3772 ouranos](https://www.blueletterbible.org/lexicon/g3772/kjv/tr/0-1/)) against all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) ungodliness and unrighteousness of men who suppress the truth (G225 aletheia) in unrighteousness,
 
-> **[Romans 11:26](https://www.biblegateway.com/passage/?search=Romans%2011%3A26&version=ESV)** - and so all (G3956 pas) Israel will be saved (G4982 sozo); just as it is written, “The Deliverer will come from Zion, He will remove ungodliness from Jacob.”
+> **[Romans 11:26](https://www.biblegateway.com/passage/?search=Romans%2011%3A26&version=ESV)** - and so all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) Israel will be saved (G4982 sozo); just as it is written, “The Deliverer will come from Zion, He will remove ungodliness from Jacob.”
 
 > **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires all people to be saved and to come to the knowledge of the truth.
 
 > **[I Timothy 2:10](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A10&version=ESV)** - but rather by means of good works ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), as is proper for women making a claim to godliness.
 
-> **[I Timothy 3:16](https://www.biblegateway.com/passage/?search=1%20Timothy%203%3A16&version=ESV)** - By common confession, great is the mystery (G3466 musterion) of godliness (G2150 eusebeia): He who (G3739 hos) was revealed in the flesh (G4561 sarx), Was vindicated in the Spirit (G4151 pneuma), Seen by angels, Proclaimed among the nations, Believed on in the world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)), Taken up in glory (G1391 doxa).
+> **[I Timothy 3:16](https://www.biblegateway.com/passage/?search=1%20Timothy%203%3A16&version=ESV)** - By common confession, great is the mystery (G3466 musterion) of godliness (G2150 eusebeia): He who ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) was revealed in the flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)), Was vindicated in the Spirit ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)), Seen by angels, Proclaimed among the nations, Believed on in the world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)), Taken up in glory ([G1391 doxa](https://www.blueletterbible.org/lexicon/g1391/kjv/tr/0-1/)).
 
-> **[I Timothy 4:7-8](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A7-8&version=ESV)** - But have nothing to do with worldly fables fit only for old women. On the other hand, discipline yourself for the purpose of godliness (G2150 eusebeia); for bodily discipline is only of little profit, but godliness (G2150 eusebeia) is profitable for all (G3956 pas) things (G3956 pas), since it holds promise for the present life (G2222 zoe) and also for the life to come.
+> **[I Timothy 4:7-8](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A7-8&version=ESV)** - But have nothing to do with worldly fables fit only for old women. On the other hand, discipline yourself for the purpose of godliness (G2150 eusebeia); for bodily discipline is only of little profit, but godliness (G2150 eusebeia) is profitable for all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) things ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)), since it holds promise for the present life (G2222 zoe) and also for the life to come.
 
 > **[I Timothy 6:3-6](https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A3-6&version=ESV)** - If anyone teaches a different doctrine and does not agree with the sound words of our Lord Jesus Christ and the teaching that accords with godliness, he is puffed up with conceit and understands nothing. He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension, slander, evil suspicions, and constant friction among people who are depraved in mind and deprived of the truth, imagining that godliness is a means of gain. But godliness (G2150 eusebeia) actually is a means of great gain when accompanied by contentment.
 
@@ -30904,13 +30906,13 @@ Perfect godliness revealing God through Jesus Christ:
 
 > **[II Timothy 3:5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A5&version=ESV)** - holding to a form of godliness (G2150 eusebeia), although they have denied its power (G1411 dunamis); Avoid such men as these.
 
-> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and an apostle of Jesus (G2424 Iesous) Christ (G5547 Christos), for the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) of those chosen of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
+> **[Titus 1:1](https://www.biblegateway.com/passage/?search=Titus%201%3A1&version=ESV)** - Paul, a bond-servant (G1401 doulos) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and an apostle of Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)) Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)), for the faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) of those chosen of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) and the knowledge (G1922 epignosis) of the truth (G225 aletheia) which is according to godliness (G2150 eusebeia),
 
 > **[Titus 2:11-14](https://www.biblegateway.com/passage/?search=Titus%202%3A11-14&version=ESV)** - For the grace of God has appeared, bringing **salvation for all people**, training us to **renounce ungodliness and worldly passions**, and to **live self-controlled, upright, and godly lives** <ins>in the present age</ins>, **waiting for our blessed hope**, the appearing of the glory of our great God and Savior Jesus Christ, who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works.
 
 Jesus has granted us what we need to live a godly life:
 
-> **[II Peter 1:3](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A3&version=ESV)** - seeing that His divine power (G1411 dunamis) has granted to us everything (G3956 pas) pertaining to life (G2222 zoe) and godliness (G2150 eusebeia), through the true (G1922 epignosis) knowledge (G1922 epignosis) of Him who called us by His own glory (G1391 doxa) and excellence.
+> **[II Peter 1:3](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A3&version=ESV)** - seeing that His divine power (G1411 dunamis) has granted to us everything ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) pertaining to life (G2222 zoe) and godliness (G2150 eusebeia), through the true (G1922 epignosis) knowledge (G1922 epignosis) of Him who called us by His own glory ([G1391 doxa](https://www.blueletterbible.org/lexicon/g1391/kjv/tr/0-1/)) and excellence.
 
 > **[II Peter 1:5-7](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A5-7&version=ESV)** - For this very reason, make every effort to **supplement your faith with virtue, and virtue with knowledge, and knowledge** with self-control, and self-control with steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection with love.
 
@@ -31913,7 +31915,7 @@ John the Baptist came as a witness to the Light that is Jesus Christ, so that th
 
 Jesus Christ is <ins>received</ins> through <ins>faith</ins>:
 
-> **[John 1:12](https://www.biblegateway.com/passage/?search=John%201%3A12&version=ESV)** - But <ins>to all who did receive (G2983 lambano) him, who believed ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in his name,</ins> he gave the right to become children of God, (ESV)
+> **[John 1:12](https://www.biblegateway.com/passage/?search=John%201%3A12&version=ESV)** - But <ins>to all who did receive ([G2983 lambano](https://www.blueletterbible.org/lexicon/g2983/kjv/tr/0-1/)) him, who believed ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in his name,</ins> he gave the right to become children of God, (ESV)
 
      1  :  2983  lambano  lam-ban'-o
      2  
@@ -32559,7 +32561,7 @@ This should never replace Jesus, but glorifies Jesus because it's being a discip
 
 > **[II Thessalonians 1:11-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A11-12&version=ESV)** - To this end we always pray for you, that our God may make you worthy of his calling and may **fulfill every resolve for good** and every **work of faith** by his power, <ins>so that the name of our Lord Jesus may be glorified in you, and you in him,</ins> according to the *grace* of our God and the Lord Jesus Christ. (ESV)
 
-> **[Hebrews 2:10](https://www.biblegateway.com/passage/?search=Hebrews%202%3A10&version=ESV)** - For it was fitting for Him, for whom (G3739 hos) are all (G3956 pas) things (G3956 pas), and through whom (G3739 hos) are all (G3956 pas) things (G3956 pas), in **bringing many sons to glory** (G1391 doxa), to perfect (G5048 teleioo) the author of their salvation (G4991 soteria) through sufferings.
+> **[Hebrews 2:10](https://www.biblegateway.com/passage/?search=Hebrews%202%3A10&version=ESV)** - For it was fitting for Him, for whom ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) are all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) things ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)), and through whom ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) are all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) things ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)), in **bringing many sons to glory** ([G1391 doxa](https://www.blueletterbible.org/lexicon/g1391/kjv/tr/0-1/)), to perfect ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)) the author of their salvation (G4991 soteria) through sufferings.
 
 If someone's lord is money and not Jesus and then they try to do good works such as setting up businesses, I feel like this glorifies money, not Jesus.
 
@@ -34968,7 +34970,7 @@ The fear of God helps us to obey Him. God please forgive us:
 
 > **[Jeremiah 32:40](https://www.biblegateway.com/passage/?search=Jeremiah%2032%3A40&version=ESV)** - I will make with them an everlasting covenant, that I will not turn away from doing good to them. And **I will put the fear of me in their hearts, that they may not turn from me.** (ESV)
 
-> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves (G1438 heautou) from all (G3956 pas) defilement of flesh (G4561 sarx) and spirit (G4151 pneuma), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Therefore, having these promises, beloved, let us cleanse ourselves ([G1438 heautou](https://www.blueletterbible.org/lexicon/g1438/kjv/tr/0-1/)) from all ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) defilement of flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) and spirit ([G4151 pneuma](https://www.blueletterbible.org/lexicon/g4151/kjv/tr/0-1/)), **perfecting holiness in the fear of God** ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)).
 
 > **[Proverbs 9:10](https://www.biblegateway.com/passage/?search=Proverbs%209%3A10&version=ESV)** - The fear of the LORD is the beginning of wisdom, and the knowledge of the Holy One is insight. (ESV)
 

@@ -5008,11 +5008,11 @@ youtube.com: Strive to let everything bodily die within you, and you will rise b
   buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For
   the present form of this world is passing away. (ESV)
 
-l#+BEGIN[QUOTE] Luke 20:33-36 - In the resurrection, therefore, whose wife will the woman be? For the seven had
-her as wife. And Jesus said to them, The sons of this age (G165 aion) marry (G1060 gameo) and are given in
-marriage (G1061 gamisko), but those who are considered worthy to attain to that age (G165 aion) and to the
-resurrection (G386 anastasis) from the dead neither marry nor are given in marriage, for they cannot die anymore,
-because they are equal to angels and are sons of God, being sons of the resurrection. #+END[QUOTE]
+  Luke 20:33-36 - In the resurrection, therefore, whose wife will the woman be? For the seven had her as wife. And
+  Jesus said to them, The sons of this age (G165 aion) marry (G1060 gameo) and are given in marriage (G1061
+  gamisko), but those who are considered worthy to attain to that age (G165 aion) and to the resurrection (G386
+  anastasis) from the dead neither marry nor are given in marriage, for they cannot die anymore, because they are
+  equal to angels and are sons of God, being sons of the resurrection.
 
 3.16. Disobedience towards God is sin. Treasuring anything else more than God is sin
 
@@ -32970,7 +32970,7 @@ youtube.com: This Is The Day {Garratt}
 45.2. Unity in faith and truth and love
 
   Colossians 3:14 - Beyond all (G3956 pas) these things put on love (G26 agape), which (G3739 hos) is the perfect
-  bond of unity.
+  bond of unity. (NASB)
 
   John 17:23 - I in them and you in me, that they may become perfectly one, so that the world may know that you
   sent me and loved them even as you loved me. (ESV)
@@ -32980,7 +32980,7 @@ youtube.com: This Is The Day {Garratt}
 
   John 17:23 - I in them and You in Me, that they may be perfected (G5048 teleioo) in unity, so that the world
   (G2889 kosmos) may know (G1097 ginosko) that You sent Me, and loved (G25 agapao) them, even as You have loved
-  (G25 agapao) Me.
+  (G25 agapao) Me. (NASB)
 
   I Peter 3:8-12 - Finally, all of you, have unity of mind, sympathy, brotherly love, a tender heart, and a humble
   mind. Do not repay evil for evil or reviling for reviling, but on the contrary, bless, for to this you were
@@ -33043,6 +33043,9 @@ youtube.com: This Is The Day {Garratt}
   perfect it until the day (G2250 hemera) of Christ (G5547 Christos) Jesus (G2424 Iesous).
 
 45.6. Having suffered for righteousness-sake
+
+Jesus mends (G2675 katartizo) us after a little suffering, and stabilises (G4741 sterizo) us, makes us strong
+(G4599 sthenoo) and makes us stable (G2311 themelioo), establishing us:
 
   I Peter 5:10 - After you have suffered (G3958 pascho) for a little (G3641 oligos) while (G3641 oligos), the God
   (G2316 theos) of all (G3956 pas) grace (G5485 charis), who called (G2564 kaleo) you to His eternal (G166
@@ -49801,7 +49804,7 @@ Date: 2024-09-25 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-25 Wed 20:09
+Created: 2024-09-25 Wed 20:57
 
 Validate
 
