@@ -588,7 +588,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org22af9eb) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org972c1d5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2546,7 +2546,7 @@ The Apostle John also commands us to:
 
 > **[1 John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. (ESV)
 
-Whoever keeps His **commandments** (plural) abides in Jesus, and Jesus in them. Yes, so I think we must believe Jesus and obey Him:
+Whoever keeps ([5083. téreó](https://biblehub.com/greek/5083.htm)) His **commandments** (plural) abides in Jesus, and Jesus in them. Yes, so I think we must believe Jesus and obey Him:
 
 > **[I John 3:24](https://www.biblegateway.com/passage/?search=1%20John%203%3A24&version=ESV)** - **Whoever keeps his commandments abides in him, and he in them.** And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
 
@@ -3079,7 +3079,9 @@ On the other hand, if we obey Jesus we will never see death:
 
 > **[John 8:51](https://www.biblegateway.com/passage/?search=John%208%3A51&version=ESV)** - Truly, truly, I say to you, if anyone **keeps my word**, he will never see death. (ESV)
 
-> **[I John 2:5-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A5-6&version=ESV)** - but whoever **keeps his word**, in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in him ought to <ins>walk in the same way in which he walked</ins>. (ESV)
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+> **[I John 2:5-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A5-6&version=ESV)** - but **whoever keeps ([5083. téreó](https://biblehub.com/greek/5083.htm)) His word** ([G3056 logos](https://www.blueletterbible.org/lexicon/g3056/kjv/tr/0-1/)), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him: whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
 
 Repent, be sanctified, love God and your neighbour, believe and obey Jesus:
 
@@ -3701,7 +3703,7 @@ God leads us into the truth:
 
 We walk the way in which Jesus walked to abide in Jesus' love:
 
-> **[I John 2:6](https://www.biblegateway.com/passage/?search=1%20John%202%3A6&version=ESV)** - whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
+> **[I John 2:6](https://www.biblegateway.com/passage/?search=1%20John%202%3A6&version=ESV)** - whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
 
 > **[John 15:10](https://www.biblegateway.com/passage/?search=John%2015%3A10&version=ESV)** - If you keep my commandments, you will abide in my love, just as I have kept my Father's commandments and abide in his love. (ESV)
 
@@ -7716,9 +7718,11 @@ It's being begotten as a servant of God, a disciple of Jesus, one of Jesus' shee
 
 > **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
 
-**Believe and obey:**
+**Believe and obey and treasure God and people:**
 
-> **[I John 2:5](https://www.biblegateway.com/passage/?search=1%20John%202%3A5&version=ESV)** - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that we are in him:
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+> **[I John 2:5-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A5-6&version=ESV)** - but **whoever keeps ([5083. téreó](https://biblehub.com/greek/5083.htm)) His word** ([G3056 logos](https://www.blueletterbible.org/lexicon/g3056/kjv/tr/0-1/)), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him: whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
 
 > **[Jude 1:21](https://www.biblegateway.com/passage/?search=Jude%201%3A21&version=ESV)** - keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life.
 
@@ -13443,7 +13447,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org305f5c5)
+See: [33.4.1](#orga4c5115)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -14130,7 +14134,7 @@ Also, the following means that having faith in Jesus is tightly coupled to doing
 Whoever has faith in Jesus, the works that Jesus does, that person will do.
 Pisteuo (pisteuōn) = faith.
 
-> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=NASB)** - Truly (G281 amen), truly (G281 amen), I say (G3004 lego) to you, he who believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Me, the works (G2041 ergon) that I do ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)), he will do ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)) also (G2548 kakeinos); and greater (G3173 megas) works than these (G3778 houtos) he will do ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)); because (G3754 hoti) I go (G4198 poreuomai) to the Father (G3962 pater). (NASB)
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=NASB)** - Truly ([G281 amen](https://www.blueletterbible.org/lexicon/g281/kjv/tr/0-1/)), truly ([G281 amen](https://www.blueletterbible.org/lexicon/g281/kjv/tr/0-1/)), I say ([G3004 lego](https://www.blueletterbible.org/lexicon/g3004/kjv/tr/0-1/)) to you, he who believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Me, the works ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)) that I do ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)), he will do ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)) also ([G2548 kakeinos](https://www.blueletterbible.org/lexicon/g2548/kjv/tr/0-1/)); and greater ([G3173 megas](https://www.blueletterbible.org/lexicon/g3173/kjv/tr/0-1/)) works than these ([G3778 houtos](https://www.blueletterbible.org/lexicon/g3778/kjv/tr/0-1/)) he will do ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)); because ([G3754 hoti](https://www.blueletterbible.org/lexicon/g3754/kjv/tr/0-1/)) I go ([G4198 poreuomai](https://www.blueletterbible.org/lexicon/g4198/kjv/tr/0-1/)) to the Father ([G3962 pater](https://www.blueletterbible.org/lexicon/g3962/kjv/tr/0-1/)). (NASB)
 
     1  :  4100  pisteuo  pist-yoo'-o
     2  
@@ -19298,7 +19302,7 @@ We now live for the will of God:
 
 > **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For neither circumcision counts for anything nor uncircumcision, but keeping the commandments of God. (ESV)
 
-> **[I John 2:1-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A1-6&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and not for ours only but also for the sins of the whole world. And **by this we know that we have come to know him, if we keep his commandments.** Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but **whoever keeps his word, in him truly the love of God is perfected.** By this we may be sure that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
+> **[I John 2:1-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A1-6&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and not for ours only but also for the sins of the whole world. And **by this we know that we have come to know him, if we keep his commandments.** Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but **whoever keeps his word, in him truly the love of God is perfected.** By this we may be sure that we are in him: whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
 
 > **[Romans 13:9](https://www.biblegateway.com/passage/?search=Romans%2013%3A9&version=ESV)** - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself.
 
@@ -22623,7 +22627,7 @@ Whoever believes in him who God has sent.
 
 ### Look upon, consider and have faith (which is a relationship with God)
 
-> **[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)** - For this (G3778 houtos) is the will ([G2307 thelema](https://www.blueletterbible.org/lexicon/g2307/kjv/tr/0-1/)) of My Father (G3962 pater), that everyone ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) who beholds (G2334 theoreo) the Son (G5207 huios) and believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Him will have (G2192 echo) eternal ([G166 aionios](https://www.blueletterbible.org/lexicon/g166/kjv/tr/0-1/)) life (G2222 zoe), and I Myself (G1473 ego) will raise (G450 anistemi) him up on the last (G2078 eschatos) day (G2250 hemera).”
+> **[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)** - For this ([G3778 houtos](https://www.blueletterbible.org/lexicon/g3778/kjv/tr/0-1/)) is the will ([G2307 thelema](https://www.blueletterbible.org/lexicon/g2307/kjv/tr/0-1/)) of My Father ([G3962 pater](https://www.blueletterbible.org/lexicon/g3962/kjv/tr/0-1/)), that everyone ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) who beholds (G2334 theoreo) the Son (G5207 huios) and believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Him will have (G2192 echo) eternal ([G166 aionios](https://www.blueletterbible.org/lexicon/g166/kjv/tr/0-1/)) life (G2222 zoe), and I Myself (G1473 ego) will raise (G450 anistemi) him up on the last (G2078 eschatos) day (G2250 hemera).”
 
     1  :  2334  theoreo  theh-o-reh'-o
     2  
@@ -22925,7 +22929,7 @@ We should be more confident with the light!
 
 ## It's wholeness and fullness, knowledge of Jesus
 
-> **[I Corinthians 13:10](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A10&version=ESV)** - but when the perfect (G5046 teleios) comes, the partial (G3313 meros) will be done away.
+> **[I Corinthians 13:10](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A10&version=ESV)** - but when the perfect ([G5046 teleios](https://www.blueletterbible.org/lexicon/g5046/kjv/tr/0-1/)) comes, the partial (G3313 meros) will be done away.
 
 > **[Ephesians 4:13](https://www.biblegateway.com/passage/?search=Ephesians%204%3A13&version=ESV)** - until we all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure of the stature of the fullness of Christ, (ESV)
 
@@ -22939,7 +22943,7 @@ We should be more confident with the light!
 
 > **[Philippians 3:12](https://www.biblegateway.com/passage/?search=Philippians%203%3A12&version=ESV)** - Not that I have already obtained ([G2983 lambano](https://www.blueletterbible.org/lexicon/g2983/kjv/tr/0-1/)) it or have already become perfect ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)), but I press on so that I may lay hold of that for which ([G3739 hos](https://www.blueletterbible.org/lexicon/g3739/kjv/tr/0-1/)) also I was laid hold of by Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
 
-> **[Philippians 1:6](https://www.biblegateway.com/passage/?search=Philippians%201%3A6&version=ESV)** - For I am confident of this very thing, that He who began a good work (G2041 ergon) in you will perfect it until the day (G2250 hemera) of Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
+> **[Philippians 1:6](https://www.biblegateway.com/passage/?search=Philippians%201%3A6&version=ESV)** - For I am confident of this very thing, that He who began a good work ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)) in you will perfect it until the day (G2250 hemera) of Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
 
 
 ## Having suffered for righteousness-sake
@@ -22951,13 +22955,15 @@ Jesus mends ([G2675 katartizo](https://www.blueletterbible.org/lexicon/g2675/kjv
 
 ## Without lack
 
-> **[James 1:4](https://www.biblegateway.com/passage/?search=James%201%3A4&version=ESV)** - And let endurance have its perfect (G5046 teleios) result ([G1435 doron](https://www.blueletterbible.org/lexicon/g1435/kjv/tr/0-1/)), so that you may be perfect (G5046 teleios) and complete, lacking in nothing.
+> **[James 1:4](https://www.biblegateway.com/passage/?search=James%201%3A4&version=ESV)** - And let endurance have its perfect ([5046. teleios](https://biblehub.com/greek/5046.htm)) result ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)), so that you may be perfect ([G5046 teleios](https://www.blueletterbible.org/lexicon/g5046/kjv/tr/0-1/)) and complete, lacking in nothing. (NASB)
 
 > **[James 2:22](https://www.biblegateway.com/passage/?search=James%202%3A22&version=ESV)** - You see that faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was working with ([4903. sunergeó](https://biblehub.com/greek/4903.htm)) his works ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)), and as a result of the works ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)), faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) was perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/));
 
 -   **[4903. sunergeó](https://biblehub.com/greek/4903.htm):** Definition: to work together. Usage: I cooperate with, work together.
 
-> **[I John 2:5](https://www.biblegateway.com/passage/?search=1%20John%202%3A5&version=ESV)** - but whoever keeps His word (G3056 logos), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him:
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+> **[I John 2:5-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A5-6&version=ESV)** - but **whoever keeps ([5083. téreó](https://biblehub.com/greek/5083.htm)) His word** ([G3056 logos](https://www.blueletterbible.org/lexicon/g3056/kjv/tr/0-1/)), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him: whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
 
 > **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has seen God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) at any time; if we love ([G25 agapao](https://www.blueletterbible.org/lexicon/g25/kjv/tr/0-1/)) one another, God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) abides in us, and His love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) is perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)) in us.
 
@@ -23002,7 +23008,9 @@ Jesus' sacrifice is comprehensive:
 
 ### Love / knowing Jesus / Truth
 
-> **[I John 2:5](https://www.biblegateway.com/passage/?search=1%20John%202%3A5&version=ESV)** - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that we are in him: (ESV)
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+> **[I John 2:5-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A5-6&version=ESV)** - but **whoever keeps ([5083. téreó](https://biblehub.com/greek/5083.htm)) His word** ([G3056 logos](https://www.blueletterbible.org/lexicon/g3056/kjv/tr/0-1/)), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him: whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
@@ -27296,7 +27304,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org305f5c5)
+See: [33.4.1](#orga4c5115)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -28043,7 +28051,7 @@ A person must/should **do** what Jesus said.
 
 Justified ***through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ.***
 
-> **[Galatians 2:16](https://www.biblegateway.com/passage/?search=Galatians%202%3A16&version=ESV)** - nevertheless (G1161 de) knowing (G3609 oikeios) that a man (G444 anthropos) is not justified (G1344 dikaioo) by the works (G2041 ergon) of the Law (G3551 nomos) but through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)), even (G2532 kai) we have believed ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)), so (G2443 hina) that we may be justified (G1344 dikaioo) by faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) and not by the works (G2041 ergon) of the Law (G3551 nomos); since (G3754 hoti) by the works (G2041 ergon) of the Law (G3551 nomos) no (G3756 ou) ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) will be justified (G1344 dikaioo).
+> **[Galatians 2:16](https://www.biblegateway.com/passage/?search=Galatians%202%3A16&version=ESV)** - nevertheless (G1161 de) knowing (G3609 oikeios) that a man (G444 anthropos) is not justified (G1344 dikaioo) by the works ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)) of the Law (G3551 nomos) but through (G1223 dia) faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)), even (G2532 kai) we have believed ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)), so (G2443 hina) that we may be justified (G1344 dikaioo) by faith ([G4102 pistis](https://www.blueletterbible.org/lexicon/g4102/kjv/tr/0-1/)) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) and not by the works ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)) of the Law (G3551 nomos); since ([G3754 hoti](https://www.blueletterbible.org/lexicon/g3754/kjv/tr/0-1/)) by the works ([G2041 ergon](https://www.blueletterbible.org/lexicon/g2041/nasb95/mgnt/0-1/)) of the Law (G3551 nomos) no (G3756 ou) ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) flesh ([G4561 sarx](https://www.blueletterbible.org/lexicon/g4561/kjv/tr/0-1/)) will be justified (G1344 dikaioo).
 
 Justified through (G1223 dia) faith (G4102 **pistis**) in Christ ([G5547 Christos](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/)) Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)).
 Pistis is a strong word for faith that doesn't merely encapsulate belief, but it includes trust.

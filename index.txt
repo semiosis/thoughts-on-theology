@@ -3837,8 +3837,8 @@ The Apostle John also commands us to:
   1 John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
 
-Whoever keeps His commandments (plural) abides in Jesus, and Jesus in them. Yes, so I think we must believe Jesus
-and obey Him:
+Whoever keeps (5083. tereo) His commandments (plural) abides in Jesus, and Jesus in them. Yes, so I think we must
+believe Jesus and obey Him:
 
   I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
   in us, by the Spirit whom he has given us. (ESV)
@@ -4698,8 +4698,12 @@ On the other hand, if we obey Jesus we will never see death:
 
   John 8:51 - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
-  I John 2:5-6 - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure
-  that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing
+love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+  I John 2:5-6 - but whoever keeps (5083. tereo) His word (G3056 logos), in him the love (G26 agape) of God (G2316
+  theos) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him: whoever
+  says he abides in him ought to walk in the same way in which he walked. (ESV)
 
 Repent, be sanctified, love God and your neighbour, believe and obey Jesus:
 
@@ -11353,10 +11357,14 @@ Obey:
   I John 5:3 - For this is the love of God, that we keep his commandments. And his commandments are not
   burdensome. (ESV)
 
-Believe and obey:
+Believe and obey and treasure God and people:
 
-  I John 2:5 - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that
-  we are in him:
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing
+love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+  I John 2:5-6 - but whoever keeps (5083. tereo) His word (G3056 logos), in him the love (G26 agape) of God (G2316
+  theos) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him: whoever
+  says he abides in him ought to walk in the same way in which he walked. (ESV)
 
   Jude 1:21 - keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to
   eternal life.
@@ -33068,8 +33076,8 @@ Jesus mends (G2675 katartizo) us after a little suffering, and stabilises (G4741
 
 45.7. Without lack
 
-  James 1:4 - And let endurance have its perfect (G5046 teleios) result (G1435 doron), so that you may be perfect
-  (G5046 teleios) and complete, lacking in nothing.
+  James 1:4 - And let endurance have its perfect (5046. teleios) result (G2041 ergon), so that you may be perfect
+  (G5046 teleios) and complete, lacking in nothing. (NASB)
 
   James 2:22 - You see that faith (G4102 pistis) was working with (4903. sunergeo) his works (G2041 ergon), and as
   a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
@@ -33077,8 +33085,12 @@ Jesus mends (G2675 katartizo) us after a little suffering, and stabilises (G4741
 4903. sunergeo
 Definition: to work together. Usage: I cooperate with, work together.
 
-  I John 2:5 - but whoever keeps His word (G3056 logos), in him the love (G26 agape) of God (G2316 theos) has
-  truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him:
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing
+love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+  I John 2:5-6 - but whoever keeps (5083. tereo) His word (G3056 logos), in him the love (G26 agape) of God (G2316
+  theos) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him: whoever
+  says he abides in him ought to walk in the same way in which he walked. (ESV)
 
   I John 4:12 - No one has seen God (G2316 theos) at any time; if we love (G25 agapao) one another, God (G2316
   theos) abides in us, and His love (G26 agape) is perfected (G5048 teleioo) in us.
@@ -33138,8 +33150,12 @@ Jesus' sacrifice is comprehensive:
 
 45.8.4. Love / knowing Jesus / Truth
 
-  I John 2:5 - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that
-  we are in him: (ESV)
+In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing
+love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+
+  I John 2:5-6 - but whoever keeps (5083. tereo) His word (G3056 logos), in him the love (G26 agape) of God (G2316
+  theos) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him: whoever
+  says he abides in him ought to walk in the same way in which he walked. (ESV)
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- that I may know him and
@@ -49821,7 +49837,7 @@ Date: 2024-09-26 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-26 Thu 08:53
+Created: 2024-09-26 Thu 09:39
 
 Validate
 
