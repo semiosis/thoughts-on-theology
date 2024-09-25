@@ -2834,8 +2834,15 @@ through Christ:
 The Apostles were working with Christ. I believe the Apostles also here are exhorting believers to work with
 Christ to receive the grace of God:
 
-  II Corinthians 6:1 - Working together with him, then, we appeal to you not to receive the grace of God in vain.
+  II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
+  righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
+
+  James 2:22 - You see that faith (G4102 pistis) was working with (4903. sunergeo) his works (G2041 ergon), and as
+  a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
+
+4903. sunergeo
+Definition: to work together. Usage: I cooperate with, work together.
 
   II Corinthians 7:15 - And his affection for you is even greater, as he remembers the obedience of you all, how
   you received him with fear and trembling. (ESV)
@@ -4483,6 +4490,12 @@ two verses because it's revealing to to read them side by side:
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
 
+  James 2:22 - You see that faith (G4102 pistis) was working with (4903. sunergeo) his works (G2041 ergon), and as
+  a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
+
+4903. sunergeo
+Definition: to work together. Usage: I cooperate with, work together.
+
 We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
 of righteousness to God. We should be practicing righteousness, practicing love and holiness and truth:
 
@@ -5883,8 +5896,8 @@ after He has washed us:
 
     o Eph 2:8 - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is
       the gift (G1435 doron) of God; (NASB)
-    o Eph 2:9 - not as a result of works (G1435 doron), so that no one may boast. (NASB)
-    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G1435 doron), which God
+    o Eph 2:9 - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
+    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God
       prepared beforehand so that we would walk in them. (NASB)
 
 |  :  1435  doron  do'-ron
@@ -14977,9 +14990,10 @@ Paul the Apostle met James, brother of Jesus:
 Interestingly, James believes that a person is justified not by faith alone, but by works of faith:
 
   James 2:21-24 - Was not Abraham our father justified by works when he offered up Isaac his son on the altar? You
-  see that faith was working with his works, and as a result of the works, faith was perfected; and the Scripture
-  was fulfilled which says, "And Abraham believed God, and it was reckoned to him as righteousness," and he was
-  called the friend of God. You see that a man is justified by works and not by faith alone.
+  see that faith was working with (4903. sunergeo) his works, and as a result of the works, faith was perfected;
+  and the Scripture was fulfilled which says, "And Abraham believed God, and it was reckoned to him as
+  righteousness," and he was called the friend of God. You see that a man is justified by works and not by faith
+  alone.
 
 Fear-of-God:
 
@@ -19378,8 +19392,8 @@ a gift to us - us being in Him:
 
     o Eph 2:8 - For by grace you have been saved through faith (G4102 pistis); and that not of yourselves, it is
       the gift (G1435 doron) of God; (NASB)
-    o Eph 2:9 - not as a result of works (G1435 doron), so that no one may boast. (NASB)
-    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G1435 doron), which God
+    o Eph 2:9 - not as a result of works (G2041 ergon), so that no one may boast. (NASB)
+    o Eph 2:10 - For we are His workmanship, created in Christ Jesus for good works (G2041 ergon), which God
       prepared beforehand so that we would walk in them. (NASB)
 
 John Piper puts it this way: "The first act of saving faith justifies and the subsequent ones justify too". That's
@@ -27227,10 +27241,10 @@ holiness, and part of the fruit of the Holy Spirit in that holiness is self-cont
 
 28.3. Friends of God obey God
 
-  James 2:22-24 - You see that faith was working with his works, and as a result of the works, faith was
-  perfected; and the Scripture was fulfilled which says, "And Abraham believed God, and it was reckoned to him as
-  righteousness," and he was called the friend of God. You see that a man is justified by works and not by faith
-  alone.
+  James 2:22-24 - You see that faith was working with (4903. sunergeo) his works, and as a result of the works,
+  faith was perfected; and the Scripture was fulfilled which says, "And Abraham believed God, and it was reckoned
+  to him as righteousness," and he was called the friend of God. You see that a man is justified by works and not
+  by faith alone.
 
   John 15:14 - You are my friends if you do what I command you.
 
@@ -33057,8 +33071,11 @@ Jesus mends (G2675 katartizo) us after a little suffering, and stabilises (G4741
   James 1:4 - And let endurance have its perfect (G5046 teleios) result (G1435 doron), so that you may be perfect
   (G5046 teleios) and complete, lacking in nothing.
 
-  James 2:22 - You see that faith (G4102 pistis) was working with his works (G1435 doron), and as a result of the
-  works (G1435 doron), faith (G4102 pistis) was perfected (G5048 teleioo);
+  James 2:22 - You see that faith (G4102 pistis) was working with (4903. sunergeo) his works (G2041 ergon), and as
+  a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
+
+4903. sunergeo
+Definition: to work together. Usage: I cooperate with, work together.
 
   I John 2:5 - but whoever keeps His word (G3056 logos), in him the love (G26 agape) of God (G2316 theos) has
   truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him:
@@ -43898,7 +43915,7 @@ immorality and other sin
   godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires
   all people to be saved and to come to the knowledge of the truth.
 
-  I Timothy 2:10 - but rather by means of good works (G1435 doron), as is proper for women making a claim to
+  I Timothy 2:10 - but rather by means of good works (G2041 ergon), as is proper for women making a claim to
   godliness.
 
   I Timothy 3:16 - By common confession, great is the mystery (G3466 musterion) of godliness (G2150 eusebeia): He
@@ -49800,11 +49817,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-25 Wed 00:00
+Date: 2024-09-26 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-25 Wed 20:57
+Created: 2024-09-26 Thu 08:53
 
 Validate
 
