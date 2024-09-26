@@ -588,7 +588,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org972c1d5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf58aed6) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -6117,17 +6117,31 @@ Faith is both believing and obedient, even faith in the heart:
 
 ### The Holy Spirit is the living water
 
-> **[John 7:37-39](https://www.biblegateway.com/passage/?search=John%207%3A37-39&version=ESV)** - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone thirsts, let him come to me and drink. **Whoever believes in me**, as the Scripture has said, **Out of his heart will flow rivers of living water**. Now this he said about the Spirit, whom those who believed in him were to receive, for as yet the Spirit had not been given, because Jesus was not yet glorified. (ESV)
+We trust Jesus (Yeshua), so we accept and treasure His words, so we trust in Him and obey Him out of trust and He is our strength, and song and Yahweh becomes our salvation. In trusting Jesus ([Yeshua](https://biblehub.com/hebrew/3444.htm)) we trust Jehovah (Yahweh) who has sent Jesus (Yeshua):
 
-I desire You, Lord Jesus Christ! Please, God, let me always believe in You!
+> **[Isaiah 12:1-3](https://www.biblegateway.com/passage/?search=Isaiah%2012%3A1-3&version=ESV)** - You will say in that day: I will give thanks to you, O LORD ([3068. Yhvh)](https://biblehub.com/hebrew/3068.htm), for though you were angry with me, your anger turned away, that you might comfort me. Behold, God is my salvation; I will trust ([982. batach](https://biblehub.com/hebrew/982.htm)), and will not be afraid; for the LORD GOD ([3068. Yhvh](https://biblehub.com/hebrew/3068.htm)) is my strength ([5797. oz](https://biblehub.com/hebrew/5797.htm)) and my song ([2176. zimrath)](https://biblehub.com/hebrew/2176.htm), and he has become my salvation (**[3444. yeshuah](https://biblehub.com/hebrew/3444.htm)**). With joy ([8342. sason](https://biblehub.com/hebrew/8342.htm)) you will draw water ([4325. mayim](https://biblehub.com/hebrew/4325.htm)) from the wells of salvation.\_ (ESV)
 
-> **[Revelation of John 22:17](https://www.biblegateway.com/passage/?search=Revelation%2022%3A17&version=ESV)** - The Spirit and the Bride say, Come. And let the one who hears say, Come. And let the one who is **thirsty** come; let the one who desires take the **water of life without price**. (ESV)
+> **[John 7:37-39](https://www.biblegateway.com/passage/?search=John%207%3A37-39&version=ESV)** - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone thirsts ([1372. dipsaó](https://biblehub.com/greek/1372.htm)), let him come to me and drink ([4095. pinó](https://biblehub.com/greek/4095.htm)). **Whoever believes in me**, as the Scripture has said, **Out of his heart will flow rivers of living water**. Now this he said about the Spirit, whom those who believed in him were to receive, for as yet the Spirit had not been given, because Jesus was not yet glorified. (ESV)
 
-Stay thirsty people!
+-   **[1372. dipsaó](https://biblehub.com/greek/1372.htm):** Definition: to thirst. Usage: I thirst for, desire earnestly.
+
+I desire You, Lord Jesus Christ! Please, God, let me always believe in You, and trust in You! Thank You God for Your mercy!
+
+> **[Revelation of John 22:17](https://www.biblegateway.com/passage/?search=Revelation%2022%3A17&version=ESV)** - The Spirit and the Bride say, Come. And let the one who hears say, Come. And let the one who is **thirsty** come; let the one who desires take the **water of life without price ([1432. dórean](https://biblehub.com/greek/1432.htm))**. (ESV)
+
+-   **[1432. dórean](https://biblehub.com/greek/1432.htm):** Definition: as a gift, to no purpose.  Usage: as a free gift, without payment, freely.  Cognate: 1432 dōreán(the adverbial form of 1431/dōrea) – something freely done (as gratis), i.e. without "cause"; unearned (undeserved); freely given (without cost) hence not done out of mere obligation or compulsion. See 1431 (dōrea).
+
+Stay thirsty people! Keep trusting Jesus, trusting in Him, treasuring and trusting His words, trusting in God.
 
 > **[Luke 8:6](https://www.biblegateway.com/passage/?search=Luke%208%3A6&version=ESV)** - And some fell on the rock, and as it grew up, it withered away, because it had no **moisture**. (ESV)
 
 > **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)** - The ones along the path are those who have heard. Then the devil comes and takes away the word from their hearts, so that they may not **believe and be saved**. (ESV)
+
+> **[Romans 3:24](https://www.biblegateway.com/passage/?search=Romans%203%3A24&version=ESV)** - and are justified by his grace as a gift ([1432. dórean](https://biblehub.com/greek/1432.htm)), through the redemption that is in Christ Jesus, (ESV)
+
+> **[Isaiah 44:2-4](https://www.biblegateway.com/passage/?search=Isaiah%2044%3A2-4&version=ESV)** - Thus says the LORD who made you, who formed you from the womb and will help you: Fear not, O Jacob my servant, Jeshurun whom I have chosen. For I will pour water on the thirsty land, and streams on the dry ground; I will pour my Spirit upon your offspring, and my blessing on your descendants. They shall spring up among the grass like willows by flowing streams. (ESV)
+
+> **[Isaiah 58:9-11](https://www.biblegateway.com/passage/?search=Isaiah%2058%3A9-11&version=ESV)** - Then you shall call, and the LORD will answer; you shall cry, and he will say, Here I am. If you take away the yoke from your midst, the pointing of the finger, and speaking wickedness, if you pour yourself out for the hungry and satisfy the desire of the afflicted, then shall your light rise in the darkness and your gloom be as the noonday. And the LORD will guide you continually and satisfy your desire in scorched places and make your bones strong; and you shall be like a watered garden, like a spring of water, whose waters do not fail. (ESV)
 
 
 ### Belief leads to obedience, which leads to knowledge of the Truth
@@ -13447,7 +13461,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga4c5115)
+See: [33.4.1](#org3192a65)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -27304,7 +27318,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga4c5115)
+See: [33.4.1](#org3192a65)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
