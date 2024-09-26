@@ -855,6 +855,13 @@ commandments as Jesus has taught us to keep them:
   And I will remove the heart of stone from your flesh and give you a heart of flesh. And I will put my Spirit
   within you, and cause you to walk in my statutes and be careful to obey my rules. (ESV)
 
+Polycarp 2:1
+Wherefore gird up your loins and serve God in fear and truth, forsaking the vain and empty talking and the error
+of the many, for that ye have believed on Him that raised our Lord Jesus Christ from the dead and gave unto him
+glory and a throne on His right hand; unto whom all things were made subject that are in heaven and that are on
+the earth; to whom every creature that hath breath doeth service; who cometh as judge of quick and dead; whose
+blood God will require of them that are disobedient unto Him.
+
 A short version of my testimony of being born-again and Jesus setting me free:
 
 - Baptised as a teenager in Vanuatu in 2005
@@ -3247,6 +3254,17 @@ We overcome the world, reigning in life thanks to the free gift of righteousness
   condemnation, but the free gift following many trespasses brought justification. If, because of one man's
   trespass, death reigned through that one man, much more will those who receive the abundance of grace and the
   free gift of righteousness reign (basileuo) in life through the one man Jesus Christ. (ESV)
+
+Polycarp 5:1
+Knowing then that God is not mocked, we ought to walk worthily of His commandment and His glory.
+
+Polycarp 5:2
+In like manner deacons should be blameless in the presence of His righteousness, as deacons of God and Christ and
+not of men; not calumniators, not double-tongued, not lovers of money, temperate in all things, compassionate,
+diligent, walking according to the truth of the Lord who became a minister (deacon) of all. For if we be well
+pleasing unto Him in this present world, we shall receive the future world also, according as He promised us to
+raise us from the dead, and that if we conduct ourselves worthily of Him we shall also reign with Him, if indeed
+we have faith.
 
   Ezekiel 11:19-20 - And I will give them one heart, and a new spirit I will put within them. I will remove the
   heart of stone from their flesh and give them a heart of flesh, that they may walk in my statutes and keep my
@@ -5714,6 +5732,10 @@ But we must forgive:
   Mark 11:24-25 - Therefore I tell you, whatever you ask in prayer, believe that you have received it, and it will
   be yours. And whenever you stand praying, forgive, if you have anything against anyone, so that your Father also
   who is in heaven may forgive you your trespasses. (ESV)
+
+Polycarp 6:2
+If then we entreat the Lord that He would forgive us, we also ought to forgive: for we are before the eyes of our
+Lord and God, and we must all stand at the judgment-seat of Christ, and each man must give an account of himself.
 
 If God is for us, who can be against us?
 
@@ -8947,6 +8969,13 @@ Our heart must be close to Jesus:
 
   Matthew 5:6 - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied. (ESV)
 
+If we trust God, we trust in Him. If we trust in Him, we trust Him. We trust Jesus' words. We trust Jehovah's
+words. Trusting in is not naturally separate from trusting. For the one trusting (it says trusting, not trusted),
+out of their belly will flow living water:
+
+  John 7:38 - The [one] believing (4100. pisteuo) in Me as has said the Scripture Rivers out of the belly of him
+  will flow of water living (Interlinear)
+
 Faith is both believing and obedient, even faith in the heart:
 
 
@@ -9001,8 +9030,12 @@ who has sent Jesus (Yeshua). It's Jesus Christ who saves us. It's Yahweh who sav
   those who believed in him were to receive, for as yet the Spirit had not been given, because Jesus was not yet
   glorified. (ESV)
 
-  John 7:38 - The [one] believing in Me as has said the Scripture Rivers out of the belly of him will flow of
-  water living (Interlinear)
+If we trust God, we trust in Him. If we trust in Him, we trust Him. We trust Jesus' words. We trust Jehovah's
+words. Trusting in is not naturally separate from trusting. For the one trusting (it says trusting, not trusted),
+out of their belly will flow living water:
+
+  John 7:38 - The [one] believing (4100. pisteuo) in Me as has said the Scripture Rivers out of the belly of him
+  will flow of water living (Interlinear)
 
 1372. dipsao
 Definition: to thirst. Usage: I thirst for, desire earnestly.
@@ -9044,8 +9077,8 @@ trusting in God and you'll never be thirsty again.
   places and make your bones strong; and you shall be like a watered garden, like a spring of water, whose waters
   do not fail. (ESV)
 
-  John 7:38 - The [one] believing in Me as has said the Scripture Rivers out of the belly of him will flow of
-  water living (Interlinear)
+  John 7:38 - The [one] believing (4100. pisteuo) in Me as has said the Scripture Rivers out of the belly of him
+  will flow of water living (Interlinear)
 
 |  3588      4100      1519 1473     2531   2036     3588    1124      4215
 |  ho        pisteuon  eis  eme      kathos eipen    he      graphe    Potamoi
@@ -20102,6 +20135,13 @@ person, taking care of them with mercy:
 
 See: 33.4.1
 
+Polycarp 2:1
+Wherefore gird up your loins and serve God in fear and truth, forsaking the vain and empty talking and the error
+of the many, for that ye have believed on Him that raised our Lord Jesus Christ from the dead and gave unto him
+glory and a throne on His right hand; unto whom all things were made subject that are in heaven and that are on
+the earth; to whom every creature that hath breath doeth service; who cometh as judge of quick and dead; whose
+blood God will require of them that are disobedient unto Him.
+
 17.0.2. To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and
 salvation
 
@@ -23610,6 +23650,12 @@ See, Jesus actually taught people to practice, but without hypocrisy:
   the place of honor at feasts and the best seats in the synagogues and greetings in the marketplaces and being
   called rabbi by others. (ESV)
 
+Polycarp 6:3
+Let us therefore so serve Him with fear and all reverence, as He himself gave commandment and the Apostles who
+preached the Gospel to us and the prophets who proclaimed beforehand the coming of our Lord; being zealous as
+touching that which is good, abstaining from offenses and from the false brethren and from them that bear the name
+of the Lord in hypocrisy, who lead foolish men astray.
+
 The law is not of the flesh. The law is spiritual:
 
   Romans 7:14 - For we know that the law is spiritual, but I am of the flesh, sold under sin. (ESV)
@@ -26310,7 +26356,12 @@ The rest of the Mosaic law is still useful for training in righteousness. It sho
 to God and in love for God and one's neighbour. But we are not under the Mosaic law, but we are under the law of
 Christ. We have faith in Christ.
 
-We can pursue the righteousness that is through faith (G4100 pisteuo) in Jesus Christ.
+We can pursue the righteousness that is through faith (G4100 pisteuo) in Jesus Christ:
+
+Polycarp 8:1
+Let us therefore without ceasing hold fast by our hope and by the earnest of our righteousness, which is Jesus
+Christ who took up our sins in His own body upon the tree, who did no sin, neither was guile found in His mouth,
+but for our sakes He endured all things, that we might live in Him.
 
 We must set our hope on Jesus, not on Moses.
 
@@ -29133,7 +29184,12 @@ to make this transition:
 
 And they will know the Truth.
 
-31.3.1. Don't be an enemy of the cross to others - Don't allow enemies of the cross to deter you
+31.3.1. Don't be an enemy of the cross to others - Don't allow enemies of the cross to deter you, but rather pray
+for them
+
+Polycarp 12:3
+Pray for all the saints. Pray also for kings and powers and princes and for them that persecute and hate you and
+for the enemies of the cross, that your fruit may be manifest among all men, that ye may be perfect in Him.
 
 We must be thinking as a person of Heaven.
 
@@ -36499,7 +36555,7 @@ What's interesting to me is that Jesus is the bridegroom of His church:
 Read
 alexiscarucci.com: Jesus is The Bridegroom - Living the Abundant Life
 
-And Adam had a rib taken from Him to make Eve:
+And Adam had a rib taken from him to make Eve:
 
   Genesis 2:22 - And the rib that the LORD God had taken from the man he made into a woman and brought her to
   the man. (ESV)
@@ -36914,6 +36970,24 @@ harmony. (ESV)
 
 - All people, even enemies
 - https://biblehub.com/greek/agapa_25.htm
+
+  Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who are of
+  the household of faith. (ESV)
+
+Those who listen to those who are in Christ are of God. Those who listen to world are of the world.
+
+  I John 4:5-6 - They are from the world; therefore they speak from the world, and the world listens to them. We
+  are from God. Whoever knows God listens to us; whoever is not from God does not listen to us. By this we know
+  the Spirit of truth and the spirit of error. (ESV)
+
+  John 17:14-15 - I have given them your word, and the world has hated them because they are not of the world,
+  just as I am not of the world. I do not ask that you take them out of the world, but that you keep them from the
+  evil one. (ESV)
+
+  Philippians 2:14-16 - Do all things without grumbling or questioning, that you may be blameless and innocent,
+  children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights
+  in the world, holding fast to the word of life, so that in the day of Christ I may be proud that I did not run
+  in vain or labor in vain. (ESV)
 
 54.2.3. What Christians must not agape love
 
@@ -39426,6 +39500,12 @@ Jesus' words do not pass away, and the truths He spoke before being crucified re
 Jesus' words are the words of eternal life:
 
   John 6:68 - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, (ESV)
+
+Polycarp 2:3
+but remembering the words which the Lord spake, as He taught; Judge not that ye be not judged. Forgive, and it
+shall be forgiven to you. Have mercy that ye may receive mercy. With what measure ye mete, it shall be measured to
+you again; and again Blessed are the poor and they that are persecuted for righteousness' sake, for theirs is the
+kingdom of God.
 
 To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
@@ -46929,6 +47009,11 @@ He makes to those who love Him back:
   John 10:27-28 - My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they
   will never perish, and no one will snatch them out of my hand. (ESV)
 
+Polycarp 2:2
+Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and love
+the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking, false
+witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
+
 But in all fairness, at this time I still didn't have a relationship with God where I considered Christ's law and
 bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part
 of agape love. And for the sake of trying to solve my own problems, I was not at all times counting them as more
@@ -49895,7 +49980,7 @@ Date: 2024-09-26 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-26 Thu 13:05
+Created: 2024-09-26 Thu 22:34
 
 Validate
 
