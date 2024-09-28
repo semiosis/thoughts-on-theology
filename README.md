@@ -597,7 +597,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8e7126e) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb8803b5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4320,7 +4320,11 @@ I think a lot of people are literally blinded from being able to see the truth o
 
 > **[II Corinthians 4:4](https://www.biblegateway.com/passage/?search=2%20Corinthians%204%3A4&version=ESV)** - In their case **the god of this world has blinded the minds of the unbelievers**, to keep them from seeing the light of the gospel of the glory of Christ, who is the image of God. (ESV)
 
+[I rebuke AI fiction](http://github.com/semiosis/pen.el/blob/master/docs/journal/16.02.24.org) in Jesus Christ's name and I choose to allow my mind to be conformed to the mind of Christ and I choose to listen to the voice of Christ and follow Christ. All of the generative AI stuff I consider to be unclean.
+
 God I hate living in this world. It's a cesspool.
+
+> **[Revelation of John 18:4](https://www.biblegateway.com/passage/?search=Revelation%2018%3A4&version=ESV)** - Then I heard another voice from heaven saying, Come out of her, my people, lest you take part in her sins, lest you share in her plagues; (ESV)
 
 Everyone will give an account of themself to God:
 
@@ -13557,7 +13561,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgce5a846)
+See: [33.4.1](#orgd4787eb)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -27471,7 +27475,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgce5a846)
+See: [33.4.1](#orgd4787eb)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
