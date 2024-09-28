@@ -372,9 +372,11 @@ But we must not believe in vain. Rather, we must believe and hold fast to the go
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. (ESV)
 
-Bonhoeffer says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
+[Dietrich Bonhoeffer](https://www.youtube.com/watch?v=FVVImVBQ_nc) says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
 
 -   **Read:** [gbtseminary.org: Cheap Grace: Bonhoeffer and the Cost of Discipleship - Grace Bible Theological Seminary](https://gbtseminary.org/cheap-grace-bonhoeffer-and-the-cost-of-discipleship/)
+
+-   **Read:** [goodreads.com: The Cost of Discipleship Quotes by Dietrich Bonhoeffer](https://www.goodreads.com/work/quotes/2723088-nachfolge)
 
 We should disobey sin, and present ourselves to God as those alive from the dead, and our members as **instruments of righteousness to God**. We should be practicing righteousness, practicing love and holiness and truth:
 
@@ -597,7 +599,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb8803b5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org936b9f6) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3200,6 +3202,11 @@ I think [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) reads that t
 [youtube.com: Love Jesus More Than You Love Anything](https://www.youtube.com/watch?v=n9QP-cqwyAw)
 
 > **[Philippians 3:8](https://www.biblegateway.com/passage/?search=Philippians%203%3A8&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ (ESV)
+
+
+### Eschatology
+
+-   **I really appreciated Allie's video here:** [youtube.com: Eschatology, End Times and What's to Come  | Ep 134](https://www.youtube.com/watch?v=Yk3Eu0ST5Kk)
 
 
 ### How we should act how we're instructed to act while awaiting the Lord's return
@@ -13561,7 +13568,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgd4787eb)
+See: [33.4.1](#org4429b2a)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -17607,6 +17614,12 @@ I believe what Paul says here is that Christians who observe and follow the Tora
 > **[Luke 16:15-17](https://www.biblegateway.com/passage/?search=Luke%2016%3A15-17&version=ESV)** - And he said to them, You are those who justify yourselves before men, but God knows your hearts. For what is exalted among men is an abomination in the sight of God.  The Law and the Prophets were until John; since then the good news of the kingdom of God is preached, and everyone forces his way into it.  But it is easier for heaven and earth to pass away than for one dot of the Law to become void.
 
 > **[I Kings 11:38](https://www.biblegateway.com/passage/?search=1%20Kings%2011%3A38&version=ESV)** - And if you will listen to all that I command you, and will walk in my ways, and do what is right in my eyes by keeping my statutes and my commandments, as David my servant did, I will be with you and will build you a sure house, as I built for David, and I will give Israel to you.
+
+-   **[youtube.com: Put to Death the Deeds of the Body @time: 44 min 0 sec](https://youtube.com/watch?v=pCvxNfefBy8&t=2640):** Inheriting the world is huge and
+    Therefore, don't worry too much about
+    whether you or God's redeemed Israel (not secular Israel) will one day inherit
+    Israel, which they will, along with the
+    world.
 
 
 # Whoever puts their faith in Jesus, puts their faith in God
@@ -27475,7 +27488,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgd4787eb)
+See: [33.4.1](#org4429b2a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -34406,6 +34419,38 @@ My sleep has in recent times become highly disrupted as I've been bombarded with
 -   **[youtube.com: How to Seek the Holy Spirit @time: 16 min 59 sec](https://youtube.com/watch?v=xqgeT26BAnE&t=1019):** He is the spirit of Truth according to **[John 14:17](https://www.biblegateway.com/passage/?search=John%2014%3A17&version=ESV)**, **[John 15:26](https://www.biblegateway.com/passage/?search=John%2015%3A26&version=ESV)**, **[John 16:13](https://www.biblegateway.com/passage/?search=John%2016%3A13&version=ESV)**, and He brings to our minds whatever truth we need, little or much. He will bring it to your mind. <ins>All the forces of darkness will seek to confuse you and obscure the light of truth in that hour.</ins> All the proportions of power in this world will appear to make God look distant, small, ineffective — like nothing. That is the goal of Satan and sin: to make God look useless and worthless. **The work of the Holy Spirit in that hour — the work of the Spirit of truth — is to rest upon you with whatever measure of truth you will need in order to be faithful.**
 
 AMEN, John Piper. Yup, this is my experience too. God is faithful though even when I am unfaithful.
+
+> **[Romans 8:20-21](https://www.biblegateway.com/passage/?search=Romans%208%3A20-21&version=ESV)** - For the creation was subjected to futility, not willingly, but because of him who subjected it, in hope that the creation itself will be set free from its bondage to decay and obtain the freedom of the glory of the children of God. (ESV)
+
+Thanks to John Piper for helping me to maintain perspective on suffering, even for struggling against sin:
+
+> **[Romans 8:16-17](https://www.biblegateway.com/passage/?search=Romans%208%3A16-17&version=ESV)** - The Spirit himself bears witness with our spirit that we are children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be glorified with him. (ESV)
+
+-   **[youtube.com: Put to Death the Deeds of the Body @time: 55 min 28 sec](https://youtube.com/watch?v=pCvxNfefBy8&t=3328):** The global context of my
+    suffering is that he says, "all creation is
+    awaiting my coming out into
+    sonship". Until you are manifested,
+    creation's holding back, and when you are
+    manifested creation will say, "all right,
+    here we come." And all the futility of the
+    natural world will be removed. All
+    the horrors of of natural calamities
+    will be taken away. But that's all
+    waiting until God does his redemptive
+    work on you.
+    
+    Aven though it may seem strange to you
+    that if a person comes to you with
+    suffering that you'd want to help them
+    get into a global context, maybe do it at
+    a better time. Like right now we're doing
+    it so that when you go home and find
+    some horrible thing has happened, you
+    will be able not just to deal with it in
+    some little microcosm of your life and
+    how God works everything together for
+    your good, but that it's part of
+    something absolutely huge.
 
 -   **Read:** [desiringgod.org: How to Seek the Holy Spirit | Desiring God](https://www.desiringgod.org/messages/how-to-seek-the-holy-spirit)
 
