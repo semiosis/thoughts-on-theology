@@ -2535,6 +2535,8 @@ I believe that among other things I have had to reject or repent from:
 
 - a spirit of Mormomism
 - a spirit of Islam
+- youtube.com: How Thomas Aquinas refuted Muhammad and Islam
+- Summa Contra Gentiles of St. Thomas Aquinas
 - a spirit of LGBT
 - a spirit of Hinduism
 - a spirit of Gnosticism
@@ -6752,6 +6754,15 @@ Scriptures and I can understand the concern about that:
 
   Exodus 23:13 - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor
   let it be heard on your lips. (ESV)
+
+Let's have reverence for Jehovah God and serve Him:
+
+  Malachi 3:15-18 - And now we call the arrogant blessed. Evildoers not only prosper but they put God to the test
+  and they escape. Then those who feared the LORD spoke with one another. The LORD paid attention and heard them,
+  and a book of remembrance was written before him of those who feared the LORD and esteemed his name. They shall
+  be mine, says the LORD of hosts, in the day when I make up my treasured possession, and I will spare them as a
+  man spares his son who serves him. Then once more you shall see _the distinction between the righteous and the
+  wicked, between one who serves God and one who does not serve him. (ESV)
 
 These Scriptures refers to Jesus' name:
 
@@ -50290,7 +50301,7 @@ Date: 2024-09-30 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-30 Mon 11:04
+Created: 2024-09-30 Mon 11:50
 
 Validate
 

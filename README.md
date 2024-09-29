@@ -599,7 +599,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5a79407) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org98026b0) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -854,7 +854,7 @@ Some people endure great suffering for serving God. Our obedience to God, having
 
 As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping the commandments of God and struggling with sin then we should make Him our number one love heart's desire and treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's true.
 
-I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"
+I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, ["God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"](https://youtu.be/iK3tz3LDrb0?t=381)
 
 > **[John 16:27-28](https://www.biblegateway.com/passage/?search=John%2016%3A27-28&version=ESV)** - for the Father himself loves you, because you have loved me and have believed that I came from God. I came from the Father and have come into the world, and now I am leaving the world and going to the Father. (ESV)
 
@@ -1738,6 +1738,8 @@ I believe that among other things I have had to reject or repent from:
 
 -   a spirit of Mormomism
 -   a spirit of Islam
+    -   [youtube.com: How Thomas Aquinas refuted Muhammad and Islam](https://www.youtube.com/watch?v=Vf70jEdwOF0)
+    -   [Summa Contra Gentiles of St. Thomas Aquinas](https://basilica.ca/documents/2016/10/St.%20Thomas%20Aquinas-The%20Summa%20Contra%20Gentiles.pdf)
 -   a spirit of LGBT
 -   a spirit of Hinduism
 -   a spirit of Gnosticism
@@ -4492,6 +4494,10 @@ However, I also neither like the way in which the names of other so-called gods 
 
 > **[Exodus 23:13](https://www.biblegateway.com/passage/?search=Exodus%2023%3A13&version=ESV)** - Pay attention to all that I have said to you, and make no mention of the names of other gods, nor let it be heard on your lips. (ESV)
 
+Let's have reverence for Jehovah God and serve Him:
+
+> **[Malachi 3:15-18](https://www.biblegateway.com/passage/?search=Malachi%203%3A15-18&version=ESV)** - And now we call the arrogant blessed. <ins>Evildoers</ins> not only prosper but they <ins>put God to the test</ins> and they escape. Then <ins>those who feared the LORD spoke with one another.</ins> The LORD paid attention and heard them, and a book of remembrance was written before him of **those who feared the LORD and esteemed his name.** They shall be mine, says the LORD of hosts, in the day when I make up my treasured possession, and <ins>I will spare them as a man spares his son who serves him.</ins> Then once more you shall see \_the distinction between the righteous and the wicked, between one who serves God and one who does not serve him. (ESV)
+
 These Scriptures refers to Jesus' name:
 
 > **[Matthew 18:20](https://www.biblegateway.com/passage/?search=Matthew%2018%3A20&version=ESV)** - For where two or three are gathered in my name, there am I among them. (ESV)
@@ -4511,7 +4517,7 @@ The JW are right to affirm that we must remember God's name. **[Exodus 3:15](htt
     5  Phonetic Spelling: (yeh-ho-vaw')
     6  Definition: the proper name of the God of Israel
 
-> **[Malachi 3:16](https://www.biblegateway.com/passage/?search=Malachi%203%3A16&version=ESV)** - Then those who feared the LORD spoke with one another. The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. (ESV)
+> **[Malachi 3:16](https://www.biblegateway.com/passage/?search=Malachi%203%3A16&version=ESV)** - Then <ins>those who feared the LORD spoke with one another.</ins> The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. (ESV)
 
 Father God has given Jesus Christ all authority in heaven and on earth. In other words, Jesus Christ is God, just as Jehovah is God and Holy Spirit is God:
 
@@ -11492,7 +11498,7 @@ Yeah, I agree with John Piper, for the most part. Loving God is not actually **f
 
 As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping the commandments of God and struggling with sin then we should make Him our number one love heart's desire and treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's true.
 
-I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"
+I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, ["God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"](https://youtu.be/iK3tz3LDrb0?t=381)
 
 > **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
@@ -13570,7 +13576,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org8b51ae8)
+See: [33.4.1](#orgfe704e5)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -14519,7 +14525,7 @@ The ones who do not submit to the righteousness of God, but do not accept the lo
 
 > **[Malachi 3:8](https://www.biblegateway.com/passage/?search=Malachi%203%3A8&version=ESV)** - **Will man rob God? Yet you are robbing me.** But you say, How have we robbed you? In your tithes and contributions. (ESV)
 
-> **[Malachi 3:15-18](https://www.biblegateway.com/passage/?search=Malachi%203%3A15-18&version=ESV)** - And **now we call the arrogant blessed. Evildoers not only prosper but they put God to the test and they escape.** Then those who feared the LORD spoke with one another. The LORD paid attention and heard them, and a book of remembrance was written before him of those who feared the LORD and esteemed his name. They shall be mine, says the LORD of hosts, in the day when **I make up my treasured possession, and I will spare them as a man spares his son who serves him.** Then once more you shall see the distinction between the righteous and the wicked, **between one who serves God and one who does not serve him.** (ESV)
+> **[Malachi 3:15-18](https://www.biblegateway.com/passage/?search=Malachi%203%3A15-18&version=ESV)** - And **now we call the arrogant blessed. <ins>Evildoers</ins> not only prosper but they <ins>put God to the test</ins> and they escape.** Then <ins>those who feared the LORD spoke with one another.</ins> The LORD paid attention and heard them, and a book of remembrance was written before him of **those who feared the LORD and esteemed his name.** They shall be mine, says the LORD of hosts, in the day when **I make up my treasured possession, and I will spare them as a man spares his son who serves him.** Then once more you shall see the distinction between the righteous and the wicked, **between one who serves God and one who does not serve him.** (ESV)
 
 God loved us first. We must accept that:
 
@@ -19502,7 +19508,7 @@ Yeah, I agree with John Piper, for the most part. Loving God is not actually **f
 
 As I understand it, **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** isn't saying that God's commandments are universally unburdensome to all people. It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping the commandments of God and struggling with sin then we should make Him our number one love heart's desire and treasure and seek Him first with all our heart and we will be able to find His commandments unburdensome! It's true.
 
-I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, "God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"
+I feel like I could still say, **"Loving God is obedience to God,"** but I would rather rephrase it as, ["God in His love gifted me to be able to love Him back and live. I can see in retrospect He had been working in my life and it's awesome and magnificent and I just want to cherish and obey God now, and God made the way for me to do that!"](https://youtu.be/iK3tz3LDrb0?t=381)
 
 > **[I John 5:2-3](https://www.biblegateway.com/passage/?search=1%20John%205%3A2-3&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that **we keep his commandments. And his commandments are not burdensome.**
 
@@ -27574,7 +27580,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org8b51ae8)
+See: [33.4.1](#orgfe704e5)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
