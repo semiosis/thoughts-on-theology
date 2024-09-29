@@ -599,7 +599,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7c9f857) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5a79407) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13570,7 +13570,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7bdd474)
+See: [33.4.1](#org8b51ae8)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -13579,6 +13579,48 @@ See: [33.4.1](#org7bdd474)
     unto whom all things were made subject that are in heaven and that
     are on the earth; to whom every creature that hath breath doeth
     service; who cometh as judge of quick and dead; **whose blood God will require of them that are disobedient unto Him.**
+
+
+## Walking in trusting faith in Jesus
+
+I honestly don't know everything and I don't have all the answers. But I think God is sanctifying me through faith. As we hold our faith, willing to do God's will, and trusting Him, we are sanctified - cleaned, washed, and things will become clearer. His spirit sanctifies us. His word sanctifies us. We are sanctified as we hold our faith in Him.
+
+Just keep trusting in, trusting Jesus, believing and obeying and treasuring from the heart and I think things will become clearer. That's what I'm doing.
+
+We trust Jesus (Yeshua), so we accept and treasure His words, so we trust in Him and obey Him out of trust and He is our strength, and song and Yahweh becomes our salvation. In trusting Jesus (Yeshua) we trust Jehovah (Yahweh) who has sent Jesus (Yeshua). It's Jesus Christ who saves us. It's Yahweh who saves us:
+
+> **[Isaiah 12:1-3](https://www.biblegateway.com/passage/?search=Isaiah%2012%3A1-3&version=ESV)** - You will say in that day: I will give thanks to you, O LORD [(H3068 Yhvh)](https://www.blueletterbible.org/lexicon/h3068/kjv/tr/0-1/), for though you were angry with me, your anger turned away, that you might comfort me. Behold, God is my salvation; I will trust [(H982 batach)](https://www.blueletterbible.org/lexicon/h982/kjv/tr/0-1/), and will not be afraid; for the LORD GOD [(H3068 Yhvh)](https://www.blueletterbible.org/lexicon/h3068/kjv/tr/0-1/) is my strength [(H5797 oz)](https://www.blueletterbible.org/lexicon/h5797/kjv/tr/0-1/) and my song [(H2176 zimrath)](https://www.blueletterbible.org/lexicon/h2176/kjv/tr/0-1/), and he has become my salvation [(H3444 yeshuah)](https://www.blueletterbible.org/lexicon/h3444/kjv/tr/0-1/). With joy [(H8342 sason)](https://www.blueletterbible.org/lexicon/h8342/kjv/tr/0-1/) you will draw water [(H4325 mayim)](https://www.blueletterbible.org/lexicon/h4325/kjv/tr/0-1/) from the wells of salvation. (ESV)
+
+> **[John 7:37-39](https://www.biblegateway.com/passage/?search=John%207%3A37-39&version=ESV)** - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone thirsts [(G1372 dipsaó)](https://www.blueletterbible.org/lexicon/g1372/kjv/tr/0-1/), let him come to me and drink [(G4095 pinó)](https://www.blueletterbible.org/lexicon/g4095/kjv/tr/0-1/). Whoever believes [(G4100 pisteuó)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) in me, as the Scripture has said, Out of his heart will flow rivers of living water. Now this he said about the Spirit, whom those who believed in him were to receive, for as yet the Spirit had not been given, because Jesus was not yet glorified. (ESV)
+
+> **[John 7:38](https://www.biblegateway.com/passage/?search=John%207%3A38&version=ESV)** - The [one] believing in Me as has said the Scripture Rivers out of the belly of him will flow of water living (Interlinear)
+
+God is our #1 treasure. Family in Christ is also treasure - we love one another as ourselves as companded. We must treasure family in Christ. Also God wants  all people to be saved. We are called to agape treasure all people, even our enemies. We want them to be saved too:
+
+> **[Leviticus 19:9-18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A9-18&version=ESV)** - When you reap the harvest of your land, you shall not reap your field right up to its edge, neither shall you gather the gleanings after your harvest. And you shall not strip your vineyard bare, neither shall you gather the fallen grapes of your vineyard. You shall leave them for the poor and for the sojourner: I am the LORD your God. You shall not steal; you shall not deal falsely; you shall not lie to one another. You shall not swear by my name falsely, and so profane the name of your God: I am the LORD. You shall not oppress your neighbor or rob him. The wages of a hired servant shall not remain with you all night until the morning. You shall not curse the deaf or put a stumbling block before the blind, but you shall fear your God: I am the LORD. You shall do no injustice in court. You shall not be partial to the poor or defer to the great, but in righteousness shall you judge your neighbor. You shall not go around as a slanderer among your people, and you shall not stand up against the life of your neighbor: I am the LORD. You shall not hate your brother in your heart, but you shall reason frankly with your neighbor, lest you incur sin because of him. You shall not take vengeance or bear a grudge against the sons of your own people, but you shall love your neighbor as yourself: I am the LORD. (ESV)
+
+Anyway, we should just keep trusting the Lord and maintain a good conscience before God, follow Him faithfully, trust Him and treasure his words and commandments. Love as he loved, walk as he walked. Like Peter on the water, we keep our eyes on Jesus - the eyes of our heart, and God takes care of us:
+
+> **[Matthew 14:28-33](https://www.biblegateway.com/passage/?search=Matthew%2014%3A28-33&version=ESV)** - And Peter answered him, Lord, if it is you, command me to come to you on the water. He said, Come. So Peter got out of the boat and walked on the water and came to Jesus. But when he saw the wind, he was afraid, and beginning to sink he cried out, Lord, save me. Jesus immediately reached out his hand and took hold of him, saying to him, O you of little faith, why did you doubt? And when they got into the boat, the wind ceased. And those in the boat worshiped him, saying, Truly you are the Son of God. (ESV)
+
+> **[I Timothy 1:18-20](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A18-20&version=ESV)** - This charge I entrust to you, Timothy, my child, in accordance with the prophecies previously made about you, that by them you may wage the good warfare, holding faith and a good conscience. By rejecting this, some have made shipwreck of their faith, among whom are Hymenaeus and Alexander, whom I have handed over to Satan that they may learn not to blaspheme. (ESV)
+
+The other thing is, we should put out faith on the Truth in the Bible because dreams and visions are very often lying:
+
+> **[Ezekiel 13:6](https://www.biblegateway.com/passage/?search=Ezekiel%2013%3A6&version=ESV)** - They have seen false visions and lying divinations. They say, Declares the LORD, when the LORD has not sent them, and yet they expect him to fulfill their word. (ESV)
+
+I get lied to in dreams and visions from the devil very often, even through other people. This is why it helps to do a good Bible study. So I trust what God has spoken through Bible:
+
+> **[Ephesians 4:11-14](https://www.biblegateway.com/passage/?search=Ephesians%204%3A11-14&version=ESV)** - And he gave the apostles, the prophets, the evangelists, the pastors and teachers, to equip the saints for the work of ministry, for building up the body of Christ, until we all attain to the unity of the faith and of the knowledge of the Son of God, to mature manhood, to the measure of the stature of the fullness of Christ, so that we may no longer be children, tossed to and fro by the waves and carried about by every wind of doctrine, by human cunning, by craftiness in deceitful schemes. (ESV)
+
+Spiritual dreams and visions happen, and God can speak to us through a dream, but the devil can also lie to us through a dream, so don't trust all your dreams. Most of the dreams I get I don't believe.
+So this is one reason why we should maintain a good conscience with God, because we don't want to be misled by demons:
+
+> **[I John 3:22-23](https://www.biblegateway.com/passage/?search=1%20John%203%3A22-23&version=ESV)** - and whatever we ask we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. (ESV)
+
+> **[I Timothy 1:18-20](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A18-20&version=ESV)** - This charge I entrust to you, Timothy, my child, in accordance with the prophecies previously made about you, that by them you may wage the good warfare, holding faith and a good conscience. By rejecting this, some have made shipwreck of their faith, among whom are Hymenaeus and Alexander, whom I have handed over to Satan that they may learn not to blaspheme. (ESV)
+
+-   **Song:** [youtube.com: Bob Fitts- Jesus Christ Is Lord {Medley} {Hosanna! Music} @time: 5 min 43 sec](https://youtube.com/watch?v=9u5hj4Pdr9M&t=343)
 
 
 ### To be "under the law" is to "rely" on your own perfect obedience to the law for justification, life and salvation
@@ -18168,6 +18210,48 @@ Jesus Christ has the name above all names. Jesus Christ is Lord!
 Jesus Christ is Jehovah.
 Jesus Christ is Immanuel.
 AMEN!!
+
+
+### A study on the pronunciation of `Yhvh`, the proper name of the God of Israel
+
+-   **[biblehub.com 3-16.htm: Malachi 3:16 Interlinear: Then have those fearing Jehovah spoken one to another, And Jehovah doth attend and hear, And written is a book of memorial before Him Of those fearing Jehovah, And of those esteeming His name.](https://biblehub.com/interlinear/malachi/3-16.htm):** Then spoke those who feared Yahweh one to another and listened Yahweh and heard [them] so was written a book of remembrance before Him for those who fear Yahweh and who meditate on His name
+
+     1  227  1696             3372             3068        376  854
+     2  ’āz  niḏ·bə·rū        yir·’ê           Yah·weh     ’îš  ’eṯ-
+     3  אָ֧ז   נִדְבְּר֛וּ            יִרְאֵ֥י             יְהוָ֖ה        אִ֣ישׁ  אֶת־
+     4  Then spoke            those who feared Yahweh      one  to
+     5  Adv  V‑Nifal‑Perf‑3cp Adj‑mpc          N‑proper‑ms N‑ms Prep
+     6  
+     7    7453          7181                              3068
+     8    rê·‘ê·hū;     way·yaq·šêḇ                       Yah·weh
+     9  ､ רֵעֵ֑הוּ        ､ וַיַּקְשֵׁ֤ב                             יְהוָה֙
+    10    another       and listened                      Yahweh
+    11    N‑msc | 3ms   Conj‑w | V‑Hifil‑ConsecImperf‑3ms N‑proper‑ms
+    12  
+    13  8085                            3789
+    14  way·yiš·mā‘,                    way·yik·kā·ṯêḇ
+    15  וַיִּשְׁמָ֔ע                           וַ֠יִּכָּתֵב
+    16  and heard [them]                so was written
+    17  Conj‑w | V‑Qal‑ConsecImperf‑3ms Conj‑w | V‑Nifal‑ConsecImperf‑3ms
+    18  
+    19  5612   2146           6440                 3372
+    20  sê·p̄er zik·kā·rō·wn   lə·p̄ā·nāw            lə·yir·’ê
+    21  סֵ֣פֶר    זִכָּר֤וֹן          לְפָנָיו֙                לְיִרְאֵ֣י
+    22  a book of remembrance before Him           for those who fear
+    23  N‑msc  N‑ms           Prep‑l | N‑cpc | 3ms Prep‑l | Adj‑mpc
+    24  
+    25    3068        2803                                8034
+    26    Yah·weh,    ū·lə·ḥō·šə·ḇê                       šə·mōw.
+    27  ､ יְהוָ֔ה        וּלְחֹשְׁבֵ֖י                            . שְׁמֽוֹ׃
+    28    Yahweh      and who meditate                    on His name
+    29    N‑proper‑ms Conj‑w, Prep‑l | V‑Qal‑Prtcpl‑mpc   N‑msc | 3ms
+
+Consider that God's 
+
+-   **[ὄνομα ónoma, on'-om-ah](https://www.blueletterbible.org/lexicon/g3686/kjv/tr/0-1/):** from a presumed derivative of the base of G1097 (compare G3685); a "name" (literally or figuratively) (authority, character):—called, (+ sur-)name(-d).
+
+-   [youtube.com: Where did the name "Jesus" come from?](https://www.youtube.com/watch?v=rtvtD3cXIyU)
+-   [youtube.com: Is the name of God pronounced Yehovah?](https://www.youtube.com/watch?v=SxCQXWuZ9Ko)
 
 
 ### The Mosaic law is not abolished but Jesus fulfilled it like a prophesy
@@ -27490,7 +27574,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7bdd474)
+See: [33.4.1](#org8b51ae8)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
