@@ -6987,7 +6987,59 @@ Servants serve:
   be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient
   for the day is its own trouble. (ESV)
 
-4.2.7. God definitely disciplines us even if we love Jesus - every son he receives
+4.2.7. We should welcome people who hear Jesus' words and want to learn how to follow Jesus, and we should give them
+Jesus' words
+
+If anyone claims to be a believer but does not abide in the teaching of Christ, they do not have God, and we
+should not associate with them. We need to cling to Christ's words and teachings and use them to correct our
+brothers in Christ. If there is resistance to Christ's teachings within the church, then that is not good.
+
+We should let people in who want to follow Jesus. We should give the cold shoulder to people who do not want to
+follow Jesus.
+
+If anyone claims to be a believer but doesn't abide in Christ's teachings then don't welcome that person in:
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  I Timothy 6:1-5 - Let all who are under a yoke as slaves regard their own masters as worthy of all honor, so
+  that the name of God and the teaching may not be reviled. Those who have believing masters must not be
+  disrespectful on the ground that they are brothers; rather they must serve all the better since those who
+  benefit by their good service are believers and beloved. Teach and urge these things. If anyone teaches a
+  different doctrine and does not agree with the sound words of our Lord Jesus Christ and the teaching that
+  accords with godliness, he is puffed up with conceit and understands nothing. He has an unhealthy craving for
+  controversy and for quarrels about words, which produce envy, dissension, slander, evil suspicions, and constant
+  friction among people who are depraved in mind and deprived of the truth, imagining that godliness is a means of
+  gain. (ESV)
+
+If anyone claims to be a believer but is an unrepentant sinner then don't allow that person in:
+
+  I Corinthians 5:11-13 - But now I am writing to you not to associate with anyone who bears the name of brother
+  if he is guilty of sexual immorality or greed, or is an idolater, reviler, drunkard, or swindler-not even to eat
+  with such a one. For what have I to do with judging outsiders? Is it not those inside the church whom you are to
+  judge? God judges those outside. Purge the evil person from among you. (ESV)
+
+Read
+https://www.desiringgod.org/interviews/avoid-the-unrepentant-but-what-if-theyre-family
+
+If anyone claims to be a believer but does not agape his brother, they are still in darkness:
+
+  I John 2:9 - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
+Churches should be teaching Jesus' teachings:
+
+  Luke 12:42-49 - And the Lord said, Who then is the faithful and wise manager, whom his master will set over his
+  household, to give them their portion of food at the proper time? Blessed is that servant whom his master will
+  find so doing when he comes. Truly, I say to you, he will set him over all his possessions. But if that servant
+  says to himself, My master is delayed in coming, and begins to beat the male and female servants, and to eat and
+  drink and get drunk, the master of that servant will come on a day when he does not expect him and at an hour he
+  does not know, and will cut him in pieces and put him with the unfaithful. And that servant who knew his
+  master's will but did not get ready or act according to his will, will receive a severe beating. But the one who
+  did not know, and did what deserved a beating, will receive a light beating. Everyone to whom much was given, of
+  him much will be required, and from him to whom they entrusted much, they will demand the more. I came to cast
+  fire on the earth, and would that it were already kindled! (ESV)
+
+4.2.8. God definitely disciplines us even if we love Jesus - every son he receives
 
 The ones who love Jesus, keep His teachings:
 
@@ -7026,7 +7078,7 @@ Whoever loves with Christ's love knows Father God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-4.2.8. Christians should live fulfilling the Royal Law
+4.2.9. Christians should live fulfilling the Royal Law
 
 Those walking (living) according to Jesus' Spirit should be able to do this:
 
@@ -7048,7 +7100,7 @@ Whoever loves with Christ's love knows Father God:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
-4.2.9. Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus,
+4.2.10. Fulfilling Christ's law is the least we can endeavour to do as an appropriate response of love for Jesus,
 Jesus having fulfilled the entire law and prophets
 
   John 15:25 - But the word that is written in their Law must be fulfilled: They hated me without a cause. (ESV)
@@ -19308,6 +19360,15 @@ Building our lives on Jesus means believing Him and obeying Him:
   did not fall, because it had been founded on the rock. And everyone who hears these words of mine and does not
   do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and
   the winds blew and beat against that house, and it fell, and great was the fall of it. (ESV)
+
+If we actually
+
+  John 5:37-40 - And the Father who sent me has himself borne witness about me. His voice you have never heard,
+  his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom
+  he has sent. You search the Scriptures because you think that in them you have eternal life; and it is they that
+  bear witness about me, yet you refuse to come to me that you may have life. (ESV)
+
+youtube.com: How to Find Gold in God's Word: Reading the Bible with Supernatural Help
 
 If I hear Jesus' commandment to repent from sin, for example, and I obediently repent, then that is walking by
 faith. Since faith comes from hearing the word of Christ - and there faith could come from any part of His
@@ -50322,11 +50383,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-09-30 Mon 00:00
+Date: 2024-10-01 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-30 Mon 15:08
+Created: 2024-10-01 Tue 09:34
 
 Validate
 

@@ -599,7 +599,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org63d2e7c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9b69937) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4625,6 +4625,36 @@ Servants serve:
 > **[Mark 10:43-45](https://www.biblegateway.com/passage/?search=Mark%2010%3A43-45&version=ESV)** - But it shall not be so among you. But whoever would be great among you must be your servant, and whoever would be first among you must be slave of all. For even the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
 
 > **[Matthew 6:25-34](https://www.biblegateway.com/passage/?search=Matthew%206%3A25-34&version=ESV)** - Therefore I tell you, do not be anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is not life more than food, and the body more than clothing? Look at the birds of the air: they neither sow nor reap nor gather into barns, and yet your heavenly Father feeds them. Are you not of more value than they? And which of you by being anxious can add a single hour to his span of life? And why are you anxious about clothing? Consider the lilies of the field, how they grow: they neither toil nor spin, yet I tell you, even Solomon in all his glory was not arrayed like one of these. But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
+
+
+### We should welcome people who hear Jesus' words and want to learn how to follow Jesus, and we should give them Jesus' words
+
+If anyone claims to be a believer but does not abide in the teaching of Christ, they do not have God, and we should not associate with them.
+We need to cling to Christ's words and teachings and use them to correct our brothers in Christ.
+If there is resistance to Christ's teachings within the church, then that is not good.
+
+We should let people in who want to follow Jesus.
+We should give the cold shoulder to people who do not want to follow Jesus.
+
+If anyone claims to be a believer but doesn't abide in Christ's teachings then don't welcome that person in:
+
+> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+> **[I Timothy 6:1-5](https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A1-5&version=ESV)** - Let all who are under a yoke as slaves regard their own masters as worthy of all honor, so that the name of God and the teaching may not be reviled. Those who have believing masters must not be disrespectful on the ground that they are brothers; rather they must serve all the better since those who benefit by their good service are believers and beloved. Teach and urge these things. **If anyone teaches a different doctrine and does not agree with the sound words of our Lord Jesus Christ and the teaching that accords with godliness, he is puffed up with conceit and understands nothing**. He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension, slander, evil suspicions, and constant friction among people who are depraved in mind and deprived of the truth, imagining that godliness is a means of gain. (ESV)
+
+If anyone claims to be a believer but is an unrepentant sinner then don't allow that person in:
+
+> **[I Corinthians 5:11-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A11-13&version=ESV)** - But now I am writing to you not to associate with anyone who bears the name of brother if he is guilty of sexual immorality or greed, or is an idolater, reviler, drunkard, or swindler—not even to eat with such a one. For what have I to do with judging outsiders? **Is it not those inside the church whom you are to judge?** God judges those outside. Purge the evil person from among you. (ESV)
+
+-   **Read:** <https://www.desiringgod.org/interviews/avoid-the-unrepentant-but-what-if-theyre-family>
+
+If anyone claims to be a believer but does not agape his brother, they are still in darkness:
+
+> **[I John 2:9](https://www.biblegateway.com/passage/?search=1%20John%202%3A9&version=ESV)** - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
+Churches should be teaching Jesus' teachings:
+
+> **[Luke 12:42-49](https://www.biblegateway.com/passage/?search=Luke%2012%3A42-49&version=ESV)** - And the Lord said, Who then is the faithful and wise manager, whom his master will set over his household, to give them their portion of food at the proper time? Blessed is that servant whom his master will find so doing when he comes. Truly, I say to you, he will set him over all his possessions. But if that servant says to himself, My master is delayed in coming, and begins to beat the male and female servants, and to eat and drink and get drunk, the master of that servant will come on a day when he does not expect him and at an hour he does not know, and will cut him in pieces and put him with the unfaithful. And that servant who knew his master's will but did not get ready or act according to his will, will receive a severe beating. But the one who did not know, and did what deserved a beating, will receive a light beating. Everyone to whom much was given, of him much will be required, and from him to whom they entrusted much, they will demand the more. I came to cast fire on the earth, and would that it were already kindled! (ESV)
 
 
 ### God definitely disciplines us even if we love Jesus - **every** son he receives
@@ -13001,6 +13031,12 @@ Building our lives on Jesus means believing Him and obeying Him:
 
 > **[Matthew 7:24-27](https://www.biblegateway.com/passage/?search=Matthew%207%3A24-27&version=ESV)** - Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. And the rain fell, and the floods came, and the winds blew and beat on that house, but it did not fall, because it had been founded on the rock. And everyone who hears these words of mine and does not do them will be like a foolish man who built his house on the sand. And the rain fell, and the floods came, and the winds blew and beat against that house, and it fell, and great was the fall of it. (ESV)
 
+If we actually 
+
+> **[John 5:37-40](https://www.biblegateway.com/passage/?search=John%205%3A37-40&version=ESV)** - And the Father who sent me has himself borne witness about me. His voice you have never heard, his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom he has sent. You search the Scriptures because you think that in them you have eternal life; and it is they that bear witness about me, yet you refuse to come to me that you may have life. (ESV)
+
+[youtube.com: How to Find Gold in God's Word: Reading the Bible with Supernatural Help](https://www.youtube.com/watch?v=0lvGW5tw-wA)
+
 If I hear Jesus' commandment to repent from sin, for example, and I obediently repent, then that is walking by faith.
 Since faith comes from hearing the word of Christ - and there faith could come from any part of His teaching.
 So if I try to actually follow Jesus' commandments, and that leads me to believe that Jesus is who He says He is (consider the Apostle Thomas and his slow belief), then when I arrive at a belief that Jesus is who He says He is, the Son of God, and the Christ, the Messiah, the Anointed one, the obedience of one of Jesus commandments leads to more belief and more obedience.
@@ -13592,7 +13628,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org4ee0b89)
+See: [33.4.1](#orgfd5d0b1)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -27596,7 +27632,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org4ee0b89)
+See: [33.4.1](#orgfd5d0b1)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
