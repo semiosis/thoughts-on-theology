@@ -704,7 +704,12 @@ the one that gets you started, it's the one that gets you there, and it's the fi
 what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
 year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance from sin is absolutely necessary for salvation.
+AMEN!! If only someone had told me this first. Repentance (metanoia) from sin is absolutely necessary for
+salvation. This is because I don't think it's a separate issue from salvation. We continue to believe the Truth,
+being washed in the Truth, God's Word, and alongside that our souls are being purified through obedience to the
+Truth, God's Word. Jesus is the Son of God, the Word of God, the Word of God made flesh. God's spoken Word is the
+Word of God. Jesus' Words are also the Word. We trust, believe and obey the Word of God, and this repentance is
+absolutely necessary for salvation.
 
 We must embrace sanctification, and be slaves of God, obeying God, obeying righteousness:
 
@@ -50301,7 +50306,7 @@ Date: 2024-09-30 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-30 Mon 11:50
+Created: 2024-09-30 Mon 12:55
 
 Validate
 

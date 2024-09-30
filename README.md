@@ -461,7 +461,7 @@ Jesus has set me free, and there's no condemnation for those who are in Christ, 
 
 -   **[desiringgod.org: The High Cost of Sexual Sin | Desiring God](https://www.desiringgod.org/interviews/the-high-cost-of-sexual-sin):** I'm trying to explode the doctrine that the battle for obedience is optional because only faith is necessary for salvation. This is very tricky the way words are used here. The battle for obedience is **absolutely necessary** for salvation because it **is** the fight of faith. The **battle for obedience is absolutely necessary for getting to heaven** because **it is** the battle against unbelief. **It is** the fight of faith. There are **not** <ins>two battles</ins>: one to get yourself saved by a single act of faith, and the other to collect rewards by work. There is only **one battle** - it's the one that gets you started, it's the one that gets you there, and it's the fight of faith not works! Faith is what severs the root of covetousness,  misplaced shame, anxiety, lust, envy, and six more before we are done this year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance from sin is **absolutely necessary** for salvation.
+AMEN!! If only someone had told me this first. Repentance ([metanoia](https://www.blueletterbible.org/lexicon/g3341/kjv/tr/0-1/)) from sin is **absolutely necessary** for salvation. This is because I don't think it's a separate issue from salvation. We continue to believe the Truth, being washed in the Truth, God's Word, and alongside that our souls are being purified through obedience to the Truth, God's Word. Jesus is the Son of God, the Word of God, the Word of God made flesh. God's spoken Word is the Word of God. Jesus' Words are also the Word. We trust, believe and obey the Word of God, and this repentance is absolutely necessary for salvation.
 
 We must embrace sanctification, and be slaves of God, obeying God, obeying righteousness:
 
@@ -599,7 +599,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org98026b0) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfef786c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13576,7 +13576,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgfe704e5)
+See: [33.4.1](#org6a5cb82)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -27580,7 +27580,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgfe704e5)
+See: [33.4.1](#org6a5cb82)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
