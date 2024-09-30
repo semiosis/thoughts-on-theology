@@ -3043,6 +3043,11 @@ the heart, not merely the head. There's a confession, an admittance, and a belie
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
 
+We should definitely confess Jesus to others:
+
+  Luke 12:8-9 - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge
+  before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
+
 Faith presses on to walk the same way Jesus walked - even to spend the rest of the time on earth obedient to Jesus
 to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God,
 stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in His
@@ -4326,6 +4331,11 @@ and I think it should be true belief that's in the heart:
 
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
+
+We should definitely confess Jesus to others:
+
+  Luke 12:8-9 - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge
+  before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
 
 Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
 
@@ -8446,6 +8456,11 @@ We must also accept that Jesus Christ, God's Only-Begotten Son was raised from t
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
 
+We should definitely confess Jesus to others:
+
+  Luke 12:8-9 - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge
+  before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
+
 I believe that trusting Jesus and obedience in the heart towards Jesus is required. Obedience to Jesus is love.
 
   I Corinthians 13:13 - So now faith, hope, and love abide, these three; but the greatest of these is love.
@@ -9659,6 +9674,11 @@ sent Him.
 
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
+
+We should definitely confess Jesus to others:
+
+  Luke 12:8-9 - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge
+  before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
 
 I believe that a person does not have any security of eternal salvation unless they have in their heart obedient,
 believing faith in Jesus Christ, and even then there is often a race and a journey to receive it.
@@ -50306,7 +50326,7 @@ Date: 2024-09-30 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-09-30 Mon 12:55
+Created: 2024-09-30 Mon 15:08
 
 Validate
 

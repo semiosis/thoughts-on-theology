@@ -599,7 +599,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfef786c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org63d2e7c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2013,6 +2013,10 @@ If you want to really get to know someone then you would learn to walk in their 
 
 > **[Romans 10:9](https://www.biblegateway.com/passage/?search=Romans%2010%3A9&version=ESV)** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
 
+We should definitely confess Jesus to others:
+
+> **[Luke 12:8-9](https://www.biblegateway.com/passage/?search=Luke%2012%3A8-9&version=ESV)** - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
+
 Faith presses on to walk the same way Jesus walked - even to spend the rest of the time on earth obedient to Jesus to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God, stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in His sufferings, living has He lived) and His resurrection:
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -2847,6 +2851,10 @@ In this current time (world) we may receive more than we lose for the sake of th
 I do not affirm all religions. But I affirm **[Romans 10:9](https://www.biblegateway.com/passage/?search=Romans%2010%3A9&version=ESV)**. I affirm that individual people are saved through belief and I think it should be true belief that's in the heart:
 
 > **[Romans 10:9](https://www.biblegateway.com/passage/?search=Romans%2010%3A9&version=ESV)** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
+
+We should definitely confess Jesus to others:
+
+> **[Luke 12:8-9](https://www.biblegateway.com/passage/?search=Luke%2012%3A8-9&version=ESV)** - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
 
 Everything is in subjection to Jesus, God has left nothing outside Jesus' control.
 
@@ -5658,6 +5666,10 @@ We must also accept that Jesus Christ, God's Only-Begotten Son was raised from t
 
 > **[Romans 10:9](https://www.biblegateway.com/passage/?search=Romans%2010%3A9&version=ESV)** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
 
+We should definitely confess Jesus to others:
+
+> **[Luke 12:8-9](https://www.biblegateway.com/passage/?search=Luke%2012%3A8-9&version=ESV)** - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
+
 I believe that trusting Jesus and obedience in the heart towards Jesus is required. Obedience to Jesus is love.
 
 > **[I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)** - So now faith, hope, and love abide, these three; but the greatest of these is love.
@@ -6603,6 +6615,10 @@ If a person has an obedient and believing heart - a heart of faith - towards Jes
     -   This must result in the person accepting forgiveness for sin
 
 > **[Romans 10:9](https://www.biblegateway.com/passage/?search=Romans%2010%3A9&version=ESV)** - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
+
+We should definitely confess Jesus to others:
+
+> **[Luke 12:8-9](https://www.biblegateway.com/passage/?search=Luke%2012%3A8-9&version=ESV)** - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
 
 I believe that a person does not have any <ins>security</ins> of eternal salvation unless they have in their heart <ins>obedient, believing faith</ins> in Jesus Christ, and even then there is often a race and a journey to receive it.
 
@@ -13576,7 +13592,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6a5cb82)
+See: [33.4.1](#org4ee0b89)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore gird up your loins and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -27580,7 +27596,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6a5cb82)
+See: [33.4.1](#org4ee0b89)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
