@@ -653,7 +653,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org970d67b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfd792c1) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13823,7 +13823,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org3e94aa6)
+See: [33.4.1](#orgc221656)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -14165,7 +14165,8 @@ God rewards faith and may choose to reveal Himself after a while serving God in 
 -   Secondly, obedient action is nothing to boast about before God, because God commanded you to do it.
     -   **[Romans 4:2](https://www.biblegateway.com/passage/?search=Romans%204%3A2&version=ESV)** - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
 -   Thirdly, "working for God" is as step beyond obedient action.
-    -   **[I Corinthians 9:12](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A12&version=ESV),9:15-18** - If others share this rightful claim on you, do not we even more? Nevertheless, we have not made use of this right, but we endure anything rather than put an obstacle in the way of the gospel of Christ. But I have made no use of any of these rights, nor am I writing these things to secure any such provision. For I would rather die than have anyone deprive me of my ground for boasting. For if I preach the gospel, that gives me no ground for boasting. For necessity is laid upon me. Woe to me if I do not preach the gospel! For if I do this of my own will, I have a reward, but not of my own will, I am still entrusted with a stewardship. What then is my reward? That in my preaching I may present the gospel free of charge, so as not to make full use of my right in the gospel. (ESV)
+    -   Paul doesn't claim his full rights in the gospel (even rights shown by God's precepts in God's law) that He might receive reward from God for going beyond the call of His duty:
+    -   **[I Corinthians 9:12,9:15-18](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A12%2C9%3A15-18&version=ESV)** - If others share this rightful claim on you, do not we even more? Nevertheless, we have not made use of this right, but we endure anything rather than put an obstacle in the way of the gospel of Christ. But **I have made no use of any of these rights, nor am I writing these things to secure any such provision. For I would rather die than have anyone deprive me of my ground for boasting.** For if I preach the gospel, that gives me no ground for boasting. For necessity is laid upon me. Woe to me if I do not preach the gospel! For **if I do this of my own will, I have a reward**, but not of my own will, I am still entrusted with a stewardship. What then is my reward? That in my preaching I may present the gospel free of charge, <ins>so as not to make full use of my right in the gospel.</ins> (ESV)
 
 In God's mercy He has shown us the Way to be reconciled with Him.
 He has given us Jesus, and we just need to have faith in Him.
@@ -25669,15 +25670,17 @@ Also, I think eternal life is for those who:
 
 This is my current understanding. So most likely it is not tolerated in the kingdom of God.
 
-I 100% believe that anyone who has faith in Jesus Christ can be saved / spared from being condemned to hell, and receive eternal life, but I think repentance from sin and sanctification are quite important for inheriting the Kingdom.
+I 100% believe that anyone who has faith in Jesus Christ can be saved / spared from being condemned to hell, and receive eternal life, but I think repentance from sin and sanctification are quite important for inheriting the Kingdom and indeed from being spared from being given over to our own lusts and from being spared from the wrath of God that comes with that. We trust Jesus and He leads us out of darkness.
 
 > **[I Corinthians 6:9-10](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A9-10&version=ESV)** - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers **will inherit the kingdom of God**. (ESV)
 
 > **[Galatians 5:19-21](https://www.biblegateway.com/passage/?search=Galatians%205%3A19-21&version=ESV)** - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things **will not inherit the kingdom of God**. (ESV)
 
-Believers have eternal life and are not condemned:
+> **[I John 2:19](https://www.biblegateway.com/passage/?search=1%20John%202%3A19&version=ESV)** - They went out from us, but they were not of us; for if they had been of us, they would have continued with us. But they went out, that it might become plain that they all are not of us. (ESV)
 
-> **Romans 10:11** - For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+Believers (trusters) of Jesus Christ have eternal life and are not condemned:
+
+> **[Romans 10:11](https://www.biblegateway.com/passage/?search=Romans%2010%3A11&version=ESV)** - For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
 
 Trusting Jesus' words we do not come into judgement, but change direction, and instead our destiny is life eternal. We do not come into judgement. Jesus is the judge of that:
 
@@ -27838,7 +27841,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org3e94aa6)
+See: [33.4.1](#orgc221656)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -34926,9 +34929,9 @@ Paul says:
 
 > **[I Corinthians 9:3-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A3-14&version=ESV)** - This is my defense to those who would examine me. Do we not have the right to eat and drink? Do we not have the right to take along a believing wife, as do the other apostles and the brothers of the Lord and Cephas? Or is it only Barnabas and I who have no right to refrain from working for a living? Who serves as a soldier at his own expense? Who plants a vineyard without eating any of its fruit? Or who tends a flock without getting some of the milk? Do I say these things on human authority? Does not the Law say the same? For it is written in the Law of Moses, You shall not muzzle an ox when it treads out the grain. Is it for oxen that God is concerned? Does he not speak entirely for our sake? It was written for our sake, because the plowman should plow in hope and the thresher thresh in hope of sharing in the crop. If we have sown spiritual things among you, is it too much if we reap material things from you? If others share this rightful claim on you, do not we even more? Nevertheless, we have not made use of this right, but we endure anything rather than put an obstacle in the way of the gospel of Christ. Do you not know that those who are employed in the temple service get their food from the temple, and those who serve at the altar share in the sacrificial offerings? In the same way, the Lord commanded that those who proclaim the gospel should get their living by the gospel. (ESV)
 
-Paul doesn't claim his full rights (even by God's law) that He might receive reward from God for going beyond the call of His duty:
+Paul doesn't claim his full rights in the gospel (even rights shown by God's precepts in God's law) that He might receive reward from God for going beyond the call of His duty:
 
-> **[I Corinthians 9:12](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A12&version=ESV),9:15-18** - If others share this rightful claim on you, do not we even more? Nevertheless, we have not made use of this right, but we endure anything rather than put an obstacle in the way of the gospel of Christ. But I have made no use of any of these rights, nor am I writing these things to secure any such provision. For I would rather die than have anyone deprive me of my ground for boasting. For if I preach the gospel, that gives me no ground for boasting. For necessity is laid upon me. Woe to me if I do not preach the gospel! For if I do this of my own will, I have a reward, but not of my own will, I am still entrusted with a stewardship. What then is my reward? That in my preaching I may present the gospel free of charge, so as not to make full use of my right in the gospel. (ESV)
+> **[I Corinthians 9:12,9:15-18](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A12%2C9%3A15-18&version=ESV)** - If others share this rightful claim on you, do not we even more? Nevertheless, we have not made use of this right, but we endure anything rather than put an obstacle in the way of the gospel of Christ. But **I have made no use of any of these rights, nor am I writing these things to secure any such provision. For I would rather die than have anyone deprive me of my ground for boasting.** For if I preach the gospel, that gives me no ground for boasting. For necessity is laid upon me. Woe to me if I do not preach the gospel! For **if I do this of my own will, I have a reward**, but not of my own will, I am still entrusted with a stewardship. What then is my reward? That in my preaching I may present the gospel free of charge, <ins>so as not to make full use of my right in the gospel.</ins> (ESV)
 
 We must keep and accept the precepts of God over the precepts of men:
 
