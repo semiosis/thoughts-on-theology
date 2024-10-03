@@ -653,7 +653,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfd792c1) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1f6ea67) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -7686,7 +7686,6 @@ Do not love the world:
     -   if anyone slaps you on the right cheek, turn to him the other also
     -   if anyone would sue you and take your tunic, let him have your cloak as well
     -   if anyone forces you to go one mile, go with him two miles
-    -   if anyone forces you to go one mile, go with him two miles
     -   Give to the one who begs from you, and do not refuse the one who would borrow from you
     -   Love your enemies and pray for those who persecute you
 
@@ -13823,7 +13822,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc221656)
+See: [33.4.1](#org71a22b7)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -16151,6 +16150,8 @@ The outcome of being set free from sin and becoming a slave to God is receiving 
 > **[Romans 8:33](https://www.biblegateway.com/passage/?search=Romans%208%3A33&version=ESV)** -  **Who shall bring any charge against God's elect?**  It is God who justifies.  (ESV)
 
 > **[Romans 6:22-23](https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&version=ESV)** - But now that you have been set free from sin and have become slaves to God, the fruit you reap leads to holiness, and the outcome is eternal life. For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord. (BSB)
+
+-   **Salvation is forever. Once saved, always saved. Once received eternal life, it's forever:** [youtube.com: John MacArthur - How do I know if I'm really saved?](https://www.youtube.com/watch?v=9nlvj9nNVCA)
 
 A person must **do** the will **of Father God** (not their own will); They must be obedient.
 Faith and obedience are inseparable.
@@ -27841,7 +27842,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc221656)
+See: [33.4.1](#org71a22b7)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
