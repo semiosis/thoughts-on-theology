@@ -26,15 +26,33 @@ youtube.com: Isn't Veganism Closer to God's Original Design?
 This is a short preview of where I'm at with my theology. I don't claim to know everything or to have perfect
 theology:
 
-|  If we believe on Yeshua's (Jesus's) name it's typically the initial act of
-|  obedience of a Christian, Jesus having commanded us to believe on His name as
-|  Son of God, Christ, Messiah as foretold by the prophets.
+|  If we trust God, believing on Yeshua's (Jesus's) name, it's typically the
+|  initial act of obedience of a Christian, Jesus having commanded us to trust
+|  Him, and believe Him, especialy concerning His name as Son of God, Christ,
+|  Messiah as foretold by the prophets, and we are sealed by the Holy Spirit when
+|  we do this.
 | 
-|  Trust, obedience, belief and faith are not really separate things when it
-|  comes to believing the Word of God in the heart, and if a person has put their
-|  trust in Jesus then they've done something which is in the will of God.
-| 
-|  Our faith and obedience are supposed to increase as we are sanctified.
+|      Acts 10:43 - To him all the prophets bear witness that everyone who
+|      believes in him receives forgiveness of sins through his name.
+|      (ESV)
+|  
+|       Ephesians 1:7-12 - In him we have redemption through his blood, the
+|       forgiveness of our trespasses, according to the riches of his grace, which
+|       he lavished upon us, in all wisdom and insight making known to us the
+|       mystery of his will, according to his purpose, which he set forth in
+|       Christ as a plan for the fullness of time, to unite all things in him,
+|       things in heaven and things on earth.
+|       In him we have obtained an inheritance, having been predestined according
+|       to the purpose of him who works all things according to the counsel of his
+|       will, so that we who were the first to hope in Christ might be to the
+|       praise of his glory.
+|       (ESV)
+|  
+|   Trust, obedience, belief and faith are not really separate things when it
+|   comes to believing the Word of God in the heart, and if a person has put their
+|   trust in Jesus then they've done something which is in the will of God.
+|  
+|   Our faith and obedience are supposed to increase as we are sanctified.
 |  
 |   Trust, belief and obedience, and even agape and knowledge of God when they are
 |   settled in the heart is what God sees and God is our justifier, and He
@@ -16705,6 +16723,14 @@ Defiling passion defiles:
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
   thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God. (ESV)
 
+I think John Piper's view on this is sound:
+
+youtube.com: Is Drinking Alcohol a Sin?
+It could be. Drinking water when you should be giving a glass to someone else in need - that's sin. Drinking water
+when you should be paying more reverence to the preaching of God's word - that's a sin. Drinking water when just
+someone just warned you it's contaminated it may kill you - that sin. So drinking water can be sin and presumably
+then alcohol could be sin, but it may not be.
+
 youtube.com: CAN CHRISTIANS DRINK/SMOKE?! {The Harsh Truth...}
 
 7.6.31. Abortion
@@ -32516,6 +32542,9 @@ Interesting fact
 Te reo Maori doesn't have any filthy words. Every language has capacity to express anger, disgust or outrage. Te
 reo Maori is no different. There are no single words that equate to English equivalents in terms of obscenity of
 insult. As Alan pointed out, words for body parts, copulation etc are just words - quite neutral.
+
+Watch
+youtube.com: John Piper - On Cussing
 
 I still think though, that lying, slander and obscene talk can be done in any language using neutral words, so we
 should not use language in a bad way.
@@ -50757,7 +50786,7 @@ Date: 2024-10-03 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-03 Thu 13:03
+Created: 2024-10-03 Thu 13:37
 
 Validate
 
