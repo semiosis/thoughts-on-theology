@@ -11336,7 +11336,8 @@ Do not love the world:
   many false prophets will arise and lead many astray. And because lawlessness will be increased, the love of many
   will grow cold. But the one who endures to the end will be saved. (ESV)
 
-- Do not resist the one who is evil
+Do not resist the one who is evil - but do good to them:
+
 - Romans 12:21 - Do not be overcome by evil, but overcome evil with good. (ESV)
 - if anyone slaps you on the right cheek, turn to him the other also
 - if anyone would sue you and take your tunic, let him have your cloak as well
@@ -40233,6 +40234,34 @@ faith type salvation is still 'grace alone'.
   And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has
   come to this house, since he also is a son of Abraham. (ESV)
 
+Now what's interesting to me is that before 2 April 2022, I indeed considered myself to be a Christian but in all
+honesty from my current angle I think I was spiritually dead. But I had started taking steps of faith in God to
+seek Him out for about a year before then. I didn't have the obvious sense of God's presence which I do now after
+2 April 2022. But in 2021 I was casually seeking a real relationship with Jesus. In desperation I called out to
+God for help and I was born-again of the Spirit. It's still grace. It's still salvation. And it's plainly evident
+to me that God had been working in my life before I was born-again of the Spirit. It seems obvious that God had
+been creating in me faith. And it's also plainly evident to me that after I was born-again the Holy Spirit would
+speak to me through Christians even at my baptist church. I have no doubts it's Jesus' Holy Spirit who has been
+working in me. I also believe that as Jesus had done with Saul, He may use a person's existing situation which
+they were in when they are born-again and use for His purposes, and so use their "work". But when I was born of
+the Spirit, that was quite something, and from my angle all a person would seek to do in a situation like what
+happened to me is focus on the Lord Jesus and want to be obedient to Him:
+
+  Titus 3:3-7 - For we ourselves were once foolish, disobedient, led astray, slaves to various passions and
+  pleasures, passing our days in malice and envy, hated by others and hating one another. But when the goodness
+  and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness,
+  but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured
+  out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs
+  according to the hope of eternal life. (ESV)
+
+I believe that it's God who tests the heart and justifies who has faith in Jesus.
+
+I also don't think I have an exact idea of what has been good works in the eyes of God before and after 2 April
+2022. If someone wants me to try to say that 2 April 2022 was when I was justified and started producing good
+works, then I don't think I can say that actually. The truth is I actually just don't know if or when God has
+justified me. I just have faith that I'm justified by Jesus' blood, and called out to God to help me and He helped
+me and now I'm just really wanting to remain faithful to Him.
+
 54.44.4. Mid-2022 to mid-2023 was chaotic
 
 - I was saved when I was spiritually dead as an act of pure grace - like a plane on the verge of crashing to the
@@ -50870,7 +50899,7 @@ Date: 2024-10-03 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-03 Thu 19:36
+Created: 2024-10-03 Thu 20:39
 
 Validate
 

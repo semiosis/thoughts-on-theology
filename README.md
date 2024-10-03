@@ -671,7 +671,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd4bbe16) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7e015a2) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -7701,13 +7701,14 @@ Do not love the world:
 
 > **[Matthew 24:9-13](https://www.biblegateway.com/passage/?search=Matthew%2024%3A9-13&version=ESV)** - Then <ins>they will deliver you up to tribulation and put you to death, and you will be hated by all nations for my name's sake</ins>. And then <ins>many will fall away and betray one another and hate one another</ins>. And many false prophets will arise and lead many astray. And because <ins>lawlessness will be increased, the love of many will grow cold</ins>. But <ins>the one who endures to the end will be saved.</ins> (ESV)
 
--   Do not resist the one who is evil
-    -   **[Romans 12:21](https://www.biblegateway.com/passage/?search=Romans%2012%3A21&version=ESV)** - Do not be overcome by evil, but overcome evil with good. (ESV)
-    -   if anyone slaps you on the right cheek, turn to him the other also
-    -   if anyone would sue you and take your tunic, let him have your cloak as well
-    -   if anyone forces you to go one mile, go with him two miles
-    -   Give to the one who begs from you, and do not refuse the one who would borrow from you
-    -   Love your enemies and pray for those who persecute you
+Do not resist the one who is evil - but do good to them:
+
+-   **[Romans 12:21](https://www.biblegateway.com/passage/?search=Romans%2012%3A21&version=ESV)** - Do not be overcome by evil, but **overcome evil with good**. (ESV)
+-   if anyone slaps you on the right cheek, turn to him the other also
+-   if anyone would sue you and take your tunic, let him have your cloak as well
+-   if anyone forces you to go one mile, go with him two miles
+-   Give to the one who begs from you, and do not refuse the one who would borrow from you
+-   Love your enemies and pray for those who persecute you
 
 > **[Matthew 5:38-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A38-48&version=ESV)** - You have heard that it was said, An eye for an eye and a tooth for a tooth. But I say to you, **Do not resist the one who is evil**. But **if anyone slaps you on the right cheek, turn to him the other also**. And **if anyone would sue you and take your tunic, let him have your cloak as well**. And **if anyone forces you to go one mile, go with him two miles**. **Give to the one who begs from you, and do not refuse the one who would borrow from you**. You have heard that it was said, You shall love your neighbor and hate ([3404. miseó, 3404 miséō – properly, to detest (on a comparative basis); hence, denounce; to love someone or something less than someone (something) else, i.e. to renounce one choice in favor of another.](https://biblehub.com/greek/3404.htm)) your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
@@ -13855,7 +13856,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org38c8d50)
+See: [33.4.1](#org0f31687)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -27836,6 +27837,24 @@ The ones who adhere to the Law (i.e. the true circumcision) should also walk in 
 
 > **[Luke 19:8-9](https://www.biblegateway.com/passage/?search=Luke%2019%3A8-9&version=ESV)** - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is a son of Abraham. (ESV)
 
+Now what's interesting to me is that before [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/), I indeed considered myself to be a Christian but in all honesty from my current angle I think I was spiritually dead. But I had started taking steps of faith in God to seek Him out for about a year before then.
+I didn't have the obvious sense of God's presence which I do now after 2 April 2022. But in 2021 I was casually seeking a real relationship with Jesus.
+In desperation I called out to God for help and I was born-again of the Spirit. It's still grace. It's still salvation. And it's plainly evident to me that God had been working in my life before I was born-again of the Spirit.
+It seems obvious that God had been creating in me faith.
+And it's also plainly evident to me that after I was born-again the Holy Spirit would speak to me through Christians even at my baptist church.
+I have no doubts it's Jesus' Holy Spirit who has been working in me.
+I also believe that as Jesus had done with Saul, He may use a person's existing situation which they were in when they are born-again and use for His purposes, and so use their "work".
+But when I was born of the Spirit, that was quite something, and from my angle all a person would seek to do in a situation like what happened to me is focus on the Lord Jesus and want to be obedient to Him:
+
+> **[Titus 3:3-7](https://www.biblegateway.com/passage/?search=Titus%203%3A3-7&version=ESV)** - For we ourselves were once foolish, disobedient, led astray, slaves to various passions and pleasures, passing our days in malice and envy, hated by others and hating one another. But when the goodness and loving kindness of God our Savior appeared, **he saved us, not because of works done by us in righteousness**, but **according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit**, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs according to the hope of eternal life. (ESV)
+
+I believe that it's God who tests the heart and justifies who has faith in Jesus.
+
+I also don't think I have an exact idea of what has been good works in the eyes of God before and after [2 April 2022](https://web.archive.org/web/20220402091720/https://mullikine.github.io/posts/astral-projection/).
+If someone wants me to try to say that 2 April 2022 was when I was justified and started producing good works, then I don't think I can say that actually.
+The truth is I actually just don't know if or when God has justified me.
+I just have faith that I'm justified by Jesus' blood, and called out to God to help me and He helped me and now I'm just really wanting to remain faithful to Him.
+
 
 ### Mid-2022 to mid-2023 was chaotic
 
@@ -27918,7 +27937,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org38c8d50)
+See: [33.4.1](#org0f31687)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
