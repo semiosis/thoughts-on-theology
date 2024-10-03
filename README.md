@@ -671,7 +671,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org97a5d19) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org72a5ea5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1817,6 +1817,7 @@ I believe that among other things I have had to fight against, reject or repent 
 -   a spirit of Mormomism
     -   [youtube.com: Mormon Religion in a nutshell - John MacArthur](https://www.youtube.com/watch?v=5uOqHX10OSA)
     -   Thanks, John MacArthur. Yeah, I do not affirm Mormonism at all.
+    -   [youtube.com: Mormon Jesus vs Bible Jesus - Jeff Durbin](https://www.youtube.com/watch?v=39EO83sbWWk)
 -   a spirit of Islam
     -   [youtube.com: How Thomas Aquinas refuted Muhammad and Islam](https://www.youtube.com/watch?v=Vf70jEdwOF0)
     -   [Summa Contra Gentiles of St. Thomas Aquinas](https://basilica.ca/documents/2016/10/St.%20Thomas%20Aquinas-The%20Summa%20Contra%20Gentiles.pdf)
@@ -3322,6 +3323,10 @@ I think [John 5:24](https://biblehub.com/interlinear/john/5-24.htm) reads that t
 
 -   **I really appreciated Allie's video here:** [youtube.com: Eschatology, End Times and What's to Come  | Ep 134](https://www.youtube.com/watch?v=Yk3Eu0ST5Kk)
 
+Before the second coming of our Lord Jesus Christ there is the appearance of the "man of lawlessness":
+
+> **[II Thessalonians 2:1-4](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A1-4&version=ESV)** - Now concerning the coming of our Lord Jesus Christ and our being gathered together to him, we ask you, brothers, not to be quickly shaken in mind or alarmed, either by a spirit or a spoken word, or a letter seeming to be from us, to the effect that the day of the Lord has come. Let no one deceive you in any way. For that day will not come, unless **the rebellion comes first, and the man of lawlessness is revealed, the son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he takes his seat in the temple of God, proclaiming himself to be God.** (ESV)
+
 
 ### How we should act how we're instructed to act while awaiting the Lord's return
 
@@ -3457,6 +3462,25 @@ The repentant criminal on the cross next to Jesus was sold out for the kingdom o
 Also, this is interesting:
 
 [youtube.com: Strive to let everything bodily die within you, and you will rise before the general resurrection](https://www.youtube.com/watch?v=dOvtJjvmrY0)
+
+
+### As Christians, we've got to repent of evil deeds and keep Jesus' works - keep imitating Christ, even in holiness
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+We follow Christ's teachings:
+
+> **[Revelation of John 2:15-16](https://www.biblegateway.com/passage/?search=Revelation%202%3A15-16&version=ESV)** - So also you have some who hold the teaching of the Nicolaitans. Therefore repent. If not, I will come to you soon and war against them with the sword of my mouth. (ESV)
+
+We absolutely must put a stop to sexual immorality and idolatry:
+
+> **[Revelation of John 2:17-24](https://www.biblegateway.com/passage/?search=Revelation%202%3A17-24&version=ESV)** - He who has an ear, let him hear what the Spirit says to the churches. To the one who conquers I will give some of the hidden manna, and I will give him a white stone, with a new name written on the stone that no one knows except the one who receives it. And to the angel of the church in Thyatira write: The words of the Son of God, who has eyes like a flame of fire, and whose feet are like burnished bronze. I know your works, your love and faith and service and patient endurance, and that your latter works exceed the first. But I have this against you, that you tolerate that woman Jezebel, who **calls herself a prophetess and is teaching and seducing my servants to practice sexual immorality and to eat food sacrificed to idols. I gave her time to repent, but she refuses to repent of her sexual immorality. Behold, I will throw her onto a sickbed, and those who commit adultery with her I will throw into great tribulation, unless they repent of her works, and I will strike her children dead. And all the churches will know that I am he who searches mind and heart, and I will give to each of you as your works deserve. But to the rest of you in Thyatira, who do not hold this teaching, who have not learned what some call the deep things of Satan**, to you I say, I do not lay on you any other burden. (ESV)
+
+We must keep Jesus' teachings to the end:
+
+> **[Revelation of John 2:25-29](https://www.biblegateway.com/passage/?search=Revelation%202%3A25-29&version=ESV)** - Only hold fast what you have until I come. The one who conquers and who **keeps my works until the end**, to him I will give authority over the nations, and he will rule them with a rod of iron, as when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give him the morning star. He who has an ear, let him hear what the Spirit says to the churches. (ESV)
 
 
 ### We absolutely cling to Jesus as well
@@ -13919,7 +13943,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7b0d622)
+See: [33.4.1](#orga799c99)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28034,7 +28058,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7b0d622)
+See: [33.4.1](#orga799c99)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

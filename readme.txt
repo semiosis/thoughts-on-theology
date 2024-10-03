@@ -2627,6 +2627,7 @@ I believe that among other things I have had to fight against, reject or repent 
 - a spirit of Mormomism
 - youtube.com: Mormon Religion in a nutshell - John MacArthur
 - Thanks, John MacArthur. Yeah, I do not affirm Mormonism at all.
+- youtube.com: Mormon Jesus vs Bible Jesus - Jeff Durbin
 - a spirit of Islam
 - youtube.com: How Thomas Aquinas refuted Muhammad and Islam
 - Summa Contra Gentiles of St. Thomas Aquinas
@@ -5020,6 +5021,15 @@ youtube.com: Love Jesus More Than You Love Anything
 I really appreciated Allie's video here
 youtube.com: Eschatology, End Times and What's to Come | Ep 134
 
+Before the second coming of our Lord Jesus Christ there is the appearance of the "man of lawlessness":
+
+  II Thessalonians 2:1-4 - Now concerning the coming of our Lord Jesus Christ and our being gathered together to
+  him, we ask you, brothers, not to be quickly shaken in mind or alarmed, either by a spirit or a spoken word, or
+  a letter seeming to be from us, to the effect that the day of the Lord has come. Let no one deceive you in any
+  way. For that day will not come, unless the rebellion comes first, and the man of lawlessness is revealed, the
+  son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he
+  takes his seat in the temple of God, proclaiming himself to be God. (ESV)
+
 3.15.2. How we should act how we're instructed to act while awaiting the Lord's return
 
 Sermon
@@ -5235,7 +5245,44 @@ Also, this is interesting:
 
 youtube.com: Strive to let everything bodily die within you, and you will rise before the general resurrection
 
-3.15.3. We absolutely cling to Jesus as well
+3.15.3. As Christians, we've got to repent of evil deeds and keep Jesus' works - keep imitating Christ, even in
+holiness
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+We follow Christ's teachings:
+
+  Revelation of John 2:15-16 - So also you have some who hold the teaching of the Nicolaitans. Therefore repent.
+  If not, I will come to you soon and war against them with the sword of my mouth. (ESV)
+
+We absolutely must put a stop to sexual immorality and idolatry:
+
+  Revelation of John 2:17-24 - He who has an ear, let him hear what the Spirit says to the churches. To the one
+  who conquers I will give some of the hidden manna, and I will give him a white stone, with a new name written on
+  the stone that no one knows except the one who receives it. And to the angel of the church in Thyatira write:
+  The words of the Son of God, who has eyes like a flame of fire, and whose feet are like burnished bronze. I know
+  your works, your love and faith and service and patient endurance, and that your latter works exceed the first.
+  But I have this against you, that you tolerate that woman Jezebel, who calls herself a prophetess and is
+  teaching and seducing my servants to practice sexual immorality and to eat food sacrificed to idols. I gave her
+  time to repent, but she refuses to repent of her sexual immorality. Behold, I will throw her onto a sickbed, and
+  those who commit adultery with her I will throw into great tribulation, unless they repent of her works, and I
+  will strike her children dead. And all the churches will know that I am he who searches mind and heart, and I
+  will give to each of you as your works deserve. But to the rest of you in Thyatira, who do not hold this
+  teaching, who have not learned what some call the deep things of Satan, to you I say, I do not lay on you any
+  other burden. (ESV)
+
+We must keep Jesus' teachings to the end:
+
+  Revelation of John 2:25-29 - Only hold fast what you have until I come. The one who conquers and who keeps my
+  works until the end, to him I will give authority over the nations, and he will rule them with a rod of iron, as
+  when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give
+  him the morning star. He who has an ear, let him hear what the Spirit says to the churches. (ESV)
+
+3.15.4. We absolutely cling to Jesus as well
 
   I Corinthians 7:25-31 - Now concerning the betrothed, I have no command from the Lord, but I give my judgment as
   one who by the Lord's mercy is trustworthy. I think that in view of the present distress it is good for a person
@@ -50999,7 +51046,7 @@ Date: 2024-10-03 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-03 Thu 22:48
+Created: 2024-10-04 Fri 12:49
 
 Validate
 
