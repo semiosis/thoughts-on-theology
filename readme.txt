@@ -4460,6 +4460,15 @@ faith in Jesus Himself.
 That's important in my opinion because we must trust Jesus Himself to follow Him, to love Him, to keep His words,
 to keep His commandments, to keep our eyes on Him, to abide by His teaching.
 
+youtube.com: John Piper - Saved Forever @time: 9 min 58 sec
+Salvation is not static, as though I did something once to get saved (I believed), and God did something once to
+save me (He sent Jesus to die and rise from the dead) and that's all there is to it. Now this verse is one
+screaming announcement that is not all there is to it and what I want to try to do in these last moments is is
+take a Sunday school understanding that's true that simple past, "I believe, He died, I'm saved - period" and grow
+it into biblical proportions with a verse like Hebrews 7:25 because Hebrews 7:25 says there is not only more that
+Jesus did, there is more that you do as well. What Jesus does is go on praying for you, interceding for you,
+coming between you and the Father and making a case for you, and standing up for you.
+
 And out of the heart should flow rivers of living water. Now that re-emphasises that belief should be in the
 heart:
 
@@ -16120,6 +16129,33 @@ God's anger is just and He is Righteous:
   John 17:25 - O righteous Father, even though the world does not know you, I know you, and these know that you
   have sent me. (ESV)
 
+youtube.com: John Piper - Saved Forever
+
+If I say my ongoing salvation depends on Christ's ongoing intercessory work for me with the Father, what do I need
+need saving from? The Father, God, else I would not need an intercessor.
+
+Intercessors interpose themselves to help fix something that isn't fixed, or to keep something fixed.
+
+The big issue is God's wrath.
+
+This book (the Holy Scriptures) ... was written to help us get right with a wrathful God.
+
+youtube.com: Saved Forever @time: 11 min 17 sec
+
+Do not conclude from my first implication that Jesus loves me and God hates me, okay? Let's get this straight. Now
+the reason that would be a false conclusion is because the priesthood is God's idea, not Jesus idea, and Jesus
+accepted the father's mandate to come save me from his wrath. You got that? The love of God for me, sinner,
+interposes his Priestly son to save me from his wrath against me.
+
+The love of God for this worthless sinner interposes his most precious possession, His Son whom he loves, in order
+that he might save me from his his wrath against me all the while vindicating his justice and upholding his glory
+in the cross.
+
+That's the beauty of the cross. It is the love of God rescuing sinners from the wrath of God by vindicating the
+justice of God and upholding the glory of God.
+
+You got to get that otherwise you will sentimentalize God and people are sentimentalizing God everywhere.
+
 7.6. Sin - what does it look like
 
 - doing and devising and being evil
@@ -23977,6 +24013,39 @@ The outcome of being set free from sin and becoming a slave to God is receiving 
 
 Salvation is forever. Once saved, always saved. Once received eternal life, it's forever
 youtube.com: John MacArthur - How do I know if I'm really saved?
+
+  Hebrews 7:1-25 - For this Melchizedek, king of Salem, priest of the Most High God, met Abraham returning from
+  the slaughter of the kings and blessed him, and to him Abraham apportioned a tenth part of everything. He is
+  first, by translation of his name, king of righteousness, and then he is also king of Salem, that is, king of
+  peace. He is without father or mother or genealogy, having neither beginning of days nor end of life, but
+  resembling the Son of God he continues a priest forever. See how great this man was to whom Abraham the
+  patriarch gave a tenth of the spoils! And those descendants of Levi who receive the priestly office have a
+  commandment in the law to take tithes from the people, that is, from their brothers, though these also are
+  descended from Abraham. But this man who does not have his descent from them received tithes from Abraham and
+  blessed him who had the promises. It is beyond dispute that the inferior is blessed by the superior. In the one
+  case tithes are received by mortal men, but in the other case, by one of whom it is testified that he lives. One
+  might even say that Levi himself, who receives tithes, paid tithes through Abraham, for he was still in the
+  loins of his ancestor when Melchizedek met him. Now if perfection had been attainable through the Levitical
+  priesthood (for under it the people received the law), what further need would there have been for another
+  priest to arise after the order of Melchizedek, rather than one named after the order of Aaron? For when there
+  is a change in the priesthood, there is necessarily a change in the law as well. For the one of whom these
+  things are spoken belonged to another tribe, from which no one has ever served at the altar. For it is evident
+  that our Lord was descended from Judah, and in connection with that tribe Moses said nothing about priests. This
+  becomes even more evident when another priest arises in the likeness of Melchizedek, who has become a priest,
+  not on the basis of a legal requirement concerning bodily descent, but by the power of an indestructible life.
+  For it is witnessed of him, You are a priest forever, after the order of Melchizedek. On the one hand, a former
+  commandment is set aside because of its weakness and uselessness (for the law made nothing perfect); but on the
+  other hand, a better hope is introduced, through which we draw near to God. And it was not without an oath. For
+  those who formerly became priests were made such without an oath, but this one was made a priest with an oath by
+  the one who said to him: The Lord has sworn and will not change his mind, You are a priest forever. This makes
+  Jesus the guarantor of a better covenant. The former priests were many in number, because they were prevented by
+  death from continuing in office, but he holds his priesthood permanently, because he continues forever.
+  Consequently, he is able to save to the uttermost (3838. panteles - all complete, entire) those who draw near to
+  God through him, since he always lives to make intercession for them. (ESV)
+
+youtube.com: John Piper - Saved Forever @time: 17 min 16 sec
+I am saved today and will be saved tomorrow and all eternity because Hebrews 7:25 C says He always lives to pray
+for me.
 
 A person must do the will of Father God (not their own will); They must be obedient. Faith and obedience are
 inseparable.
@@ -38668,7 +38737,7 @@ youtube.com: What Does it Mean to be in Christ?
 
   Colossians 3:3 - For you have died, and your life is hidden with Christ in God. (ESV)
 
-54.22. Only God the Father could graft people in and out of Christ
+54.22. Only God the Father could graft people in and out of Christ - but Jesus intercedes for us
 
 A person would have to reject Jesus to be grafted out, I think. Then again, God might still not do that.
 
@@ -38676,8 +38745,39 @@ We must be perpetually approaching Jesus:
 
   John 6:37 - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
 
+youtube.com: John Piper - Saved Forever @time: 17 min 36 sec
+
+What do I need in order to be saved forever, and the answer is, I need to keep drawing near to God through Jesus.
+
+Therefore, I think that's what he prays.
+
+It says in Hebrews 13:21 that by the blood of the Eternal Covenant this Jesus was raised and through Jesus God is
+working in you that which is pleasing in his sight.
+
+Through Jesus, God is working what is pleasing in his sight, namely a drawing near to God through Jesus. But if
+God is working our drawing near to him so that He's stirring up within me and you a desire to draw near to God
+through Him, what does it mean that he's doing it through Jesus? The answer is Jesus is praying for it.
+
+  Luke 22:32 - but I have prayed for you that your faith may not fail. And when you have turned again, strengthen
+  your brothers. (ESV)
+
+We are commanded to reject the idols to treasure God first. If we do this then we draw near to God and God draws
+near to us:
+
+  II Corinthians 6:17-18 - Therefore go out from their midst, and be separate from them, says the Lord, and touch
+  no unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and daughters to
+  me, says the Lord Almighty. (ESV)
+
+  James 4:8 - Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your
+  hearts, you double-minded. (ESV)
+
+  Psalms 73:25-28 - Whom have I in heaven but you? And there is nothing on earth that I desire besides you. My
+  flesh and my heart may fail, but God is the strength of my heart and my portion forever. For behold, those who
+  are far from you shall perish; you put an end to everyone who is unfaithful to you. But for me it is good to be
+  near God; I have made the Lord GOD my refuge, that I may tell of all your works. (ESV)
+
 So most importantly, believe in Jesus, and that he has paid the price for your sin with His blood, and continue in
-relationship with Jesus.
+relationship with Jesus with Him as your number one agape, Pearl of Great Price.
 
 Have in your heart faith in Jesus Christ as your Lord and Saviour:
 
@@ -50899,7 +50999,7 @@ Date: 2024-10-03 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-03 Thu 20:39
+Created: 2024-10-03 Thu 22:48
 
 Validate
 
