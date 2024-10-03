@@ -671,7 +671,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfadcefb) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd4bbe16) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13855,7 +13855,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org9db6ae4)
+See: [33.4.1](#org38c8d50)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -16781,6 +16781,27 @@ If you listen to someone with a deceptive, beguiling spirit, then the same measu
 > **[Isaiah 30:1](https://www.biblegateway.com/passage/?search=Isaiah%2030%3A1&version=ESV)** - Ah, stubborn children, declares the LORD, who carry out a plan, but not mine, and who make an alliance, but not of my Spirit, that they may add sin to sin; (ESV)
 
 And that would would probably affect the truthfulness of your dreams if you have a prophetic gift, but there are other reasons a person may get dreams of falsehood including spiritual attack.
+
+-   **[youtube.com: The Crucial Meaning of God's Word - John MacArthur #shorts #bible #christ](https://www.youtube.com/shorts/EjSFeEuFjbo):** If you're a new believer or a believer
+    who has not been developed in
+    understanding of the word of God you are
+    susceptible to Satan's lies.
+    
+    And it's not just misinformation that has some minor
+    consequences. Misinformation from the
+    kingdom of darkness has disastrous and
+    devastating consequences.
+    
+    So to know the the Word is absolutely critical. To
+    know what it means is of course
+    essential because the revelation of God
+    is in the understanding. Let me say it
+    this way: <span class="underline">The meaning of the Scripture **is**
+    the Scripture.</span> If you don't get the
+    meaning right, you didn't get the
+    revelation, you got something else. And
+    there are a lot of false interpretations
+    floating around.
 
 
 ### No lie is of the truth
@@ -23564,19 +23585,33 @@ Jesus' sacrifice is comprehensive:
 
 ### Love / knowing Jesus / Truth
 
-In treasuring Jesus' words, keeping them, guarding them, observing them, in Him the agape (treasuring, valuing love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
+In agape love treasuring Jesus' words, keeping them, guarding them, observing them, obeying them out of trusting in Jesus, in Him the agape (treasuring, valuing love) has truly been perfected. Having Jesus' teachings in us clearly should result in us walking as He did:
 
 > **[I John 2:5-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A5-6&version=ESV)** - but **whoever keeps ([5083. téreó](https://biblehub.com/greek/5083.htm)) His word** ([G3056 logos](https://www.blueletterbible.org/lexicon/g3056/kjv/tr/0-1/)), in him the love ([G26 agape](https://www.blueletterbible.org/lexicon/g26/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) has truly been perfected ([G5048 teleioo](https://www.blueletterbible.org/lexicon/g5048/kjv/tr/0-1/)). By this we know ([G1097 ginosko](https://www.blueletterbible.org/lexicon/g1097/kjv/tr/0-1/)) that we are in Him: whoever says he abides in him ought to <ins>walk in the same way in which he walked.</ins> (ESV)
+
+We are commanded to reject the idols to treasure God first. If we do this then we draw near to God and God draws near to us:
+
+> **[II Corinthians 6:17-18](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A17-18&version=ESV)** - Therefore **go out from their midst, and be separate from them**, says the Lord, and **touch no unclean thing; then I will welcome you**, and I will be a father to you, and you shall be sons and daughters to me, says the Lord Almighty. (ESV)
+
+> **[James 4:8](https://www.biblegateway.com/passage/?search=James%204%3A8&version=ESV)** - **Draw near to God, and he will draw near to you**. Cleanse your hands, you sinners, and purify your hearts, you double-minded. (ESV)
+
+> **[Psalms 73:25-28](https://www.biblegateway.com/passage/?search=Psalms%2073%3A25-28&version=ESV)** - Whom have I in heaven but you? And **there is nothing on earth that I desire besides you**. My flesh and my heart may fail, but **God is the strength of my heart and my portion** forever. For behold, **those who are far from you shall perish; you put an end to everyone who is unfaithful to you**. But for me **it is good to be near God**; I have made the Lord GOD my refuge, that I may tell of all your works. (ESV)
+
+Having an obedience that is based on trust in Jesus, we come into doing the will of God:
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
 > **[Philippians 3:14](https://www.biblegateway.com/passage/?search=Philippians%203%3A14&version=ESV)** - I press on toward the goal for the prize of **the upward call of God in Christ Jesus.** (ESV)
+
+Following the teachings of Christ out of a trust in Jesus:
 
 > **[Didache Chapter 6](https://www.earlychristianwritings.com/text/didache-roberts.html)** - See that no one causes you to err from this way of the Teaching, since apart from God it teaches you. For **if you are able to bear the entire yoke of the Lord, you will be perfect; but if you are not able to do this, do what you are able.**
 
 > **[Matthew 5:47-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A47-48&version=ESV)** - And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect.
 
 > **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
+
+Agape treasuring our family in Christ, God abides in us:
 
 > **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
 
@@ -27883,7 +27918,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org9db6ae4)
+See: [33.4.1](#org38c8d50)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30076,6 +30111,22 @@ Paul following and teaching Christ's teachings:
     as possible. We fall short, we make
     mistakes, we're not always at our best,
     but as much as possible. We provide a testimony.
+
+-   Do not resist the one who is evil - but do good to them
+    -   **[Romans 12:21](https://www.biblegateway.com/passage/?search=Romans%2012%3A21&version=ESV)** - Do not be overcome by evil, but **overcome evil with good**. (ESV)
+    -   if anyone slaps you on the right cheek, turn to him the other also
+    -   if anyone would sue you and take your tunic, let him have your cloak as well
+    -   if anyone forces you to go one mile, go with him two miles
+    -   Give to the one who begs from you, and do not refuse the one who would borrow from you
+    -   Love your enemies and pray for those who persecute you
+
+> **[Matthew 5:38-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A38-48&version=ESV)** - You have heard that it was said, An eye for an eye and a tooth for a tooth. But I say to you, **Do not resist the one who is evil**. But **if anyone slaps you on the right cheek, turn to him the other also**. And **if anyone would sue you and take your tunic, let him have your cloak as well**. And **if anyone forces you to go one mile, go with him two miles**. **Give to the one who begs from you, and do not refuse the one who would borrow from you**. You have heard that it was said, You shall love your neighbor and hate ([3404. miseó, 3404 miséō – properly, to detest (on a comparative basis); hence, denounce; to love someone or something less than someone (something) else, i.e. to renounce one choice in favor of another.](https://biblehub.com/greek/3404.htm)) your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+> **[I Thessalonians 5:14](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A14&version=ESV)** - And we urge you, brothers, admonish the idle, encourage the fainthearted, help the weak, be patient with them all. (ESV)
+
+With Jesus' commandments in mind, we should have joy when the time of testing happens and things are taken away from us. It can take a really long time. But we need to not shrink back. I'm also speaking to myself.
+
+> **[Hebrews 10:34-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A34-39&version=ESV)** - For **you had compassion on those in prison, and you joyfully accepted the plundering of your property**, since you knew that **you yourselves had a better possession and an abiding one**. Therefore do not throw away your confidence, which has a great reward. For you have need of endurance, so that **when you have done the will of God you may receive what is promised**. For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
 
 
 ### Do your good not to get some kind of earthly praise
