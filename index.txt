@@ -3476,7 +3476,18 @@ And God helps us to do that. God changes our heart to love Him, so that we will 
 
 I believe that as we believe and obey Jesus, God sends His Spirit to help us to obey Him.
 
-In other words, believing the gospel and repentance leads to getting born-again of the Spirit.
+In other words, believing the gospel and trusting repentance leads to getting born-again of the Spirit.
+
+I just want to illustrate how people who hear, believe and do are trusting of Jesus. And we gotta trust Jesus
+(Isaiah 12:2, Hebrews 12:2). We should believe Him and obey Him - not one without the other. Believers who are not
+obeyers are like people who only turn left. 'Obeyers' who are not believers are like people who only turn right.
+People who believe and obey when they hear any of Jesus' teachings including commandments are like people who take
+the straight and narrow. Jesus commanded us to trust in Him so if we hear His word to trust in Him and we do trust
+in Him we have become obedient. I think we're supposed to continue to trust Jesus, and get off the milk and onto
+the solid food as Hebrews describes. We have to abide in Jesus' teachings.
+
+  Hebrews 5:14 - But solid food is for the mature, for those who have their powers of discernment trained by
+  constant practice to distinguish good from evil. (ESV)
 
 I believe that belief and obedience to Jesus naturally comes before being born-again of the Spirit, but that
 obedience is much easier after being born-again of the Spirit, because this is the way it happened with me, and
@@ -4793,6 +4804,32 @@ should really go hand-in-hand.
 - Toss Me in the Water - YouTube @time: 3 min 37 sec
 - youtube.com: Live Like You Belong in Heaven: Philippians 3:18-21, Part 7
 
+When you believe Jesus' words you are trusting of Jesus. If you believe Jesus then you believe when He says He is
+the Son of God, for example. Someone who hears Jesus' voice and does it is someone who believes Jesus and trusts
+Him. A person can have a heart of obedience to Jesus and that's a heart of trust, it's a heart of belief. If you
+trust Jesus you will believe what He says and you will have obedience to Him.
+
+At it's most basic form repentance means a person changes their mind to believe and trust and have a heart of
+obedience - accepting of the will of God.
+
+We keep eyes on Jesus and trust Him:
+
+  Hebrews 12:2 - looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him
+  endured the cross, despising the shame, and is seated at the right hand of the throne of God. (ESV)
+
+  Isaiah 12:2 - Behold, God is my salvation; I will trust, and will not be afraid; for the LORD GOD is my strength
+  and my song, and he has become my salvation. (ESV)
+
+We must be taught by Jesus. We must be teachable. We must accept what God says and accept he one He sent (Jesus):
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+Here is a verse that shows that repenting from evil deeds is important:
+
+  Revelation of John 2:22 - Behold, I will throw her onto a sickbed, and those who commit adultery with her I will
+  throw into great tribulation, unless they repent of her works, (ESV)
+
   John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
   (ESV)
 
@@ -5269,10 +5306,10 @@ We absolutely must put a stop to sexual immorality and idolatry:
   But I have this against you, that you tolerate that woman Jezebel, who calls herself a prophetess and is
   teaching and seducing my servants to practice sexual immorality and to eat food sacrificed to idols. I gave her
   time to repent, but she refuses to repent of her sexual immorality. Behold, I will throw her onto a sickbed, and
-  those who commit adultery with her I will throw into great tribulation, unless they repent of her works, and I
+  those who commit adultery with her I will throw into great tribulation, unless they *repent of her works, and I
   will strike her children dead. And all the churches will know that I am he who searches mind and heart, and I
   will give to each of you as your works deserve. But to the rest of you in Thyatira, who do not hold this
-  teaching, who have not learned what some call the deep things of Satan, to you I say, I do not lay on you any
+  teaching, who have not learned what some call the deep things of Satan*, to you I say, I do not lay on you any
   other burden. (ESV)
 
 We must keep Jesus' teachings to the end:
@@ -41379,11 +41416,23 @@ God will be the judge of who has had faith in Jesus, and who has obeyed Him.
 But repentance is a work of the heart which is an act of faith. I believe repentance is inseparable from faith
 because intrinsic to faith is belief and intrinsic to belief is metanoia (changing one's mind).
 
-At it's most basic form repentance means a person believes in Jesus as the Son of God and the Messiah who, being
-innocent, paid the price for their sin through His broken body and shed blood on the cross - a perfect and eternal
-offering; that He died there but God resurrected Him, and He is Lord of Heaven and Earth, and has a heart of
-obedience to the will of God, wanting to do the will of God, which involves their sanctification. We must honour
-Jesus.
+At it's most basic form repentance means a person changes their mind to believe and trust and have a heart of
+obedience - accepting of the will of God.
+
+We keep eyes on Jesus and trust Him:
+
+  Hebrews 12:2 - looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him
+  endured the cross, despising the shame, and is seated at the right hand of the throne of God. (ESV)
+
+  Isaiah 12:2 - Behold, God is my salvation; I will trust, and will not be afraid; for the LORD GOD is my strength
+  and my song, and he has become my salvation. (ESV)
+
+Most importantly we must believe in Jesus as the Son of God and the Messiah who, being innocent, paid the price
+for their sin through His broken body and shed blood on the cross - a perfect and eternal offering; that He died
+there but God resurrected Him, and He is Lord of Heaven and Earth, and has a heart of obedience to the will of
+God, wanting to do the will of God, which involves their sanctification.
+
+We must honour Jesus.
 
 But I believe we are forgiven to forgive others. That must be part of the act of faith and the change of heart, I
 think.
@@ -51059,11 +51108,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-03 Thu 00:00
+Date: 2024-10-04 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-04 Fri 15:48
+Created: 2024-10-04 Fri 23:28
 
 Validate
 
