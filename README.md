@@ -671,7 +671,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org04b9a5b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org158ff2c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1348,7 +1348,7 @@ Agape love must not be to anything of the world:
 
 -   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
-Agape-ing things of this world is worldly-mindedness:
+Agape-ing things of this world is worldly-mindedness and makes it very difficult to discern the will of God:
 
 > **[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)** - Woe to you Pharisees! For you love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the best seat in the synagogues and greetings in the marketplaces. (ESV)
 
@@ -1374,7 +1374,7 @@ Agape-ing things of this world is worldly-mindedness:
     never change. Do you promise?
     **Son, the most important thing in our our Lives is that we always love each other.** Now, you remember that, okay? Okay boys, prayers.
 
-I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -3473,6 +3473,8 @@ The present form of it will pass away and **is** passing away:
 
 > **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)** - Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will have treasure in heaven; and come, follow me. (ESV)
 
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
+
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
 > **[Matthew 6:21](https://www.biblegateway.com/passage/?search=Matthew%206%3A21&version=ESV)** - For where your treasure is, there your heart will be also. (ESV)
@@ -5001,6 +5003,8 @@ We should be willing to have our pockets completely emptied as we give mercy to 
 AMEN!!
 
 > **[Deuteronomy 30:6](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A6&version=ESV)** - And **the LORD your God will circumcise your heart** and the heart of your offspring, so that you will **love the LORD your God** <ins>with all your heart and with all your soul</ins>, **that you may live**. (ESV)
+
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -7774,6 +7778,8 @@ Do not love the world:
 -   do not love desires of the flesh, and
 -   do not love the desires of the eyes, and
 -   do not love pride in possessions
+
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -13993,7 +13999,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5f75b8c)
+See: [33.4.1](#org79c1c29)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -19736,6 +19742,8 @@ The world (the remaining people, who have not repented) may know that Father God
 
 Servants of Jesus who are servants of God encounter resistance from the world as they fall out of love with the world:
 
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
+
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
 > **[II Timothy 4:10](https://www.biblegateway.com/passage/?search=2%20Timothy%204%3A10&version=ESV)** - For Demas, in love with this present world, has deserted me and gone to Thessalonica. Crescens has gone to Galatia, Titus to Dalmatia. (ESV)
@@ -24221,7 +24229,7 @@ Jesus Himself is the bread of God - Jesus Himself **is** the source of life:
 
 -   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
-I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -26391,11 +26399,11 @@ Agape love must not be to anything of the world:
 
 -   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
-Agape-ing things of this world is worldly-mindedness:
+Agape-ing things of this world is worldly-mindedness and makes it very difficult to discern the will of God:
 
 > **[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)** - Woe to you Pharisees! For you love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the best seat in the synagogues and greetings in the marketplaces. (ESV)
 
-I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -26480,7 +26488,13 @@ The will of God is that by doing good you should put to silence the ignorance of
 
 The will of God is that we should not be materialistic or worldly. We must limit our agape love to God and to other people, especially our family in Christ and not agape love anything of the world:
 
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
+
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
+
+If we get conformed to the world then we won't be able to discern the will of God:
+
+> **[Romans 12:1-2](https://www.biblegateway.com/passage/?search=Romans%2012%3A1-2&version=ESV)** - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living sacrifice, holy and acceptable to God, which is your spiritual worship. **Do not be conformed to this world**, but <ins>be transformed by the renewal of your mind</ins>, **that by testing you may discern what is the will of God**, what is good and acceptable and perfect. (ESV)
 
 After doing the will of God, and not shrinking back, we receive what is promised:
 
@@ -26508,11 +26522,11 @@ We must accept Jesus, believe in Jesus, believe Jesus, and keep Jesus' words - a
 
 -   **Sermon:** [youtube.com: Counterfeit Gods - Tim Keller](https://www.youtube.com/watch?v=_mK65lpveSM)
 
-I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
-
-> **I John 2:14** - I write to you, fathers, because you know him who is from the beginning. I write to you, young men, because you are strong, and the word of God abides in you, and you have overcome the evil one. (ESV)
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
+
+> **I John 2:14** - I write to you, fathers, because you know him who is from the beginning. I write to you, young men, because you are strong, and the word of God abides in you, and you have overcome the evil one. (ESV)
 
 > **[I John 2:17](https://www.biblegateway.com/passage/?search=1%20John%202%3A17&version=ESV)** - The world ([G2889 kosmos](https://www.blueletterbible.org/lexicon/g2889/kjv/tr/0-1/)) is passing ([G3855 parago](https://www.blueletterbible.org/lexicon/g3855/kjv/tr/0-1/)) away ([G3855 parago](https://www.blueletterbible.org/lexicon/g3855/kjv/tr/0-1/)), and also its lusts ([G1939 epithumia](https://www.blueletterbible.org/lexicon/g1939/kjv/tr/0-1/)); but the one who does ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)) the will ([G2307 thelema](https://www.blueletterbible.org/lexicon/g2307/kjv/tr/0-1/)) of God ([G2316 theos](https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/)) **lives ([G3306 meno](https://www.blueletterbible.org/lexicon/g3306/kjv/tr/0-1/))** forever ([G165 aion](https://www.blueletterbible.org/lexicon/g165/kjv/tr/0-1/)).
 
@@ -28114,7 +28128,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5f75b8c)
+See: [33.4.1](#org79c1c29)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -32636,7 +32650,7 @@ Agape love must not be to anything of the world:
 
 > **[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)** - Woe to you Pharisees! For you love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the best seat in the synagogues and greetings in the marketplaces. (ESV)
 
-I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -34059,7 +34073,7 @@ This sermon helps:
 I think the judiciary system should be careful not to infringe on basic human rights going forward with the AI-generated fiction which is now in the world,
 otherwise as I have said, robots may be taking human wives before poor people can, and that to God is an abomination I assure you - and I wouldn't want to tempt God.
 
-I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love:
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -34468,6 +34482,8 @@ I guess it's quite important to forsake all else for Jesus:
 The Pearl of Great Price is Jesus and we want to gain Christ, know Christ and invest our lives for His gospel. In following Jesus, eternal life is still a free gift because as Paul says here, what we give up is worthless compared to knowing Christ:
 
 > **[Philippians 3:7-8](https://www.biblegateway.com/passage/?search=Philippians%203%3A7-8&version=ESV)** - But whatever gain I had, I counted as loss for the sake of Christ. Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ (ESV)
+
+I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
 > **[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)** - Do not love (**[agapate](https://biblehub.com/greek/agapate_25.htm)**) the world or the things in the world. If anyone loves the world, the love of the Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and pride in possessions—is not from the Father but is from the world. And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
 
@@ -35817,6 +35833,26 @@ Jesus is not ashamed to call brothers [and sisters] those who are cleaned up and
     33  αὐτοῦ     φῶς  ,
     34  of Him    light
     35  PPro-GM3S N-ANS
+
+Being a saint (trusting, faithful, obedient Christians who endure while keeping the commandments of God and their faith in Jesus):
+
+> **[Revelation of John 14:12](https://www.biblegateway.com/passage/?search=Revelation%2014%3A12&version=ESV)** - Here is a call for the endurance of the saints, those who keep the commandments of God and their faith in Jesus.
+
+-   **Quote by Charles Spurgeon:** All are "saints" whom God has called by His grace and sanctified by His Spirit;
+
+Jesus is not ashamed to call brothers [and sisters] those who are cleaned up and sanctified through obedience to Jesus' gospel:
+
+> **[Hebrews 2:11](https://www.biblegateway.com/passage/?search=Hebrews%202%3A11&version=ESV)** - For he who sanctifies and those who are sanctified all have one origin. That is why he is not ashamed to call them brothers, (ESV)
+
+There is a promise for the saints who conquer and keep Jesus' teachings to the end - authority over the nations:
+
+> **[Revelation of John 2:25-29](https://www.biblegateway.com/passage/?search=Revelation%202%3A25-29&version=ESV)** - Only hold fast what you have until I come. <ins>The one who conquers and who **keeps my works until the end**, to him I will give authority over the nations</ins>, and he will rule them with a rod of iron, as when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give him the morning star. He who has an ear, let him hear what the Spirit says to the churches. (ESV)
+
+> **[II Timothy 2:12](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A12&version=ESV)** - **if we endure, we will also reign with him**; if we deny him, he also will deny us; (ESV)
+
+Conquerors should not let sin reign in their mortal bodies:
+
+> **[Romans 7:11-14](https://www.biblegateway.com/passage/?search=Romans%207%3A11-14&version=ESV)** - So you also must consider yourselves dead to sin and alive to God in Christ Jesus. Let not sin therefore reign in your mortal bodies, to make you obey their passions. Do not present your members to sin as instruments for unrighteousness, but present yourselves to God as those who have been brought from death to life, and your members to God as instruments for righteousness. For sin will have no dominion over you, since you are not under law but under grace. (ESV)
 
 > **[Revelation of John 3:18-21](https://www.biblegateway.com/passage/?search=Revelation%203%3A18-21&version=ESV)** - I counsel you to buy from me gold refined by fire, so that you may be rich, and white garments so that you may clothe yourself and the shame of your nakedness may not be seen, and salve to anoint your eyes, so that you may see. **Those whom I love, I reprove and discipline, so be zealous and repent.** Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I will come in to him and eat with him, and he with me. **The one who conquers, I will grant him to sit with me on my throne, as I also conquered and sat down with my Father on his throne.** (ESV)
 
