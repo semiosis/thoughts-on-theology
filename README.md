@@ -671,7 +671,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb1736be) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org04b9a5b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4465,6 +4465,20 @@ I <ins>do **not** think</ins> the Golden Rule is saying that "God is humanity." 
 I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by our enemies - love people the way Father God loves us:
 
 > **[Matthew 7:9-12](https://www.biblegateway.com/passage/?search=Matthew%207%3A9-12&version=ESV)** - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will **your Father** who is in heaven give good things to those who ask him! So **whatever you wish that others would do to you, do also to them**, for this is the Law and the Prophets. (ESV)
+
+We should be imitators of God's love:
+
+> **[Psalms 103:8](https://www.biblegateway.com/passage/?search=Psalms%20103%3A8&version=ESV)** - The LORD is **merciful and gracious, slow to anger and abounding in steadfast love.** (ESV)
+
+> **[Ephesians 5:1-2](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1-2&version=ESV)** - Therefore **be imitators of God, as beloved children**. And **walk in love**, as Christ loved us and gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
+
+> **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love ([25. agapaó](https://biblehub.com/greek/25.htm)) your enemies means "treasuring your enemies" and looks like not <ins>repaying evil for evil</ins>. It sometimes looks like refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with good:
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, **Love your enemies** and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must <ins>be perfect, as your heavenly Father is perfect.</ins> (ESV)
+
+> **[Proverbs 25:21-22](https://www.biblegateway.com/passage/?search=Proverbs%2025%3A21-22&version=ESV)** - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
 
 Also, as far as law-keeping goes, I believe Christians are not prohibited from following other parts of the Mosaic Law by faith.
 
@@ -13979,7 +13993,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc0feab9)
+See: [33.4.1](#org5f75b8c)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -17311,6 +17325,12 @@ We should be imitators of God's love:
 > **[Ephesians 5:1-2](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1-2&version=ESV)** - Therefore **be imitators of God, as beloved children**. And **walk in love**, as Christ loved us and gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
 
 > **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love ([25. agapaó](https://biblehub.com/greek/25.htm)) your enemies means "treasuring your enemies" and looks like not <ins>repaying evil for evil</ins>. It sometimes looks like refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with good:
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, **Love your enemies** and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must <ins>be perfect, as your heavenly Father is perfect.</ins> (ESV)
+
+> **[Proverbs 25:21-22](https://www.biblegateway.com/passage/?search=Proverbs%2025%3A21-22&version=ESV)** - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
 
 -   ****[3709. orgé](https://biblehub.com/greek/3709.htm)**:** "Orgē comes from the verb oragō meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst, but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so Hendriksen)" (D. E. Hiebert, at [1 Thes 1:10](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A10&version=ESV)).
 
@@ -28094,7 +28114,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc0feab9)
+See: [33.4.1](#org5f75b8c)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -30013,9 +30033,11 @@ Go above and beyond. Forgive:
 
 > **[Matthew 5:40-42](https://www.biblegateway.com/passage/?search=Matthew%205%3A40-42&version=ESV)** - And if anyone would sue you and take your tunic, let him have your cloak as well. And if anyone forces you to go one mile, go with him two miles. Give to the one who begs from you, and do not refuse the one who would borrow from you. (ESV)
 
-Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect:
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love ([25. agapaó](https://biblehub.com/greek/25.htm)) your enemies means "treasuring your enemies" and looks like not <ins>repaying evil for evil</ins>. It sometimes looks like refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with good:
 
 > **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, **Love your enemies** and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must <ins>be perfect, as your heavenly Father is perfect.</ins> (ESV)
+
+> **[Proverbs 25:21-22](https://www.biblegateway.com/passage/?search=Proverbs%2025%3A21-22&version=ESV)** - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
 
 Be perfect as your heavenly Father is perfect:
 
@@ -34517,6 +34539,8 @@ Jesus commands us to love our enemies:
 
 > **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, **Love your enemies** and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must <ins>be perfect, as your heavenly Father is perfect.</ins> (ESV)
 
+> **[Proverbs 25:21-22](https://www.biblegateway.com/passage/?search=Proverbs%2025%3A21-22&version=ESV)** - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
+
 But they were never my enemies because I never considered them my enemy. I will always love them:
 
 > **[Didache Chapter 1](https://www.earlychristianwritings.com/text/didache-roberts.html)** - &#x2026; But love those who hate you, and you shall not have an enemy. &#x2026;
@@ -35453,6 +35477,20 @@ I <ins>do **not** think</ins> the Golden Rule is saying that "God is humanity." 
 I think the Golden Rule is really telling us to be loving, and love our enemies, as we would want to be loved by our enemies - love people the way Father God loves us:
 
 > **[Matthew 7:9-12](https://www.biblegateway.com/passage/?search=Matthew%207%3A9-12&version=ESV)** - Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will **your Father** who is in heaven give good things to those who ask him! So **whatever you wish that others would do to you, do also to them**, for this is the Law and the Prophets. (ESV)
+
+We should be imitators of God's love:
+
+> **[Psalms 103:8](https://www.biblegateway.com/passage/?search=Psalms%20103%3A8&version=ESV)** - The LORD is **merciful and gracious, slow to anger and abounding in steadfast love.** (ESV)
+
+> **[Ephesians 5:1-2](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1-2&version=ESV)** - Therefore **be imitators of God, as beloved children**. And **walk in love**, as Christ loved us and gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
+
+> **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love ([25. agapaó](https://biblehub.com/greek/25.htm)) your enemies means "treasuring your enemies" and looks like not <ins>repaying evil for evil</ins>. It sometimes looks like refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with good:
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, **Love your enemies** and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must <ins>be perfect, as your heavenly Father is perfect.</ins> (ESV)
+
+> **[Proverbs 25:21-22](https://www.biblegateway.com/passage/?search=Proverbs%2025%3A21-22&version=ESV)** - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
 
 I'm still getting slammed with these antichrist dreams at night up till today <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-07-13 Sat&gt;</span></span>, but I'm going to stick with what Scripture says.
 These dreams and visions are very false with regards to what the Holy Bible says.

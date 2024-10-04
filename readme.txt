@@ -6707,6 +6707,31 @@ our enemies - love people the way Father God loves us:
   more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others
   would do to you, do also to them, for this is the Law and the Prophets. (ESV)
 
+We should be imitators of God's love:
+
+  Psalms 103:8 - The LORD is merciful and gracious, slow to anger and abounding in steadfast love. (ESV)
+
+  Ephesians 5:1-2 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
+
+  I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
+  knows God. (ESV)
+
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love (25. agapao) your
+enemies means "treasuring your enemies" and looks like not repaying evil for evil. It sometimes looks like
+refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with
+good:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Proverbs 25:21-22 - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to
+  drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
+
 Also, as far as law-keeping goes, I believe Christians are not prohibited from following other parts of the Mosaic
 Law by faith.
 
@@ -25678,6 +25703,21 @@ We should be imitators of God's love:
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love (25. agapao) your
+enemies means "treasuring your enemies" and looks like not repaying evil for evil. It sometimes looks like
+refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with
+good:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Proverbs 25:21-22 - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to
+  drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
+
 3709. orge
 "Orge comes from the verb orago meaning, 'to teem, to swell'; and thus implies that it is not a sudden outburst,
 but rather (referring to God's) fixed, controlled, passionate feeling against sin . . . a settled indignation (so
@@ -43263,7 +43303,10 @@ Go above and beyond. Forgive:
   anyone forces you to go one mile, go with him two miles. Give to the one who begs from you, and do not refuse
   the one who would borrow from you. (ESV)
 
-Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect:
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love (25. agapao) your
+enemies means "treasuring your enemies" and looks like not repaying evil for evil. It sometimes looks like
+refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with
+good:
 
   Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
   to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
@@ -43271,6 +43314,9 @@ Love your enemies as well as your friends. Be like Your Heavenly Father. Be perf
   if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
   greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
   therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Proverbs 25:21-22 - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to
+  drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
 
 Be perfect as your heavenly Father is perfect:
 
@@ -49067,6 +49113,9 @@ Jesus commands us to love our enemies:
   greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
   therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
+  Proverbs 25:21-22 - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to
+  drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
+
 But they were never my enemies because I never considered them my enemy. I will always love them:
 
   Didache Chapter 1 - ... But love those who hate you, and you shall not have an enemy. ...
@@ -50411,6 +50460,31 @@ our enemies - love people the way Father God loves us:
   more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others
   would do to you, do also to them, for this is the Law and the Prophets. (ESV)
 
+We should be imitators of God's love:
+
+  Psalms 103:8 - The LORD is merciful and gracious, slow to anger and abounding in steadfast love. (ESV)
+
+  Ephesians 5:1-2 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
+
+  I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
+  knows God. (ESV)
+
+Love your enemies as well as your friends. Be like Your Heavenly Father. Be perfect. Love (25. agapao) your
+enemies means "treasuring your enemies" and looks like not repaying evil for evil. It sometimes looks like
+refusing to do evil and instead doing good to those who do you harm, taking the initiative in overcoming evil with
+good:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Proverbs 25:21-22 - If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to
+  drink, for you will heap burning coals on his head, and the LORD will reward you. (ESV)
+
 I'm still getting slammed with these antichrist dreams at night up till today <2024-07-13 Sat>, but I'm going to
 stick with what Scripture says. These dreams and visions are very false with regards to what the Holy Bible says.
 I wont trust every spirit but only those which confess Jesus biblically (i.e. as having come from God, walked the
@@ -51108,11 +51182,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-04 Fri 00:00
+Date: 2024-10-05 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-04 Fri 23:28
+Created: 2024-10-05 Sat 09:01
 
 Validate
 
