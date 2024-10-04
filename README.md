@@ -671,7 +671,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org72a5ea5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgcd66fdb) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -13538,6 +13538,18 @@ I just want to be clear that good works we do in obedience to Jesus are still co
 
 > **[Ephesians 2:8-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-9&version=ESV)** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
+No-one can boast to God:
+
+> **[I Corinthians 1:28-29](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A28-29&version=ESV)** - God chose what is low and despised in the world, even things that are not, to bring to nothing things that are, so that **no human being might boast in the presence of God.** (ESV)
+
+Before God, no-one can boast of being justified by works done apart from God:
+
+> **[Romans 4:2](https://www.biblegateway.com/passage/?search=Romans%204%3A2&version=ESV)** - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
+
+See even the Apostle Paul from my perspective has entertained the idea that a person could be justified by works but that **they cannot boast before God**, and I would say because they were saved by their work because they were obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
+
+> **[James 2:24](https://www.biblegateway.com/passage/?search=James%202%3A24&version=ESV)** - You see that a person is justified by works and not by faith alone. (ESV)
+
 Justification and redemption are a total gift:
 
 > **[Romans 3:21-26](https://www.biblegateway.com/passage/?search=Romans%203%3A21-26&version=ESV)** - But now the righteousness of God has been manifested apart from the law, although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
@@ -13661,9 +13673,11 @@ Notes for **[James 2:14-26](https://www.biblegateway.com/passage/?search=James%2
 -   **faith was active along with his works, and faith was completed by his works** - AMEN. In Abraham's case, his faith was completed by his works.
 -   **You see that a person is justified by works and not by faith alone.** - I believe that Jesus has done the work that we may be justified by faith alone with His works, and that Jesus, having first been perfectly obedient Himself, works in us to save us, sanctify us as we are obedient to Him, following Him.
 
+Before God, no-one can boast of being justified by works done apart from God:
+
 > **[Romans 4:2](https://www.biblegateway.com/passage/?search=Romans%204%3A2&version=ESV)** - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
 
-See even the Apostle Paul from my perspective has entertained the idea that a person could be justified by works but that they cannot boast before God, and I would say because they were saved by their work because they were obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
+See even the Apostle Paul from my perspective has entertained the idea that a person could be justified by works but that **they cannot boast before God**, and I would say because they were saved by their work because they were obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
 
 > **[James 2:24](https://www.biblegateway.com/passage/?search=James%202%3A24&version=ESV)** - You see that a person is justified by works and not by faith alone. (ESV)
 
@@ -13943,7 +13957,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga799c99)
+See: [33.4.1](#orge14f663)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28058,7 +28072,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga799c99)
+See: [33.4.1](#orge14f663)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

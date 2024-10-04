@@ -20099,6 +20099,21 @@ after He has washed us:
   Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, not a result of works, so that no one may boast. (ESV)
 
+No-one can boast to God:
+
+  I Corinthians 1:28-29 - God chose what is low and despised in the world, even things that are not, to bring to
+  nothing things that are, so that no human being might boast in the presence of God. (ESV)
+
+Before God, no-one can boast of being justified by works done apart from God:
+
+  Romans 4:2 - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
+
+See even the Apostle Paul from my perspective has entertained the idea that a person could be justified by works
+but that they cannot boast before God, and I would say because they were saved by their work because they were
+obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
+
+  James 2:24 - You see that a person is justified by works and not by faith alone. (ESV)
+
 Justification and redemption are a total gift:
 
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
@@ -20336,6 +20351,8 @@ faith was completed by his works.
 - You see that a person is justified by works and not by faith alone. - I believe that Jesus has done the work
 that we may be justified by faith alone with His works, and that Jesus, having first been perfectly obedient
 Himself, works in us to save us, sanctify us as we are obedient to Him, following Him.
+
+Before God, no-one can boast of being justified by works done apart from God:
 
   Romans 4:2 - For if Abraham was justified by works, he has something to boast about, but not before God. (ESV)
 
@@ -51046,7 +51063,7 @@ Date: 2024-10-03 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-04 Fri 12:49
+Created: 2024-10-04 Fri 15:48
 
 Validate
 
