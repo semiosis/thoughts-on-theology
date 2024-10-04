@@ -52,7 +52,9 @@ theology:
 |   comes to believing the Word of God in the heart, and if a person has put their
 |   trust in Jesus then they've done something which is in the will of God.
 |  
-|   Our faith and obedience are supposed to increase as we are sanctified.
+|   Our faith and obedience are supposed to continue as we are sanctified and are
+|   taught by Christ, especially by the teachings He taught while walking the
+|   earth even before His crucifixion.
 |  
 |   Trust, belief and obedience, and even agape and knowledge of God when they are
 |   settled in the heart is what God sees and God is our justifier, and He
@@ -776,12 +778,16 @@ the one that gets you started, it's the one that gets you there, and it's the fi
 what severs the root of covetousness, misplaced shame, anxiety, lust, envy, and six more before we are done this
 year. There is one warfare, and it is the warfare of faith.
 
-AMEN!! If only someone had told me this first. Repentance (metanoia) from sin is absolutely necessary for
-salvation. This is because I don't think it's a separate issue from salvation. We continue to believe the Truth,
-being washed in the Truth, God's Word, and alongside that our souls are being purified through obedience to the
-Truth, God's Word. Jesus is the Son of God, the Word of God, the Word of God made flesh. God's spoken Word is the
-Word of God. Jesus' Words are also the Word. We trust, believe and obey the Word of God, and this repentance is
-absolutely necessary for salvation.
+AMEN!! If only someone had told me this first. Repentance (metanoia) from sin is an important part of salvation.
+
+John Piper - We should rely entirely on the righteousness of Christ imputed to us by faith alone as the ground of
+God being 100% for us after which necessary sanctification comes.??
+
+I don't think repentance from sin is a separate issue from salvation but is a continuation of accepting the
+gospel. We continue to believe the Truth, being washed in the Truth, God's Word, and alongside that our souls are
+being purified through obedience to the Truth, God's Word. Jesus is the Son of God, the Word of God, the Word of
+God made flesh. God's spoken Word is the Word of God. Jesus' Words are also the Word. We trust, believe and obey
+the Word of God, and this repentance is absolutely necessary for salvation.
 
 We must embrace sanctification, and be slaves of God, obeying God, obeying righteousness:
 
@@ -4811,8 +4817,8 @@ the Son of God, for example. Someone who hears Jesus' voice and does it is someo
 Him. A person can have a heart of obedience to Jesus and that's a heart of trust, it's a heart of belief. If you
 trust Jesus you will believe what He says and you will have obedience to Him.
 
-At it's most basic form repentance means a person changes their mind to believe and trust and have a heart of
-obedience - accepting of the will of God.
+At it's most basic form repentance (metanoia) means a person changes their mind to believe and trust and have a
+heart of obedience - accepting of the will of God.
 
 We keep eyes on Jesus and trust Him:
 
@@ -28540,6 +28546,9 @@ At the end of the day it's what God has done for us and what God does for us, no
   I John 4:10 - In this is love, not that we have loved God but that he loved us and sent his Son to be the
   propitiation for our sins. (ESV)
 
+Praise
+youtube.com: Way Maker - Paul McClure | Moment
+
 Love is passed forward. Those who are truly obedient, keep His commandments, but that also means accepting that
 God loved us first. God is pre-eminent:
 
@@ -31883,19 +31892,35 @@ We should put our faith in God, and in God's promises:
   about patient endurance, I will keep you from the hour of trial that is coming on the whole world, to try those
   who dwell on the earth.
 
-I think faith is like casting a net to receive something.
+I think faith in God is like casting a net to receive something from God, and obedience to God is like catching
+and riding a wave. because it's by God's power.
 
 If you want to catch something big then you need a lot of faith.
 
 Faith receives salvation, and salvation is the gift which is received through faith. Faith is something which a
 person must have to receive the free gift. The onus is on us to receive the free gift.
 
-We must approach Jesus. We must repent (change our minds, turning from our wicked ways, and turn to God) and obey
-God. God has said many things, about his statutes and about how we should listen to Jesus. I think repentance
-(from the heart turning from sin) is still approaching Jesus because Jesus fulfilled the law.
+We must draw near to God through Jesus.
 
-Humble yourself and obey God's commandments (not out of pride, but out of authentic faith with God, being
-accountable to God, in secret).
+  Hebrews 7:25 - Consequently, he is able to save to the uttermost those who draw near to God through him, since
+  he always lives to make intercession for them. (ESV)
+
+At it's most basic form repentance (metanoia) means a person changes their mind to believe and trust and have a
+heart of obedience - accepting of the will of God.??
+
+We must repent (change our minds, turning from our wicked ways, and turn to God) and obey God and it typically
+starts with changing our beliefs and most importantly believing Jesus Christ is who He says He is - Son of God,
+Messiah - but also believing what He achieved on our behalf with His death, burial and resurrection, and trusting
+the Word of God and obeying Him.
+
+God has said many things, about his statutes and about how we should listen to Jesus.
+
+I think repentance from sin (from the heart turning from sin) out of obedience to God is still approaching Jesus
+because Jesus fulfilled the law but when presented with the gospel message, we are to accept Jesus and submit to
+God's righteousness.
+
+So we should humble ourselves and obey God's commandments (not out of pride, but out of authentic faith with God,
+being accountable to God, in secret).
 
 For example, abstaining from partaking in stealing, or adultery and being faithful to God, even if you lose
 friends over it. This type of obeying God's commandments is nothing to do with pride or self-exultation or
@@ -41496,8 +41521,8 @@ God will be the judge of who has had faith in Jesus, and who has obeyed Him.
 But repentance is a work of the heart which is an act of faith. I believe repentance is inseparable from faith
 because intrinsic to faith is belief and intrinsic to belief is metanoia (changing one's mind).
 
-At it's most basic form repentance means a person changes their mind to believe and trust and have a heart of
-obedience - accepting of the will of God.
+At it's most basic form repentance (metanoia) means a person changes their mind to believe and trust and have a
+heart of obedience - accepting of the will of God.
 
 We keep eyes on Jesus and trust Him:
 
@@ -51267,7 +51292,7 @@ Date: 2024-10-05 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-05 Sat 10:01
+Created: 2024-10-05 Sat 10:55
 
 Validate
 
