@@ -1937,6 +1937,18 @@ It's unity in faith and truth and love:
   II Timothy 1:13 - Follow the pattern of the sound words that you have heard from me, in the faith and love that
   are in Christ Jesus. (ESV)
 
+Being prone to stir up division, particularly over foolish controversies, is bad. Rather, we want unity in faith,
+love and Truth. The Truth does matter:
+
+  Titus 3:10-11 - The saying is trustworthy, and I want you to insist on these things, so that those who have
+  believed in God may be careful to devote themselves to good works. These things are excellent and profitable for
+  people. But avoid foolish controversies, genealogies, dissensions, and quarrels about the law, for they are
+  unprofitable and worthless. As for a person who stirs up division (141. hairetikos), after warning him once and
+  then twice, have nothing more to do with him, knowing that such a person is warped and sinful; he is
+  self-condemned. (ESV)
+
+- 141. hairetikos:: Definition: causing division. Usage: disposed to form sects, sectarian, heretical, factious.
+
 We must agape love God, and our family in Christ and called to agape love even our enemies - How Christians agape
 love:
 
@@ -4818,7 +4830,15 @@ Him. A person can have a heart of obedience to Jesus and that's a heart of trust
 trust Jesus you will believe what He says and you will have obedience to Him.
 
 At it's most basic form repentance (metanoia) means a person changes their mind to believe and trust and have a
-heart of obedience - accepting of the will of God.
+heart of obedience - accepting of the will of God. To repent means stop distrusting and start trusting God.
+
+We have believe Jesus and to trust Jesus. When Jesus says He is the Son of God, we must believe it because we
+trust Him. Likewise when He commands us to repent from sinning we should agree with Jesus and be obedient:
+
+  John 16:8-9 - And when he comes, he will convict the world concerning sin and righteousness and judgment:
+  concerning sin, because they do not believe in me; (ESV)
+
+  Luke 13:3 - No, I tell you; but unless you repent, you will all likewise perish. (ESV)
 
 We keep eyes on Jesus and trust Him:
 
@@ -21001,6 +21021,8 @@ for us by having faith in Jesus, Jesus has taken that curse and paid for it with
   Though they can never keep the law perfectly, they try to follow the law as an expression of faith in God and
   love to Him.
 
+Either way, it's still important to accept Jesus when presented with Jesus.
+
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
 - walk in the footsteps of the faith that our father Abraham had before he was circumcised, I believe with
@@ -21013,6 +21035,12 @@ you would be doing what Abraham did, (ESV)
 foreseeing that God would justify the Gentiles by faith, preached the gospel beforehand to Abraham,
 saying, In you shall all the nations be blessed. So then, those who are of faith are blessed along with
 Abraham, the man of faith. (ESV)
+
+We have believe Jesus and to trust Jesus. When Jesus says He is the Son of God, we must believe it because we
+trust Him. Likewise when He commands us to repent from sinning we should agree with Jesus and be obedient:
+
+  John 16:8-9 - And when he comes, he will convict the world concerning sin and righteousness and judgment:
+  concerning sin, because they do not believe in me; (ESV)
 
   Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
   was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
@@ -31906,30 +31934,39 @@ We must draw near to God through Jesus.
   he always lives to make intercession for them. (ESV)
 
 At it's most basic form repentance (metanoia) means a person changes their mind to believe and trust and have a
-heart of obedience - accepting of the will of God.??
+heart of obedience - accepting of the will of God. To repent means stop distrusting and start trusting God.
 
-We must repent (change our minds, turning from our wicked ways, and turn to God) and obey God and it typically
-starts with changing our beliefs and most importantly believing Jesus Christ is who He says He is - Son of God,
-Messiah - but also believing what He achieved on our behalf with His death, burial and resurrection, and trusting
-the Word of God and obeying Him.
+We have believe Jesus and to trust Jesus. When Jesus says He is the Son of God, we must believe it because we
+trust Him. Likewise when He commands us to repent from sinning we should agree with Jesus and be obedient:
 
-God has said many things, about his statutes and about how we should listen to Jesus.
+  John 16:8-9 - And when he comes, he will convict the world concerning sin and righteousness and judgment:
+  concerning sin, because they do not believe in me; (ESV)
 
-I think repentance from sin (from the heart turning from sin) out of obedience to God is still approaching Jesus
-because Jesus fulfilled the law but when presented with the gospel message, we are to accept Jesus and submit to
-God's righteousness.
+  Luke 13:3 - No, I tell you; but unless you repent, you will all likewise perish. (ESV) #+END[QUOTE]??
 
-So we should humble ourselves and obey God's commandments (not out of pride, but out of authentic faith with God,
-being accountable to God, in secret).
+  We must repent (change our minds, turning from our wicked ways, and turn to God) and obey God and it typically
+  starts with changing our beliefs and most importantly believing Jesus Christ is who He says He is - Son of God,
+  Messiah - but also believing what He achieved on our behalf with His death, burial and resurrection, and
+  trusting the Word of God and obeying Him.
 
-For example, abstaining from partaking in stealing, or adultery and being faithful to God, even if you lose
-friends over it. This type of obeying God's commandments is nothing to do with pride or self-exultation or
-self-righteousness and everything to do with being faithful to God and humbling oneself to God.
+  God has said many things, about his statutes and about how we should listen to Jesus.
 
-Trying to turn from sin in truth and reality.
+  I think repentance from sin (from the heart turning from sin) out of obedience to God is still approaching Jesus
+  because Jesus fulfilled the law but when presented with the gospel message, we are to accept Jesus and submit to
+  God's righteousness.
 
-  2 Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and turn
-  from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
+  So we should humble ourselves and obey God's commandments (not out of pride, but out of authentic faith with
+  God, being accountable to God, in secret).
+
+  For example, abstaining from partaking in stealing, or adultery and being faithful to God, even if you lose
+  friends over it. This type of obeying God's commandments is nothing to do with pride or self-exultation or
+  self-righteousness and everything to do with being faithful to God and humbling oneself to God.
+
+  Trying to turn from sin in truth and reality.
+
+  #+BEGIN[QUOTE] 2 Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek
+  my face and turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their
+  land. (ESV)
 
   Matthew 18:3 - and said, Truly, I say to you, unless you turn and become like children, you will never enter the
   kingdom of heaven. (ESV)
@@ -41522,7 +41559,15 @@ But repentance is a work of the heart which is an act of faith. I believe repent
 because intrinsic to faith is belief and intrinsic to belief is metanoia (changing one's mind).
 
 At it's most basic form repentance (metanoia) means a person changes their mind to believe and trust and have a
-heart of obedience - accepting of the will of God.
+heart of obedience - accepting of the will of God. To repent means stop distrusting and start trusting God.
+
+We have believe Jesus and to trust Jesus. When Jesus says He is the Son of God, we must believe it because we
+trust Him. Likewise when He commands us to repent from sinning we should agree with Jesus and be obedient:
+
+  John 16:8-9 - And when he comes, he will convict the world concerning sin and righteousness and judgment:
+  concerning sin, because they do not believe in me; (ESV)
+
+  Luke 13:3 - No, I tell you; but unless you repent, you will all likewise perish. (ESV)
 
 We keep eyes on Jesus and trust Him:
 
@@ -50790,7 +50835,8 @@ It's important to get to know God, and important to obey the gospel of the Lord 
   Jesus is revealed from heaven with his mighty angels in flaming fire, inflicting vengeance on those who do not
   know God and on those who do not obey the gospel of our Lord Jesus. (ESV)
 
-God is not saving Lucifer/Satan/the devil or his demons/devils. They're all going to hell forever. Amen to that:
+God is not saving Lucifer/Satan/the devil or his demons/devils. Neither is God saving his angels. They're all
+going to Hell, the Lake of Fire, forever. ... Along with those who reject God and do not repent. Amen to that:
 
   Revelation of John 20:7-10 - And when the thousand years are ended, Satan will be released from his prison and
   will come out to deceive the nations that are at the four corners of the earth, Gog and Magog, to gather them
@@ -50831,6 +50877,157 @@ And Jesus' enemies will be made a footstool for His feet:
   once for all. And every priest stands daily at his service, offering repeatedly the same sacrifices, which can
   never take away sins. But when Christ had offered for all time a single sacrifice for sins, he sat down at the
   right hand of God, waiting from that time until his enemies should be made a footstool for his feet. (ESV)
+
+76.1. Hades and Hell - eternal fire
+
+76.1.1. Eternal life vs eternal punishment - Judgement at the close of the age
+
+  Matthew 25:43-46 - I was a stranger and you did not welcome me, naked and you did not clothe me, sick and in
+  prison and you did not visit me. Then they also will answer, saying, Lord, when did we see you hungry or thirsty
+  or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying,
+  Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me. And these will
+  go away into eternal punishment, but the righteous into eternal life. (ESV)
+
+It's really important to get to know God and obey the gospel of our Lord Jesus:
+
+  II Thessalonians 1:5-10 - This is evidence of the righteous judgment of God, that you may be considered worthy
+  of the kingdom of God, for which you are also suffering- since indeed God considers it just to repay with
+  affliction those who afflict you, and to grant relief to you who are afflicted as well as to us, when the Lord
+  Jesus is revealed from heaven with his mighty angels in flaming fire, inflicting vengeance on those who do not
+  know God and on those who do not obey the gospel of our Lord Jesus. They will suffer the punishment of eternal
+  destruction, away from the presence of the Lord and from the glory of his might, when he comes on that day to be
+  glorified in his saints, and to be marveled at among all who have believed, because our testimony to you was
+  believed. (ESV)
+
+  I John 4:6-12 - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us.
+  By this we know the Spirit of truth and the spirit of error. Beloved, let us love one another, for love is from
+  God, and whoever loves has been born of God and knows God. Anyone who does not love does not know God, because
+  God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so
+  that we might live through him. In this is love, not that we have loved God but that he loved us and sent his
+  Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. No one
+  has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
+
+  Matthew 25:41 - Then he will say to those on his left, Depart from me, you cursed, into the eternal fire
+  prepared for the devil and his angels. (ESV)
+
+76.1.2. Sheol / Hades - this is where Jesus went
+
+  Proverbs 15:24 - The path of life leads upward for the prudent, that he may turn away from Sheol beneath. (ESV)
+
+  Proverbs 2:16-19 - So you will be delivered from the forbidden woman, from the adulteress with her smooth words,
+  who forsakes the companion of her youth and forgets the covenant of her God; for her house sinks down to death,
+  and her paths to the departed; none who go to her come back, nor do they regain the paths of life. (ESV)
+
+7585. sheol
+Definition: underworld (place to which people descend at death).
+
+86. hades
+Definition: Hades, the abode of departed spirits. Usage: Hades, the unseen world.
+
+  Psalms 9:17 - The wicked shall return to Sheol, all the nations that forget God. (ESV)
+
+Sheol is not hell, but it's still not a nice place. KJV is not accurate here calling Sheol hell, I think:
+
+  Proverbs 23:14 - If you strike him with the rod, you will save his soul from Sheol. (ESV)
+
+  Proverbs 23:14 - Thou shalt beat him with the rod, and shalt deliver his soul from hell. (KJV)
+
+But Sheol will be thrown into hell after those in Sheol are judged.
+
+  Acts 2:27-28 - For you will not abandon my soul to Hades, or let your Holy One see corruption. You have made
+  known to me the paths of life; you will make me full of gladness with your presence. (ESV)
+
+Death and Hades are thrown into the lake of fire, which is Hell:
+
+  Revelation of John 20:13-14 - And the sea gave up the dead who were in it, Death and Hades (86. hades) gave up
+  the dead who were in them, and they were judged, each one of them, according to what they had done. Then Death
+  and Hades were thrown into the lake of fire. This is the second death, the lake of fire. (ESV)
+
+Jesus went to Hades:
+
+  I Peter 3:18-20 - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring
+  us to God, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the
+  spirits in prison, because they formerly did not obey, when God's patience waited in the days of Noah, while the
+  ark was being prepared, in which a few, that is, eight persons, were brought safely through water. (ESV)
+
+Unrighteous people remain locked up here until judgement:
+
+  II Peter 2:5-10 - if he did not spare the ancient world, but preserved Noah, a herald of righteousness, with
+  seven others, when he brought a flood upon the world of the ungodly; if by turning the cities of Sodom and
+  Gomorrah to ashes he condemned them to extinction, making them an example of what is going to happen to the
+  ungodly; and if he rescued righteous Lot, greatly distressed by the sensual conduct of the wicked (for as that
+  righteous man lived among them day after day, he was tormenting his righteous soul over their lawless deeds that
+  he saw and heard); then the Lord knows how to rescue the godly from trials, and to keep the unrighteous under
+  punishment until the day of judgment, and especially those who indulge in the lust of defiling passion and
+  despise authority. Bold and willful, they do not tremble as they blaspheme the glorious ones, (ESV)
+
+76.1.3. Tartaroo
+
+God cast rebellious angels into this place. It sounds like Hades but maybe worse:
+
+  II Peter 2:4 - For if God did not spare angels when they sinned, but cast them into hell (5020. tartaroo) and
+  committed them to chains of gloomy darkness to be kept until the judgment; (ESV)
+
+God sent/sends rebellious angels into this place called Tartaroo. Satan and his angels and demons will ultimately
+end up in the eternal fire.
+
+  Jude 1:6-7 - And the angels who did not stay within their own position of authority, but left their proper
+  dwelling, he has kept in eternal chains under gloomy darkness until the judgment of the great day - just as
+  Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued
+  unnatural desire, serve as an example by undergoing a punishment of eternal fire. (ESV)
+
+76.1.4. Hell, lake of fire, the second death
+
+Jesus didn't go to the Lake of Fire, as far as I understand. Jesus went to the place of the dead, Hades. The Lake
+of Fire is the final Hell.
+
+  Matthew 10:28 - And do not fear those who kill the body but cannot kill the soul. Rather fear him who can
+  destroy (622. apollumi) both soul and body in hell. (ESV)
+
+622. apollumi
+Definition: to destroy, destroy utterly Usage: (a) I kill, destroy, (b) I lose, mid: I am perishing (the resultant
+death being viewed as certain). 622 apollymi (from 575 /apo, "away from," which intensifies ollymi, "to destroy")
+- properly, fully destroy, cutting off entirely *(note the force of the prefix, 575 /apo). 622 /apollymi
+*("violently/completely perish") implies permanent (absolute) destruction, i.e. to cancel out (remove); "to die,
+with the implication of ruin and destruction" (L & N, 1, 23.106); cause to be lost (utterly perish) by
+experiencing a miserable end.
+
+The Lake of Fire is where unrepentant sinners who reject God go - i.e. those who do not know God and on those who
+do not obey the gospel of our Lord Jesus. It's also where Satan and his angels and demons go:
+
+  Matthew 13:49-50 - So it will be at the close of the age. The angels will come out and separate the evil from
+  the righteous and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth.
+  (ESV)
+
+  Revelation of John 21:8 - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually
+  immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
+  which is the second death. (ESV)
+
+  Mark 9:42-44 - Whoever causes one of these little ones who believe in me to sin, it would be better for him if a
+  great millstone were hung around his neck and he were thrown into the sea. And if your hand causes you to sin,
+  cut it off. It is better for you to enter life crippled than with two hands to go to hell, to the unquenchable
+  fire. (ESV)
+
+  Mark 9:45-46 - If your foot causes you to stumble, cut it off; it is better for you to enter life lame, than,
+  having your two feet, to be cast into hell, [where their worm does not die, and the fire is not quenched.]
+  (NASB)
+
+  Matthew 25:41 - Then he will say to those on his left, Depart from me, you cursed, into the eternal fire
+  prepared for the devil and his angels. (ESV)
+
+  Revelation of John 19:20 - And the beast was captured, and with it the false prophet who in its presence had
+  done the signs by which he deceived those who had received the mark of the beast and those who worshiped its
+  image. These two were thrown alive into the lake of fire that burns with sulfur. (ESV)
+
+  Matthew 13:42 - and throw them into the fiery furnace. In that place there will be weeping and gnashing of
+  teeth. (ESV)
+
+What is the difference between Sheol, Hades, Hell, the lake of fire, Paradise, and Abraham's bosom?
+The lake of fire, mentioned only in Revelation 19:20 and Revelation 20:10, Revelation 14-15, is the final hell,
+the place of eternal punishment for all unrepentant rebels, both angelic and human (Matthew 25:41). It is
+described as a place of burning sulfur, and those in it experience eternal, unspeakable agony of an unrelenting
+nature (Luke 16:24; Mark 9:45-46). Those who have rejected Christ and are in the temporary abode of the dead in
+hades/sheol have the lake of fire as their final destination.
 
 77. Jesus Christ is Lord! :)
 
@@ -51292,7 +51489,7 @@ Date: 2024-10-05 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-05 Sat 10:55
+Created: 2024-10-05 Sat 15:27
 
 Validate
 
