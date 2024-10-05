@@ -15890,10 +15890,10 @@ In hope, Abraham believed against hope. He didn't weaken in faith, even when it 
 believed God, and grew strong in his faith and gave glory to God. We should do the same.
 
 We must believe on Him (God) who raised Jesus from the dead, with the faith that Abraham had - Abraham's faith was
-working, but it wasn't the works that justified Him, it was the faith.
+working. The faith at the start justified him and the works justified him too.
 
 If a person lives their life as a living sacrifice to honour and serve Jesus Christ, which is honouring and having
-faith in God, then all of that is analogous to Abraham's works of faith.
+faith in God as a continuation of their faith, then all of that is analogous to Abraham's works of faith.
 
   Romans 12:1-2 - I appeal to you therefore, brothers, by the mercies of God, to present your bodies as a living
   sacrifice, holy and acceptable to God, which is your spiritual worship. Do not be conformed to this world, but
@@ -51550,7 +51550,7 @@ Date: 2024-10-05 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-05 Sat 20:51
+Created: 2024-10-06 Sun 08:13
 
 Validate
 
