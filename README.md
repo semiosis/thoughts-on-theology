@@ -677,7 +677,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgafe6813) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1964a37) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1848,6 +1848,62 @@ I have also had to:
     -   **[I John 2:4](https://www.biblegateway.com/passage/?search=1%20John%202%3A4&version=ESV)** - Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 -   allow the LORD to build my house
     -   **[Psalms 127:1](https://www.biblegateway.com/passage/?search=Psalms%20127%3A1&version=ESV)** - Unless the LORD builds the house, those who build it labor in vain. Unless the LORD watches over the city, the watchman stays awake in vain. (ESV)
+
+I appreciated Bryce's testimony here as he also had to turn away from false religion to follow Jesus:
+
+-   **[youtube.com: Bryce Crawford's testimony: Sharing Jesus With An Atheist!](https://www.youtube.com/watch?v=-1PtnPEvZPg):** So there was a night
+    I was going to take my life - it was on
+    Christmas of 2020 - and I went to go have
+    my last meal and I had a supernatural
+    encounter with Jesus - not religion - Jesus
+    Christ I had a supernatural encounter
+    with. Right before, a few months before, I
+    had actually looked into all these other
+    religions cuz like you said, you were
+    like, "Oh, any sort of faith provides good
+    structure and that's what I had heard all
+    my life. So I was like, "Man, if I just
+    believe in something, maybe it will get
+    me out of this depression pit." So I was
+    looking at Islam, Buddhism, Hinduism, New
+    Age, like everything on the planet. And
+    when I was looking at these things, like
+    in Islam, for example, you have like the
+    five pillars of Islam, basically. You got
+    to pray five times a day, give alms to
+    the poor, and the goal is to be a good
+    person. When you die, Allah is going to
+    weigh your good and your bad, and if you
+    did more good than bad you're good but if
+    you did more bad than good, not good.
+    
+    And then I was like, "Well, it doesn't say how much
+    is enough, so how do I know if by the
+    time I'm dead if I did enough? And then,
+    you know, Buddhism and Hinduism, they've
+    got thousands of gods and you're trying
+    to get enlightened and not get bad karma
+    cuz then you might get reincarnated into
+    something bad. And so I was like looking
+    at all these religions and I felt
+    hopeless because I thought, "I have a hole
+    in my heart. And if I'm a broken human
+    being - you know how wicked this world is -
+    and [with] a broken heart - I couldn't even heal the broken
+    heart with the broken world." So I was
+    like, "If I live in a broken world with a
+    broken heart how could I ever work to
+    perfection?"
+    
+    It seemed impossible, and I knew I couldn't do it,
+    so I was ready to take my life that
+    night in Waffle House and I had this
+    Supernatural Encounter With Jesus. I
+    realized, man, I'm not following religion.
+    I mean, yes, like Christianity is like a
+    labeled religion but I'm not following
+    structured religion, I'm following Jesus.
+    I'm putting my faith and trust in him.
 
 > Now I had gone into court willingly after being born-again as I held my faith in Jesus and submitted to the authorities, but not perfect. After breaking bail to get baptised and bring everything into the light, obeying God and not man ([See this video](https://www.youtube.com/watch?v=zTtbT33MOiI)), the whole thing felt outside of my control (extremely graceless), and I was under clear impression especially later in 2022 that I was battling an antichrist spirit pressuring me into several things:
 > 
@@ -14124,7 +14180,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org234e97f)
+See: [33.4.1](#orgaf871d3)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -17694,6 +17750,45 @@ Greet those who love us in the faith:
 > 
 > -   <https://web.archive.org/web/20220503030344/https://mullikine.github.io/posts/astral-projection-pt-2/>
 > -   **I John 5:20** - And we know that the Son of God has come and has given us understanding, so that we may know him who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
+
+
+### Jesus is giving us perspective.
+
+We should have a healthy fear of God:
+
+> **[Matthew 10:28](https://www.biblegateway.com/passage/?search=Matthew%2010%3A28&version=ESV)** - And do not fear those who kill the body but cannot kill the soul. Rather fear him who can destroy both soul and body in hell. (ESV)
+
+And we should also recognise that God values us:
+
+> **[Matthew 10:29-31](https://www.biblegateway.com/passage/?search=Matthew%2010%3A29-31&version=ESV)** - Are not two sparrows sold for a penny? And not one of them will fall to the ground apart from your Father. But even the hairs of your head are all numbered. Fear not, therefore; you are of more value than many sparrows. (ESV)
+
+Jesus' words are like a **sword**:
+
+> **[John 12:48](https://www.biblegateway.com/passage/?search=John%2012%3A48&version=ESV)** - The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. (ESV)
+
+We may be tested even through our own household. We must confess Jesus and keep Him as our number 1 agape love (treasure). We are tested through God's Word:
+
+> **[Matthew 10:32-37](https://www.biblegateway.com/passage/?search=Matthew%2010%3A32-37&version=ESV)** - So everyone who acknowledges me before men, I also will acknowledge before my Father who is in heaven, but whoever denies me before men, I also will deny before my Father who is in heaven. Do not think that I have come to bring peace to the earth. I have not come to bring peace, but a sword. For I have come to set a man against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. And a person's enemies will be those of his own household. Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. (ESV)
+
+We must keep Jesus' Words and sayings and commandments:
+
+> **[John 14:21-23](https://www.biblegateway.com/passage/?search=John%2014%3A21-23&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. (ESV)
+
+There's only peace "in Christ". Jesus has <ins>not come to bring peace on Earth,</ins> but a sword:
+
+> **[Matthew 10:32-37](https://www.biblegateway.com/passage/?search=Matthew%2010%3A32-37&version=ESV)** - So everyone who acknowledges me before men, I also will acknowledge before my Father who is in heaven, but whoever denies me before men, I also will deny before my Father who is in heaven. Do not think that **I have come to bring peace to the earth. I have not come to bring peace, but a sword**. For I have come to set a man against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. And a person's enemies will be those of his own household. Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. (ESV)
+
+It's serious business because following Jesus means we have to choose Him over following the way of the world:
+
+> **[Matthew 10:38](https://www.biblegateway.com/passage/?search=Matthew%2010%3A38&version=ESV)** - And whoever does not take his cross and follow me is not worthy of me. (ESV)
+
+The stakes do get really high and we are tested on where our allegiance lies:
+
+> **[Matthew 10:39-40](https://www.biblegateway.com/passage/?search=Matthew%2010%3A39-40&version=ESV)** - Whoever finds his life will lose it, and whoever loses his life for my sake will find it. Whoever receives you receives me, and whoever receives me receives him who sent me. (ESV)
+
+Jesus does respect people who practice righteousness. Holding faith in Jesus and practicing love and holiness should go hand-in-hand:
+
+> **[Matthew 10:41-42](https://www.biblegateway.com/passage/?search=Matthew%2010%3A41-42&version=ESV)** - The one who receives a prophet because he is a prophet will receive a prophet's reward, and <ins>the one who receives a righteous person because he is a righteous person will receive a righteous person's reward.</ins> And whoever gives one of these little ones even a cup of cold water because he is a disciple, truly, I say to you, he will by no means lose his reward. (ESV)
 
 
 ### Do God's will - follow Jesus in truth, and be obedient to God to combat falsehood
@@ -28283,7 +28378,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org234e97f)
+See: [33.4.1](#orgaf871d3)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -29775,13 +29870,11 @@ Who can question it?
 > **[Acts 26:8](https://www.biblegateway.com/passage/?search=Acts%2026%3A8&version=ESV)** -  Why is it thought incredible by any of you that God raises the dead?  (ESV)
 
 
-## Leaving the tomb / spiritual prison which was a result of disobedience
-
-This is really interesting.
+## Leaving the tomb / spiritual prison ([Sheol/Hades / the bad place in Sheol/Hades](https://www.blueletterbible.org/lexicon/h7585/kjv/wlc/0-1/)) which was a result of disobedience
 
 > **[Romans 6:8-9](https://www.biblegateway.com/passage/?search=Romans%206%3A8-9&version=ESV)** - Now if we have died with Christ, we believe that we will also live with him. We know that Christ being raised from the dead will never die again; death no longer has dominion over him.
 
-Jesus as a life-giving spirit proclaimed to the spirits in prison:
+Jesus as a life-giving spirit proclaimed to the spirits in prison ([Sheol/Hades](https://www.blueletterbible.org/lexicon/h7585/kjv/wlc/0-1/)):
 
 > **[John 5:25](https://www.biblegateway.com/passage/?search=John%205%3A25&version=ESV)** - Truly, truly, I say to you, an hour is coming and now is, when the dead will hear the voice of the Son of God, and those who hear will live. (ESV)
 
