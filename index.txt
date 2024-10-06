@@ -3962,6 +3962,30 @@ Definition: to work together. Usage: I cooperate with, work together.
   remembers the obedience of you all, how you received him with fear and
   trembling. (ESV)
 
+God put our sin on Jesus:
+
+youtube.com: John MacArthur | The Gospel in 1 Minute | #paulwasher
+#voddiebaucham #billygraham #johnmacarthur
+
+The Bible, II Corinthians 5:21 - He made Him who knew no sin sin for us
+that we might be made the righteousness of God in Him. Let me unpack
+those 15 Greek words. He, God, made Jesus sin. What do you mean He made
+Jesus sin? Only in one sense he treated him as if he had committed every
+sin ever committed by every person who would ever believe, though in fact
+he committed none of them. Hanging on the cross, He was Holy, harmless,
+undefiled. Hanging on the cross, He was a spotless Lamb. He was never for
+a split second a sinner. He is Holy God on the cross. But God is treating
+him - I'll put it more practically - as if he lived my life.
+
+God punished Jesus for my sin, turns right around and treats me as if I
+lived His life.
+
+That's the great doctrine of substitution and on that Doctrine turned the
+whole Reformation of the church - that is the heart of the gospel. And
+what you get is complete forgiveness covered by the righteousness of
+Jesus Christ. When He (God) looks at the cross he sees you. When He looks
+at you he sees Christ.
+
 Being born-again of the spirit was a total gift received through faith in
 Jesus, none of my own merit at all - simple very imperfect repentance
 from sin and faith in God exercising faithfulness:
@@ -66561,7 +66585,8 @@ His death and resurrection? | GotQuestions.org
   the lake of fire as "hell," and this causes confusion.
 
 If Jesus visited the place of torment in Luke 16:28 (the bad part of
-Sheol/Hades), it was just temporarily.
+Sheol/Hades), it was just temporarily. My current belief is that He would
+have visited all of the place of the dead (both sides of the chasm).
 
 Jesus went to Hades and there's nothing to say that Jesus did not visit
 the bad part of Hades. Jesus experienced Death and Jesus experienced
@@ -66592,11 +66617,7 @@ Hades.
   corruption. . . . Thou wilt show me the path of life." "Hell" is not a
   correct translation in this verse. A correct reading would be "the
   grave" or "sheol." Jesus said to the thief beside Him, "Today you will
-  be with me in paradise" (Luke 23:43); He did not say, "I will see you
-  in hell." Jesus' body was in the tomb; His soul/spirit went to be with
-  the blessed in sheol/hades. Unfortunately, in many versions of the
-  Bible, translators are not consistent, or correct, in how they
-  translate the Hebrew and Greek words for "sheol," "hades," and "hell."
+  be with me in paradise" (Luke 23:43)
 
 76.1.3. Tartaroo
 
@@ -67246,7 +67267,7 @@ Date: 2024-10-05 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-06 Sun 18:20
+Created: 2024-10-06 Sun 18:46
 
 Validate
 

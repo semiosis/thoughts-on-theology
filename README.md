@@ -677,7 +677,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org982bce2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgafe6813) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2054,6 +2054,39 @@ The Apostles were working with Christ. I believe the Apostles also here are exho
 -   **[4903. sunergeó](https://biblehub.com/greek/4903.htm):** Definition: to work together. Usage: I cooperate with, work together.
 
 > **[II Corinthians 7:15](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A15&version=ESV)** - And his affection for you is even greater, as he remembers the obedience of you all, how you received him with fear and trembling. (ESV)
+
+God put our sin on Jesus:
+
+-   **[youtube.com: John MacArthur | The Gospel in 1 Minute | #paulwasher #voddiebaucham #billygraham #johnmacarthur](https://www.youtube.com/shorts/WFggtqGcJdc):** The Bible, [II Corinthians 5:21](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21&version=ESV) - He
+    made Him who knew no sin
+    sin for us that we might be made the
+    righteousness of God in Him. Let me
+    unpack those 15 Greek words. He, God, made
+    Jesus sin. What do you mean He made Jesus
+    sin? Only in one sense he treated him as
+    if he had committed every sin ever
+    committed by every person who would ever
+    believe, though in fact he committed none
+    of them. Hanging on the cross, He was
+    Holy, harmless, undefiled. Hanging on the
+    cross, He was a spotless Lamb. He was
+    never for a split second a sinner. He is
+    Holy God on the cross. But God is
+    treating him - I'll put it more
+    practically - as if he lived my life.
+    
+    God punished Jesus for my sin, turns
+    right around and treats me as if I lived
+    His life.
+    
+    That's the great doctrine of
+    substitution and on that Doctrine turned
+    the whole Reformation of the church - that
+    is the heart of the gospel. And what you
+    get is complete forgiveness covered by
+    the righteousness of Jesus Christ. When
+    He (God) looks at the cross he sees you. When
+    He looks at you he sees Christ.
 
 Being born-again of the spirit was a total gift received through faith in Jesus, none of my own merit at all - simple very imperfect repentance from sin and faith in God exercising faithfulness:
 
@@ -14091,7 +14124,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7e9eff6)
+See: [33.4.1](#org234e97f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28250,7 +28283,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7e9eff6)
+See: [33.4.1](#org234e97f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -35874,6 +35907,7 @@ Unrighteous people remain locked up here until judgement:
 > In the Hebrew Scriptures, the word used to describe the realm of the dead is sheol. It simply means "the place of the dead" or "the place of departed souls/spirits." The New Testament Greek equivalent of sheol is hades, which also refers to "the place of the dead." The New Testament indicates that sheol/hades is a temporary place, where souls are kept as they await the final resurrection and judgment. [Revelation 20:11-15](https://www.biblegateway.com/passage/?search=Revelation%2020%3A11-15&version=ESV) makes a clear distinction between hades and the lake of fire. The lake of fire is the permanent and final place of judgment for the lost. Hades, then, is a temporary place. <ins>Many people refer to both hades and the lake of fire as "hell," and this causes confusion.</ins>
 
 If Jesus visited the place of torment in [Luke 16:28](https://www.biblegateway.com/passage/?search=Luke%2016%3A28&version=ESV) (the bad part of Sheol/Hades), it was just temporarily.
+My current belief is that He would have visited all of the place of the dead (both sides of the chasm).
 
 Jesus went to Hades and there's nothing to say that Jesus did not visit the bad part of Hades. Jesus experienced Death and Jesus experienced Hades.
 
@@ -35881,7 +35915,7 @@ Jesus went to Hades and there's nothing to say that Jesus did not visit the bad 
 
 > **Sheol/hades is a realm with two divisions** - a place of **blessing** and a place of **judgment** ([Matthew 11:23](https://www.biblegateway.com/passage/?search=Matthew%2011%3A23&version=ESV); [Matthew 16:18](https://www.biblegateway.com/passage/?search=Matthew%2016%3A18&version=ESV); [Luke 10:15](https://www.biblegateway.com/passage/?search=Luke%2010%3A15&version=ESV); [Luke 16:23](https://www.biblegateway.com/passage/?search=Luke%2016%3A23&version=ESV); [Acts 2:27-31](https://www.biblegateway.com/passage/?search=Acts%202%3A27-31&version=ESV)). <ins>The abodes of the saved and the lost are both generally called "hades" in the Bible.</ins> The abode of the saved is also called **"Abraham's bosom"** (KJV) or "Abraham's side" (NIV) in [Luke 16:22](https://www.biblegateway.com/passage/?search=Luke%2016%3A22&version=ESV) and "paradise" in [Luke 23:43](https://www.biblegateway.com/passage/?search=Luke%2023%3A43&version=ESV). The abodes of the saved and the lost are separated by a **"great chasm"** ([Luke 16:26](https://www.biblegateway.com/passage/?search=Luke%2016%3A26&version=ESV)). When Jesus died, He went to the blessed side of sheol, or paradise. (Some believe, based on a particular interpretation of [Ephesians 4:8-10](https://www.biblegateway.com/passage/?search=Ephesians%204%3A8-10&version=ESV), that Jesus took believers with Him from sheol to another place of bliss that we now call heaven. More likely, Ephesians 4 refers to the ascension of Christ.) **All the unbelieving dead go to the cursed side of hades to await the final judgment.** **All the believing dead go to the blessed side of hades to await the resurrection.** Did Jesus go to sheol/hades? Yes, according to Jesus' own words, <ins>He went to the blessed region of sheol.</ins>
 > 
-> Some of the confusion has arisen from such passages as [Psalm 16:10-11](https://www.biblegateway.com/passage/?search=Psalms%2016%3A10-11&version=ESV) as translated in the King James Version: "For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption. . . . Thou wilt show me the path of life." <ins>"Hell" is not a correct translation in this verse.</ins> A correct reading would be "the grave" or "sheol." Jesus said to the thief beside Him, "Today you will be with me in paradise" ([Luke 23:43](https://www.biblegateway.com/passage/?search=Luke%2023%3A43&version=ESV)); He did not say, "I will see you in hell." Jesus' body was in the tomb; His soul/spirit went to be with the blessed in sheol/hades. Unfortunately, in many versions of the Bible, translators are not consistent, or correct, in how they translate the Hebrew and Greek words for "sheol," "hades," and "hell."
+> Some of the confusion has arisen from such passages as [Psalm 16:10-11](https://www.biblegateway.com/passage/?search=Psalms%2016%3A10-11&version=ESV) as translated in the King James Version: "For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption. . . . Thou wilt show me the path of life." <ins>"Hell" is not a correct translation in this verse.</ins> A correct reading would be "the grave" or "sheol." Jesus said to the thief beside Him, "Today you will be with me in paradise" ([Luke 23:43](https://www.biblegateway.com/passage/?search=Luke%2023%3A43&version=ESV))
 
 
 ### Tartaroó
