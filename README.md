@@ -677,7 +677,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9bb07b7) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org982bce2) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3440,7 +3440,7 @@ I guess that God has been testing me and using me similarly to as He did with Pa
 
 Paul was an [Apostle by Command](https://www.youtube.com/watch?v=lr9zJYw9tlc&t=560s). As for me, I'm just acting on faith after confessing Jesus.
 
-Perhaps I still [speak too much](https://www.youtube.com/watch?v=kkzQqG26Wkk). 
+Perhaps I still [speak too much](https://www.youtube.com/watch?v=kkzQqG26Wkk).
 
 > **[James 3:3](https://www.biblegateway.com/passage/?search=James%203%3A3&version=ESV)** - If we put bits into the mouths of horses so that they obey us, we guide their whole bodies as well. (ESV)
 
@@ -6503,16 +6503,16 @@ If you're thirsty for Jesus then trust in Jesus! Jesus is always there to satisf
 
 > [John 7:38](https://biblehub.com/interlinear/john/7-38.htm) - The [one] **believing ([4100. pisteuó](https://biblehub.com/greek/4100.htm)) in Me** as has said the Scripture Rivers out of the belly of him will flow of water living (Interlinear)
 
-     1  3588      4100      1519 1473     2531   2036     3588    1124      4215   
+     1  3588      4100      1519 1473     2531   2036     3588    1124      4215
      2  ho        pisteuōn  eis  eme      kathōs eipen    hē      graphē    Potamoi
      3  ὁ         πιστεύων  εἰς  ἐμέ  ,   καθὼς  εἶπεν    ἡ       γραφή  :  Ποταμοὶ
-     4  The [one] believing in   Me       as     has said the     Scripture Rivers 
-     5  Art-NMS   V-PPA-NMS Prep PPro-A1S Adv    V-AIA-3S Art-NFS N-NFS     N-NMP  
+     4  The [one] believing in   Me       as     has said the     Scripture Rivers
+     5  Art-NMS   V-PPA-NMS Prep PPro-A1S Adv    V-AIA-3S Art-NFS N-NFS     N-NMP
      6  
-     7  1537   3588    2836    846       4482       5204     2198     
-     8  ek     tēs     koilias autou     rheusousin hydatos  zōntos   
+     7  1537   3588    2836    846       4482       5204     2198
+     8  ek     tēs     koilias autou     rheusousin hydatos  zōntos
      9  ἐκ     τῆς     κοιλίας αὐτοῦ     ῥεύσουσιν  ὕδατος   ζῶντος  .
-    10  out of the     belly   of him    will flow  of water living   
+    10  out of the     belly   of him    will flow  of water living
     11  Prep   Art-GFS N-GFS   PPro-GM3S V-FIA-3P   N-GNS    V-PPA-GNS
 
 
@@ -8538,7 +8538,7 @@ I really affirm Christa's message:
     we become spiritually dirty. And we
     want to become spiritually clean because
     when we are spiritually clean we can
-    hear the voice of God. 
+    hear the voice of God.
     
     II Corinthians 7:1
     
@@ -14091,7 +14091,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgeea2073)
+See: [33.4.1](#org7e9eff6)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -14787,7 +14787,7 @@ I think that coming to trust in Jesus is a free gift to us. It's a really low ba
 
 > **[Romans 6:17-18](https://www.biblegateway.com/passage/?search=Romans%206%3A17-18&version=ESV)** - But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
 
-> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV) 
+> **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
 Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings), even from reading it as described in the Old Testament ([Romans 1:1-2](https://www.biblegateway.com/passage/?search=Romans%201%3A1-2&version=ESV)). Sharing the gospel is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and **in trusting Jesus' words we trust in Jesus**:
 
@@ -18824,8 +18824,6 @@ AMEN!!
     27  ､ יְהוָ֔ה        וּלְחֹשְׁבֵ֖י                            . שְׁמֽוֹ׃
     28    Yahweh      and who meditate                    on His name
     29    N‑proper‑ms Conj‑w, Prep‑l | V‑Qal‑Prtcpl‑mpc   N‑msc | 3ms
-
-Consider that God's 
 
 -   **[ὄνομα ónoma, on'-om-ah](https://www.blueletterbible.org/lexicon/g3686/kjv/tr/0-1/):** from a presumed derivative of the base of G1097 (compare G3685); a "name" (literally or figuratively) (authority, character):—called, (+ sur-)name(-d).
 
@@ -28252,7 +28250,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgeea2073)
+See: [33.4.1](#org7e9eff6)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -35855,6 +35853,10 @@ But Sheol will be thrown into hell after those in Sheol are judged.
 
 > **[Acts 2:27-28](https://www.biblegateway.com/passage/?search=Acts%202%3A27-28&version=ESV)** - For you will not abandon my soul to Hades, or let your Holy One see corruption. You have made known to me the paths of life; you will make me full of gladness with your presence. (ESV)
 
+The bad part of Hades though is still a place of torment. Maybe Jesus visited this place - I suppose He did:
+
+> **[Luke 16:27-28](https://www.biblegateway.com/passage/?search=Luke%2016%3A27-28&version=ESV)** - And he said, Then I beg you, father, to send him to my father's house— for I have five brothers—so that he may warn them, lest they also come into this place of torment. (ESV)
+
 Death and Hades are thrown into the <ins>lake of fire, which is Hell</ins>:
 
 > **[Revelation of John 20:13-14](https://www.biblegateway.com/passage/?search=Revelation%2020%3A13-14&version=ESV)** - And the sea gave up the dead who were in it, Death and Hades ([86. hadés](https://biblehub.com/greek/86.htm)) <ins>gave up the dead who were in them, and they were judged, each one of them, according to what they had done.</ins> Then Death and Hades were thrown into the lake of fire. This is the second death, the lake of fire. (ESV)
@@ -35866,6 +35868,20 @@ Jesus went to Hades:
 Unrighteous people remain locked up here until judgement:
 
 > **[II Peter 2:5-10](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A5-10&version=ESV)** - if he did not spare the ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot, greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows how to rescue the godly from trials, and to **keep the unrighteous under punishment until the day of judgment**, and **especially those who indulge in the lust of defiling passion and despise authority.** Bold and willful, they do not tremble as they blaspheme the glorious ones, (ESV)
+
+-   **Read:** [gotquestions.org did-Jesus-go-to-hell.html: Did Jesus go to hell between His death and resurrection? | GotQuestions.org](https://www.gotquestions.org/did-Jesus-go-to-hell.html)
+
+> In the Hebrew Scriptures, the word used to describe the realm of the dead is sheol. It simply means "the place of the dead" or "the place of departed souls/spirits." The New Testament Greek equivalent of sheol is hades, which also refers to "the place of the dead." The New Testament indicates that sheol/hades is a temporary place, where souls are kept as they await the final resurrection and judgment. [Revelation 20:11-15](https://www.biblegateway.com/passage/?search=Revelation%2020%3A11-15&version=ESV) makes a clear distinction between hades and the lake of fire. The lake of fire is the permanent and final place of judgment for the lost. Hades, then, is a temporary place. <ins>Many people refer to both hades and the lake of fire as "hell," and this causes confusion.</ins>
+
+If Jesus visited the place of torment in [Luke 16:28](https://www.biblegateway.com/passage/?search=Luke%2016%3A28&version=ESV) (the bad part of Sheol/Hades), it was just temporarily.
+
+Jesus went to Hades and there's nothing to say that Jesus did not visit the bad part of Hades. Jesus experienced Death and Jesus experienced Hades.
+
+> **[Revelation of John 1:18](https://www.biblegateway.com/passage/?search=Revelation%201%3A18&version=ESV)** - and the living one. I died, and behold I am alive forevermore, and I have the keys of Death and Hades. (ESV)
+
+> **Sheol/hades is a realm with two divisions** - a place of **blessing** and a place of **judgment** ([Matthew 11:23](https://www.biblegateway.com/passage/?search=Matthew%2011%3A23&version=ESV); [Matthew 16:18](https://www.biblegateway.com/passage/?search=Matthew%2016%3A18&version=ESV); [Luke 10:15](https://www.biblegateway.com/passage/?search=Luke%2010%3A15&version=ESV); [Luke 16:23](https://www.biblegateway.com/passage/?search=Luke%2016%3A23&version=ESV); [Acts 2:27-31](https://www.biblegateway.com/passage/?search=Acts%202%3A27-31&version=ESV)). <ins>The abodes of the saved and the lost are both generally called "hades" in the Bible.</ins> The abode of the saved is also called **"Abraham's bosom"** (KJV) or "Abraham's side" (NIV) in [Luke 16:22](https://www.biblegateway.com/passage/?search=Luke%2016%3A22&version=ESV) and "paradise" in [Luke 23:43](https://www.biblegateway.com/passage/?search=Luke%2023%3A43&version=ESV). The abodes of the saved and the lost are separated by a **"great chasm"** ([Luke 16:26](https://www.biblegateway.com/passage/?search=Luke%2016%3A26&version=ESV)). When Jesus died, He went to the blessed side of sheol, or paradise. (Some believe, based on a particular interpretation of [Ephesians 4:8-10](https://www.biblegateway.com/passage/?search=Ephesians%204%3A8-10&version=ESV), that Jesus took believers with Him from sheol to another place of bliss that we now call heaven. More likely, Ephesians 4 refers to the ascension of Christ.) **All the unbelieving dead go to the cursed side of hades to await the final judgment.** **All the believing dead go to the blessed side of hades to await the resurrection.** Did Jesus go to sheol/hades? Yes, according to Jesus' own words, <ins>He went to the blessed region of sheol.</ins>
+> 
+> Some of the confusion has arisen from such passages as [Psalm 16:10-11](https://www.biblegateway.com/passage/?search=Psalms%2016%3A10-11&version=ESV) as translated in the King James Version: "For thou wilt not leave my soul in hell; neither wilt thou suffer thine Holy One to see corruption. . . . Thou wilt show me the path of life." <ins>"Hell" is not a correct translation in this verse.</ins> A correct reading would be "the grave" or "sheol." Jesus said to the thief beside Him, "Today you will be with me in paradise" ([Luke 23:43](https://www.biblegateway.com/passage/?search=Luke%2023%3A43&version=ESV)); He did not say, "I will see you in hell." Jesus' body was in the tomb; His soul/spirit went to be with the blessed in sheol/hades. Unfortunately, in many versions of the Bible, translators are not consistent, or correct, in how they translate the Hebrew and Greek words for "sheol," "hades," and "hell."
 
 
 ### Tartaroó
@@ -35904,7 +35920,7 @@ The Lake of Fire is where unrepentant sinners who reject God go - i.e. those who
 
 > **[Matthew 13:42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A42&version=ESV)** - and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth. (ESV)
 
--   **[What is the difference between Sheol, Hades, Hell, the lake of fire, Paradise, and Abraham’s bosom?](https://www.gotquestions.org/sheol-hades-hell.html):** The lake of fire, mentioned only in [Revelation 19:20](https://www.biblegateway.com/passage/?search=Revelation%2019%3A20&version=ESV) and Revelation 20:10, Revelation 14-15, is the final hell, the place of eternal punishment for all unrepentant rebels, both angelic and human ([Matthew 25:41](https://www.biblegateway.com/passage/?search=Matthew%2025%3A41&version=ESV)). It is described as a place of burning sulfur, and those in it experience eternal, unspeakable agony of an unrelenting nature (Luke 16:24; [Mark 9:45-46](https://www.biblegateway.com/passage/?search=Mark%209%3A45-46&version=ESV)). Those who have rejected Christ and are in the temporary abode of the dead in hades/sheol have the lake of fire as their final destination.
+-   **[What is the difference between Sheol, Hades, Hell, the lake of fire, Paradise, and Abraham’s bosom?](https://www.gotquestions.org/sheol-hades-hell.html):** The lake of fire, mentioned only in [Revelation 19:20](https://www.biblegateway.com/passage/?search=Revelation%2019%3A20&version=ESV) and [Revelation 20:10](https://www.biblegateway.com/passage/?search=Revelation%2020%3A10&version=ESV), Revelation 14-15, is the final hell, the place of eternal punishment for all unrepentant rebels, both angelic and human ([Matthew 25:41](https://www.biblegateway.com/passage/?search=Matthew%2025%3A41&version=ESV)). It is described as a place of burning sulfur, and those in it experience eternal, unspeakable agony of an unrelenting nature ([Luke 16:24](https://www.biblegateway.com/passage/?search=Luke%2016%3A24&version=ESV); [Mark 9:45-46](https://www.biblegateway.com/passage/?search=Mark%209%3A45-46&version=ESV)). Those who have rejected Christ and are in the temporary abode of the dead in hades/sheol have the lake of fire as their final destination.
 
 
 # [Jesus Christ is Lord! :)](https://www.youtube.com/watch?v=kemT9EoKvHs&ab_channel=CHRISPlus)
