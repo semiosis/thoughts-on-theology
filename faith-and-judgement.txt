@@ -1420,6 +1420,42 @@ It's obedience which leads to righteousness, even the righteousness of faith:
   Romans 6:16 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the
   one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? (ESV)
 
+Song
+youtube.com: Delirious? - Touch
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+  Philippians 2:5-7 - Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the
+  form of God, did not count equality with God a thing to be grasped, but made himself nothing, taking the form of
+  a servant, being born in the likeness of men. (ESV)
+
+Jesus was self-humbling and obedient to God, and we end up thinking this way:
+
+  Philippians 2:8 - And being found in human form, he humbled himself by becoming obedient to the point of death,
+  even death on a cross. (ESV)
+
+We become enslaved to righteousness in Christ, not enslaved to corruption, but through persevering obedience to
+Jesus, we consolidate walking in the light, in obedience and faith to Jesus and we are conformed to practicing
+righteousness, walking as He walked:
+
+  II Peter 2:19 - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes
+  a person, to that he is enslaved. (ESV)
+
+  I John 2:6 - whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
+
+We become conformed to Christ's image practicing righteousness - doing works of righteousness which are done in
+faith in Him:
+
+  Romans 8:29 - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order
+  that he might be the firstborn among many brothers. (ESV)
+
+  I John 3:7-8 - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. (ESV)
+
 In Christ Jesus there is freedom from things which were bad for us, including selfishness, condemnation, slavery
 to sin and death, and feeling like we're not good enough for God. There is freedom from anything that tries to
 hinder us from obeying God in truth:
@@ -51785,11 +51821,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-08 Tue 00:00
+Date: 2024-10-09 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-08 Tue 23:01
+Created: 2024-10-09 Wed 00:38
 
 Validate
 
