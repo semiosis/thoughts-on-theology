@@ -688,7 +688,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd4c26d6) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5253bb3) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -10165,9 +10165,13 @@ We must obey! This obedience is being led by the Spirit.
     
     > **[Acts 28:31](https://www.biblegateway.com/passage/?search=Acts%2028%3A31&version=ESV)** - proclaiming the kingdom of God and teaching about the Lord Jesus Christ with all boldness and without hindrance. (ESV)
     
-    It's the same gospel. We must follow Jesus, the light, and come into the truth, and into the Kingdom of God. Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King, our God, the light:
+    It's the same gospel:
     
-    > **[John 12:44-47](https://www.biblegateway.com/passage/?search=John%2012%3A44-47&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. (ESV)
+    > **[I Corinthians 15:1-11](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-11&version=ESV)** - Now I would remind you, brothers, of <ins>the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain.</ins> For I delivered to you as of first importance what I also received: <ins>that **Christ died for our sins in accordance with the Scriptures**,</ins> that **he was buried**, that **he was raised on the third day in accordance with the Scriptures**, and that **he appeared to Cephas, then to the twelve**. Then **he appeared to more than five hundred brothers at one time**, most of whom are still alive, though some have fallen asleep. Then **he appeared to James, then to all the apostles**. Last of all, as to one untimely born, **he appeared also to me**. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. But by the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is with me. **Whether then it was I or they, so we preach and so you believed.** (ESV)
+    
+    We must follow Jesus Christ who died for our sins, the light of the world, the Good Shepherd, and come into the truth, and into the Kingdom of God. Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King, our God, the Light, the Truth:
+    
+    > **[John 12:44-47](https://www.biblegateway.com/passage/?search=John%2012%3A44-47&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. **I have come into the world as light, so that whoever believes in me may not remain in darkness**. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. (ESV)
     
     > **[Mark 8:35](https://www.biblegateway.com/passage/?search=Mark%208%3A35&version=ESV)** - For whoever would save his life will lose it, but whoever loses his life for my sake and the gospel's will save it. (ESV)
     
@@ -14259,7 +14263,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge123092)
+See: [33.4.1](#org622bdae)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28426,6 +28430,32 @@ because they have been deceived by the two-gospel heresy:
 
 -   [The Two Gospel Heresy - Anton Bosch](https://antonbosch.org/the-two-gospel-heresy)
 
+Jesus even told people He would be killed and raised, as John the Baptist taught that Jesus takes away the sin of the world, and people came to believe He is the Saviour of the world:
+
+> **[Matthew 17:22-23](https://www.biblegateway.com/passage/?search=Matthew%2017%3A22-23&version=ESV)** - As they were gathering in Galilee, Jesus said to them, The Son of Man is about to be delivered into the hands of men, and they will kill him, and he will be raised on the third day. And they were greatly distressed. (ESV)
+
+> **[John 1:29](https://www.biblegateway.com/passage/?search=John%201%3A29&version=ESV)** - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the sin of the world! (ESV)
+
+> **[John 4:42](https://www.biblegateway.com/passage/?search=John%204%3A42&version=ESV)** - They said to the woman, It is no longer because of what you said that we believe, for we have heard for ourselves, and we know that this is indeed the Savior of the world. (ESV)
+
+It's the same gospel:
+
+> **[I Corinthians 15:1-11](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-11&version=ESV)** - Now I would remind you, brothers, of <ins>the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain.</ins> For I delivered to you as of first importance what I also received: <ins>that **Christ died for our sins in accordance with the Scriptures**,</ins> that **he was buried**, that **he was raised on the third day in accordance with the Scriptures**, and that **he appeared to Cephas, then to the twelve**. Then **he appeared to more than five hundred brothers at one time**, most of whom are still alive, though some have fallen asleep. Then **he appeared to James, then to all the apostles**. Last of all, as to one untimely born, **he appeared also to me**. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. But by the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is with me. **Whether then it was I or they, so we preach and so you believed.** (ESV)
+
+We must follow Jesus Christ who died for our sins, the light of the world, the Good Shepherd, and come into the truth, and into the Kingdom of God. Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King, our God, the Light, the Truth:
+
+> **[John 12:44-47](https://www.biblegateway.com/passage/?search=John%2012%3A44-47&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. **I have come into the world as light, so that whoever believes in me may not remain in darkness**. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. (ESV)
+
+Jesus taught people to trust in Him and keep His teachings:
+
+> **[John 11:25](https://www.biblegateway.com/passage/?search=John%2011%3A25&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, (ESV)
+
+> **[John 8:51](https://www.biblegateway.com/passage/?search=John%208%3A51&version=ESV)** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
+And Jesus taught that this would produce a transformation in the person where a person receives the Holy Spirit:
+
+> **[John 7:37-38](https://www.biblegateway.com/passage/?search=John%207%3A37-38&version=ESV)** - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone thirsts, let him come to me and drink. Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers of living water. (ESV)
+
 Even before His crucifixion, it's clear that Jesus taught the New Covenant:
 
 > **[Luke 22:20](https://www.biblegateway.com/passage/?search=Luke%2022%3A20&version=ESV)** - And likewise the cup after they had eaten, saying, This cup that is poured out for you is the new covenant in my blood. (ESV)
@@ -28459,7 +28489,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge123092)
+See: [33.4.1](#org622bdae)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

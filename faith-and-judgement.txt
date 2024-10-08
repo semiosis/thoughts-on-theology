@@ -14976,8 +14976,23 @@ The gospel of the Kingdom of God (God's reign on earth):
   Acts 28:31 - proclaiming the kingdom of God and teaching about the Lord Jesus Christ with all boldness and
   without hindrance. (ESV)
 
-It's the same gospel. We must follow Jesus, the light, and come into the truth, and into the Kingdom of God.
-Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King, our God, the light:
+It's the same gospel:
+
+  I Corinthians 15:1-11 - Now I would remind you, brothers, of the gospel I preached to you, which you
+  received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to
+  you-unless you believed in vain. For I delivered to you as of first importance what I also received: that
+  Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the
+  third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve. Then he
+  appeared to more than five hundred brothers at one time, most of whom are still alive, though some have
+  fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he
+  appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I
+  persecuted the church of God. But by the grace of God I am what I am, and his grace toward me was not in
+  vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is
+  with me. Whether then it was I or they, so we preach and so you believed. (ESV)
+
+We must follow Jesus Christ who died for our sins, the light of the world, the Good Shepherd, and come into
+the truth, and into the Kingdom of God. Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King,
+our God, the Light, the Truth:
 
   John 12:44-47 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent
   me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes
@@ -40972,6 +40987,55 @@ heresy:
 
 - The Two Gospel Heresy - Anton Bosch
 
+Jesus even told people He would be killed and raised, as John the Baptist taught that Jesus takes away the sin of
+the world, and people came to believe He is the Saviour of the world:
+
+  Matthew 17:22-23 - As they were gathering in Galilee, Jesus said to them, The Son of Man is about to be
+  delivered into the hands of men, and they will kill him, and he will be raised on the third day. And they were
+  greatly distressed. (ESV)
+
+  John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
+  sin of the world! (ESV)
+
+  John 4:42 - They said to the woman, It is no longer because of what you said that we believe, for we have heard
+  for ourselves, and we know that this is indeed the Savior of the world. (ESV)
+
+It's the same gospel:
+
+  I Corinthians 15:1-11 - Now I would remind you, brothers, of the gospel I preached to you, which you received,
+  in which you stand, and by which you are being saved, if you hold fast to the word I preached to you-unless you
+  believed in vain. For I delivered to you as of first importance what I also received: that Christ died for our
+  sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance
+  with the Scriptures, and that he appeared to Cephas, then to the twelve. Then he appeared to more than five
+  hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to
+  James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the
+  least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. But by the
+  grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any
+  of them, though it was not I, but the grace of God that is with me. Whether then it was I or they, so we preach
+  and so you believed. (ESV)
+
+We must follow Jesus Christ who died for our sins, the light of the world, the Good Shepherd, and come into the
+truth, and into the Kingdom of God. Jesus is Lord of Lords, our Lord, our Saviour, our Master, our King, our God,
+the Light, the Truth:
+
+  John 12:44-47 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not
+  come to judge the world but to save the world. (ESV)
+
+Jesus taught people to trust in Him and keep His teachings:
+
+  John 11:25 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet
+  shall he live, (ESV)
+
+  John 8:51 - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
+And Jesus taught that this would produce a transformation in the person where a person receives the Holy Spirit:
+
+  John 7:37-38 - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone thirsts, let
+  him come to me and drink. Whoever believes in me, as the Scripture has said, Out of his heart will flow rivers
+  of living water. (ESV)
+
 Even before His crucifixion, it's clear that Jesus taught the New Covenant:
 
   Luke 22:20 - And likewise the cup after they had eaten, saying, This cup that is poured out for you is the new
@@ -51838,7 +51902,7 @@ Date: 2024-10-09 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-09 Wed 02:33
+Created: 2024-10-09 Wed 11:13
 
 Validate
 
