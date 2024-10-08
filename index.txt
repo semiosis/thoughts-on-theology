@@ -74,14 +74,21 @@ theology:
 |   and His Son, in relationship with God forever, never perishing nor being cut
 |   off from our source of life and all that is good.
 |  
-|   Agape love is a treasuring/valuing love and God the Father and Jesus God the
-|   Son should be our first agape love, and those in the family of Christ we must
-|   also agape love, and our spouses we must agape love and we are even called to
-|   agape all people, but we're supposed to have no agape for this world.
+|   Agape love is a treasuring/valuing/preserving/compassion love and God the
+|   Father and Jesus God the Son should be our first agape love, and those in the
+|   family of Christ we must also agape love, and our spouses we must agape love
+|   and we are even called to agape all people, but we're supposed to have no
+|   agape for this world.
 |  
-|   Agape-loving our neighbour as ourself includes not bearing a grudge against
-|   our neighbour and not taking vengeance - it's loving as we have been loved and
-|   forgiven by God through Jesus, passing the agape love and mercy forwards.
+|   Agape-loving our neighbour as ourself necessitates not bearing a grudge against
+|   our neighbour and not taking vengeance - there is no fear or grudge or
+|   vengence in agape love because agape love is selfless and compassionate and
+|   agape love gives everything and holds nothing back to have a chance to
+|   preserve and protect, to save. God would have sent Jesus even if there was
+|   only one more person to save. Agape comes from God. God loved us this way and
+|   paid the price for us for sin to be defeated that we may be reconciled back to
+|   Him through Jesus. And we pass this type of love, agape love, forward to
+|   others.
 |  
 |   We move forward serving God with hope to see His glory.
 |  
@@ -997,6 +1004,12 @@ didn't know what was going on but asking him to save me
 - web.archive.org mullikine.github.io: The Tapestry of Truth // Bodacious Blog
 - I had an immersive vision of healing people with compassion soon after, just 2-3 weeks before Pentecost that
 year
+- Agape love feels like "A deep longing or very intense treasuring compassion and desperate yearning in the
+heart for someone to be OK, for them to not perish or be in pain." - This is what it felt like coming out
+of me.
+- John 7:37-38 - On the last day of the feast, the great day, Jesus stood up and cried out, If anyone
+thirsts, let him come to me and drink. Whoever believes in me, as the Scripture has said, Out of his
+heart will flow rivers of living water. (ESV)
 
 I really affirm Marc's message here:
 
@@ -51825,7 +51838,7 @@ Date: 2024-10-09 Wed 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-09 Wed 00:38
+Created: 2024-10-09 Wed 02:33
 
 Validate
 

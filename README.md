@@ -73,32 +73,30 @@ This is a short preview of where I'm at with my theology. I don't claim to know 
     56  our neighbour and not taking vengeance - there is no fear or grudge or
     57  vengence in agape love because agape love is selfless and compassionate and
     58  agape love gives everything and holds nothing back to have a chance to
-    59  preserve and protect.
-    60  God would have sent Jesus if there was only one more person to save.
-    61  Agape comes from God.
-    62  God loved us this way and paid the price for us for sin to be defeated that we
-    63  may be reconciled back to Him through Jesus.
+    59  preserve and protect, to save. God would have sent Jesus even if there was
+    60  only one more person to save. Agape comes from God. God loved us this way and
+    61  paid the price for us for sin to be defeated that we may be reconciled back to
+    62  Him through Jesus. And we pass this type of love, agape love, forward to
+    63  others.
     64  
-    65  And we pass this type of love, agape love.
+    65  We move forward serving God with hope to see His glory.
     66  
-    67  We move forward serving God with hope to see His glory.
-    68  
-    69  Obedience is in the heart, along with belief in the Truth and understanding of
-    70  the gospel.
+    67  Obedience is in the heart, along with belief in the Truth and understanding of
+    68  the gospel.
+    69  
+    70  Obedience can exist without work.
     71  
-    72  Obedience can exist without work.
-    73  
-    74  Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
-    75  also be followed by faith where it's a matter of seeking praise from God and
-    76  not from men.
+    72  Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
+    73  also be followed by faith where it's a matter of seeking praise from God and
+    74  not from men.
+    75  
+    76  Our faith should be modelled on Abraham's faith.
     77  
-    78  Our faith should be modelled on Abraham's faith.
+    78  We're supposed to have joy in our obedience to God.
     79  
-    80  We're supposed to have joy in our obedience to God.
-    81  
-    82  We're supposed to go from agapeing darkness to agapeing God's light, and into
-    83  walking in the light, walking in God's will, and we're supported by God's
-    84  Spirit as we are doing this.
+    80  We're supposed to go from agapeing darkness to agapeing God's light, and into
+    81  walking in the light, walking in God's will, and we're supported by God's
+    82  Spirit as we are doing this.
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are found in Christ Jesus:
 
@@ -690,7 +688,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org27e7846) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd4c26d6) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14261,7 +14259,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbe06fdb)
+See: [33.4.1](#orge123092)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28461,7 +28459,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbe06fdb)
+See: [33.4.1](#orge123092)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
