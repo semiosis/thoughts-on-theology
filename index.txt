@@ -3101,6 +3101,14 @@ We are saved to serve Christ:
   II Corinthians 5:15 - and he died for all, that those who live might no longer live for themselves but for him
   who for their sake died and was raised. (ESV)
 
+We are meant to serve God. We are saved from not serving God, that we serve God through serving Christ:
+
+  Luke 4:4-8 - And Jesus answered him, It is written, Man shall not live by bread alone. And the devil took him up
+  and showed him all the kingdoms of the world in a moment of time, and said to him, To you I will give all this
+  authority and their glory, for it has been delivered to me, and I give it to whom I will. If you, then, will
+  worship me, it will all be yours. And Jesus answered him, It is written, You shall worship the Lord your God,
+  and him only shall you serve. (ESV)
+
 We are saved to work for Christ for the sake of Christ and the ministry of reconciling other sinners to God
 through Christ:
 
@@ -7078,6 +7086,7 @@ Almighty God as our Father, and Jesus is our Master and we seek to please our Ma
 please their coach, and we seek to follow the Royal Law, which is a part of being obedient to Jesus. We have His
 Spirit, and His Spirit helps us to do this.
 
+Quote by Billy Graham
 And he fell down before them and says, "What must I do to be saved? And they gave him a very simple answer, not
 something complicated. Simple, so that nobody here can ever say that you did you couldn't do it. He said believe
 on the Lord Jesus Christ and thou shalt be saved. Believe, commit your life to Christ, and you shall be saved. It
@@ -7141,7 +7150,7 @@ Let's have reverence for Jehovah God and serve Him:
   and they escape. Then those who feared the LORD spoke with one another. The LORD paid attention and heard them,
   and a book of remembrance was written before him of those who feared the LORD and esteemed his name. They shall
   be mine, says the LORD of hosts, in the day when I make up my treasured possession, and I will spare them as a
-  man spares his son who serves him. Then once more you shall see _the distinction between the righteous and the
+  man spares his son who serves him. Then once more you shall see the distinction between the righteous and the
   wicked, between one who serves God and one who does not serve him. (ESV)
 
 These Scriptures refers to Jesus' name:
@@ -7241,8 +7250,9 @@ behaviour to try to stop people from following Jesus or punish people for follow
   Matthew 23:26 - You blind Pharisee! First clean the inside of the cup and the plate, that the outside also may
   be clean. (ESV)
 
-Jesus came to help us, shed His blood for us as atonement, and to bring us to God. Jesus certainly has made it
-easier for us to obey God, and we can be sanctified by His blood:
+Jesus came to help us, shed His blood for us as atonement to ransom us from our sin, so that we can be set free
+from it and put a stop to it, and to bring us to God. Jesus certainly has made it easier for us to obey God, and
+we can be sanctified by His blood:
 
   Luke 23:36-37 - The soldiers also mocked him, coming up and offering him sour wine and saying, If you are the
   King of the Jews, save yourself! (ESV)
@@ -9036,6 +9046,27 @@ Christ died for us, so through His mercy alone, he purchased us.
 5.7.4. Those who have a heart of faith towards Him (and anyone who He wills) may receive forgiveness of sins through
 his name
 
+It's impossible for man to save himself:
+
+  Matthew 19:25-26 - When the disciples heard this, they were greatly astonished, saying, Who then can be saved?
+  But Jesus looked at them and said, With man this is impossible, but with God all things are possible. (ESV)
+
+Anyone God wills He may forgive and make clean:
+
+  Matthew 8:1-3 - When he came down from the mountain, great crowds followed him. And behold, a leper came to him
+  and knelt before him, saying, Lord, if you will, you can make me clean. And Jesus stretched out his hand and
+  touched him, saying, I will; be clean. And immediately his leprosy was cleansed. (ESV)
+
+  Matthew 9:5-8 - For which is easier, to say, Your sins are forgiven, or to say, Rise and walk? But that you may
+  know that the Son of Man has authority on earth to forgive sins - he then said to the paralytic-Rise, pick up
+  your bed and go home. And he rose and went home. When the crowds saw it, they were afraid, and they glorified
+  God, who had given such authority to men. (ESV)
+
+We certainly must trust in the name of the Only-Begotten Son of God if we want to be born of God:
+
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
 An heart of faith looks like:
 
 - Wanting to do God's will
@@ -10431,7 +10462,12 @@ A new creation lives for Christ:
   flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if
   anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come.
 
-Following Jesus Christ is not having a religious spirit, but it's serving God in reality.
+Following Jesus Christ is not having a religious spirit, but it's serving God in reality:
+
+  Ephesians 5:13-16 - But when anything is exposed by the light, it becomes visible, for anything that becomes
+  visible is light. Therefore it says, Awake, O sleeper, and arise from the dead, and Christ will shine on you.
+  Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days
+  are evil. (ESV)
 
   Galatians 3:26 - for in Christ Jesus you are all sons of God, through faith. (ESV)
 
@@ -25335,6 +25371,13 @@ If you listen to someone with a deceptive, beguiling spirit, then the same measu
   Isaiah 30:1 - Ah, stubborn children, declares the LORD, who carry out a plan, but not mine, and who make an
   alliance, but not of my Spirit, that they may add sin to sin; (ESV)
 
+youtube.com: AFreshWord - Important
+You know, one thing that I can't stand about these familiar spirits is that they usually lead you to the doorstep
+of destruction. They'll have you moving and doing all these different things just to end up completely destitute
+somewhere and outside of the will of God. I absolutely hate it. And it's my prayer that you would be completely
+delivered and if you've been led astray by a deceiving lying spirit I pray that your entire life would be
+redeemed.
+
 And that would would probably affect the truthfulness of your dreams if you have a prophetic gift, but there are
 other reasons a person may get dreams of falsehood including spiritual attack.
 
@@ -37871,6 +37914,16 @@ and the truth.
   breast, saying, God, be merciful to me, a sinner! (ESV)
 
 Prideful sin definitely doesn't make the cut.
+
+  Proverbs 16:18 - Pride goes before destruction, and a haughty spirit before a fall. (ESV)
+
+  Proverbs 16:5 - Everyone who is arrogant in heart is an abomination to the LORD; be assured, he will not go
+  unpunished. (ESV)
+
+  Proverbs 16:49 - Why should a fool have money in his hand to buy wisdom when he has no sense? (ESV)
+
+  Isaiah 2:17 - And the haughtiness of man shall be humbled, and the lofty pride of men shall be brought low, and
+  the LORD alone will be exalted in that day. (ESV)
 
 51.13.10. The everlasting covenant if one is in the everlasting covenant, should incite a person's shame for their
 past sin - not their pride
@@ -51898,11 +51951,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-09 Wed 00:00
+Date: 2024-10-11 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-09 Wed 11:13
+Created: 2024-10-11 Fri 18:33
 
 Validate
 
