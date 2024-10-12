@@ -690,7 +690,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7e85e33) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbabfead) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -8387,17 +8387,25 @@ Either of:
 
 A person needs to have obedient, believing faith in Jesus Christ to take the narrow gate.
 
-These people did not obey Jesus, and produced bad fruit:
+These people did not believe and obey Jesus, and produced bad fruit:
 
 > **[Matthew 7:13-16](https://www.biblegateway.com/passage/?search=Matthew%207%3A13-16&version=ESV)** - Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow ([4728 stenos ie. *narrow, small*](https://biblehub.com/greek/4728.htm)) and the way is hard ([2346 thlibó - meaning: like when circumstances "rub us the wrong way" that make us feel confined (hemmed in); restricted to a "narrow" place/](https://biblehub.com/greek/2346.htm)) that leads to life, and those who find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles?
 
-These people did not believe, and their works were not done in faith:
+Those in the following example that prophesied here who cast out demons in Jesus' name and did many mighty works in Jesus' name,
+
+-   didn't have God as their #1 agape love, treasuring Jesus and His words, and
+-   didn't in faith keep and obey Jesus' words including commandments, and
+-   didn't have a relationship with Jesus involving doing Jesus' words
+-   **didn't end up coming into the will of God to do their works out of God's will rather than their own will**
+    -   they were probably not really being truly believing and obedient of the words Jesus spoke:
 
 > **[Matthew 7:21-24](https://www.biblegateway.com/passage/?search=Matthew%207%3A21-24&version=ESV)** - Not everyone who says to me, Lord, Lord, will <ins>enter the kingdom of heaven, but the one who does the will of my Father who is in heaven.</ins> On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. **Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock**.
 
+We need to allow God's will to be done in us:
+
 > **[Matthew 6:10](https://www.biblegateway.com/passage/?search=Matthew%206%3A10&version=ESV)** - <ins>Your kingdom come, your will be done, on earth as it is in heaven.</ins> (ESV)
 
-These people didn't endure in faith:
+We need to endure in faith:
 
 > **[Matthew 7:13-14](https://www.biblegateway.com/passage/?search=Matthew%207%3A13-14&version=ESV)** - Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow ([4728 stenos ie. *narrow, small*](https://biblehub.com/greek/4728.htm)) and the way is hard ([2346 thlibó - meaning: like when circumstances "rub us the wrong way" that make us feel confined (hemmed in); restricted to a "narrow" place/](https://biblehub.com/greek/2346.htm)) that leads to life, and those who find it are few.
 
@@ -14322,7 +14330,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org26e1122)
+See: [33.4.1](#org0604ba2)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28620,7 +28628,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org26e1122)
+See: [33.4.1](#org0604ba2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
