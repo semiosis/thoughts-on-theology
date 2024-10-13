@@ -50503,11 +50503,13 @@ I proposed marriage, I had been giving to a hindu guy who was asking me for help
 pleaded guilty in this absurd situation where I am taken to court over marriage proposal because it does no harm
 to the other party and because I love them. It was agape love which does no harm to your neighbour and treasures
 your neighbour and and in court the judge on 3 May 2023 told me I must have been baptised at midnight and that I'm
-not remorseful. I have been trying to love literally everybody. Being denied marriage surely comes from antichrist
-spirit. Jesus utterly defeats antichrist spirit and I will go to war against this thing trying to rob, kill and
-destroy me, and the people I love, bury my testimony of being born-again. With Jesus' blood I will trample on
-snakes and scorpions and drive that antichrist spirit out of existence.The blood of Jesus is enough. Christ is
-enough.
+not remorseful. I have been trying to love literally everybody. Being denied marriage not necessarily this one
+incident but generally in my life surely comes from demons / antichrist spirit.
+
+Jesus in me utterly defeats antichrist spirit and I will go to war against this thing which has been trying to
+rob, kill and destroy me, the people I love and my testimony of being born-again. With the authority that Jesus
+gave His disciples I will trample on snakes and scorpions and trample on that antichrist spirit and rebuke it into
+utter destruction.
 
   Daniel 7:25 - He shall speak words against the Most High, and shall wear out the saints of the Most High, and
   shall think to change the times and the law; and they shall be given into his hand for a time, times, and half a
@@ -50529,6 +50531,10 @@ here.
 Loving God means also obeying His commandments - and His great commandments and fulfilling the requirement of the
 Law. Am I to love God with my whole heart if I take the person I propose to trial and waste years of her life in
 court? It's not loving God to do evil against my neighbour.
+
+The blood of Jesus is enough for me to be washed white as snow. Christ is enough for me. Give me Jesus and a good
+conscience. But I don't forgive satan, nor his angels, nor his demons. Nor do I affirm anyone who does not submit
+to the righteousness of God.
 
 My God is the God who instituted marriage between man and woman.
 
@@ -52401,7 +52407,7 @@ Date: 2024-10-13 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-13 Sun 21:11
+Created: 2024-10-13 Sun 22:31
 
 Validate
 
