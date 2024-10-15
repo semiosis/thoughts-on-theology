@@ -237,6 +237,25 @@ things even things I consider I do which are sinful, I don't endorse them for my
   nevertheless, like men you shall die, and fall like any prince. Arise, O God, judge the earth; for you shall
   inherit all the nations! (ESV)
 
+youtube.com: Deuteronomy 32 World View - There are Principalities That Rule over Nations @time: 17 min 56 sec
+
+Here's just one observation from I John 3 and John 1. You go back in the Old Testament. Who are the holy ones?
+
+Overwhelmingly, like 98% of the time, it's members of the heavenly host, the Divine Council. In the New Testament,
+holy ones, your English Bible will have 'saints'. That title is never used of the heavenly host, the angels, it's
+only used of you - of believers. Why the switch? Because we are the new sons and daughters of God. We are going to
+replace what was lost in all these rebellions both on Earth and ultimately in heaven, or the new Earth, the new
+Eden. You go to Hebrews 2 where this is the passage where Jesus is not ashamed to call us brothers, siblings.
+Where does that scene take place? If go read the passage? Before the congregation. Before the council. It's right
+there in the text. Paul in 1 Corinthians 6 tells the Corinthians who are basically doing everything wrong, he says
+"Look, will you stop taking each other to court. Don't you know that you're going to rule or judge angels.
+
+What it means is: How are we going to judge angels? If you keep reading Revelation 2, Revelation 3, in the new
+Eden we are put over the nations. To him that overcomes I will put him over the nations. To the one that overcomes
+I will let him sit on my throne and rule the nations. Who rules the nations now? The fallen gods, the
+principalities, the powers the rebellious sons of God. Who gets to replace them? Who judges them? Who will
+ultimately rule over them and displace and replace them? That would be us. This is not a throwaway line in Paul.
+
 Quote from Mari Mari Emmanuel
 So fear nothing, love everyone, but be firm when it comes to speaking the truth. Truth cannot be compromised. It
 cannot be sold.
@@ -1701,6 +1720,8 @@ from sin:
   Colossians 3:23-25 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
   you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid
   back for the wrong he has done, and there is no partiality.
+
+  Psalms 119:11 - I have stored up your word in my heart, that I might not sin against you. (ESV)
 
 We must forgive each other:
 
@@ -47653,7 +47674,16 @@ youtube.com: Message To All Christians @time: 2 min 54 sec
 - Prayer
 - Lamp
 
-69.1. Belt of Truth
+69.1. Love and holiness
+
+    o Romans 13:10-14 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. Besides
+      this you know the time, that the hour has come for you to wake from sleep. For salvation is nearer to us now
+      than when we first believed. The night is far gone; the day is at hand. So then let us cast off the works of
+      darkness and put on the armor of light. Let us walk properly as in the daytime, not in orgies and
+      drunkenness, not in sexual immorality and sensuality, not in quarreling and jealousy. But put on the Lord
+      Jesus Christ, and make no provision for the flesh, to gratify its desires. (ESV)
+
+69.2. Belt of Truth
 
 Message
 youtube.com: C S Lewis message 2024 - Faith in action God fights for you, but you must also act @time: 13 min 7
@@ -47685,11 +47715,11 @@ wind of doctrine", and to grow into and become established in the knowledge of J
 around when people ask questions about doctrine (I have often felt tested in this way, and sometimes unprepared),
 and that is why I am writing this Bible study out:
 
-69.1.1. Belts of righteousness, faithfulness
+69.2.1. Belts of righteousness, faithfulness
 
   Isaiah 11:5 - Righteousness shall be the belt of his waist, and faithfulness the belt of his loins. (ESV)
 
-69.1.2. We are fighting against lawlessness
+69.2.2. We are fighting against lawlessness
 
   II Thessalonians 2:9-13 - The coming of the lawless one is by the activity of Satan with all power and false
   signs and wonders, and with all wicked deception for those who are perishing, because they refused to love the
@@ -47708,9 +47738,9 @@ and that is why I am writing this Bible study out:
 
 We must have belief in the truth while being sanctified by the Spirit through faith.
 
-69.2. Breastplate of Righteousness
+69.3. Breastplate of Righteousness
 
-69.2.1. Imputed righteousness - The righteousness through faith in Jesus Christ.
+69.3.1. Imputed righteousness - The righteousness through faith in Jesus Christ.
 
   Philippians 3:9 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith- (ESV)
@@ -47725,7 +47755,7 @@ We must have belief in the truth while being sanctified by the Spirit through fa
   I Corinthians 1:30 - He is the source of your life in Christ Jesus, whom God made our wisdom and our
   righteousness and sanctification and redemption. (ESV)
 
-69.2.2. Personal holiness righteousness - Godliness
+69.3.2. Personal holiness righteousness - Godliness
 
 Cast off the works of darkness and put on the armor of light:
 
@@ -47772,7 +47802,7 @@ you're stained by it, you're adulterated by it.
 We got to get the world's ideologies out of our mind and stop being double-headed, stop being adulterated in the
 mind. You know what we're striving after? Your virginity of the mind.
 
-69.3. Shoes of the Gospel of Peace
+69.4. Shoes of the Gospel of Peace
 
 The readiness to share the Gospel of Jesus Christ with people, and also live out the Gospel.
 
@@ -47790,7 +47820,7 @@ The readiness to share the Gospel of Jesus Christ with people, and also live out
   Christ, God making his appeal through us. We implore you on behalf of Christ, be reconciled to God. For our sake
   he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
 
-69.4. Shield of Faith
+69.5. Shield of Faith
 
 Maintaining faithfulness to God, and our trust in God, God fights for us and is our shield.
 
@@ -47813,7 +47843,7 @@ Having faith in God, we have our shield:
   Genesis 15:1 - After these things the word of the LORD came to Abram in a vision: Fear not, Abram, I am your
   shield; your reward shall be very great. (ESV)
 
-69.5. Helmet of Salvation
+69.6. Helmet of Salvation
 
 Our hope of salvation which we have in Jesus Christ.
 
@@ -47825,18 +47855,18 @@ Our hope of salvation which we have in Jesus Christ.
   I Thessalonians 5:8 - But since we belong to the day, let us be sober, having put on the breastplate of faith
   and love, and for a helmet the hope of salvation. (ESV)
 
-69.6. Sword of the Spirit
+69.7. Sword of the Spirit
 
-69.6.1. Apply the word of God to combat lies
+69.7.1. Apply the word of God to combat lies
 
   Ephesians 6:17 - and take the helmet of salvation, and the sword of the Spirit, which is the word of God, (ESV)
 
-69.6.2. Believe the truth
+69.7.2. Believe the truth
 
   Matthew 4:4 - But he answered, It is written, Man shall not live by bread alone, but by every word that comes
   from the mouth of God. (ESV)
 
-69.6.3. Keep a clean heart with God
+69.7.3. Keep a clean heart with God
 
   Hebrews 4:12-13 - For the word of God is living and active, sharper than any two-edged sword, piercing to the
   division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the
@@ -47848,7 +47878,7 @@ Our hope of salvation which we have in Jesus Christ.
   which these men themselves accept, that there will be a resurrection of both the just and the unjust. So I
   always take pains to have a clear conscience toward both God and man. (ESV)
 
-69.6.4. Repent
+69.7.4. Repent
 
   Revelation of John 19:15 - From his mouth comes a sharp sword with which to strike down the nations, and he will
   rule them with a rod of iron. He will tread the winepress of the fury of the wrath of God the Almighty. (ESV)
@@ -47859,7 +47889,7 @@ Our hope of salvation which we have in Jesus Christ.
   Hosea 6:5 - Therefore I have hewn them by the prophets; I have slain them by the words of my mouth, and my
   judgment goes forth as the light. (ESV)
 
-69.7. Prayer
+69.8. Prayer
 
 An example of a prayer - short and sweet:
 
@@ -47894,7 +47924,7 @@ Another example:
   but the Spirit himself intercedes for us with groanings too deep for words. And he who searches hearts knows
   what is the mind of the Spirit, because the Spirit intercedes for the saints according to the will of God. (ESV)
 
-69.8. Lamp
+69.9. Lamp
 
 Awaiting the grace that will be brought to us at the revelation of Jesus Christ, prepare our hearts, waiting for
 Jesus to knock, ready for action.
@@ -47922,24 +47952,24 @@ Jesus will serve His servants who are awake:
 
   Matthew 23:11 - The greatest among you shall be your servant. (ESV)
 
-69.9. Armour of God - CS Lewis notes
+69.10. Armour of God - CS Lewis notes
 
 youtube.com: C S Lewis message 2024 - Faith in action God fights for you, but you must also act @time: 12 min 35
 sec
 
-69.9.1. Belt of Truth
+69.10.1. Belt of Truth
 
 Think of it as the study belt a soldier wears, holding everything in place. The Truth serves as the foundation of
 our spiritual life, anchoring us in a world full of deceptions and falsehoods. It is the word of God that anchors
 us and sets us free.
 
-69.9.2. Breastplate of Righteousness
+69.10.2. Breastplate of Righteousness
 
 Protects our hearts against the enemy's attacks. It is a reminder of the righteousness we have through Christ, not
 because of anything we have done. It is about living in obedience and integrity, knowing that we are clothed in
 His righteousness.
 
-69.9.3. Shoes of Peace
+69.10.3. Shoes of Peace
 
 These are not just ordinary shoes. They symbolise our readiness to share the good news of peace with others. In a
 world torn by conflict and turmoil, we carry the message of reconciliation and hope wherever we go. It is the
@@ -47948,7 +47978,7 @@ peace that comes with knowing Christ as mentioned in Philippians 4:7.
   Philippians 4:7 - And the peace of God, which surpasses all understanding, will guard your hearts and your minds
   in Christ Jesus. (ESV)
 
-69.9.4. Shield of Faith
+69.10.4. Shield of Faith
 
 Faith comes in as our shield against the fiery darts of the enemy. It is not just a passive belief but an active
 trust in God's promises. With faith, we can extinguish every arrow of doubt, fear and temptation. We hold our
@@ -47958,7 +47988,7 @@ groud, secure in God's love as Romans 8:38-39 assures us.
   to come, nor powers, nor height nor depth, nor anything else in all creation, will be able to separate us from
   the love of God in Christ Jesus our Lord. (ESV)
 
-69.9.5. Helmet of salvation
+69.10.5. Helmet of salvation
 
 The Helmet of salvation is what protects our minds from the enemy's lies and doubts:
 
@@ -52403,11 +52433,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-13 Sun 00:00
+Date: 2024-10-15 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-13 Sun 22:31
+Created: 2024-10-15 Tue 16:09
 
 Validate
 
