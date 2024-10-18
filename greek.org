@@ -1,0 +1,71 @@
+* 
+** Case
+
+#+BEGIN_SRC text -n :async :results verbatim code :lang text
+  interrogative
+      /ˌɪntəˈrɒɡətɪv/
+      adjective
+      having the force of a question.
+      "a hard, interrogative stare"
+
+  transitive verb
+      A verb that entails one or more transitive
+      objects, for example, 'enjoys' in Amadeus
+      enjoys music.
+
+      This contrasts with intransitive verbs,
+      which do not entail transitive objects,
+      for example, 'arose' in Beatrice arose.
+#+END_SRC
+
+- *N (Nominative)*
+  - =Indicates=: Subject of a finite verb
+  - =Sample case words=: we
+  - =Sample sentence=: We went to the store.
+  - =Interrogative=: Who or what?
+  - =Notes=: Corresponds to English's subject pronouns.
+- *V (Vocative)*
+  - =Indicates=: Addressee
+  - =Sample case words=: John
+  - =Sample sentence=:
+    - _John_, are you all right?
+    - Hello, _John_!
+    - O John, how are you! (archaic)
+  - =Interrogative=: 
+  - =Notes=: Roughly corresponds to the archaic use of "O" in English.
+- *A (Accusative)*
+  - =Indicates=: Direct object of a transitive verb
+  - =Sample case words=: 
+  - =Sample sentence=: 
+  - =Interrogative=: 
+  - =Notes=: 
+- *G (Genitive)*
+  - =Indicates=: 
+  - =Sample case words=: 
+  - =Sample sentence=: 
+  - =Interrogative=: 
+  - =Notes=: 
+- *D (Dative)*
+  - =Indicates=: 
+  - =Sample case words=: 
+  - =Sample sentence=: 
+  - =Interrogative=: 
+  - =Notes=: 
+
+https://en.wikipedia.org/wiki/Grammatical_case
+
+*** Example
+https://biblehub.com/interlinear/2_john/1-9.htm
+
+#+BEGIN_SRC text -n :async :results verbatim code :lang text
+  tou
+  3588
+  tou
+  τοῦ
+   -
+  Art-GMS
+#+END_SRC
+
+- G - [[https://en.wikipedia.org/wiki/Grammatical_case][Genitive]]
+- M - [[https://en.wikipedia.org/wiki/Grammatical_case][Masculine]]
+- S - [[https://en.wikipedia.org/wiki/Grammatical_case][Singular]]
