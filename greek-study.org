@@ -23,7 +23,7 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
 - *N (Nominative)*
   - =Indicates=: Subject of a finite verb
   - =Sample case words=: we
-  - =Sample sentence=: We went to the store.
+  - =Sample sentence=: _We_ went to the store.
   - =Interrogative=: Who or what?
   - =Notes=: Corresponds to English's subject pronouns.
 - *V (Vocative)*
@@ -39,8 +39,8 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   - =Indicates=: Direct object of a transitive verb
   - =Sample case words=: us, for us, the (object)
   - =Sample sentence=:
-    - The clerk remembered us.
-    - John waited for us at the bus stop.
+    - The clerk remembered _us_.
+    - John waited _for us_ at the bus stop.
     - Obey the law.
   - =Interrogative=: 
     - Whom or what?
