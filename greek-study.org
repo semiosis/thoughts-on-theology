@@ -37,8 +37,11 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   - =Notes=: Roughly corresponds to the archaic use of "O" in English.
 - *A (Accusative)*
   - =Indicates=: Direct object of a transitive verb
-  - =Sample case words=: 
-  - =Sample sentence=: 
+  - =Sample case words=: us, for us, the (object)
+  - =Sample sentence=:
+    - The clerk remembered us.
+    - John waited for us at the bus stop.
+    - Obey the law.
   - =Interrogative=: 
   - =Notes=: 
 - *G (Genitive)*
