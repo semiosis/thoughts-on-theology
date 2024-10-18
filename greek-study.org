@@ -43,7 +43,8 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
     - John waited for us at the bus stop.
     - Obey the law.
   - =Interrogative=: 
-  - =Notes=: 
+    - Whom or what?
+  - =Notes=: Corresponds to English's object pronouns and preposition for construction before the object, often marked by a definite article the. Together with dative, it forms modern English's oblique case.
 - *G (Genitive)*
   - =Indicates=: 
   - =Sample case words=: 
