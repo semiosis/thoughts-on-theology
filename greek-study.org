@@ -18,6 +18,8 @@
       for example, 'arose' in Beatrice arose.
 #+END_SRC
 
+Notes from https://en.wikipedia.org/wiki/Grammatical_case:
+
 - *N (Nominative)*
   - =Indicates=: Subject of a finite verb
   - =Sample case words=: we
@@ -51,8 +53,6 @@
   - =Sample sentence=: 
   - =Interrogative=: 
   - =Notes=: 
-
-https://en.wikipedia.org/wiki/Grammatical_case
 
 *** Example
 https://biblehub.com/interlinear/2_john/1-9.htm
