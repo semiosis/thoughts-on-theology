@@ -1,4 +1,14 @@
-* Greek study
+#+TITLE: New Testament Greek study
+#+AUTHOR: Shane Mulligan
+#+DATE: <2024-10-19 Sat>
+#+KEYWORDS: faith christianity
+
+#+LATEX_HEADER: \usepackage[margin=0.5in]{geometry}
+#+OPTIONS: toc:nil
+
+#+LATEX_COMPILER: xelatex
+
+* NT Greek study
 ** Case
 
 #+BEGIN_SRC text -n :async :results verbatim code :lang text
