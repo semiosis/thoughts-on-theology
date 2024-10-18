@@ -1,4 +1,4 @@
-* 
+* Greek study
 ** Case
 
 #+BEGIN_SRC text -n :async :results verbatim code :lang text
