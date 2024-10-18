@@ -41,7 +41,7 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   - =Sample sentence=:
     - The clerk remembered _us_.
     - John waited _for us_ at the bus stop.
-    - Obey the law.
+    - Obey _the law_.
   - =Interrogative=: 
     - Whom or what?
   - =Notes=: Corresponds to English's object pronouns and preposition for construction before the object, often marked by a definite article the. Together with dative, it forms modern English's oblique case.
