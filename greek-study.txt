@@ -1,0 +1,87 @@
+New Testament Greek study
+
+1. NT Greek study
+
+1.1. Case
+
+|  interrogative
+|      /ˌɪntəˈrɒɡətɪv/
+|      adjective
+|      having the force of a question.
+|      "a hard, interrogative stare"
+| 
+|  transitive verb
+|      A verb that entails one or more transitive
+|      objects, for example, 'enjoys' in Amadeus
+|       enjoys music.
+|  
+|       This contrasts with intransitive verbs,
+|       which do not entail transitive objects,
+|       for example, 'arose' in Beatrice arose.
+
+Notes from https://en.wikipedia.org/wiki/Grammatical_case:
+
+• N (Nominative)
+• Indicates: Subject of a finite verb
+• Sample case words: we
+• Sample sentence: We went to the store.
+• Interrogative: Who or what?
+• Notes: Corresponds to English's subject pronouns.
+• V (Vocative)
+• Indicates: Addressee
+• Sample case words: John
+• Sample sentence:
+• John, are you all right?
+• Hello, John!
+• O John, how are you! (archaic)
+• Interrogative:
+• Notes: Roughly corresponds to the archaic use of "O" in English.
+• A (Accusative)
+• Indicates: Direct object of a transitive verb
+• Sample case words: us, for us, the (object)
+• Sample sentence:
+• The clerk remembered us.
+• John waited for us at the bus stop.
+• Obey the law.
+• Interrogative:
+• Whom or what?
+• Notes: Corresponds to English's object pronouns and preposition
+for construction before the object, often marked by a definite
+article the. Together with dative, it forms modern English's
+oblique case.
+• G (Genitive)
+• Indicates:
+• Sample case words:
+• Sample sentence:
+• Interrogative:
+• Notes:
+• D (Dative)
+• Indicates:
+• Sample case words:
+• Sample sentence:
+• Interrogative:
+• Notes:
+
+1.1.1. Example
+
+https://biblehub.com/interlinear/2_john/1-9.htm
+
+|  tou
+|  3588
+|  tou
+|  τοῦ
+|   -
+|  Art-GMS
+
+• G - Genitive
+• M - Masculine
+• S - Singular
+
+Date: 2024-10-19 Sat 00:00
+
+Author: Shane Mulligan
+
+Created: 2024-10-19 Sat 15:13
+
+Validate
+
