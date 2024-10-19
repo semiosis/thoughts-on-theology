@@ -9,6 +9,19 @@
 #+LATEX_COMPILER: xelatex
 
 * NT Greek study
+
+** Question
+
+I'd like to understand the Greek behind the phrase =in the teaching of Christ=.
+Because I'm interested in whether the phrase =teaching of Christ= refers to the teachings that Christ
+taught including His teachings before His death, burial and resurrection, or
+if it the phrase is also talking about the doctrine surrounding what is known about Christ.
+My guess is both, but I'd like to understand the Greek a bit better.
+
+#+BEGIN_QUOTE
+  *II John 1:9* - Everyone who goes on ahead and does not abide =in the teaching of Christ=, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+#+END_QUOTE
+
 ** Case
 
 #+BEGIN_SRC text -n :async :results verbatim code :lang text
