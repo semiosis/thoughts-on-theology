@@ -1880,6 +1880,12 @@ Agape-love can be misplaced. We go from agape-loving (treasuring, valuing) darkn
   *[[https://www.biblegateway.com/passage/?search=John%203%3A16-20&version=ESV][John 3:16-20]]* - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but *whoever does not believe is condemned already*, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved ([[https://biblehub.com/greek/25.htm][25. agapaó]]) the darkness rather than the light ([[https://biblehub.com/greek/5457.htm][5457. phós]]) because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. (ESV)
 #+END_QUOTE
 
+Genuine agape loves the light. The Truth of God is light and is good and is not wicked:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV][Romans 12:9]]* - Let love [[strongs:G26][(G26 agapé)]] be genuine [[strongs:G505][(G505 anupokritos)]]. Abhor what is evil; hold fast to what is good. (ESV)
+#+END_QUOTE
+
 Thus so (*[[https://biblehub.com/greek/3779.htm][Houtōs]]*) (in this way) did God love ([[https://biblehub.com/greek/25.htm][25. agapaó]] - /value,treasure/) the world, that He gave His Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
 
 [[https://biblehub.com/interlinear/john/3-16.htm][biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son -- the only begotten -- He gave, that every one who is believing in him may not perish, but may have life age-during.]]
@@ -4249,6 +4255,10 @@ Do not be an enemy of the cross of Christ, submit to the righteousness of God - 
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For certain people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ. (KJV)
 #+END_QUOTE
 
 *** We are saved by grace through faith in Jesus Christ
@@ -6804,16 +6814,26 @@ be corrected by the Word of God, then we should separate ourselves from them:
   *[[https://www.biblegateway.com/passage/?search=2%20John%201%3A7-11&version=ESV][II John 1:7-11]]* - For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. *Everyone who goes on ahead and does not abide in the teaching ([[https://biblehub.com/greek/1322.htm][1322. didaché]]) of Christ, does not have God*. Whoever abides in the teaching has both the Father and the Son. _If anyone comes to you *and does not bring this teaching*, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works_. (ESV)
 #+END_QUOTE
 
-We must also withdraw ourselves from false teachers who bring in destructive heresies:
+We must also withdraw ourselves from false teachers who bring in destructive heresies, particularly those teaching us we don't need to serve/obey the Master who bought us:
 
 #+BEGIN_QUOTE
-  *[[https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1&version=ESV][II Peter 2:1]]* - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. (ESV)
+  *[[https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1&version=ESV][II Peter 2:1]]* - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even _denying the Master who bought them_, bringing upon themselves swift destruction. (ESV)
+#+END_QUOTE
+
++ Read :: [[https://www.bibleoutlines.com/jude-1-4-doctrine-worth-fighting-for-combating-false-teachers/][bibleoutlines.com: Bible Outlines - Jude 1-4 - Doctrine Worth Fighting For - Combating False Teachers]]
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For certain people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ. (KJV)
 #+END_QUOTE
 
 We shouldn't exclude those who are following Jesus and being taught by Jesus, and producing the right fruits. The ones who serve Jesus are obedient to Him:
 
 #+BEGIN_QUOTE
-  *Romans 16:17-19* - I appeal to you, brothers, to watch out for those who *cause divisions* and *create obstacles contrary to the doctrine that you have been taught*; avoid them. For such persons *do not serve our Lord Christ*, but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. For your *obedience* is known to all, so that I rejoice over you, but I want you to be wise as to what is good and innocent as to what is evil. (ESV)
+  *[[https://www.biblegateway.com/passage/?search=Romans%2016%3A17-19&version=ESV][Romans 16:17-19]]* - I appeal to you, brothers, to watch out for those who *cause divisions* and *create obstacles contrary to the doctrine that you have been taught*; avoid them. For such persons *do not serve our Lord Christ*, but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. For your *obedience* is known to all, so that I rejoice over you, but I want you to be wise as to what is good and innocent as to what is evil. (ESV)
 #+END_QUOTE
 
 #+BEGIN_QUOTE
@@ -10848,7 +10868,7 @@ People who go astray:
 God forgive us and grant us sanctification. I know I still have issues, and I want to put to death the sensuality:
 
 #+BEGIN_QUOTE
-  *[[https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1-22&version=ESV][II Peter 2:1-22]]* - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. And *many will follow their sensuality, and because of them the way of truth will be blasphemed*. And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot, greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then *the Lord knows how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment*, and *especially those who indulge in the lust of defiling passion and despise authority*. Bold and willful, they do not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not pronounce a blasphemous judgment against them before the Lord. But these, like irrational animals, creatures of instinct, born to be caught and destroyed, blaspheming about matters of which they are ignorant, will also be destroyed in their destruction, suffering wrong as the wage for their wrongdoing. They count it pleasure to revel in the daytime. They are blots and blemishes, reveling in their deceptions, while they feast with you. They have eyes full of adultery, insatiable for sin. They entice unsteady souls. They have hearts trained in greed. Accursed children! *Forsaking the right way, they have gone astray*. They have followed the way of Balaam, the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a speechless donkey spoke with human voice and restrained the prophet's madness. These are waterless springs and mists driven by a storm. For them the gloom of utter darkness has been reserved. For, speaking loud boasts of folly, they entice by sensual passions of the flesh those who are barely escaping from those who live in error. *They promise them freedom, but they themselves are slaves of corruption*. For *whatever overcomes a person, to that he is enslaved.* For *if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first.* For it would have been better for them never to have known the way of righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
+  *[[https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1-22&version=ESV][II Peter 2:1-22]]* - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even _denying the Master who bought them_, bringing upon themselves swift destruction. And *many will follow their sensuality, and because of them the way of truth will be blasphemed*. And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot, greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then *the Lord knows how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment*, and *especially those who indulge in the lust of defiling passion and despise authority*. Bold and willful, they do not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not pronounce a blasphemous judgment against them before the Lord. But these, like irrational animals, creatures of instinct, born to be caught and destroyed, blaspheming about matters of which they are ignorant, will also be destroyed in their destruction, suffering wrong as the wage for their wrongdoing. They count it pleasure to revel in the daytime. They are blots and blemishes, reveling in their deceptions, while they feast with you. They have eyes full of adultery, insatiable for sin. They entice unsteady souls. They have hearts trained in greed. Accursed children! *Forsaking the right way, they have gone astray*. They have followed the way of Balaam, the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a speechless donkey spoke with human voice and restrained the prophet's madness. These are waterless springs and mists driven by a storm. For them the gloom of utter darkness has been reserved. For, speaking loud boasts of folly, they entice by sensual passions of the flesh those who are barely escaping from those who live in error. *They promise them freedom, but they themselves are slaves of corruption*. For *whatever overcomes a person, to that he is enslaved.* For *if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first.* For it would have been better for them never to have known the way of righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
 #+END_QUOTE
 
 #+BEGIN_QUOTE
@@ -12716,6 +12736,10 @@ We should not forsake Jesus as our Master:
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For certain people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ. (KJV)
 #+END_QUOTE
 
 We certainly should not forsake the higher precepts of the law - mercy, justice and faithfulness:
@@ -20028,7 +20052,7 @@ Firstly, obedient children are children who hear the word of God, believe and lo
 We must follow the way righteousness, repenting from sin, and following Jesus Christ. Jesus Christ is Lord:
 
 #+BEGIN_QUOTE
-  *[[https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1-3&version=ESV][II Peter 2:1-3]]* - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon themselves swift destruction. And many will follow their sensuality, and because of them the way of truth will be blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and their destruction is not asleep.
+  *[[https://www.biblegateway.com/passage/?search=2%20Peter%202%3A1-3&version=ESV][II Peter 2:1-3]]* - But false prophets also arose among the people, just as there will be false teachers among you, who will secretly bring in destructive heresies, even _denying the Master who bought them_, bringing upon themselves swift destruction. And many will follow their sensuality, and because of them the way of truth will be blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and their destruction is not asleep.
 #+END_QUOTE
 
 #+BEGIN_QUOTE
@@ -23305,6 +23329,22 @@ These do not contradict:
 
 + [[https://www.ligonier.org/learn/devotionals/god-truth/][Quote by R. C. Sproul]] :: "Truth is not defined by our own subjective standards; it is determined by the Source of truth *Himself*"
 
+[[https://topicalbiblestudies.com/are-we-saved-by-faith-alone/][Here]] is an interesting read with some interesting points.
+One could use a number of verses to teach “salvation by *X* alone” doctrines. For instance, we could teach:
+- Repentance alone from [[https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A10&version=ESV][2 Corinthians 7:10]]
+- Baptism alone from [[https://www.biblegateway.com/passage/?search=Acts%2022%3A16&version=ESV][Acts 22:16]]
+- The life of Christ alone from [[https://www.biblegateway.com/passage/?search=Romans%205%3A10&version=ESV][Romans 5:10]]
+- The blood of Christ alone from [[https://www.biblegateway.com/passage/?search=Revelation%201%3A5&version=ESV][Revelation 1:5]]
+- The word of God alone from [[https://www.biblegateway.com/passage/?search=James%201%3A21&version=ESV][James 1:21]]
+- Obedience alone from [[https://www.biblegateway.com/passage/?search=Hebrews%205%3A9&version=ESV][Hebrews 5:9]], and so on.
+- The sum of Your word is truth, And every one of Your righteous ordinances is everlasting.
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Psalms%20119%3A160&version=ESV][Psalms 119:160]]* - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
+#+END_QUOTE
+
+As the psalmist states, the *sum* of God’s word is truth. However, when we make passages fight against each other, we are saying only some of God’s word is truth.
+
 *** Jesus is noticeably present with us as we believe and affirm and obey the Truth
 + Sermon :: [[https://youtube.com/watch?v=xqgeT26BAnE&t=1160][youtube.com: How to Seek the Holy Spirit @time: 19 min 20 sec]]
 
@@ -24488,6 +24528,16 @@ The demons believe and tremble because they don't have the kind of faith that pr
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=James%202%3A19&version=ESV][James 2:19]]* - You believe that God is one; you do well. Even the demons believe—and shudder! (ESV)
+#+END_QUOTE
+
+We are supposed to be harmless, innocent like children, but wise and mature, in both thinking and deed:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A20&version=ESV][I Corinthians 14:20]]* - Brothers, stop thinking like children. In regard to evil be infants, but in your thinking be mature. (engbsb2020eb)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Matthew%2010%3A16&version=ESV][Matthew 10:16]]* - Behold, I send you forth as sheep in the midst of wolves: be ye therefore wise as serpents, and harmless as doves. (KJV)
 #+END_QUOTE
 
 God's strength does not guarantee that we will not suffer as a result of following Jesus. But God gives us the power at the time we need it to endure the suffering:
@@ -33545,6 +33595,12 @@ Agape-love can be misplaced. We go from agape-loving (treasuring, valuing) darkn
   *[[https://www.biblegateway.com/passage/?search=John%203%3A16-20&version=ESV][John 3:16-20]]* - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but *whoever does not believe is condemned already*, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved ([[https://biblehub.com/greek/25.htm][25. agapaó]]) the darkness rather than the light ([[https://biblehub.com/greek/5457.htm][5457. phós]]) because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. (ESV)
 #+END_QUOTE
 
+Genuine agape loves the light. The Truth of God is light and is good and is not wicked:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV][Romans 12:9]]* - Let love [[strongs:G26][(G26 agapé)]] be genuine [[strongs:G505][(G505 anupokritos)]]. Abhor what is evil; hold fast to what is good. (ESV)
+#+END_QUOTE
+
 In order to be faithful to God, you will start acting unpredictably to others who are still in darkness. Firstly, as happened to me, you may tell someone about Jesus for the first time. Also, you will be led amongst people in darkness and make confessions of the truth to combat lies in remaining faithful to God, and obey Jesus' commandments in situations where others in darkness or under the power of Satan may pressure you to not. And people may react in hostile ways. I just think that turning from darkness to light and the power of Satan to God naturally results in decoupling from the world:
 
 #+BEGIN_QUOTE
@@ -34808,6 +34864,12 @@ Agape-love can be misplaced. We go from agape-loving (treasuring, valuing) darkn
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=John%203%3A16-20&version=ESV][John 3:16-20]]* - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but *whoever does not believe is condemned already*, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved ([[https://biblehub.com/greek/25.htm][25. agapaó]]) the darkness rather than the light ([[https://biblehub.com/greek/5457.htm][5457. phós]]) because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. (ESV)
+#+END_QUOTE
+
+Genuine agape loves the light. The Truth of God is light and is good and is not wicked:
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV][Romans 12:9]]* - Let love [[strongs:G26][(G26 agapé)]] be genuine [[strongs:G505][(G505 anupokritos)]]. Abhor what is evil; hold fast to what is good. (ESV)
 #+END_QUOTE
 
 Thus so (*[[https://biblehub.com/greek/3779.htm][Houtōs]]*) (in this way) did God love ([[https://biblehub.com/greek/25.htm][25. agapaó]] - /value,treasure/) the world, that He gave His Only-Begotten Son that everyone who is trusting/believing in Him may not perish, but may have life everlasting:
@@ -37723,6 +37785,10 @@ In other words, I received the grace *before* I had perfect obedience, and I bel
 
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For certain people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. (ESV)
+#+END_QUOTE
+
+#+BEGIN_QUOTE
+  *[[https://www.biblegateway.com/passage/?search=Jude%201%3A4&version=ESV][Jude 1:4]]* - For there are certain men crept in unawares, who were before of old ordained to this condemnation, ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus Christ. (KJV)
 #+END_QUOTE
 
 I believe that after I made testimony of being born-again and baptised by fire, I needed to be sanctified/corrected by the Truth, the Word of God, and as a consequence of endeavouring to do so by repenting and becoming obedient to Jesus, I was spiritually attacked and deplatformed.
