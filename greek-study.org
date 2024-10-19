@@ -56,7 +56,7 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
     - _John_, are you all right?
     - Hello, _John_!
     - O John, how are you! (archaic)
-  - =Interrogative=: 
+  - =Interrogative=:
   - =Notes=: Roughly corresponds to the archaic use of "O" in English.
 - *A (Accusative)*
   - =Indicates=: Direct object of a transitive verb
@@ -65,13 +65,13 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
     - The clerk remembered _us_.
     - John waited _for us_ at the bus stop.
     - Obey _the law_.
-  - =Interrogative=: 
+  - =Interrogative=:
     - Whom or what?
   - =Notes=: Corresponds to English's object pronouns and preposition for construction before the object, often marked by a definite article the. Together with dative, it forms modern English's oblique case.
 - *G (Genitive)*
   - =Indicates=: Possessor of another noun
   - =Sample case words=: _'s_, _of (the)_
-  - =Sample sentence=: 
+  - =Sample sentence=:
     - _John's_ book was on the table.
     - The pages _of the book_ turned yellow.
     - The table is made _out of wood_.
@@ -87,10 +87,44 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   - =Interrogative=: Whom or to what?
   - =Notes=: Corresponds to English's object pronouns and preposition to construction before the object, often marked by a definite article the. Together with accusative, it forms modern English's oblique case.
 
+*** Interlinear
+
+#+BEGIN_SRC text -n :async :results verbatim code :lang text
+  3956    3588    4254           2532 3361 3306
+  pas     ho      proagōn        kai  mē   menōn
+  πᾶς     ὁ       προάγων        καὶ  μὴ   μένων
+  Anyone   -      going on ahead and  not  abiding
+  Adj-NMS Art-NMS V-PPA-NMS      Conj Adv  V-PPA-NMS
+
+  1722 3588    1322     3588    5547       2316
+  en   tē      didachē  tou     Christou   Theon
+  ἐν   τῇ      διδαχῇ   τοῦ     Χριστοῦ  , Θεὸν
+  in   the     teaching  -      of Christ  God
+  Prep Art-DFS N-DFS    Art-GMS N-GMS      N-AMS
+
+  3756 2192     3588      3306      1722 3588
+  ouk  echei    ho        menōn     en   tē
+  οὐκ  ἔχει  .  ὁ         μένων     ἐν   τῇ
+  not  has      The [one] abiding   in   the
+  Adv  V-PIA-3S Art-NMS   V-PPA-NMS Prep Art-DFS
+
+  1322      3778       2532 3588    3962
+  didachē   houtos     kai  ton     Patera
+  διδαχῇ  , οὗτος      καὶ  τὸν     Πατέρα
+  teaching  this [one] both the     Father
+  N-DFS     DPro-NMS   Conj Art-AMS N-AMS
+
+  2532 3588    5207  2192
+  kai  ton     Huion echei
+  καὶ  τὸν     Υἱὸν  ἔχει  .
+  and  the     Son   has
+  Conj Art-AMS N-AMS V-PIA-3S
+#+END_SRC
+
 *** Example
 https://biblehub.com/interlinear/2_john/1-9.htm
 
-#+BEGIN_SRC text -n :async :results verbatim code :lang text
+#+BEGIN_SRC text -n :async :results verbatim code :lang textly
   tou
   3588
   tou
