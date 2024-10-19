@@ -449,9 +449,10 @@ the future that God is providing. Faith in all these truths of chapter 1
 (i.e. [I Peter 1]), means "hoping faith is the assurance of things hoped
 for."
 
-Our faith should be in God and our hope should be for God's promises. God
-has spoken a lot already in the Scriptures and about how we should listen
-to Jesus. Saving faith trusts God:
+Our faith should be in God and our hope should be for God's promises as
+we serve God through Jesus. God has spoken a lot already in the
+Scriptures and about how we should listen to Jesus. Saving faith trusts
+God:
 
   I Peter 1:20-23 - He was foreknown before the foundation of the world
   but was made manifest in the last times for your sake, who through him
@@ -7687,11 +7688,15 @@ perfection/completion:
   already perfect, but I press on to make it my own, because Christ Jesus
   has made me his own. (ESV)
 
-We have different gifts, a different calling. We cannot compare or boast.
-We're different parts of the body of Christ.
+When it comes to be being saved to serve Christ, we can't boast that in
+some way we earned salvation outside of God's gift/grace:
 
-  I Peter 4:10 - As each has received a gift, use it to serve one
-  another, as good stewards of God's varied grace: (ESV)
+  Ephesians 2:8-9 - For by grace you have been saved through faith. And
+  this is not your own doing; it is the gift of God, not a result of
+  works, so that no one may boast. (ESV)
+
+  Romans 11:32 - For God has consigned all to disobedience, that he may
+  have mercy on all. (ESV)
 
 Let's see what the word katergazomai (the word for 'work out') means:
 
@@ -14534,6 +14539,70 @@ call of duty - as bondservants.
   stewardship. What then is my reward? That in my preaching I may present
   the gospel free of charge, so as not to make full use of my right in
   the gospel. (ESV)
+
+When it comes to be being saved to serve Christ, we can't boast that in
+some way we earned salvation outside of God's gift/grace:
+
+  Ephesians 2:8-9 - For by grace you have been saved through faith. And
+  this is not your own doing; it is the gift of God, not a result of
+  works, so that no one may boast. (ESV)
+
+  Romans 11:32 - For God has consigned all to disobedience, that he may
+  have mercy on all. (ESV)
+
+Even with stewardship (being brought into service to God with a calling),
+we have different gifts, a different calling. We cannot compare or boast
+in this regard because we are stewards of His varied grace. We're
+different parts of the body of Christ. Being a steward, we are obligated
+to fulfill our calling. But, technically, we may have something to boast
+about if we go beyond what is required of us.
+
+  I Peter 4:10 - As each has received a gift, use it to serve one
+  another, as good stewards of God's varied grace: (ESV)
+
+Paul preaches free of charge so as not to make full use of his right in
+the gospel, and understands he will be rewarded for this:
+
+  I Corinthians 9:15-18 - But I have made no use of any of these rights,
+  nor am I writing these things to secure any such provision. For I would
+  rather die than have anyone deprive me of my ground for boasting. For
+  if I preach the gospel, that gives me no ground for boasting. For
+  necessity is laid upon me. Woe to me if I do not preach the gospel! For
+  if I do this of my own will, I have a reward, but not of my own will, I
+  am still entrusted with a stewardship. What then is my reward? That in
+  my preaching I may present the gospel free of charge, so as not to make
+  full use of my right in the gospel. (ESV)
+
+  I Thessalonians 2:19 - For what is our hope or joy or crown of boasting
+  before our Lord Jesus at his coming? Is it not you? (ESV)
+
+  Galatians 6:4 - But let each one test his own work, and then his reason
+  to boast will be in himself alone and not in his neighbor. (ESV)
+
+We boast in Lord who has given us an area of influence. For me that might
+be on GitHub, I guess, since that's where I'm writing my Bible Study. We
+still hope that this influence spreads and the gospel message is taken
+further.
+
+  II Corinthians 10:12-18 - Not that we dare to classify or compare
+  ourselves with some of those who are commending themselves. But when
+  they measure themselves by one another and compare themselves with one
+  another, they are without understanding. But we will not boast beyond
+  limits, but will boast only with regard to the area of influence God
+  assigned to us, to reach even to you. For we are not overextending
+  ourselves, as though we did not reach you. We were the first to come
+  all the way to you with the gospel of Christ. We do not boast beyond
+  limit in the labors of others. But our hope is that as your faith
+  increases, our area of influence among you may be greatly enlarged, so
+  that we may preach the gospel in lands beyond you, without boasting of
+  work already done in another's area of influence. Let the one who
+  boasts, boast in the Lord. For it is not the one who commends himself
+  who is approved, but the one whom the Lord commends. (ESV)
+
+Boasting should never be with selfish ambition:
+
+  James 3:14 - But if you have bitter jealousy and selfish ambition in
+  your hearts, do not boast and be false to the truth. (ESV)
 
 We are all stewards of God's varied grace so there is obligation to serve
 one another:
@@ -33099,7 +33168,9 @@ Jesus and obeying Jesus and allowing Jesus to work through you as you
 believe and obey His commandments.
 
 The ones who remained in the boat and did not step out onto the water did
-not have enough faith to walk on water.
+not have enough faith to walk on water. Fear and doubt weakened their
+faith. Maybe Peter took his eyes off Jesus, and instead focused on the
+water.
 
   Matthew 14:27-32 - But immediately Jesus spoke to them, saying, Take
   heart; it is I. Do not be afraid. And Peter answered him, Lord, if it
@@ -33110,8 +33181,8 @@ not have enough faith to walk on water.
   him, saying to him, O you of little faith, why did you doubt? And when
   they got into the boat, the wind ceased.
 
-Fear and doubt weakened their faith. Maybe Peter took his eyes off Jesus,
-and instead focused on the water.
+  Mark 5:36 - But overhearing what they said, Jesus said to the ruler of
+  the synagogue, Do not fear, only believe. (ESV)
 
   Hebrews 2:2 - For since the message declared by angels proved to be
   reliable and every transgression or disobedience received a just
@@ -68269,6 +68340,16 @@ including believers who do not repent from sin:
   do not hear Moses and the Prophets, neither will they be convinced if
   someone should rise from the dead. (ESV)
 
+youtube.com: Judgment Is Coming For Those Who Distort Scripture @time: 2
+min 5 sec
+God is love. Everything he does is out of love. So you have to look at
+judgment in the light of love, and you have to look at a person's
+long-term, not short-term, benefit. Because God's always interested in
+the eternal. He's put eternity in our hearts, and when we look at the
+length of this life, Arden, it is a blip, a blip on the screen, compared
+to eternity. And so God is always speaking to us in regard to our eternal
+benefit, not our temporary.
+
   I John 2:19 - They went out from us, but they were not of us; for if
   they had been of us, they would have continued with us. But they went
   out, that it might become plain that they all are not of us. (ESV)
@@ -68909,7 +68990,7 @@ Date: 2024-10-18 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-19 Sat 15:46
+Created: 2024-10-19 Sat 18:04
 
 Validate
 

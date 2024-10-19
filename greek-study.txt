@@ -45,10 +45,8 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
 • Obey the law.
 • Interrogative:
 • Whom or what?
-• Notes: Corresponds to English's object pronouns and preposition
-for construction before the object, often marked by a definite
-article the. Together with dative, it forms modern English's
-oblique case.
+• Notes: Corresponds to English's object pronouns and preposition for construction before the object, often
+marked by a definite article the. Together with dative, it forms modern English's oblique case.
 • G (Genitive)
 • Indicates:
 • Sample case words:
