@@ -2,7 +2,21 @@ New Testament Greek study
 
 1. NT Greek study
 
-1.1. Case
+φύσις
+
+\textgreek{φύσις}
+
+1.1. Question
+
+I'd like to understand the Greek behind the phrase in the teaching of Christ. Because I'm interested in whether
+the phrase teaching of Christ refers to the teachings that Christ taught including His teachings before His death,
+burial and resurrection, or if it the phrase is also talking about the doctrine surrounding what is known about
+Christ. My guess is both, but I'd like to understand the Greek a bit better.
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+1.2. Case
 
 |  interrogative
 |      /ˌɪntəˈrɒɡətɪv/
@@ -48,19 +62,62 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
 • Notes: Corresponds to English's object pronouns and preposition for construction before the object, often
 marked by a definite article the. Together with dative, it forms modern English's oblique case.
 • G (Genitive)
-• Indicates:
-• Sample case words:
+• Indicates: Possessor of another noun
+• Sample case words: 's, of (the)
 • Sample sentence:
-• Interrogative:
-• Notes:
+• John's book was on the table.
+• The pages of the book turned yellow.
+• The table is made out of wood.
+• Interrogative: Whose? From what or what of?
+• Notes: Roughly corresponds to English's possessive (possessive determiners and pronouns) and preposition
+of construction.
 • D (Dative)
-• Indicates:
-• Sample case words:
+• Indicates: Indirect object of a verb
+• Sample case words: us, to us, to the (object)
 • Sample sentence:
-• Interrogative:
-• Notes:
+• The clerk gave us a discount.
+• The clerk gave a discount to us.
+• According to the law…
+• Interrogative: Whom or to what?
+• Notes: Corresponds to English's object pronouns and preposition to construction before the object, often
+marked by a definite article the. Together with accusative, it forms modern English's oblique case.
 
-1.1.1. Example
+1.2.1. Interlinear
+
+┌─────────┐ 1722 3588 1322 │ 3588 │ 5547 2316 en tē didachē │ tou │ Christou Theon ἐν τῇ διδαχῇ │ τοῦ │ Χριστοῦ ,
+Θεὸν in the teaching │ - │ of Christ God Prep Art-DFS N-DFS │ Art-GMS │ N-GMS N-AMS
+
+|  3956    3588    4254           2532 3361 3306
+|  pas     ho      proagōn        kai  mē   menōn
+|  πᾶς     ὁ       προάγων        καὶ  μὴ   μένων
+|  Anyone   -      going on ahead and  not  abiding
+|  Adj-NMS Art-NMS V-PPA-NMS      Conj Adv  V-PPA-NMS
+|                        ┌─────────┐
+|  1722 3588    1322     │ 3588    │ 5547       2316
+|  en   tē      didachē  │ tou     │ Christou   Theon
+|  ἐν   τῇ      διδαχῇ   │ τοῦ     │ Χριστοῦ  , Θεὸν
+|   in   the     teaching │  -      │ of Christ  God
+|   Prep Art-DFS N-DFS    │ Art-GMS │ N-GMS      N-AMS
+|                         └─────────┘
+|   3756 2192     3588      3306      1722 3588
+|   ouk  echei    ho        menōn     en   tē
+|   οὐκ  ἔχει  .  ὁ         μένων     ἐν   τῇ
+|   not  has      The [one] abiding   in   the
+|   Adv  V-PIA-3S Art-NMS   V-PPA-NMS Prep Art-DFS
+|  
+|   1322      3778       2532 3588    3962
+|   didachē   houtos     kai  ton     Patera
+|   διδαχῇ  , οὗτος      καὶ  τὸν     Πατέρα
+|   teaching  this [one] both the     Father
+|   N-DFS     DPro-NMS   Conj Art-AMS N-AMS
+|  
+|   2532 3588    5207  2192
+|   kai  ton     Huion echei
+|   καὶ  τὸν     Υἱὸν  ἔχει  .
+|   and  the     Son   has
+|   Conj Art-AMS N-AMS V-PIA-3S
+
+1.2.2. Example - Art-GMS
 
 https://biblehub.com/interlinear/2_john/1-9.htm
 
@@ -79,7 +136,7 @@ Date: 2024-10-19 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-19 Sat 15:13
+Created: 2024-10-19 Sat 19:05
 
 Validate
 

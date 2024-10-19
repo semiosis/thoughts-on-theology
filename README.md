@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgea429b4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3383b13) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -9167,7 +9167,7 @@ This quite clearly shows that Jesus Christ is Almighty God:
     are falling away a little bit from our
     own roots and so we need reform.
 
-I affirm the Nicene creed wholeheartedly:
+I affirm the [Nicene creed](https://hastings.rcnz.org.nz/our-beliefs/the-nicene-creed/) wholeheartedly:
 
      1  We believe in one God,
      2        the Father almighty,
@@ -9205,6 +9205,32 @@ I affirm the Nicene creed wholeheartedly:
     34        We affirm one baptism for the forgiveness of sins.
     35        We look forward to the resurrection of the dead,
     36        and to life in the world to come. Amen.
+
+AMEN!!
+
+I affirm the [Apostles' creed](https://www.crcna.org/welcome/beliefs/creeds/apostles-creed) wholeheartedly:
+
+     1  I believe in God, the Father almighty,
+     2        creator of heaven and earth.
+     3  I believe in Jesus Christ, his only Son, our Lord,
+     4        who was conceived by the Holy Spirit
+     5        and born of the virgin Mary.
+     6        He suffered under Pontius Pilate,
+     7        was crucified, died, and was buried;
+     8        he descended to hell.
+     9        The third day he rose again from the dead.
+    10        He ascended to heaven
+    11        and is seated at the right hand of God the Father almighty.
+    12        From there he will come to judge the living and the dead.
+    13  
+    14  I believe in the Holy Spirit,
+    15        the holy catholic* church,
+    16        the communion of saints,
+    17        the forgiveness of sins,
+    18        the resurrection of the body,
+    19        and the life everlasting. Amen.
+    20  
+    21  *that is, the true Christian church of all times and all places
 
 AMEN!!
 
@@ -12282,13 +12308,39 @@ Faith is a mixture of belief and obedience.
 
 > **[I Peter 2:21](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A21&version=ESV)** - For to this you have been called, because Christ also suffered for you, <ins>leaving you an example, so that you might follow in his steps.</ins> (ESV)
 
+Jesus is the Way, the Truth and the Life - the Only Way to the Father. Amen.
+
+Jesus is the bread of Life.
+
+We focus on Jesus, keep His words, believe His words, pratice His commandments, imitate Him, etc.
+reject falsehood, accept the Truth and the Truth is in Jesus. We do this and Jesus saves us.
+
+-   **[youtube.com: The Way, the Truth, & the Life: Knowing Christ - The I AM Sayings of Jesus with R.C. Sproul](https://www.youtube.com/watch?v=P7H0B1wmlRY):** There is such a unity here in
+    the Godhead between the Father and the Son that if
+    you see the Son, you see the Father. If you know the Son, you
+    know the Father. And conversely, if you know
+    the Father, you know the Son. This was the point
+    of dispute that Jesus had with the Pharisees
+    who claimed to be disciples of God the Father but
+    who rejected Jesus. And He said to them, look,
+    if you know the Father, you have to believe
+    in the Son, because the Father bears witness
+    to Me. And so the way to the Father is through the
+    Son. The way to see the Father is to see the Son.
+    The way to get to the Father is to go through
+    the Son.
+
+> **[John 14:1-7](https://www.biblegateway.com/passage/?search=John%2014%3A1-7&version=ESV)** - Let not your hearts be troubled. **Believe in God; believe also in me**. In my Father's house are many rooms. If it were not so, would I have told you that I go to prepare a place for you? And if I go and prepare a place for you, I will come again and will take you to myself, that where I am you may be also. And **you know the way to where I am going**. Thomas said to him, Lord, we do not know where you are going. How can we know the way? **Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except through me**. If you had known me, you would have known my Father also. From now on you do know him and have seen him. (ESV)
+
+> **[John 8:48-59](https://www.biblegateway.com/passage/?search=John%208%3A48-59&version=ESV)** - The Jews answered him, Are we not right in saying that you are a Samaritan and have a demon? Jesus answered, I do not have a demon, but I honor my Father, and you dishonor me. Yet I do not seek my own glory; there is One who seeks it, and he is the judge. Truly, truly, I say to you, if anyone keeps my word, he will never see death. The Jews said to him, Now we know that you have a demon! Abraham died, as did the prophets, yet you say, If anyone keeps my word, he will never taste death. Are you greater than our father Abraham, who died? And the prophets died! Who do you make yourself out to be? Jesus answered, If I glorify myself, my glory is nothing. It is my Father who glorifies me, of whom you say, He is our God. But you have not known him. I know him. If I were to say that I do not know him, I would be a liar like you, but I do know him and I keep his word. Your father Abraham rejoiced that he would see my day. He saw it and was glad. So the Jews said to him, You are not yet fifty years old, and have you seen Abraham? Jesus said to them, Truly, truly, I say to you, **before Abraham was, I am**. So they picked up stones to throw at him, but Jesus hid himself and went out of the temple. (ESV)
+
 Obedience to God is an act of faith: (**Hebrews 11**). On the flip side, disobedience flows from unbelief/faithlessness:
 
 > **[I Timothy 1:13](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A13&version=ESV)** - though formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy because I had acted ignorantly in unbelief, (ESV)
 
 Acting in accordance with faithlessness is sinful behaviour:
 
-> **[1Ti 1:13](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A13&version=ESV)** - even though I was formerly a blasphemer and a persecutor and a violent aggressor. Yet I was shown mercy because I **acted** ([G4160 poieo](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/)) **ignorantly** (G50 agnoeo) in **unbelief** (G570 apaistia, faithlessness, disobedience);
+> **[I Timothy 1:13](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A13&version=ESV)** - even though I was formerly a blasphemer and a persecutor and a violent aggressor. Yet I was shown mercy because I **acted** [(G4160 poieo)](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/) **ignorantly** [(G50 agnoeo)](https://www.blueletterbible.org/lexicon/g50/kjv/tr/0-1/) in **unbelief** [(G570 apaistia i.e. faithlessness, disobedience)](G570); (NASB)
 
     1  :  570  apaistia  ap-is-tee'-ah
     2  
@@ -14562,7 +14614,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org413ae54)
+See: [33.4.1](#org60ce865)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28932,7 +28984,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org413ae54)
+See: [33.4.1](#org60ce865)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
