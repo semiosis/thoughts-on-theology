@@ -1,25 +1,52 @@
 
 # Table of Contents
 
-1.  [Valentinus](#org5562b22)
-    1.  [Refutations](#org35863f2)
-        1.  [Refutation of All Heresies (Hippolytus)](#org4367f75)
-2.  [Universal religion](#org07e7608)
-3.  [Mixing paganism with Christianity](#orgc16e2c0)
-4.  [WATV - World Mission Society Church of God](#orga6ef75c)
-5.  [JW](#org2d10273)
-    1.  [Some thoughts I have to correct JW theology](#org8495aab)
-        1.  [The divine name](#org6157718)
-6.  [In my independent Bible-Studying, I have not yet delved into many modern Christian sects](#org4bd65fc)
-7.  [Free-grace without Lordship salvation](#orgd2dd2ff)
-8.  [Lordship salvation without free-grace](#orgc2994a5)
-9.  [Can other religions exist anywhere in the Kingdom of God. They have to put their faith in and follow Jesus](#org4534d70)
-    1.  [They also have to repent from idolatry](#orgd5c9abf)
-        1.  [Idolatry](#orgbd4b8cf)
-10. [People who twist the Scriptures to seek worldly prosperity instead of following Jesus](#org0e05c87)
+1.  [That being said, it's really important to separate yourself from people who are deviating from and not being corrected by the teaching of Christ](#orgd8f5d4b)
+2.  [Valentinus](#orgd77f3d9)
+    1.  [Refutations](#org2027ffb)
+        1.  [Refutation of All Heresies (Hippolytus)](#orgb1e7f57)
+3.  [Universal religion](#org1821620)
+4.  [Mixing paganism with Christianity](#org30eb87a)
+5.  [WATV - World Mission Society Church of God](#org9b1c204)
+6.  [JW](#orgd76b100)
+    1.  [Some thoughts I have to correct JW theology](#org2fa8863)
+        1.  [The divine name](#org6ea61a3)
+7.  [In my independent Bible-Studying, I have not yet delved into many modern Christian sects](#orgf06e6e7)
+8.  [Free-grace without Lordship salvation](#org7028da4)
+9.  [Lordship salvation without free-grace](#org39a5b5c)
+10. [Can other religions exist anywhere in the Kingdom of God. They have to put their faith in and follow Jesus](#orgbd26d62)
+    1.  [They also have to repent from idolatry](#orgdbbcef5)
+        1.  [Idolatry](#orgc12b069)
+11. [People who twist the Scriptures to seek worldly prosperity instead of following Jesus](#orga51143a)
+
+I still think God saves heretics who placed their trusting faith in Jesus, or placed their trust in God the Father of Jesus Christ by trusting Jesus, and also the circumcised who exercise Abrahams works of faith, but it's really His call - God sees the heart.
+People's trust in Jesus exhibits itself in faithfully walking in the light of the Gospel of Jesus,
+and Jesus' gospel involved keeping our eyes on Him, trusting Him, believing Him, obeying Him.
 
 
-<a id="org5562b22"></a>
+<a id="orgd8f5d4b"></a>
+
+# That being said, it's really important to separate yourself from people who are deviating from and not being corrected by the teaching of Christ
+
+-   **[youtube.com: John MacArthur Witnessing to the Cults](https://www.youtube.com/watch?v=GBu7lfL492E):** It is the nature of
+    every cult to assault in some way the
+    person of Jesus Christ. You have to take the warning of `II John` which says
+    if somebody comes to you and and offers you something other than
+    the truth about Christ, you don't want to
+    have anything to do with that person.
+
+It's really important that we **continue in the teaching of Christ and about Christ** and allow ourselves to come into agreement with the <span class="underline">teaching of Christ **and** about Christ</span>.
+
+We should separate ourselves from people who do not stay/remain/abide in the teaching of Christ and about Christ.
+If people do not want to continue in the teaching of Christ and about Christ, and they do not abide in it, and do not want to
+be corrected by the Word of God, then we should separate ourselves from them.
+
+> **[II John 1:7-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A7-11&version=ESV)** - For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. **Everyone who goes on ahead and does not abide in the teaching ([1322. didaché](https://biblehub.com/greek/1322.htm)) of Christ, does not have God**. Whoever abides in the teaching has both the Father and the Son. <span class="underline">If anyone comes to you **and does not bring this teaching**, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works</span>. (ESV)
+
+> **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
+
+
+<a id="orgd77f3d9"></a>
 
 # Valentinus
 
@@ -29,26 +56,26 @@ But I think at least they tried to conform to the image of Christ from what I ca
 So, yeah, a lot of modern-day Christianity is probably even more heretical than Valentinianism to be honest.
 
 
-<a id="org35863f2"></a>
+<a id="org2027ffb"></a>
 
 ## Refutations
 
 
-<a id="org4367f75"></a>
+<a id="orgb1e7f57"></a>
 
 ### Refutation of All Heresies (Hippolytus)
 
 [CHURCH FATHERS: Refutation of All Heresies, Book VI {Hippolytus}](https://www.newadvent.org/fathers/050106.htm)
 
 
-<a id="org07e7608"></a>
+<a id="org1821620"></a>
 
 # Universal religion
 
 -   trying to unite all religions as if they are all equal
 
 
-<a id="orgc16e2c0"></a>
+<a id="org30eb87a"></a>
 
 # Mixing paganism with Christianity
 
@@ -57,7 +84,7 @@ So, yeah, a lot of modern-day Christianity is probably even more heretical than 
 It disgusts me when people pursue paganism, the occult and demons.
 
 
-<a id="orga6ef75c"></a>
+<a id="org9b1c204"></a>
 
 # WATV - World Mission Society Church of God
 
@@ -69,7 +96,7 @@ It disgusts me when people pursue paganism, the occult and demons.
     -   They believe Gentiles are under the Mosaic law.
 
 
-<a id="org2d10273"></a>
+<a id="orgd76b100"></a>
 
 # JW
 
@@ -77,10 +104,22 @@ I have reason to believe that Jesus is not Michael the Archangel:
 
 > **[Mark 13:32-33](https://www.biblegateway.com/passage/?search=Mark%2013%3A32-33&version=ESV)** - But concerning that day or that hour, no one knows, not even the angels in heaven, nor the Son, but only the Father. Be on guard, keep awake. For you do not know when the time will come. (ESV)
 
+> **John 1:1** - In the beginning was the Word, and the Word was with God, and the Word was God. (ESV)
 
-<a id="org8495aab"></a>
+There is a way to know for sure that the Son of God is God without knowing any Greek.
+
+He's not a creature. The Son of God is [not a created being](https://www.youtube.com/watch?v=JHg7YcJ2NPQ). He wasn't made. All things created were created through Him:
+
+> **John 1:3** - **All things were made through him**, and <span class="underline">without him was not **any thing** made that was made.</span> (ESV)
+
+
+<a id="org2fa8863"></a>
 
 ## Some thoughts I have to correct JW theology
+
+Jesus is God.
+
+> **I Timothy 2:1-7** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires all people to be saved and to come to the knowledge of the truth. For there is one God, and there is one mediator between God and men, the man Christ Jesus, who gave himself as a ransom for all, which is the testimony given at the proper time. For this I was appointed a preacher and an apostle (I am telling the truth, I am not lying), a teacher of the Gentiles in faith and truth. (ESV)
 
 We never proclaim ourself to be God. Never:
 
@@ -144,7 +183,7 @@ Also, I believe that Jesus was from the very beginning Jehovah's Son.
 AMEN!!
 
 
-<a id="org6157718"></a>
+<a id="org6ea61a3"></a>
 
 ### The divine name
 
@@ -184,7 +223,7 @@ I consider that the reason for this is simply in that we do not take the LORD's 
 But we also want the LORD's name to be remembered.
 
 
-<a id="org4bd65fc"></a>
+<a id="orgf06e6e7"></a>
 
 # In my independent Bible-Studying, I have not yet delved into many modern Christian sects
 
@@ -195,7 +234,7 @@ But I find this person's website trustworthy:
 <https://jesusisgodandlordministries.com/>
 
 
-<a id="orgd2dd2ff"></a>
+<a id="org7028da4"></a>
 
 # Free-grace without Lordship salvation
 
@@ -253,7 +292,7 @@ We must accept this teaching:
 AMEN!!
 
 
-<a id="orgc2994a5"></a>
+<a id="org39a5b5c"></a>
 
 # Lordship salvation without free-grace
 
@@ -272,7 +311,7 @@ I think that actually following Jesus is probably superior to someone who says t
 > **[Matthew 12:50](https://www.biblegateway.com/passage/?search=Matthew%2012%3A50&version=ESV)** - For whoever does the will of my Father in heaven is my brother and sister and mother. (ESV)
 
 
-<a id="org4534d70"></a>
+<a id="orgbd26d62"></a>
 
 # Can other religions exist anywhere in the Kingdom of God. They have to put their faith in and follow Jesus
 
@@ -327,7 +366,7 @@ Jesus Himself is the bread of God - Jesus Himself **is** the source of life:
 > **[James 1:26](https://www.biblegateway.com/passage/?search=James%201%3A26&version=ESV)** - If anyone thinks he is religious and does not bridle his tongue but deceives his heart, this person's religion is worthless. Religion that is pure and undefiled before God, the Father, is this: to visit orphans and widows in their affliction, and to keep oneself unstained from the world.
 
 
-<a id="orgd5c9abf"></a>
+<a id="orgdbbcef5"></a>
 
 ## They also have to repent from idolatry
 
@@ -336,7 +375,7 @@ Jesus Himself is the bread of God - Jesus Himself **is** the source of life:
 > **[I Corinthians 10:14-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A14-31&version=ESV)** - Therefore, my beloved, flee from idolatry. I speak as to sensible people; judge for yourselves what I say. The cup of blessing that we bless, is it not a participation in the blood of Christ? The bread that we break, is it not a participation in the body of Christ? Because there is one bread, we who are many are one body, for we all partake of the one bread. Consider the people of Israel: are not those who eat the sacrifices participants in the altar? What do I imply then? That food offered to idols is anything, or that an idol is anything? No, I imply that what pagans sacrifice they offer to demons and not to God. I do not want you to be participants with demons. **You cannot drink the cup of the Lord and the cup of demons. You cannot partake of the table of the Lord and the table of demons**. Shall we provoke the Lord to jealousy? Are we stronger than he? All things are lawful, but not all things are helpful. All things are lawful, but not all things build up. Let no one seek his own good, but the good of his neighbor. Eat whatever is sold in the meat market without raising any question on the ground of conscience. For the earth is the Lord's, and the fullness thereof. If one of the unbelievers invites you to dinner and you are disposed to go, eat whatever is set before you without raising any question on the ground of conscience. But if someone says to you, This has been offered in sacrifice, then do not eat it, for the sake of the one who informed you, and for the sake of conscience— I do not mean your conscience, but his. For why should my liberty be determined by someone else's conscience? If I partake with thankfulness, why am I denounced because of that for which I give thanks? So, whether you eat or drink, or whatever you do, do all to the glory of God.
 
 
-<a id="orgbd4b8cf"></a>
+<a id="orgc12b069"></a>
 
 ### Idolatry
 
@@ -347,7 +386,7 @@ Jesus Himself is the bread of God - Jesus Himself **is** the source of life:
 > **[Psalms 106:20](https://www.biblegateway.com/passage/?search=Psalms%20106%3A20&version=ESV)** - They exchanged the glory of God for the image of an ox that eats grass.􂉢
 
 
-<a id="org0e05c87"></a>
+<a id="orga51143a"></a>
 
 # People who twist the Scriptures to seek worldly prosperity instead of following Jesus
 
