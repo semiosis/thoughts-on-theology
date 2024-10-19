@@ -4,11 +4,45 @@
 #+KEYWORDS: faith christianity
 
 #+LATEX_HEADER: \usepackage[margin=0.5in]{geometry}
+# #+LATEX_HEADER: \usepackage[utf8x]{inputenc}
+# #+LATEX_HEADER: \usepackage[utf8]{inputenc}
+# #+LATEX_HEADER: \usepackage{newunicodechar}
+# #+LATEX_HEADER: \usepackage{unicode-math}
+
+#+LATEX_HEADER: \usepackage[LGR,T1]{fontenc}
+#+LATEX_HEADER: \usepackage[utf8]{inputenc}
+#+LATEX_HEADER: \usepackage{pmboxdraw}
+#+LATEX_HEADER: \usepackage{newunicodechar}
+#+LATEX_HEADER: \newunicodechar{└}{\textSFii}
+#+LATEX_HEADER: \newunicodechar{├}{\textSFviii}
+#+LATEX_HEADER: \newunicodechar{─}{\textSFx}
+
+#+LATEX_HEADER: \documentclass[12pt]{article}
+#+LATEX_HEADER: \usepackage{fontspec}
+#+LATEX_HEADER: \setmainfont{DejaVu Serif}
+
+#+LATEX_HEADER: \usepackage[greek,english]{babel}
+
+# #+LATEX_HEADER: \usepackage[T1]{fontenc}
+# #+LATEX_HEADER: \usepackage[utf8]{inputenc}
+# #+LATEX_HEADER: \usepackage[greek]{babel}
+#+LATEX_HEADER: \usepackage{alphabeta}
+
+\makeatletter
+\renewcommand\verbatim@font{\normalfont\fontencoding{T1}\ttfamily}
+\makeatother
+
+# #+LATEX_HEADER: \usepackage{unixode}
+
 #+OPTIONS: toc:nil
 
 #+LATEX_COMPILER: xelatex
 
 * NT Greek study
+
+# φύσις
+
+# \textgreek{φύσις}
 
 ** Question
 
@@ -95,13 +129,13 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   πᾶς     ὁ       προάγων        καὶ  μὴ   μένων
   Anyone   -      going on ahead and  not  abiding
   Adj-NMS Art-NMS V-PPA-NMS      Conj Adv  V-PPA-NMS
-
-  1722 3588    1322     3588    5547       2316
-  en   tē      didachē  tou     Christou   Theon
-  ἐν   τῇ      διδαχῇ   τοῦ     Χριστοῦ  , Θεὸν
-  in   the     teaching  -      of Christ  God
-  Prep Art-DFS N-DFS    Art-GMS N-GMS      N-AMS
-
+                        ┌─────────┐
+  1722 3588    1322     │ 3588    │ 5547       2316
+  en   tē      didachē  │ tou     │ Christou   Theon
+  ἐν   τῇ      διδαχῇ   │ τοῦ     │ Χριστοῦ  , Θεὸν
+  in   the     teaching │  -      │ of Christ  God
+  Prep Art-DFS N-DFS    │ Art-GMS │ N-GMS      N-AMS
+                        └─────────┘
   3756 2192     3588      3306      1722 3588
   ouk  echei    ho        menōn     en   tē
   οὐκ  ἔχει  .  ὁ         μένων     ἐν   τῇ
@@ -121,7 +155,7 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   Conj Art-AMS N-AMS V-PIA-3S
 #+END_SRC
 
-*** Example
+*** Example - Art-GMS
 https://biblehub.com/interlinear/2_john/1-9.htm
 
 #+BEGIN_SRC text -n :async :results verbatim code :lang textly

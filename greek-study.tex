@@ -1,4 +1,4 @@
-% Created 2024-10-19 Sat 18:37
+% Created 2024-10-19 Sat 19:05
 % Intended LaTeX compiler: xelatex
 \documentclass[11pt]{article}
 \usepackage[mathletters]{ucs}
@@ -12,6 +12,19 @@
 \usepackage{capt-of}
 \usepackage{hyperref}
 \usepackage[margin=0.5in]{geometry}
+\usepackage[LGR,T1]{fontenc}
+\usepackage[utf8]{inputenc}
+\usepackage{pmboxdraw}
+\usepackage{newunicodechar}
+\newunicodechar{└}{\textSFii}
+\newunicodechar{├}{\textSFviii}
+\newunicodechar{─}{\textSFx}
+\documentclass[12pt]{article}
+\usepackage{fontspec}
+\setmainfont{DejaVu Serif}
+\usepackage[greek, english, american]{babel}
+\usepackage{alphabeta}
+\makeatletter \renewcommand\verbatim@font{\normalfont\fontencoding{T1}\ttfamily} \makeatother
 \author{Shane Mulligan}
 \date{\textit{<2024-10-19 Sat>}}
 \title{New Testament Greek study}
@@ -22,15 +35,20 @@
  pdfsubject={},
  pdfcreator={Emacs 29.1.50 (Org mode 9.6.8)}, 
  pdflang={English}}
+
 \begin{document}
 
 \maketitle
 
 \section{NT Greek study}
-\label{sec:orgcea93f4}
+\label{sec:org4e6d579}
+
+φύσις
+
+\textgreek{φύσις}
 
 \subsection{Question}
-\label{sec:org368a1b4}
+\label{sec:orged021a1}
 
 I'd like to understand the Greek behind the phrase \uline{in the teaching of Christ}.
 Because I'm interested in whether the phrase \uline{teaching of Christ} refers to the teachings that Christ
@@ -43,7 +61,7 @@ My guess is both, but I'd like to understand the Greek a bit better.
 \end{quote}
 
 \subsection{Case}
-\label{sec:org792cb64}
+\label{sec:org69828a5}
 
 \begin{verbatim}
  1  interrogative
@@ -96,7 +114,7 @@ Notes from \url{https://en.wikipedia.org/wiki/Grammatical\_case}:
 \item John waited \uline{for us} at the bus stop.
 \item Obey \uline{the law}.
 \end{itemize}
-\item \texttt{Interrogative}: 
+\item \texttt{Interrogative}:
 \begin{itemize}
 \item Whom or what?
 \end{itemize}
@@ -106,7 +124,7 @@ Notes from \url{https://en.wikipedia.org/wiki/Grammatical\_case}:
 \begin{itemize}
 \item \texttt{Indicates}: Possessor of another noun
 \item \texttt{Sample case words}: \uline{'s}, \uline{of (the)}
-\item \texttt{Sample sentence}: 
+\item \texttt{Sample sentence}:
 \begin{itemize}
 \item \uline{John's} book was on the table.
 \item The pages \uline{of the book} turned yellow.
@@ -130,8 +148,54 @@ Notes from \url{https://en.wikipedia.org/wiki/Grammatical\_case}:
 \end{itemize}
 \end{itemize}
 
-\subsubsection{Example}
-\label{sec:orgc680dc9}
+\subsubsection{Interlinear}
+\label{sec:org25cdd4f}
+
+                      ┌─────────┐
+1722 3588    1322     │ 3588    │ 5547       2316
+en   tē      didachē  │ tou     │ Christou   Theon
+ἐν   τῇ      διδαχῇ   │ τοῦ     │ Χριστοῦ  , Θεὸν
+in   the     teaching │  -      │ of Christ  God
+Prep Art-DFS N-DFS    │ Art-GMS │ N-GMS      N-AMS
+
+\makeatletter
+\renewcommand\verbatim@font{\normalfont\fontencoding{T1}\ttfamily}
+\makeatother
+
+\begin{verbatim}
+ 1  3956    3588    4254           2532 3361 3306
+ 2  pas     ho      proagōn        kai  mē   menōn
+ 3  πᾶς     ὁ       προάγων        καὶ  μὴ   μένων
+ 4  Anyone   -      going on ahead and  not  abiding
+ 5  Adj-NMS Art-NMS V-PPA-NMS      Conj Adv  V-PPA-NMS
+ 6                        ┌─────────┐
+ 7  1722 3588    1322     │ 3588    │ 5547       2316
+ 8  en   tē      didachē  │ tou     │ Christou   Theon
+ 9  ἐν   τῇ      διδαχῇ   │ τοῦ     │ Χριστοῦ  , Θεὸν
+10  in   the     teaching │  -      │ of Christ  God
+11  Prep Art-DFS N-DFS    │ Art-GMS │ N-GMS      N-AMS
+12                        └─────────┘
+13  3756 2192     3588      3306      1722 3588
+14  ouk  echei    ho        menōn     en   tē
+15  οὐκ  ἔχει  .  ὁ         μένων     ἐν   τῇ
+16  not  has      The [one] abiding   in   the
+17  Adv  V-PIA-3S Art-NMS   V-PPA-NMS Prep Art-DFS
+18  
+19  1322      3778       2532 3588    3962
+20  didachē   houtos     kai  ton     Patera
+21  διδαχῇ  , οὗτος      καὶ  τὸν     Πατέρα
+22  teaching  this [one] both the     Father
+23  N-DFS     DPro-NMS   Conj Art-AMS N-AMS
+24  
+25  2532 3588    5207  2192
+26  kai  ton     Huion echei
+27  καὶ  τὸν     Υἱὸν  ἔχει  .
+28  and  the     Son   has
+29  Conj Art-AMS N-AMS V-PIA-3S
+\end{verbatim}
+
+\subsubsection{Example - Art-GMS}
+\label{sec:orgeca3f45}
 \url{https://biblehub.com/interlinear/2\_john/1-9.htm}
 
 \begin{verbatim}
