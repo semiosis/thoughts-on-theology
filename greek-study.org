@@ -12,14 +12,14 @@
 
 ** Question
 
-I'd like to understand the Greek behind the phrase =in the teaching of Christ=.
-Because I'm interested in whether the phrase =teaching of Christ= refers to the teachings that Christ
+I'd like to understand the Greek behind the phrase _in the teaching of Christ_.
+Because I'm interested in whether the phrase _teaching of Christ_ refers to the teachings that Christ
 taught including His teachings before His death, burial and resurrection, or
 if it the phrase is also talking about the doctrine surrounding what is known about Christ.
 My guess is both, but I'd like to understand the Greek a bit better.
 
 #+BEGIN_QUOTE
-  *II John 1:9* - Everyone who goes on ahead and does not abide =in the teaching of Christ=, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+  *II John 1:9* - Everyone who goes on ahead and does not abide _in the teaching of Christ_, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 #+END_QUOTE
 
 ** Case
@@ -45,13 +45,13 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
 
 - *N (Nominative)*
   - =Indicates=: Subject of a finite verb
-  - =Sample case words=: we
+  - =Sample case words=: _we_
   - =Sample sentence=: _We_ went to the store.
   - =Interrogative=: Who or what?
   - =Notes=: Corresponds to English's subject pronouns.
 - *V (Vocative)*
   - =Indicates=: Addressee
-  - =Sample case words=: John
+  - =Sample case words=: _John_
   - =Sample sentence=:
     - _John_, are you all right?
     - Hello, _John_!
@@ -60,7 +60,7 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
   - =Notes=: Roughly corresponds to the archaic use of "O" in English.
 - *A (Accusative)*
   - =Indicates=: Direct object of a transitive verb
-  - =Sample case words=: us, for us, the (object)
+  - =Sample case words=: _us_, _for us_, _the (object)_
   - =Sample sentence=:
     - The clerk remembered _us_.
     - John waited _for us_ at the bus stop.
@@ -69,17 +69,23 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
     - Whom or what?
   - =Notes=: Corresponds to English's object pronouns and preposition for construction before the object, often marked by a definite article the. Together with dative, it forms modern English's oblique case.
 - *G (Genitive)*
-  - =Indicates=: 
-  - =Sample case words=: 
+  - =Indicates=: Possessor of another noun
+  - =Sample case words=: _'s_, _of (the)_
   - =Sample sentence=: 
-  - =Interrogative=: 
-  - =Notes=: 
+    - _John's_ book was on the table.
+    - The pages _of the book_ turned yellow.
+    - The table is made _out of wood_.
+  - =Interrogative=: Whose? From what or what of?
+  - =Notes=: Roughly corresponds to English's possessive (possessive determiners and pronouns) and preposition of construction.
 - *D (Dative)*
-  - =Indicates=: 
-  - =Sample case words=: 
-  - =Sample sentence=: 
-  - =Interrogative=: 
-  - =Notes=: 
+  - =Indicates=: Indirect object of a verb
+  - =Sample case words=: _us_, _to us_, _to the (object)_
+  - =Sample sentence=:
+    - The clerk gave _us_ a discount.
+    - The clerk gave a discount _to us_.
+    - According _to the law..._
+  - =Interrogative=: Whom or to what?
+  - =Notes=: Corresponds to English's object pronouns and preposition to construction before the object, often marked by a definite article the. Together with accusative, it forms modern English's oblique case.
 
 *** Example
 https://biblehub.com/interlinear/2_john/1-9.htm
