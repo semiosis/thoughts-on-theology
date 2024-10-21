@@ -17577,6 +17577,16 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Corinthians 10:7 - Do not be idolaters as some of them were; as it is written, The people sat down to eat and
   drink and rose up to play. (ESV)
 
+Idolatry is incredibly self-destructive:
+
+  Psalms 135:15-18 - The idols of the nations are silver and gold, the work of human hands. They have mouths, but
+  do not speak; they have eyes, but do not see; they have ears, but do not hear, nor is there any breath in their
+  mouths. Those who make them become like them, so do all who trust in them! (ESV)
+
+But we should worship God and be sanctified:
+
+  Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
+
 7.6.26. sexual immorality
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
@@ -35813,8 +35823,7 @@ do the will of God:
 
   Psalms 5:5 - The boastful shall not stand before your eyes; you hate all evildoers. (ESV)
 
-earlychristianwritings.com justinmartyr-resurrection.html: Saint Justin Martyr: Fragments of the Lost Work of
-Justin on the Resurrection {Roberts-Donaldson}
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}
 The word of truth is free, and carries its own authority, disdaining to fall under any skilful argument, or to
 endure the logical scrutiny of its hearers. But it would be believed for its own nobility, and for the confidence
 due to Him who sends it. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is not
@@ -35837,8 +35846,11 @@ life / love for Jesus:
   Psalms 1:4-5 - The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will
   not stand in the judgment, nor sinners in the congregation of the righteous; (ESV)
 
-earlychristianwritings.com justinmartyr-resurrection.html: Saint Justin Martyr: Fragments of the Lost Work of
-Justin on the Resurrection {Roberts-Donaldson}
+Those who follow Him and know Him are the ones who trust and obey His word, and their faith in Him is the proof.
+The doctrine is invulnerable, and we should affirm it and obey it to do battle against the adversary, the devil,
+to help the weak:
+
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}
 And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His Son,
 came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself resurrection from
 the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He, therefore, is Himself
@@ -52207,14 +52219,58 @@ It is those people who will to live (though they die, they will live). Then they
 -having died with Jesus now alive with Him. The one who is alive from the dead who continues to trust in Him will
 never die.
 
-76.2. Hades and Hell - eternal fire
+76.2. Confidence for the day of judgement
+
+We have confidence as we are practicing righteousness and love the brothers:
+
+  I John 3:10-17 - By this it is evident who are the children of God, and who are the children of the devil:
+  whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is
+  the message that you have heard from the beginning, that we should love one another. We should not be like Cain,
+  who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and
+  his brother's righteous. Do not be surprised, brothers, that the world hates you. We know that we have passed
+  out of death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates
+  his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love,
+  that he laid down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the
+  world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him?
+  (ESV)
+
+  Psalms 119:160 - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
+
+We believe God and love as He commanded. We trust God. We trust Jesus. We may have our faults but our Master is
+our Lord Jesus and our justification is His blood as we are found in Him, as doers of His commandments - trusters,
+believers, doers, imitators of Him:
+
+  I John 4:1-21 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
+  many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that
+  confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is
+  not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already.
+  Little children, you are from God and have overcome them, for he who is in you is greater than he who is in the
+  world. They are from the world; therefore they speak from the world, and the world listens to them. We are from
+  God. Whoever knows God listens to us; whoever is not from God does not listen to us. By this we know the Spirit
+  of truth and the spirit of error. Beloved, let us love one another, for love is from God, and whoever loves has
+  been born of God and knows God. Anyone who does not love does not know God, because God is love. In this the
+  love of God was made manifest among us, that God sent his only Son into the world, so that we might live through
+  him. In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation
+  for our sins. Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we
+  love one another, God abides in us and his love is perfected in us. By this we know that we abide in him and he
+  in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to
+  be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So
+  we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides
+  in God, and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
+  judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out
+  fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he
+  first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
+  brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
+  loves God must also love his brother. (ESV)
+
+76.3. Hades and Hell - eternal fire
 
   Ephesians 4:8-10 - Therefore it says, When he ascended on high he led a host of captives, and he gave gifts to
   men. (In saying, He ascended, what does it mean but that he had also descended into the lower parts of the
   earth? He who descended is the one who also ascended far above all the heavens, that he might fill all things.)
   (ESV)
 
-76.2.1. Those who do not trust God's testimony of Jesus are condemned even now, and should repent and believe to not
+76.3.1. Those who do not trust God's testimony of Jesus are condemned even now, and should repent and believe to not
 be condemned
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
@@ -52239,7 +52295,7 @@ judgement:
   John 3:18 - Whoever believes (pisteuōn) in him is not condemned, but whoever does not believe is condemned
   already, because he has not believed in the name (onoma) of the only Son of God. (ESV)
 
-76.2.2. Eternal life vs eternal punishment - Judgement at the close of the age
+76.3.2. Eternal life vs eternal punishment - Judgement at the close of the age
 
   Matthew 25:43-46 - I was a stranger and you did not welcome me, naked and you did not clothe me, sick and in
   prison and you did not visit me. Then they also will answer, saying, Lord, when did we see you hungry or thirsty
@@ -52269,7 +52325,7 @@ It's really important to get to know God and obey the gospel of our Lord Jesus:
   Matthew 25:41 - Then he will say to those on his left, Depart from me, you cursed, into the eternal fire
   prepared for the devil and his angels. (ESV)
 
-76.2.3. Sheol / Hades - this is where Jesus went
+76.3.3. Sheol / Hades - this is where Jesus went
 
 Read
 youthpastortheologian.com: What does the Apostles' Creed mean by "He descended to the dead"? - Youth Pastor
@@ -52382,7 +52438,7 @@ Some of the confusion has arisen from such passages as Psalm 16:10-11 as transla
 wilt show me the path of life." "Hell" is not a correct translation in this verse. A correct reading would be "the
 grave" or "sheol." Jesus said to the thief beside Him, "Today you will be with me in paradise" (Luke 23:43)
 
-76.2.4. The dead hearing the gospel - was it only a one time thing?
+76.3.4. The dead hearing the gospel - was it only a one time thing?
 
 I think it's important to trust Jesus in this life because no guarantees with hearing the gospel in the place of
 the dead. Who knows, though, right? Because perhaps a believer who dies in Christ could preach the gospel to Hades
@@ -52411,7 +52467,7 @@ Proclaiming the gospel in the place of the dead might have only been a one-time 
   and come out, those who have done good to the resurrection of life, and those who have done evil to the
   resurrection of judgment. (ESV)
 
-76.2.5. Tartaroó
+76.3.5. Tartaroó
 
 God cast rebellious angels into this place. It sounds like Hades but maybe worse:
 
@@ -52426,7 +52482,7 @@ end up in the eternal fire.
   Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued
   unnatural desire, serve as an example by undergoing a punishment of eternal fire. (ESV)
 
-76.2.6. Hell, lake of fire, the second death
+76.3.6. Hell, lake of fire, the second death
 
 Jesus didn't go to the Lake of Fire, as far as I understand. Jesus went to the place of the dead, both Abraham's
 Bosom and the bad part of Sheol/Hades colloquially known as hell. The Lake of Fire is the final Hell, and is a
@@ -52484,7 +52540,7 @@ described as a place of burning sulfur, and those in it experience eternal, unsp
 nature (Luke 16:24; Mark 9:45-46). Those who have rejected Christ and are in the temporary abode of the dead in
 hades/sheol have the lake of fire as their final destination.
 
-76.2.7. The ones who have not heard the gospel are judged by God very fairly
+76.3.7. The ones who have not heard the gospel are judged by God very fairly
 
   Romans 2:13-16 - For it is not the hearers of the law who are righteous before God, but the doers of the law who
   will be justified. For when Gentiles, who do not have the law, by nature do what the law requires, they are a
@@ -52513,7 +52569,7 @@ from trial:
   punishment until the day of judgment, and especially those who indulge in the lust of defiling passion and
   despise authority. Bold and willful, they do not tremble as they blaspheme the glorious ones, (ESV)
 
-76.2.8. The outcome of just judgement for all
+76.3.8. The outcome of just judgement for all
 
 Glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no
 partiality.
@@ -52535,7 +52591,7 @@ partiality.
   and come out, those who have done good to the resurrection of life, and those who have done evil to the
   resurrection of judgment. (ESV)
 
-76.2.9. The unrepentant sinners including believers who do not want to repent from sin
+76.3.9. The unrepentant sinners including believers who do not want to repent from sin
 
 Sinning believers will still experience tribulation. Believers who are unrepentant from sin are probably not true
 believers or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades
@@ -52623,7 +52679,7 @@ Unrighteous people remain locked up here until judgement:
   punishment until the day of judgment, and especially those who indulge in the lust of defiling passion and
   despise authority. Bold and willful, they do not tremble as they blaspheme the glorious ones, (ESV)
 
-76.2.10. The believers who have embraced repentance from sin and sanctification while on earth
+76.3.10. The believers who have embraced repentance from sin and sanctification while on earth
 
 Believers who have obeyed the gospel and are living to serve Christ will enter the Kingdom of God while on Earth
 and inherit eternal life and not experience the place of torment in Hades, but go straight to heaven.
@@ -52634,7 +52690,7 @@ and inherit eternal life and not experience the place of torment in Hades, but g
   for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for
   everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
 
-76.2.11. Those who are not repentant from sin, and who do not trust Jesus (do not want to be saved) will go to the
+76.3.11. Those who are not repentant from sin, and who do not trust Jesus (do not want to be saved) will go to the
 second death, the Lake of Fire
 
   Luke 5:31-32 - And Jesus answered them, Those who are well have no need of a physician, but those who are sick.
@@ -53118,11 +53174,11 @@ youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in 
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-21 Mon 00:00
+Date: 2024-10-22 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-22 Tue 07:45
+Created: 2024-10-22 Tue 09:18
 
 Validate
 

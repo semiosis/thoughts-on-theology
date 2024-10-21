@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd9ee38d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdd8a67f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -12000,6 +12000,14 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
 
 > **[I Corinthians 10:7](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A7&version=ESV)** - Do not be idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. (ESV)
 
+Idolatry is incredibly self-destructive:
+
+> **[Psalms 135:15-18](https://www.biblegateway.com/passage/?search=Psalms%20135%3A15-18&version=ESV)** - The idols of the nations are silver and gold, the work of human hands. They have mouths, but do not speak; they have eyes, but do not see; they have ears, but do not hear, nor is there any breath in their mouths. **Those who make them become like them, so do all who trust in them**!  (ESV)
+
+But we should worship God and be sanctified:
+
+> **[Colossians 1:15](https://www.biblegateway.com/passage/?search=Colossians%201%3A15&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. (ESV)
+
 
 ### sexual immorality
 
@@ -14671,7 +14679,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1e23dbc)
+See: [33.4.1](#org10c356a)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -25009,13 +25017,15 @@ It's not the ones with the correct doctrine who will stand in the congregation o
 
 > **[Psalms 5:5](https://www.biblegateway.com/passage/?search=Psalms%205%3A5&version=ESV)** -  The boastful shall not stand before your eyes; you hate all evildoers.  (ESV)
 
--   **[earlychristianwritings.com justinmartyr-resurrection.html: Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** The word of truth is free, and <ins>carries its own authority, **disdaining to fall under any skilful argument, or to endure the logical scrutiny of its hearers**. But it would be **believed for its own nobility**, and for the confidence due to Him who sends it</ins>. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is *not arrogant*. For **being sent with authority, it were not fit that it should be required to produce proof of what is said**; since **neither is there any proof beyond itself, which is God**. For <ins>every proof is more powerful and trustworthy than that which it proves; since what is disbelieved, until proof is produced, gets credit when such proof is produced</ins>, and is recognised as being what it was stated to be. But **nothing is either more powerful or more trustworthy than the truth**; so that he who requires proof of this is like one who wishes it demonstrated why the things that appear to the senses do appear. For the test of those things which are received through the reason, is sense; but of sense itself there is no test beyond itself. As then we bring those things which reason hunts after, to sense, and by it judge what kind of things they are, whether the things spoken be true or false, and then sit in judgment no longer, giving full credit to its decision; so also we refer all that is said regarding men and the world to the truth, and by it judge whether it be worthless or no. But the utterances of truth we judge by no separate test, giving full credit to itself.
+-   **[Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** The word of truth is free, and <ins>carries its own authority, **disdaining to fall under any skilful argument, or to endure the logical scrutiny of its hearers**. But it would be **believed for its own nobility**, and for the confidence due to Him who sends it</ins>. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is *not arrogant*. For **being sent with authority, it were not fit that it should be required to produce proof of what is said**; since **neither is there any proof beyond itself, which is God**. For <ins>every proof is more powerful and trustworthy than that which it proves; since what is disbelieved, until proof is produced, gets credit when such proof is produced</ins>, and is recognised as being what it was stated to be. But **nothing is either more powerful or more trustworthy than the truth**; so that he who requires proof of this is like one who wishes it demonstrated why the things that appear to the senses do appear. For the test of those things which are received through the reason, is sense; but of sense itself there is no test beyond itself. As then we bring those things which reason hunts after, to sense, and by it judge what kind of things they are, whether the things spoken be true or false, and then sit in judgment no longer, giving full credit to its decision; so also we refer all that is said regarding men and the world to the truth, and by it judge whether it be worthless or no. But the utterances of truth we judge by no separate test, giving full credit to itself.
 
 For that reason, I would have more confidence before God if I was serving Him, having put sin to death and trying to be holy and selfless and loving in faith towards Jesus, than if I believed precise theology but had no changed life / love for Jesus:
 
 > **[Psalms 1:4-5](https://www.biblegateway.com/passage/?search=Psalms%201%3A4-5&version=ESV)** - The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will not stand in the judgment, nor sinners in the congregation of the righteous; (ESV)
 
--   **[earlychristianwritings.com justinmartyr-resurrection.html: Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His Son, came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself resurrection from the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He, therefore, is Himself both the faith and the proof of Himself and of all things. Wherefore those who follow Him, and know Him, having faith in Him as their proof, shall rest in Him. But since the adversary does not cease to resist many, and uses many and divers arts to ensnare them, that he may seduce the faithful from their faith, and that he may prevent the faithless from believing, it seems to me necessary that we also, being armed with the invulnerable doctrines of the faith, do battle against him in behalf of the weak.
+Those who follow Him and know Him are the ones who trust and obey His word, and their faith in Him is the proof. The doctrine is invulnerable, and we should affirm it and obey it to do battle against the adversary, the devil, to help the weak:
+
+-   **[Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His Son, came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself resurrection from the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He, therefore, is Himself both the faith and the proof of Himself and of all things. Wherefore **those who follow Him, and know Him, having faith in Him as their proof, shall rest in Him**. But since the adversary does not cease to resist many, and uses many and divers arts to ensnare them, that he may *seduce the faithful from their faith, and that he may prevent the faithless from believing*, **it seems to me necessary that we also, being armed with the invulnerable doctrines of the faith, do battle against him in behalf of the weak.**
 
 Unity in Christ is unity in **faith** and **truth** and **love**:
 
@@ -29072,7 +29082,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1e23dbc)
+See: [33.4.1](#org10c356a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -36745,6 +36755,19 @@ Those who follow Jesus will have the light of life:
 > **[John 8:12](https://www.biblegateway.com/passage/?search=John%208%3A12&version=ESV)** - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life. (ESV)
 
 It is those people who will to live (though they die, they will live). Then they are truly alive - joined with Him -having died with Jesus now alive with Him. The one who is alive from the dead who continues to trust in Him will never die.
+
+
+## Confidence for the day of judgement
+
+We have confidence as we are practicing righteousness and love the brothers:
+
+> **I John 3:10-17** - By this it is evident who are the children of God, and who are the children of the devil: **whoever does not practice righteousness is not of God, nor is the one who does not love his brother**. For this is the message that you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous. Do not be surprised, brothers, that the world hates you. **We know that we have passed out of death into life, because we love the brothers**. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But **if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him?** (ESV)
+
+> **[Psalms 119:160](https://www.biblegateway.com/passage/?search=Psalms%20119%3A160&version=ESV)** - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
+
+We believe God and love as He commanded. We trust God. We trust Jesus. We may have our faults but our Master is our Lord Jesus and our justification is His blood as we are found in Him, as doers of His commandments - trusters, believers, doers, imitators of Him:
+
+> **[I John 4:1-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A1-21&version=ESV)** - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for many false prophets have gone out into the world. By this you know the Spirit of God: **every spirit that confesses that Jesus Christ has come in the flesh is from God**, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. Little children, you are from God and have overcome them, for he who is in you is greater than he who is in the world. <ins>They are from the world; therefore they speak from the world, and the world listens to them</ins>. **We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us**. By this we know the Spirit of truth and the spirit of error. Beloved, **let us love one another, for love is from God, and whoever loves has been born of God and knows God**. <ins>Anyone who does not love does not know God, because God is love</ins>. **In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might live through him.** In this is love, **not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins**. Beloved, **if God so loved us, we also ought to love one another**. No one has ever seen God; **if we love one another, God abides in us and his love is perfected in us**. By this we know that we abide in him and he in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to be the Savior of the world. **Whoever confesses that Jesus is the Son of God, God abides in him, and he in God**. So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. **By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world**. There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and <ins>whoever fears has not been perfected in love.</ins> **We love because he first loved us.** <ins>If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen.</ins> And this commandment we have from him: **whoever loves God must also love his brother.** (ESV)
 
 
 ## Hades and Hell - eternal fire
