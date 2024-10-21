@@ -7032,10 +7032,13 @@ Adultery:
 
 • Fantasizing over AI fiction
 
-Theft:
+The systems are mostly built/trained using theft:
 
 • Stealing intellectual property (code, artwork, style etc.)
 • …
+
+Like blood diamonds and laundered money, these LLMs are generally not clean from my perspective, and what they
+produce is not clean, and the way they're often used is not clean.
 
 So if I am experiencing persecution for refusing to use AI fiction to misrepresent myself to get ahead, then I am
 being persecuted for righteousness-sake and I have a lot of faith that God will honour that I want to obey Him and
@@ -53119,7 +53122,7 @@ Date: 2024-10-21 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-22 Tue 07:29
+Created: 2024-10-22 Tue 07:45
 
 Validate
 
