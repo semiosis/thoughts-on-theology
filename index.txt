@@ -12350,6 +12350,12 @@ people and be loved by others but he committed no crime:
 
   Matthew 11:6 - And blessed is the one who is not offended by me. (ESV)
 
+youtube.com: Girls told to remove Christian crosses at religious school hit out against staff @time: 1 min 22 sec
+Nobody has a right [to be not] offended, especially to not be offended when other by other people exercising their
+normal rights in any liberal democracy. And what I want to say to all the girls at this school is wear your
+crosses if you have a cross turn up to school and wear that cross and send a message to other students and to
+teachers and to the school in general that this is a Christian School it is not a Marxist, woke school.
+
 Crossing other people's boundaries, though, when we know their boundaries, and knowing it may cause harm, though,
 is breaking Christ's law:
 
@@ -17649,6 +17655,12 @@ The Church has always stood against abortion, and placed it right alongside murd
   false, nor empty, but fulfilled by deed. You shall not be covetous, nor rapacious, nor a hypocrite, nor evil
   disposed, nor haughty. You shall not take evil counsel against your neighbor. You shall not hate any man; but
   some you shall reprove, and concerning some you shall pray, and some you shall love more than your own life.
+
+youtube.com: Girls told to remove Christian crosses at religious school hit out against staff @time: 2 min 4 sec
+Have a look at this exchange over the weekend. While Kamar Harris was promoting abortion without limits, the
+entire crowd erupted into loud cheers. But then a lone student in the crowd who is a Christian, and so pro-life,
+called out "Jesus is Lord". Now, instinctively and without pause Kamala mocked him telling him he was at the
+"wrong rally".
 
 7.6.32. More sins condemned by the early Church
 
@@ -53107,7 +53119,7 @@ Date: 2024-10-21 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-21 Mon 23:03
+Created: 2024-10-22 Tue 07:29
 
 Validate
 

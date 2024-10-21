@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge96f49e) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4c5933b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -8434,6 +8434,19 @@ But causing offense without warning isn't strictly the same thing as causing cri
 
 > **[Matthew 11:6](https://www.biblegateway.com/passage/?search=Matthew%2011%3A6&version=ESV)** - And blessed is the one who is not offended by me. (ESV)
 
+-   **[youtube.com: Girls told to remove Christian crosses at religious school hit out against staff @time: 1 min 22 sec](https://youtube.com/watch?v=Z69BeGrSoRA&t=82):** Nobody has a right [to be not]
+    offended, especially to not be
+    offended when other by other people
+    exercising their normal rights in any
+    liberal democracy. And what I want to say
+    to all the girls at this school is wear
+    your crosses if you have a cross turn up
+    to school and wear that cross and send a
+    message to other students and to
+    teachers and to the school in general
+    that this is a Christian School it is
+    not a Marxist, woke school.
+
 Crossing other people's boundaries, though, when we know their boundaries, and knowing it may cause harm, though, is breaking Christ's law:
 
 > **[Exodus 8:26](https://www.biblegateway.com/passage/?search=Exodus%208%3A26&version=ESV)** - But Moses said, It would not be right to do so, for the offerings we shall sacrifice to the LORD our God are an abomination to the Egyptians. If we sacrifice offerings abominable to the Egyptians before their eyes, will they not stone us? (ESV)
@@ -12045,6 +12058,16 @@ The Church has **always** stood against abortion, and placed it right alongside 
 
 > **[Didache Chapter 2](https://www.earlychristianwritings.com/text/didache-roberts.html)** - The Second Commandment: Grave Sin Forbidden. And the second commandment of the Teaching; You shall not commit murder, you shall not commit adultery, you shall not commit pederasty, you shall not commit fornication, you shall not steal, you shall not practice magic, you shall not practice witchcraft, **you shall not murder a child by abortion nor kill that which is born**. You shall not covet the things of your neighbor, you shall not swear, you shall not bear false witness, you shall not speak evil, you shall bear no grudge. You shall not be double-minded nor double-tongued, for to be double-tongued is a snare of death. Your speech shall not be false, nor empty, but fulfilled by deed. You shall not be covetous, nor rapacious, nor a hypocrite, nor evil disposed, nor haughty. You shall not take evil counsel against your neighbor. You shall not hate any man; but some you shall reprove, and concerning some you shall pray, and some you shall love more than your own life.
 
+-   **[youtube.com: Girls told to remove Christian crosses at religious school hit out against staff @time: 2 min 4 sec](https://youtube.com/watch?v=Z69BeGrSoRA&t=124):** Have a look at this exchange over the
+    weekend. While Kamar Harris was promoting
+    *abortion* without limits, the entire crowd
+    erupted into loud cheers. But then a lone
+    student in the crowd who is a Christian,
+    and so pro-life, called out "Jesus is Lord".
+    Now, instinctively and without pause Kamala
+    mocked him telling him he was at the
+    "wrong rally".
+
 
 ### More sins condemned by the early Church
 
@@ -14645,7 +14668,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1309995)
+See: [33.4.1](#orgeede148)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29046,7 +29069,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1309995)
+See: [33.4.1](#orgeede148)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
