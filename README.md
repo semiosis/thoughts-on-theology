@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org97038b3) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge96f49e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14645,7 +14645,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org4b19d93)
+See: [33.4.1](#org1309995)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -24983,9 +24983,13 @@ It's not the ones with the correct doctrine who will stand in the congregation o
 
 > **[Psalms 5:5](https://www.biblegateway.com/passage/?search=Psalms%205%3A5&version=ESV)** -  The boastful shall not stand before your eyes; you hate all evildoers.  (ESV)
 
+-   **[earlychristianwritings.com justinmartyr-resurrection.html: Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** The word of truth is free, and <ins>carries its own authority, **disdaining to fall under any skilful argument, or to endure the logical scrutiny of its hearers**. But it would be **believed for its own nobility**, and for the confidence due to Him who sends it</ins>. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is *not arrogant*. For **being sent with authority, it were not fit that it should be required to produce proof of what is said**; since **neither is there any proof beyond itself, which is God**. For <ins>every proof is more powerful and trustworthy than that which it proves; since what is disbelieved, until proof is produced, gets credit when such proof is produced</ins>, and is recognised as being what it was stated to be. But **nothing is either more powerful or more trustworthy than the truth**; so that he who requires proof of this is like one who wishes it demonstrated why the things that appear to the senses do appear. For the test of those things which are received through the reason, is sense; but of sense itself there is no test beyond itself. As then we bring those things which reason hunts after, to sense, and by it judge what kind of things they are, whether the things spoken be true or false, and then sit in judgment no longer, giving full credit to its decision; so also we refer all that is said regarding men and the world to the truth, and by it judge whether it be worthless or no. But the utterances of truth we judge by no separate test, giving full credit to itself.
+
 For that reason, I would have more confidence before God if I was serving Him, having put sin to death and trying to be holy and selfless and loving in faith towards Jesus, than if I believed precise theology but had no changed life / love for Jesus:
 
 > **[Psalms 1:4-5](https://www.biblegateway.com/passage/?search=Psalms%201%3A4-5&version=ESV)** - The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will not stand in the judgment, nor sinners in the congregation of the righteous; (ESV)
+
+-   **[earlychristianwritings.com justinmartyr-resurrection.html: Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His Son, came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself resurrection from the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He, therefore, is Himself both the faith and the proof of Himself and of all things. Wherefore those who follow Him, and know Him, having faith in Him as their proof, shall rest in Him. But since the adversary does not cease to resist many, and uses many and divers arts to ensnare them, that he may seduce the faithful from their faith, and that he may prevent the faithless from believing, it seems to me necessary that we also, being armed with the invulnerable doctrines of the faith, do battle against him in behalf of the weak.
 
 Unity in Christ is unity in **faith** and **truth** and **love**:
 
@@ -29042,7 +29046,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org4b19d93)
+See: [33.4.1](#org1309995)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
