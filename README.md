@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org0e1be03) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org0118e62) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14679,7 +14679,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org343eda9)
+See: [33.4.1](#orgdf9c346)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29082,7 +29082,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org343eda9)
+See: [33.4.1](#orgdf9c346)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -33268,11 +33268,11 @@ The man had faith - faith enters into the truth / receives from God:
 
 > **[Acts 3:5-8](https://www.biblegateway.com/passage/?search=Acts%203%3A5-8&version=ESV)** - And he began to give them his attention, <ins>expecting to receive something from them</ins>. But Peter said, “I do not possess silver and gold, but what I do have I give to you: In the name of Jesus Christ the Nazarene&#x2013; walk!” And seizing him by the right hand, he raised him up; and immediately his feet and his ankles were strengthened. With a leap he stood upright and began to walk; and he entered the temple with them, walking and leaping and praising God.
 
-Jesus made the man walk through Jesus' power and Jesus' holiness:
+Through Peter, Jesus made the man walk through Jesus' own power and Jesus' holiness:
 
-> **[Acts 3:11-12](https://www.biblegateway.com/passage/?search=Acts%203%3A11-12&version=ESV)** - While he was clinging to Peter and John, all the people ran together to them at the so-called portico of Solomon, full of amazement. But when Peter saw this, he replied to the people, “Men of Israel, why are you amazed at this, or <ins>why do you gaze at us, as if by our own power or piety we had made him walk</ins>?
+> **[Acts 3:6-7](https://www.biblegateway.com/passage/?search=Acts%203%3A6-7&version=ESV),11-12** - But Peter said, I have no silver and gold, but what I do have I give to you. In the name of Jesus Christ of Nazareth, rise up and walk! And he took him by the right hand and raised him up, and immediately his feet and ankles were made strong. While he clung to Peter and John, all the people ran together to them in the portico called Solomon's, astounded. And when Peter saw it he addressed the people: Men of Israel, <ins>why do you wonder at this, or why do you stare at us, as though by our own power or piety we have made him walk?</ins> (ESV)
 
-The faith which He had in Jesus' name is what healed him:
+The faith which comes through Jesus which the man had in Jesus' name is what healed the man:
 
 > **[Acts 3:16](https://www.biblegateway.com/passage/?search=Acts%203%3A16&version=ESV)** - And on the basis of faith in His name, it is <ins>the name of Jesus which has strengthened this man whom you see and know</ins>; and <ins>the faith which comes through Him has given him this perfect health</ins> in the presence of you all.
 
