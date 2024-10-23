@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdd8a67f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org0e1be03) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1188,7 +1188,7 @@ And the obedience doesn't end. We continue to be sanctified through faith. We ar
 
 -   **[youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec](https://youtube.com/watch?v=xe9eg2G3tCk&t=492):** You've heard about my wife. Well, over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to marry her. So I came to her one day and I had a little present wrapped up for her. It was a cookbook. So I said, "I'd like to marry you, Sally. Now the condition would be this: Let's look at page 147 - it's apple cake, and here are the laws for making apple cake. Thou shalt take some what's flour, thou shall take some what sugar, and there you are. Now, here's the way it's gonna be: If you keep these laws for the next forty years, I think about accepting you. If you don't, you can go back to your mother."
     
-    But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship of merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
+    But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship on merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
 
 Amen to that.
 
@@ -1666,7 +1666,7 @@ So I have a joy that's in God, yes, but it does not mean that on a bad day (when
 I'm fully convinced that Job still loved God, and the "joy" of God was most likely still deep in Job's heart even though he felt bitter.
 That's how I feel sometimes. I love Jesus but I tell him I'm angry at him. Perhaps a bit like Martin Luther's psychosis:
 
--   **[youtube.com: The Insanity of Luther: The Holiness of God with R.C. Sproul](https://www.youtube.com/watch?v=2StKxMKWfbU&t=434s):** He had such a fear of the wrath
+-   **[youtube.com: The Insanity of Luther: The Holiness of God with R.C. Sproul](https://youtu.be/2StKxMKWfbU?t=359):** He had such a fear of the wrath
     of God that early on in his ministry
     somebody put this question to him:
     "Brother Martin, do you love God?" You
@@ -14679,7 +14679,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org10c356a)
+See: [33.4.1](#org343eda9)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -15120,7 +15120,7 @@ We're not being justified by our works - we've already been redeemed, but we do 
 
 -   **[youtube.com: John Lennox: How do I choose which religion to follow? @time: 8 min 12 sec](https://youtube.com/watch?v=xe9eg2G3tCk&t=492):** You've heard about my wife. Well, over fifty years ago, I saw this vision in Cambridge, so I decided I'd like to marry her. So I came to her one day and I had a little present wrapped up for her. It was a cookbook. So I said, "I'd like to marry you, Sally. Now the condition would be this: Let's look at page 147 - it's apple cake, and here are the laws for making apple cake. Thou shalt take some what's flour, thou shall take some what sugar, and there you are. Now, here's the way it's gonna be: If you keep these laws for the next forty years, I think about accepting you. If you don't, you can go back to your mother."
     
-    But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship of merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
+    But, look why are you laughing? That is what many of you sitting here think about God. And you would never insult a fellow human being by basing a relationship on merit. You wouldn't. And so my marriage, it's been good, why? Because my wife is not cooking in order to gain my acceptance. She likes cooking because she's got it. And the wonderful thing about Christianity is precisely that. It's not religion in that sense, it's a relationship.
 
 Christianity is a relationship, like a marriage:
 
@@ -29082,7 +29082,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org10c356a)
+See: [33.4.1](#org343eda9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -36761,7 +36761,7 @@ It is those people who will to live (though they die, they will live). Then they
 
 We have confidence as we are practicing righteousness and love the brothers:
 
-> **I John 3:10-17** - By this it is evident who are the children of God, and who are the children of the devil: **whoever does not practice righteousness is not of God, nor is the one who does not love his brother**. For this is the message that you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous. Do not be surprised, brothers, that the world hates you. **We know that we have passed out of death into life, because we love the brothers**. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But **if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him?** (ESV)
+> **[I John 3:10-17](https://www.biblegateway.com/passage/?search=1%20John%203%3A10-17&version=ESV)** - By this it is evident who are the children of God, and who are the children of the devil: **whoever does not practice righteousness is not of God, nor is the one who does not love his brother**. For this is the message that you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous. Do not be surprised, brothers, that the world hates you. **We know that we have passed out of death into life, because we love the brothers**. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But **if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him?** (ESV)
 
 > **[Psalms 119:160](https://www.biblegateway.com/passage/?search=Psalms%20119%3A160&version=ESV)** - The sum of your word is truth, and every one of your righteous rules endures forever. (ESV)
 
@@ -36878,6 +36878,14 @@ Some of the confusion has arisen from such passages as [Psalm 16:10-11](https://
 
 
 ### The dead hearing the gospel - was it only a one time thing?
+
+Though not raised, the dead may hear the voice of the son of God, the gospel, and live in the spirit the way God does.
+
+> **[I Corinthians 15:29](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A29&version=ESV)** - Otherwise, what do people mean by being baptized on behalf of the dead? If the dead are not raised at all, why are people baptized on their behalf? (ESV)
+
+> **[John 5:25](https://www.biblegateway.com/passage/?search=John%205%3A25&version=ESV)** - Truly, truly, I say to you, an hour is coming, and is now here, when the dead will hear the voice of the Son of God, and those who hear will live. (ESV)
+
+> **[I Peter 4:6](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A6&version=ESV)** - For the gospel has for this purpose been preached even to those who are dead, that though they are judged in the flesh as men, they may live in the spirit according to the will of God. (NASB)
 
 I think it's important to trust Jesus in this life because no guarantees with hearing the gospel in the place of the dead. Who knows, though, right? Because perhaps a believer who dies in Christ could preach the gospel to Hades and bounce back up as Jesus did.
 
