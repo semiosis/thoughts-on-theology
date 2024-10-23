@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org0118e62) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgac7fd6f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -786,9 +786,19 @@ When we are born of God, I believe we have willed/done something which is in God
 > **[John 1:12-14](https://www.biblegateway.com/passage/?search=John%201%3A12-14&version=ESV)** - But to all who did receive him, who believed in his name, he gave the *right* to become **children of God**, who were <ins>born, not of blood nor of the will of the flesh nor of the will of man</ins>, **but of God**. And **the Word became flesh and dwelt among us**, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (ESV)
 
 
+## I'm non-denominational
+
+I do not consider myself to be a part of any particular denomination;
+I have an affinity to churches which have strong Biblical teaching, and a focus on applying Jesus' commandments.
+
+-   **[Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** The word of truth is free, and <ins>carries its own authority, **disdaining to fall under any skilful argument, or to endure the logical scrutiny of its hearers**. But it would be **believed for its own nobility**, and for the confidence due to Him who sends it</ins>.
+
+> **[Romans 14:22](https://www.biblegateway.com/passage/?search=Romans%2014%3A22&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
+
+
 ## 1689 Baptist confession of faith
 
--   <https://www.the1689confession.com/>
+-   **Read:** <https://www.the1689confession.com/>
 
 
 ### Chapter 1
@@ -14679,7 +14689,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdf9c346)
+See: [33.4.1](#org1cbbb55)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29082,7 +29092,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdf9c346)
+See: [33.4.1](#org1cbbb55)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -35158,8 +35168,44 @@ I'm no longer interested in AI. I know God is real and is taking care of me.
 I realise what has happened regarding me and relationships is messy and the need to hold no grudge going forward.
 I offer it to anyone.
 
-Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of **righteousness**, **peace** and **joy** in the Holy Spirit, and I have felt like I have had my blessings stolen from me by the enemy,
-but God is the only one who can solve this for me, but I do have peace and righteousness in the Holy Spirit, and baseline joy which is derived from a good conscience with God.
+Life doesn't feel like the kingdom of God to me currently because that would involve having this trifecta of **righteousness**, **peace** and **joy** in the Holy Spirit, and I have felt like I have had my blessings stolen from me by the enemy, but God is the only one who can solve this for me, but I do have peace and righteousness in the Holy Spirit, and baseline joy which is derived from a good conscience with God.
+
+I was quite depressed today <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-10-23 Wed&gt;</span></span>. God help me. I wasn't even jealous. What happened flattened me and shattered me spiritually. God help me, please.
+
+-   **[youtube.com: WHO IS GOD? {Nahum 1:2-7} By John MacArthur @time: 20 min 48 sec](https://youtube.com/watch?v=pJ-DuTRtvvc&t=1248):** And so God is jealous for his glory.
+    God is also jealous for his love.
+    Jealousy really only belongs to those who love.
+    Husband and a wife - jealousy is possible
+    A girlfriend and a boyfriend - jealousy is possible.
+    Jealousy fits into a love relationship, and so it does with God.
+    God is jealous because he loves.
+
+-   **[youtube.com: WHO IS GOD? {Nahum 1:2-7} By John MacArthur @time: 21 min 34 sec](https://youtube.com/watch?v=pJ-DuTRtvvc&t=1294):** Hosea, you remember Hosea?
+    Dear old Hosea, the prophet.
+    God gave him really a wonderful
+    illustration to live in his own life.
+    And God told him to marry a woman,
+    Gomer, who turned out to be a prostitute.
+    He told him to marry this woman Gomer
+    who turned out to be a prostitute, and
+    God then said this is a graphic
+    illustration of what Israel has done to me.
+    Israel has been an unfaithful wife and
+    God was jealous over Israel because
+    Israel was his love.
+    And God's heart was grieved.
+    God's heart was indeed broken.
+    <ins>God gets jealous when those he loves are stolen from him by somebody else.</ins>
+    
+    And so God's jealousy is not only the
+    jealousy of honor, but it's the jealousy of love.
+    
+    All through the old
+    testament God says I'm jealous for my
+    people, I'm jealous for my land, I'm
+    jealous for those things that are mine.
+    When god sets his affection on something
+    and something robs him of that, he's jealous.
 
 At the end of the day, it's good conscience with God I am after and sanctification:
 
