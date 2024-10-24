@@ -53194,14 +53194,11 @@ apparent to them.
   John 8:47 - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of
   God. (ESV)
 
-But I have confidence that those who are of God will naturally be accepting of Jesus - but they still have to come
-to believe/trust in Him:
+But I have confidence that those who are 'of God' will naturally hear Jesus' words and they still have to come to
+believe/trust in Him:
 
   I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil: whoever
   does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
-
-  John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
-  came not of my own accord, but he sent me. (ESV)
 
   John 8:39-42 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you
   would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from
@@ -53214,7 +53211,7 @@ We still need to believe to avoid condemnation:
   Mark 16:16 - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
   (ESV)
 
-  I John 5:12 - Whoever has the Son has life; whoever does not have the Son of God does not have life. (ESV)a
+  I John 5:12 - Whoever has the Son has life; whoever does not have the Son of God does not have life. (ESV)
 
 78.5. Prayer of thanks
 
@@ -53274,7 +53271,7 @@ Date: 2024-10-25 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-25 Fri 08:10
+Created: 2024-10-25 Fri 08:29
 
 Validate
 

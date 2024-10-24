@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org123bc18) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7e7edb2) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14689,7 +14689,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org241f5fa)
+See: [33.4.1](#org1df944f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29092,7 +29092,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org241f5fa)
+See: [33.4.1](#org1df944f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -37416,19 +37416,17 @@ People still have to put their trust in Jesus when the testimony of Jesus comes 
 
 > **[John 8:47](https://www.biblegateway.com/passage/?search=John%208%3A47&version=ESV)** - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
 
-But I have confidence that those who are of God will naturally be accepting of Jesus - but they still have to come to believe/trust in Him:
+But I have confidence that those who are 'of God' will naturally hear Jesus' words and they still have to come to believe/trust in Him:
 
 > **[I John 3:10](https://www.biblegateway.com/passage/?search=1%20John%203%3A10&version=ESV)** - By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
-> **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV)** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
-
-> **[John 8:39-42](https://www.biblegateway.com/passage/?search=John%208%3A39-42&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, **If you were Abraham's children, you would be doing what Abraham did**, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual immorality. We have one Father—even God. Jesus said to them, **If God were your Father, you would love me**, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+> **[John 8:39-42](https://www.biblegateway.com/passage/?search=John%208%3A39-42&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, **If you were Abraham's children, you would be doing what Abraham did**, but now you seek to kill me, a man who has <ins>told you the truth that I heard from God</ins>. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual immorality. We have one Father—even God. <ins>Jesus said to them, **If God were your Father, you would love me**, for I came from God and I am here. I came not of my own accord, but he sent me.</ins> (ESV)
 
 We still need to believe to avoid condemnation:
 
 > **[Mark 16:16](https://www.biblegateway.com/passage/?search=Mark%2016%3A16&version=ESV)** - Whoever believes and is baptized will be saved, but **whoever does not believe will be condemned**. (ESV)
 
-> **[I John 5:12](https://www.biblegateway.com/passage/?search=1%20John%205%3A12&version=ESV)** - Whoever has the Son has life; whoever does not have the Son of God does not have life. (ESV)a
+> **[I John 5:12](https://www.biblegateway.com/passage/?search=1%20John%205%3A12&version=ESV)** - Whoever has the Son has life; whoever does not have the Son of God does not have life. (ESV)
 
 
 ## Prayer of thanks
