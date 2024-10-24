@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 OCT 2024 00:30
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 OCT 2024 08:17
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -432,7 +432,7 @@ Missing character: There is no 􀀱 in font [lmroman10-regular]:mapping=tex-text
 Missing character: There is no 􂮌 in font [lmroman10-regular]:mapping=tex-text;!
  [16] [17] [18] [19]
 
-LaTeX Warning: Hyper reference `sec:org846021f' on page 20 undefined on input l
+LaTeX Warning: Hyper reference `sec:orgc301105' on page 20 undefined on input l
 ine 1035.
 
 [20] [21]
@@ -2105,7 +2105,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [402]
 
-LaTeX Warning: Reference `sec:orgae51776' on page 403 undefined on input line 2
+LaTeX Warning: Reference `sec:orgeef7352' on page 403 undefined on input line 2
 0783.
 
 [403] [404] [405] [406] [407]
@@ -3257,7 +3257,7 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 
 [775] [776] [777] [778] [779]
 
-LaTeX Warning: Reference `sec:orgae51776' on page 780 undefined on input line 4
+LaTeX Warning: Reference `sec:orgeef7352' on page 780 undefined on input line 4
 0046.
 
 [780] [781]
@@ -4054,29 +4054,36 @@ Missing character: There is no φ in font [lmmono10-regular]:!
 Missing character: There is no ῶ in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
  [983] [984] [985] [986]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 51401--51401
+Missing character: There is no 细 in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no 罗 in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
+
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 51452--51452
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 51401--51401
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 51452--51452
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
-
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 51414--51414
+[987]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 51465--51465
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 51439.
-[987]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 51439.
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 51490.
+[988]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 51490.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 51439.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 51439
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 51490.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 51490
 .
 
 
@@ -4086,22 +4093,22 @@ Package rerunfilecheck Warning: File `README.out' has changed.
 
 Package rerunfilecheck Info: Checksums for `README.out':
 (rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  DBCD8B1C39C0DBE75AB5871C1D9D6BBD.
+(rerunfilecheck)             After:  D05D0AAA876A2501091CE4A91ABF27A0.
 
 LaTeX Warning: There were undefined references.
 
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 51439.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 51490.
  ) 
 Here is how much of TeX's memory you used:
- 11184 strings out of 494868
- 158004 string characters out of 6175714
+ 11185 strings out of 494868
+ 158020 string characters out of 6175714
  265408 words of memory out of 5000000
- 15019 multiletter control sequences out of 15000+600000
+ 15020 multiletter control sequences out of 15000+600000
  10411 words of font info for 54 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6363b,1301s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,1302s stack positions out of 5000i,500n,10000p,200000b,80000s
 
-Output written on ./README.pdf (987 pages).
+Output written on ./README.pdf (988 pages).
