@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7e7edb2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org23523d3) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14689,7 +14689,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1df944f)
+See: [33.4.1](#orgce36784)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28497,9 +28497,11 @@ The universe is upheld by the word of Jesus' power.
 
 ### Great or small in the kingdom of God
 
-1.  The least will be greatest
+1.  The one who is least in the kingdom is who is great
 
-    > **[Luke 9:48](https://www.biblegateway.com/passage/?search=Luke%209%3A48&version=ESV)** - and said to them, Whoever receives this child in my name receives me, and whoever receives me receives him who sent me. For he who is least among you all is the one who is great. (ESV)
+    > **[Matthew 18:4](https://www.biblegateway.com/passage/?search=Matthew%2018%3A4&version=ESV)** - Whoever **humbles himself like this child** is the greatest in the kingdom of heaven. (ESV)
+    
+    > **[Luke 9:48](https://www.biblegateway.com/passage/?search=Luke%209%3A48&version=ESV)** - and said to them, Whoever receives this child <ins>in my name</ins> receives me, and whoever receives me receives him who sent me. For **he who is least ([3398. mikros](https://biblehub.com/greek/3398.htm)) <ins>among you</ins> all is the one who is great**. (ESV)
 
 2.  Your servant will be greater
 
@@ -28516,6 +28518,20 @@ The universe is upheld by the word of Jesus' power.
 
 3.  The humble and obedient will be called great
 
+    There's a quiet confidence from practicing one's righteousness (accountable to God) so long as we are seeking to honour God by our obedience and get praise from God, not seeking worldly praise:
+    
+    > **[I John 3:18-22](https://www.biblegateway.com/passage/?search=1%20John%203%3A18-22&version=ESV)** - Little children, let us not love in word or talk but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for whenever our heart condemns us, God is greater than our heart, and he knows everything. Beloved, <ins>if our heart does not condemn us, we have confidence before God</ins>; and whatever we ask we receive from him, because we keep his commandments and do what pleases him. (ESV)
+    
+    The justified are not self-righteous but live with an awareness they **still** need God's grace and practice their obedience in *submission* to God:
+    
+    > **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+    
+    Being under grace means knowing we always live under the mercy of God:
+    
+    > **[Romans 6:14](https://www.biblegateway.com/passage/?search=Romans%206%3A14&version=ESV)** - For sin will have no dominion over you, since you are not under law but **under grace**. (ESV)
+    
+    > **[Titus 2:11-14](https://www.biblegateway.com/passage/?search=Titus%202%3A11-14&version=ESV)** - For the grace of God has appeared, bringing **salvation for all people**, training us to **renounce ungodliness and worldly passions**, and to **live self-controlled, upright, and godly lives** <ins>in the present age</ins>, **waiting for our blessed hope**, the appearing of the glory of our great God and Savior Jesus Christ, who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works. (ESV)
+    
     > **[Matthew 5:6](https://www.biblegateway.com/passage/?search=Matthew%205%3A6&version=ESV)** - Blessed are those who hunger and thirst for righteousness, for they shall be satisfied.
     
     > **[Jeremiah 31:34](https://www.biblegateway.com/passage/?search=Jeremiah%2031%3A34&version=ESV)** - And no longer shall each one teach his neighbor and each his brother, saying, Know the LORD, for they shall all know me, **from the least of them to the greatest**, declares the LORD. For I will forgive their iniquity, and I will remember their sin no more. (ESV)
@@ -29092,7 +29108,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1df944f)
+See: [33.4.1](#orgce36784)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -32039,7 +32055,7 @@ And absolutely do not bear grudges against those who are in Christ:
 
 ### 
 
-> **[Luke 9:48](https://www.biblegateway.com/passage/?search=Luke%209%3A48&version=ESV)** - and said to them, Whoever receives this child in my name receives me, and whoever receives me receives him who sent me. For he who is least among you all is the one who is great. (ESV)
+> **[Luke 9:48](https://www.biblegateway.com/passage/?search=Luke%209%3A48&version=ESV)** - and said to them, Whoever receives this child in my name receives me, and whoever receives me receives him who sent me. For he who is least ([3398. mikros](https://biblehub.com/greek/3398.htm)) among you all is the one who is great. (ESV)
 
 
 ### 
