@@ -20532,13 +20532,52 @@ comes from Christ:
   discernment, so that you may approve what is excellent, and so be pure and blameless for the day of Christ,
   filled with the fruit of righteousness that comes through Jesus Christ, to the glory and praise of God.
 
-16.9. We must both believe the truth and be sanctified, and stop sinning to be saved
+16.9. Sanctification is being cleaned from sin and brought into believing and practicing truth
 
-  II Thessalonians 2:13 - But we should always give thanks (G2168 eucharisteo) to God for you, brethren beloved by
-  the Lord, because God has chosen you from the beginning (G746 arche) for salvation through sanctification by the
-  Spirit and faith (G4102 pistis) in the truth (G225 aletheia). (NASB)
+It means sin is being stopped in your thoughts and deeds, brought out of believing and practicing darkness into
+believing and practicing truth - being cleaned from sin.
 
-Cleaned up (stop sinning) by having faith in the truth.
+To be sanctified means to have God's law on one's heart and mind so that they are walking in the light, obeying
+God, and God forgives them:
+
+  Leviticus 22:31-33 - So you shall keep my commandments and do them: I am the LORD. And you shall not profane my
+  holy name, that I may be sanctified among the people of Israel. I am the LORD who sanctifies you, who brought
+  you out of the land of Egypt to be your God: I am the LORD. (ESV)
+
+  Hebrews 10:10-17 - And by that will we have been sanctified through the offering of the body of Jesus Christ
+  once for all. And every priest stands daily at his service, offering repeatedly the same sacrifices, which can
+  never take away sins. But when Christ had offered for all time a single sacrifice for sins, he sat down at the
+  right hand of God, waiting from that time until his enemies should be made a footstool for his feet. For by a
+  single offering he has perfected for all time those who are being sanctified. And the Holy Spirit also bears
+  witness to us; for after saying, This is the covenant that I will make with them after those days, declares the
+  Lord: I will put my laws on their hearts, and write them on their minds, then he adds, I will remember their
+  sins and their lawless deeds no more. (ESV)
+
+We are sanctified by faith in Jesus (trusting Jesus):
+
+  Acts 26:16-18 - But rise and stand upon your feet, for I have appeared to you for this purpose, to appoint you
+  as a servant and witness to the things in which you have seen me and to those in which I will appear to you,
+  delivering you from your people and from the Gentiles—to whom I am sending you to open their eyes, so that they
+  may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins
+  and a place among those who are sanctified by faith in me. (ESV)
+
+By faith in Jesus (trusting Jesus), we are sanctified in Truth:
+
+  John 17:19 - And for their sake I consecrate myself, that they also may be sanctified in truth. (ESV)
+
+In trusting Jesus (having faith in Jesus), we are sanctified in Truth by the Holy Spirit:
+
+  Romans 15:15-16 - But on some points I have written to you very boldly by way of reminder, because of the grace
+  given me by God to be a minister of Christ Jesus to the Gentiles in the priestly service of the gospel of God,
+  so that the offering of the Gentiles may be acceptable, sanctified by the Holy Spirit. (ESV)
+
+  II Thessalonians 2:11-13 - For this reason God will send upon them a deluding influence so that they will
+  believe what is false, in order that they all may be judged who did not believe the truth, but took pleasure in
+  wickedness. But we should always give thanks (G2168 eucharisteo) to God for you, brethren beloved by the Lord,
+  because God has chosen you from the beginning (G746 arche) for salvation through sanctification by the Spirit
+  and faith (G4102 pistis) in the truth (G225 aletheia). (NASB)
+
+Cleaned up from sin by having faith in the truth.
 
 Faith in the truth - strong faith word! Belief and ongoing faithfulness, trust, reliance.
 
@@ -20579,8 +20618,12 @@ of the influence the world I live in has had on me, but also because I need to b
 • the influences of demons
 • I need to just focus on Jesus more
 
+So sanctification has continued for me after being regenerated. Being sanctified by the Truth by faith in Jesus
+Christ is and has been a fight.
+
 But for the person born of God, they have died to sin, it no longer has a legal hold over them, they cannot keep
-on doing it, they absolutely hate the sin, we are being sanctified.
+on doing it, they absolutely hate the sin and we fight against it. We are being sanctified as we come into
+alignment with the Truth, walking in the light, believing and obeying the Truth, Word of God.
 
   Romans 8:1-4 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
   Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the law,
@@ -30748,6 +30791,9 @@ produce work for God but doesn't strictly mean work. We want to keep His command
 treasure God with all our heart. God also commands us to love one another as ourselves, so we should also love and
 value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we
 have to make God our number one love.
+
+Praise
+youtube.com: First Love | Worship With Me And Friends {Praise Lubangu & Jake Hernandez}
 
 As I understand it, I John 5:2-3 isn't saying that God's commandments are universally unburdensome to all people.
 It's saying that when we love God then keeping His commandments is unburdensome. If we're struggling with keeping
@@ -53346,7 +53392,7 @@ Date: 2024-10-25 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-25 Fri 15:23
+Created: 2024-10-25 Fri 21:19
 
 Validate
 
