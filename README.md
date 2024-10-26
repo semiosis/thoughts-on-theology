@@ -631,6 +631,16 @@ There are commandments from God which even Paul the Apostle regarded as importan
 
 -   **[Quote by John Bunyan](https://youtube.com/watch?v=36mSsYUAGoE&t=3219):** Interpreter explained, "This parlor is the heart of a man which has never been sanctified by the sweet grace of the Gospel. The dust is his original sin and inward corruptions, which have defiled the whole man. He who began to sweep at first, is the Law. The maiden who brought and sprinkled the water, is the Gospel. "You saw that as soon as the man began to sweep, that the dust thickly swirled around the room, and became even more difficult to cleanse, nearly choking you to death. This is to show you that the Law, instead of cleansing the heart from sin—does in fact arouse sin, giving greater strength to it—and causing it to flourish in the soul. **The Law both manifests and forbids sin—but it has no power to subdue sin.** "Again, you saw the maiden sprinkle the room with water, upon which it was cleansed with ease. This is to show you, that **when the Gospel comes** in the sweet and precious influences thereof to the heart—then, I say, even as you saw the maiden subdue the dust by sprinkling the floor with water—just so is sin vanquished and subdued, and **the soul made clean, through faith, and consequently fit for the King of glory to inhabit.**"
 
+-   **[youtube.com: Servants or Secret Agents? @time: 17 min 4 sec](https://youtube.com/watch?v=Fo0993mquso&t=1024):** Sin is a power and not just an act. So many people think that
+    sin is like stealing or killing or lying.
+    And of course that is sin, but that's not
+    the main problem.
+    
+    If that were the main problem, willpower could save
+    us. The main problem is that sin is a
+    power, and it takes captive
+    desires.
+
 The law is good. It's not our source of justification but we don't teach people to disobey it, especially those who follow it by faith.
 
 > **[Romans 14:10-14](https://www.biblegateway.com/passage/?search=Romans%2014%3A10-14&version=ESV)** - Why do you pass judgment on your brother? Or you, why do you despise your brother? For we will all stand before the judgment seat of God; for it is written, As I live, says the Lord, every knee shall bow to me, and every tongue shall confess to God. So then each of us will give an account of himself to God. Therefore let us not pass judgment on one another any longer, but rather decide never to put a stumbling block or hindrance in the way of a brother. I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. (ESV)
@@ -731,7 +741,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgc6e703a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbc4223b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14755,7 +14765,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgd253632)
+See: [33.4.1](#orgb198f65)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29191,7 +29201,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgd253632)
+See: [33.4.1](#orgb198f65)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

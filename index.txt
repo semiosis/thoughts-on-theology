@@ -907,6 +907,14 @@ precious influences thereof to the heart—then, I say, even as you saw the maid
 floor with water—just so is sin vanquished and subdued, and the soul made clean, through faith, and consequently
 fit for the King of glory to inhabit."
 
+youtube.com: Servants or Secret Agents? @time: 17 min 4 sec
+
+Sin is a power and not just an act. So many people think that sin is like stealing or killing or lying. And of
+course that is sin, but that's not the main problem.
+
+If that were the main problem, willpower could save us. The main problem is that sin is a power, and it takes
+captive desires.
+
 The law is good. It's not our source of justification but we don't teach people to disobey it, especially those
 who follow it by faith.
 
@@ -53413,7 +53421,7 @@ Date: 2024-10-26 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-26 Sat 15:22
+Created: 2024-10-26 Sat 15:40
 
 Validate
 
