@@ -2225,6 +2225,12 @@ boys, let's settle down. Dad, can I ask you something? Sure, pal. When we grow u
 my dad? I'll always be your dad and that'll never change. Do you promise? Son, the most important thing in our our
 Lives is that we always love each other. Now, you remember that, okay? Okay boys, prayers.
 
+It's not just about agape loving our neighbour / other people. We must agape love (treasure, value) God too and
+that means remembering His name and His Son and His words. This is an absolute must. The gospel still needs to be
+preached:
+
+  Psalms 9:17 - The wicked shall return to Sheol, all the nations that forget God. (ESV)
+
 I think I John 2:15-17 is essentially saying, "Do not agape love the world or what's in the world. Do not love the
 things of this world with the type of love that we have for God and for people, namely agape love." If we fall out
 of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds
@@ -45262,6 +45268,7 @@ When you fast:
 • also, fast for those who persecute you
 • be prepared with Scripture, and use it
 • praise and worship the Lord
+• youtube.com: Holy Forever Medley | Jesus Image | John Wilds
 
 Just fast for God, and focus on God:
 
@@ -52224,6 +52231,20 @@ We should start now.
   Amen! Blessing and glory and wisdom and thanksgiving and honor and power and might be to our God forever and
   ever! Amen. (ESV)
 
+74.1. We should praise God even when it's tough times
+
+  Psalms 22:1-3 - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of
+  my groaning? To the choirmaster: according to The Doe of the Dawn. A Psalm of David. O my God, I cry by day, but
+  you do not answer, and by night, but I find no rest. Yet you are holy, enthroned (3427. yashab. to sit, remain,
+  dwell) on the praises of Israel. (ESV)
+
+Praise
+youtube.com: Prophetic / Worship / Jerusalem / ISRAEL / Soaking Worship Music / {Magi G feat. Elihana Elia} /
+
+  Proverbs 30:4 - Who has ascended to heaven and come down? Who has gathered the wind in his fists? Who has
+  wrapped up the waters in a garment? Who has established all the ends of the earth? What is his name, and what is
+  his son's name? Surely you know! (ESV)
+
 75. I don't want to think too hard about theology, but it is important - writing this was worthwhile in arriving at a
 sound understanding
 
@@ -53388,11 +53409,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-25 Fri 00:00
+Date: 2024-10-26 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-25 Fri 21:19
+Created: 2024-10-26 Sat 15:22
 
 Validate
 

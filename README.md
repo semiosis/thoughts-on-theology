@@ -731,7 +731,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org431340c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgc6e703a) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1544,6 +1544,12 @@ Agape-ing things of this world is worldly-mindedness and makes it very difficult
     dad? I'll always be your dad and that'll
     never change. Do you promise?
     **Son, the most important thing in our our Lives is that we always love each other.** Now, you remember that, okay? Okay boys, prayers.
+
+It's not just about agape loving our neighbour / other people.
+We must agape love (treasure, value) God too and that means remembering His name and His Son and His words.
+This is an absolute must. The gospel still needs to be preached:
+
+> **[Psalms 9:17](https://www.biblegateway.com/passage/?search=Psalms%209%3A17&version=ESV)** - The wicked shall return to Sheol, all the nations that forget God. (ESV)
 
 I think [I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV) is essentially saying, <ins>"Do not agape love the world or what's in the world. Do not love the things of this world with the type of love that we have for God and for people, namely agape love."</ins> If we fall out of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds then by testing we will be able to discern the will of God:
 
@@ -14749,7 +14755,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org0c64214)
+See: [33.4.1](#orgd253632)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29185,7 +29191,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org0c64214)
+See: [33.4.1](#orgd253632)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31477,6 +31483,7 @@ When you fast:
 -   also, fast for those who persecute you
 -   be prepared with Scripture, and use it
 -   praise and worship the Lord
+    -   [youtube.com: Holy Forever Medley | Jesus Image | John Wilds](https://www.youtube.com/watch?v=ItbLWVY6J_Y)
 
 Just fast for God, and focus on God:
 
@@ -36795,6 +36802,15 @@ We are to be conformed into Christ's image:
 We should start now.
 
 > **[Revelation 7:9-12](https://www.biblegateway.com/passage/?search=Revelation%207%3A9-12&version=ESV)** -   After this I looked, and behold, a great multitude that no one could number, from every nation, from all tribes and peoples and languages, standing before the throne and before the Lamb, clothed in white robes, with palm branches in their hands, and crying out with a loud voice, Salvation belongs to our God who sits on the throne, and to the Lamb! And all the angels were standing around the throne and around the elders and the four living creatures, and they fell on their faces before the throne and worshiped God, saying, Amen! Blessing and glory and wisdom and thanksgiving and honor and power and might be to our God forever and ever! Amen.  (ESV)
+
+
+## We should praise God even when it's tough times
+
+> **[Psalms 22:1-3](https://www.biblegateway.com/passage/?search=Psalms%2022%3A1-3&version=ESV)** - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my groaning? To the choirmaster: according to The Doe of the Dawn. A Psalm of David. O my God, I cry by day, but you do not answer, and by night, but I find no rest. Yet you are holy, enthroned ([3427. yashab](https://biblehub.com/interlinear/psalms/22-3.htm). to sit, remain, dwell) on the praises of Israel. (ESV)
+
+-   **Praise:** [youtube.com: Prophetic / Worship / Jerusalem / ISRAEL / Soaking Worship Music / {Magi G feat. Elihana Elia} /](https://www.youtube.com/watch?v=KT7xdwgdprU)
+
+> **[Proverbs 30:4](https://www.biblegateway.com/passage/?search=Proverbs%2030%3A4&version=ESV)** - Who has ascended to heaven and come down? Who has gathered the wind in his fists? Who has wrapped up the waters in a garment? Who has established all the ends of the earth? What is his name, and what is his son's name? Surely you know! (ESV)
 
 
 # I don't want to think too hard about theology, but it is important - writing this was worthwhile in arriving at a sound understanding
