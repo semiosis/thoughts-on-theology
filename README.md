@@ -741,7 +741,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbc4223b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org42d149d) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3476,6 +3476,8 @@ Long before we ever believed in / obeyed Jesus, God had chosen us to believe in 
 
 > **[II Timothy 1:9](https://www.biblegateway.com/passage/?search=2%20Timothy%201%3A9&version=ESV)** - who saved us and called us to a holy calling, not because of our works but because of his own purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
 
+> **[Jeremiah 1:4-5](https://www.biblegateway.com/passage/?search=Jeremiah%201%3A4-5&version=ESV)** - Now the word of the LORD came to me, saying, Before I formed you in the womb I knew you, and before you were born I consecrated you; I appointed you a prophet to the nations. (ESV)
+
 > **[II Timothy 1:13](https://www.biblegateway.com/passage/?search=2%20Timothy%201%3A13&version=ESV)** - Follow the pattern of the sound words that you have heard from me, in the faith and love that are in Christ Jesus. (ESV)
 
 We love our neighbour the way Jesus commanded:
@@ -4689,9 +4691,18 @@ Being led by the Spirit and obeying God, repenting from sin and passing forward 
 > **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having **purified your souls by your obedience to the truth** for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
 
 
-## Walk by the Spirit = Obey Jesus = Led by the Spirit
+## Walk by the Spirit = Obey Jesus = Led by the Spirit = Walk in the light as He is in the light
+
+-   Walk in the truth
+    -   Walk in a way that is in and alignment, allegiance and agreement with Jesus and Jesus' teachings.
+-   Under Christ, following Christ, aligning to Christ and His teachings
+-   Being sanctified in the Truth
 
 > **[John 12:26](https://www.biblegateway.com/passage/?search=John%2012%3A26&version=ESV)** - If anyone serves me, **he must follow me;** and where I am, there will my servant be also. If anyone serves me, the Father will honor him. (ESV)
+
+Keeping a clean room can be walking in the light but it might also not be.
+What matters is whether or not a person is trusting, believing and obeying Jesus.
+It's the heart that matters.
 
 
 ### God loved us first, and forgave us first
@@ -7111,7 +7122,7 @@ The righteousness of faith:
 
 Abraham had <ins>righteousness attributed to him when he believed God, while he had an obedient and faithful heart towards God:</ins>
 
-> **[Genesis 15:5-6](https://www.biblegateway.com/passage/?search=Genesis%2015%3A5-6&version=ESV)** - And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed the Lord, and he counted it to him as righteousness.
+> **[Genesis 15:5-6](https://www.biblegateway.com/passage/?search=Genesis%2015%3A5-6&version=ESV)** - And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed ([539. aman](https://biblehub.com/interlinear/genesis/15-6.htm)) the Lord, and he counted it to him as righteousness.
 
 The blessing was <ins>assured to him by God because of obedience</ins> (the obedient works of faith brought him <ins>assurance</ins> for God's blessing):
 
@@ -9092,9 +9103,21 @@ We should be seeking Him out with our heart:
 
 > **[Psalms 14:2](https://www.biblegateway.com/passage/?search=Psalms%2014%3A2&version=ESV)** - The LORD looks down from heaven on the children of man, to see if there are any who understand, who seek after God. (ESV)
 
-> **[Psalms 24:3-4](https://www.biblegateway.com/passage/?search=Psalms%2024%3A3-4&version=ESV)** - Who shall ascend the hill of the LORD? And who shall stand in his holy place? He who has clean hands and a pure heart, who does not lift up his soul to what is false and does not swear deceitfully. (ESV)
+> **[Psalms 24:3-4](https://www.biblegateway.com/passage/?search=Psalms%2024%3A3-4&version=ESV)** - Who shall ascend the hill of the LORD? And who shall stand in his holy place? He who has **clean hands and a pure heart**, who does not lift up his soul to what is false and does not swear deceitfully. (ESV)
 
-> **[Hebrews 10:22](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A22&version=ESV)** - let us draw near with a true heart in full assurance of faith, with our hearts sprinkled clean from an evil conscience and our bodies washed with pure water. (ESV)
+> **[Hebrews 10:22](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A22&version=ESV)** - let us draw near with a true heart in full assurance of faith, with our **hearts sprinkled clean from an evil conscience** and our bodies washed with pure water. (ESV)
+
+Jesus can see it and Jesus can heal the heart - sprinkled clean as [Hebrews 10:22](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A22&version=ESV) says:
+
+> **[Jeremiah 17:9-10](https://www.biblegateway.com/passage/?search=Jeremiah%2017%3A9-10&version=ESV)** - The heart is deceitful above all things, and desperately sick; who can understand it? I the LORD search the heart and test the mind, to give every man according to his ways, according to the fruit of his deeds. (ESV)
+
+When I read [Jeremiah 17:9](https://www.biblegateway.com/passage/?search=Jeremiah%2017%3A9&version=ESV) or [Romans 3:3-20](https://www.biblegateway.com/passage/?search=Romans%203%3A3-20&version=ESV), I only think of it as "falling short", not as "total depravity". I believe people can do good and evil. But without the atonement we can't be made perfect. This is the way I believe that Paul the Apostle also viewed it:
+
+> **[Romans 3:21-26](https://www.biblegateway.com/passage/?search=Romans%203%3A21-26&version=ESV)** - But now the righteousness of God has been manifested apart from the law, although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no distinction: for **all have sinned and fall short** of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
+
+We must do good. Christians must do good. Those who are self-seeking and do not obey the Truth, who do not obey Jesus, there will be wrath and fury:
+
+> **[Romans 2:5-11](https://www.biblegateway.com/passage/?search=Romans%202%3A5-11&version=ESV)** - But because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's righteous judgment will be revealed. He will render to each one according to his works: **to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life**; but \_for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. **There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality.** (ESV)
 
 
 ### Do not condemn others. Speak the truth and leave judgement to the Judge
@@ -14765,7 +14788,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgb198f65)
+See: [33.4.1](#org516cc22)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -21334,9 +21357,11 @@ The Apostle John's children/disciples were walking in love while walking in the 
 
 > **[III John 1:4-8](https://www.biblegateway.com/passage/?search=3%20John%201%3A4-8&version=ESV)** - I have no greater joy than to hear that **my children are walking in the truth**. Beloved, it is a <ins>faithful thing **you do** in all your efforts for these brothers</ins>, strangers as they are, who **testified to your love before the church**. You will do well to send them on their journey in a manner worthy of God. For they have gone out **for the sake of the name, accepting nothing from the Gentiles**. Therefore we ought to support people like these, that we may be fellow workers for the truth. (ESV)
 
-God noticed and gave Abram a vision and made a promise to Abram, and Abram believed God and God counted it to Abram as righteousness.
+God noticed and gave Abram a vision and made a promise to Abram, and Abram believed God and God counted it to Abram as righteousness:
 
-> **[Genesis 15:1](https://www.biblegateway.com/passage/?search=Genesis%2015%3A1&version=ESV)** - After these things the word of the Lord came to Abram in a vision: Fear not, Abram, I am your shield; your reward shall be very great. But Abram said, O Lord God, what will you give me, for I continue childless, and the heir of my house is Eliezer of Damascus? And Abram said, Behold, you have given me no offspring, and a member of my household will be my heir. And behold, the word of the Lord came to him: This man shall not be your heir; your very own son shall be your heir. And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed the Lord, and he counted it to him as righteousness.
+> **[Genesis 15:1-6](https://www.biblegateway.com/passage/?search=Genesis%2015%3A1-6&version=ESV)** - After these things the word of the LORD came to Abram in a vision, saying, “Do not fear, Abram, I am a shield to you; Your reward shall be very great.” Abram said, “O Lord GOD, what will You give me, since I am childless, and the heir of my house is Eliezer of Damascus?” And Abram said, “Since You have given no offspring to me, one born in my house is my heir.” Then behold, the word of the LORD came to him, saying, “This man will not be your heir; but one who will come forth from your own body, he shall be your heir.” And He took him outside and said, “Now look toward the heavens, and count the stars, if you are able to count them.” And He said to him, “So shall your descendants be.” Then he believed ([539. aman](https://biblehub.com/interlinear/genesis/15-6.htm)) in the LORD; and He reckoned it to him as righteousness. (NASB)
+
+-   **[539. aman](https://biblehub.com/hebrew/539.htm):** to confirm, support
 
 
 ### Faith and works - they overlap and are *not* mutually exclusive!
@@ -21403,7 +21428,7 @@ Although a gift, salvation must be asked for and sought after:
 
 ***Believing God.***
 
-> **[Genesis 15:1](https://www.biblegateway.com/passage/?search=Genesis%2015%3A1&version=ESV)** - After these things the word of the Lord came to Abram in a vision: Fear not, Abram, I am your shield; your reward shall be very great. But Abram said, O Lord God, what will you give me, for I continue childless, and the heir of my house is Eliezer of Damascus? And Abram said, Behold, you have given me no offspring, and a member of my household will be my heir. And behold, the word of the Lord came to him: This man shall not be your heir; your very own son shall be your heir. And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed the Lord, and he counted it to him as righteousness.
+> **[Genesis 15:1-6](https://www.biblegateway.com/passage/?search=Genesis%2015%3A1-6&version=ESV)** - After these things the word of the Lord came to Abram in a vision: Fear not, Abram, I am your shield; your reward shall be very great. But Abram said, O Lord God, what will you give me, for I continue childless, and the heir of my house is Eliezer of Damascus? And Abram said, Behold, you have given me no offspring, and a member of my household will be my heir. And behold, the word of the Lord came to him: This man shall not be your heir; your very own son shall be your heir. And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed ([539. aman](https://biblehub.com/interlinear/genesis/15-6.htm)) the Lord, and he counted it to him as righteousness.
 
 ***Conviction.***
 
@@ -29201,7 +29226,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgb198f65)
+See: [33.4.1](#org516cc22)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31197,6 +31222,8 @@ Ask God for your needs, which includes asking God for **the Holy Spirit**:
 
 > **[Luke 11:1-11](https://www.biblegateway.com/passage/?search=Luke%2011%3A1-11&version=ESV)** - Now Jesus was praying in a certain place, and when he finished, one of his disciples said to him, Lord, teach us to pray, as John taught his disciples. And he said to them, When you pray, say: Father, hallowed be your name. Your kingdom come. Give us each day our daily bread, and forgive us our sins, for we ourselves forgive everyone who is indebted to us. And lead us not into temptation. And he said to them, Which of you who has a friend will go to him at midnight and say to him, Friend, lend me three loaves, for a friend of mine has arrived on a journey, and I have nothing to set before him; and he will answer from within, Do not bother me; the door is now shut, and my children are with me in bed. I cannot get up and give you anything? I tell you, though he will not get up and give him anything because he is his friend, yet because of his impudence he will rise and give him whatever he needs. And I tell you, ask, and it will be given to you; **seek, and you will find**; knock, and it will be opened to you. For **everyone who asks receives**, and **the one who seeks finds**, and to **the one who knocks it will be opened**. What father among you, if his son asks for a fish, will instead of a fish give him a serpent; (ESV)
 
+> **[Luke 11:13](https://www.biblegateway.com/passage/?search=Luke%2011%3A13&version=ESV)** - If you then, who are evil, know how to give good gifts to your children, how much more will the heavenly Father give the Holy Spirit to those who ask him! (ESV)
+
 Treat others as you would like to be treated:
 
 > **[Matthew 7:12](https://www.biblegateway.com/passage/?search=Matthew%207%3A12&version=ESV)** - So whatever you wish that others would do to you, do also to them, for this is the Law and the Prophets. (ESV)
@@ -31225,9 +31252,17 @@ Being subject to governing authorities does not mean behaving like them, but rat
 
 > **[Romans 13:1](https://www.biblegateway.com/passage/?search=Romans%2013%3A1&version=ESV)** - Let every person be subject to the governing authorities. For there is no authority except from God, and those that exist have been instituted by God. (ESV)
 
-> **[Matthew 23:3](https://www.biblegateway.com/passage/?search=Matthew%2023%3A3&version=ESV)** - so practice and observe whatever they tell you—but not what they do. For they preach, but do not practice. (ESV)
+Practice righteousness, but do so to please God and be accountable to God who sees in secret. Don't feel any need to prove yourself to others:
+
+> **[Matthew 23:3](https://www.biblegateway.com/passage/?search=Matthew%2023%3A3&version=ESV)** - so **practice and observe** whatever they tell you—but not what they do. For **they preach, but do not practice**. (ESV)
+
+Our kingdom is not of this world. We have a heavenly, not earthly perspective. Our treasure is in heaven. Our lives belong to God and we owe Him our faithfulness and service and we can't compromise our duties to God. We don't let Caesar have our hearts and minds. We can't let the devil steal from us our joy of God, or steal our good conscience with God. But if the secular world/kingdoms of this world lays claim to earthly things, we just allow them to have it, knowing we have greater treasure:
 
 > **[Mark 12:17](https://www.biblegateway.com/passage/?search=Mark%2012%3A17&version=ESV)** - Jesus said to them, Render to Caesar the things that are Caesar's, and to God the things that are God's. And they marveled at him. (ESV)
+
+> **[John 18:36](https://www.biblegateway.com/passage/?search=John%2018%3A36&version=ESV)** - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world. (ESV)
+
+> **[Matthew 5:40](https://www.biblegateway.com/passage/?search=Matthew%205%3A40&version=ESV)** - And if anyone would sue you and take your tunic, let him have your cloak as well. (ESV)
 
 > **[Mark 15:14](https://www.biblegateway.com/passage/?search=Mark%2015%3A14&version=ESV)** - And Pilate said to them, Why, what evil has he done? But they shouted all the more, Crucify him. (ESV)
 
@@ -31241,9 +31276,9 @@ Do not despise the little ones:
 
 How to deal with offenders:
 
-> **[Matthew 18:15-17](https://www.biblegateway.com/passage/?search=Matthew%2018%3A15-17&version=ESV)** - If your brother sins against you, go and tell him his fault, between you and him alone. If he listens to you, you have gained your brother. But if he does not listen, take one or two others along with you, that every charge may be established by the evidence of two or three witnesses. If he refuses to listen to them, tell it to the church. And if he refuses to listen even to the church, let him be to you as a Gentile and a tax collector. (ESV)
+> **[Matthew 18:15-17](https://www.biblegateway.com/passage/?search=Matthew%2018%3A15-17&version=ESV)** - <ins>If your brother sins against you, go and tell him his fault, between you and him alone.</ins> If he listens to you, you have gained your brother. But if he does not listen, take one or two others along with you, that every charge may be established by the evidence of two or three witnesses. If he refuses to listen to them, tell it to the church. And if he refuses to listen even to the church, let him be to you as a Gentile and a tax collector. (ESV)
 
-Forgive extremely generously / almost without limits:
+Forgive your family in Christ extremely generously / almost without limits:
 
 > **[Matthew 18:21-22](https://www.biblegateway.com/passage/?search=Matthew%2018%3A21-22&version=ESV)** - Then Peter came up and said to him, Lord, how often will my brother sin against me, and I forgive him? As many as seven times? Jesus said to him, I do not say to you seven times, but seventy times seven. (ESV)
 
@@ -33275,7 +33310,7 @@ Also, in advance of being given the promise, Abraham was faithful to God:
 
 That is when God <ins>rewarded</ins> Abraham for Abraham's faithfulness, with a promise:
 
-> **[Genesis 15:1-6](https://www.biblegateway.com/passage/?search=Genesis%2015%3A1-6&version=ESV)** - After these things the word of the Lord came to Abram in a vision: Fear not, Abram, I am your shield; your reward shall be very great. But Abram said, O Lord God, what will you give me, for I continue childless, and the heir of my house is Eliezer of Damascus? And Abram said, Behold, you have given me no offspring, and a member of my household will be my heir. And behold, the word of the Lord came to him: This man shall not be your heir; your very own son shall be your heir. And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed the Lord, and he counted it to him as righteousness.
+> **[Genesis 15:1-6](https://www.biblegateway.com/passage/?search=Genesis%2015%3A1-6&version=ESV)** - After these things the word of the Lord came to Abram in a vision: Fear not, Abram, I am your shield; your reward shall be very great. But Abram said, O Lord God, what will you give me, for I continue childless, and the heir of my house is Eliezer of Damascus? And Abram said, Behold, you have given me no offspring, and a member of my household will be my heir. And behold, the word of the Lord came to him: This man shall not be your heir; your very own son shall be your heir. And he brought him outside and said, Look toward heaven, and number the stars, if you are able to number them. Then he said to him, So shall your offspring be. And he believed ([539. aman](https://biblehub.com/interlinear/genesis/15-6.htm)) the Lord, and he counted it to him as righteousness.
 
 Rewards are for people who <ins>choose</ins> to do the right thing.
 
@@ -34339,7 +34374,8 @@ With this helmet we stand firm in our identity as children of God, redeemed and 
 
 We cannot forget the **Sword of the Spirit**, which is the word of God.
 This is not just any weapon, but it is our offensive tool in spiritual battles, just as Jesus did in the wilderness.
-We use scripture to demolish strongholds and take every thought captive for Christ as mentioned in [2 Corinthians 10:4-5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-5&version=ESV)
+
+We use scripture to demolish strongholds and take every thought captive for Christ as mentioned in [2 Corinthians 10:4-5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-5&version=ESV):
 
 > **[II Corinthians 10:4-5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-5&version=ESV)** - For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, (ESV)
 
@@ -34396,6 +34432,20 @@ Not by our own strength, but by God's power.
 God equips and enables us to stand firm so in
 the midst of every spiritual battle, let us
 stand strong with the armour He has provided.
+
+In spiritual warfare we are also confronted with situations where we have to make choices on our actions to side with God:
+
+> **[Daniel 1:8-14](https://www.biblegateway.com/passage/?search=Daniel%201%3A8-14&version=ESV)** - But **Daniel resolved that he would not defile himself with the king's food, or with the wine that he drank**. Therefore he asked the chief of the eunuchs to allow him not to defile himself. And God gave Daniel favor and compassion in the sight of the chief of the eunuchs, and the chief of the eunuchs said to Daniel, I fear my lord the king, who assigned your food and your drink; for why should he see that you were in worse condition than the youths who are of your own age? So you would endanger my head with the king. Then Daniel said to the steward whom the chief of the eunuchs had assigned over Daniel, Hananiah, Mishael, and Azariah, Test your servants for ten days; let us be given vegetables to eat and water to drink. Then let our appearance and the appearance of the youths who eat the king's food be observed by you, and deal with your servants according to what you see. So he listened to them in this matter, and tested them for ten days. (ESV)
+
+-   **[youtube.com: Chosen Ones Why People Start To Act STRANGE Around You](https://www.youtube.com/watch?v=ENuFoMX3zuU):** The minute God calls you now you start to know
+    people start to act strange and
+    start to move different. There's a reason
+    behind that. Everything that's
+    taking place in your life, guys, is all
+    spiritual. We have Spirits working through individuals. This
+    is why I tell people all the time you're
+    not dealing with the individual, you are
+    dealing with the spirit behind [them].
 
 
 # Solae
@@ -37522,9 +37572,18 @@ Please, God, continue to sanctify us.
 -   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
 
 
+### Christ is a ransom to be offered to all
+
+There is one God, one Mediator. We are called to take this message to the world. And we definitely should continue to do this:
+
+> **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who **desires all people to be saved and to come to the knowledge of the truth**. (ESV)
+
+> **[I Timothy 2:5-7](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A5-7&version=ESV)** - For there is one God, and there is one mediator between God and men, the man Christ Jesus, who **gave himself as a ransom for all**, which is the testimony given at the proper time. For this I was appointed a preacher and an apostle (I am telling the truth, I am not lying), a teacher of the Gentiles in faith and truth. (ESV)
+
+
 ### A universal opportunity to accept Jesus
 
-I believe all people are given an opportunity at some stage to believe in Jesus. How God makes that happen is God's business.
+I believe all people are given an opportunity at some stage in one way or another to put their faith in Jesus:
 
 > **[Revelation of John 7:9](https://www.biblegateway.com/passage/?search=Revelation%207%3A9&version=ESV)** - After this I looked, and behold, a great multitude that no one could number, from **every nation, from all tribes and peoples and languages**, standing before the throne and before the Lamb, clothed in white robes, with palm branches in their hands, (ESV)
 
