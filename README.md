@@ -741,7 +741,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org42d149d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7df1f2f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4295,6 +4295,10 @@ As we walk in the Spirit of Jesus, we are strengthened to walk as Jesus walked. 
 > **[Hebrews 12:1-3](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-3&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, **so that you may not grow weary or fainthearted.** (ESV)
 
 > **[Philippians 4:13](https://www.biblegateway.com/passage/?search=Philippians%204%3A13&version=ESV)** - I can do all things through him who strengthens me. (ESV)
+
+God provides the strength by which we do service to Him so that Jesus may be glorified and God may be glorified through Jesus:
+
+> **[I Peter 4:11](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A11&version=ESV)** - Whoever speaks, is to do so as one who is speaking the utterances of God; **whoever serves is to do so as one who is serving by the strength which God supplies; so that in all things God may be glorified through Jesus Christ**, to whom belongs the glory and dominion forever and ever. Amen. (NASB)
 
 God literally helps us if we ask Him for help:
 
@@ -14788,7 +14792,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org516cc22)
+See: [33.4.1](#orgfc2cc8e)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29226,7 +29230,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org516cc22)
+See: [33.4.1](#orgfc2cc8e)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31256,7 +31260,11 @@ Practice righteousness, but do so to please God and be accountable to God who se
 
 > **[Matthew 23:3](https://www.biblegateway.com/passage/?search=Matthew%2023%3A3&version=ESV)** - so **practice and observe** whatever they tell you—but not what they do. For **they preach, but do not practice**. (ESV)
 
-Our kingdom is not of this world. We have a heavenly, not earthly perspective. Our treasure is in heaven. Our lives belong to God and we owe Him our faithfulness and service and we can't compromise our duties to God. We don't let Caesar have our hearts and minds. We can't let the devil steal from us our joy of God, or steal our good conscience with God. But if the secular world/kingdoms of this world lays claim to earthly things, we just allow them to have it, knowing we have greater treasure:
+Our kingdom is not of this world. We have a heavenly, not earthly perspective. Our treasure is in heaven. Our lives belong to God and we owe Him our faithfulness and service and we can't compromise our duties to God:
+
+> **[John 18:36](https://www.biblegateway.com/passage/?search=John%2018%3A36&version=ESV)** - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world. (ESV)
+
+Our hearts and minds belong to God and noone else. Noone has the right to force us to obey unrighteousness. We can't let the devil steal from us our joy of God, or steal our good conscience with God. But if the secular world/kingdoms of this world lays claim to earthly things, we just allow them to have it, knowing we have greater treasure, heavenly reward:
 
 > **[Mark 12:17](https://www.biblegateway.com/passage/?search=Mark%2012%3A17&version=ESV)** - Jesus said to them, Render to Caesar the things that are Caesar's, and to God the things that are God's. And they marveled at him. (ESV)
 
