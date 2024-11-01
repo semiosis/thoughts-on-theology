@@ -6900,8 +6900,8 @@ souls purified:
 4.2. Walk by the Spirit = Obey Jesus = Led by the Spirit = Walk in the light as He is in the light
 
 • Walk in the truth
-• Walk in a way that is in and alignment, allegiance and agreement with Jesus and Jesus' teachings.
-• Under Christ, following Christ, aligning to Christ and His teachings
+• Walk in a way that is in alignment, allegiance and agreement with Jesus and Jesus' teachings.
+• Under Christ, in Christ, following Christ, aligning to Christ and His teachings
 • Being sanctified in the Truth
 
   John 12:26 - If anyone serves me, he must follow me; and where I am, there will my servant be also. If anyone
@@ -19172,6 +19172,11 @@ themselves condemn:
   kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? But
   because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's
   righteous judgment will be revealed. (ESV)
+
+Turn away from sin and be corrected by the Truth:
+
+  Daniel 9:13 - As it is written in the Law of Moses, all this calamity has come upon us; yet we have not
+  entreated the favor of the LORD our God, turning from our iniquities and gaining insight by your truth. (ESV)
 
 We must stop doing evil:
 
@@ -37421,9 +37426,9 @@ youtube.com: Free from Judgment, Fighting Sin, Full Assurance
   Jesus from the law of sin and death. (ESV)
 
   Matthew 5:29-30 - If your right eye causes you to sin, tear it out and throw it away. For it is better that you
-  lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to
-  sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body
-  go into hell. (ESV)
+  lose one of your members than that your whole body be thrown into hell (1067. geenna). And if your right hand
+  causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that
+  your whole body go into hell. (ESV)
 
   I Corinthians 5:5 - you are to deliver this man to Satan for the destruction of the flesh, so that his spirit
   may be saved in the day of the Lord. (ESV)
@@ -44763,9 +44768,9 @@ Be reconciled to one another:
 Take sin very seriously:
 
   Matthew 5:29-30 - If your right eye causes you to sin, tear it out and throw it away. For it is better that you
-  lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to
-  sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body
-  go into hell. (ESV)
+  lose one of your members than that your whole body be thrown into hell (1067. geenna). And if your right hand
+  causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that
+  your whole body go into hell. (ESV)
 
 Follow the commandments from the heart, and in truth, accountable to God:
 
@@ -45205,9 +45210,9 @@ Following Jesus:
 62.1.7.
 
   Matthew 5:29-30 - If your right eye causes you to sin, tear it out and throw it away. For it is better that you
-  lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to
-  sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body
-  go into hell. (ESV)
+  lose one of your members than that your whole body be thrown into hell (1067. geenna). And if your right hand
+  causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that
+  your whole body go into hell. (ESV)
 
 62.1.8. Do not swear an oath at all
 
@@ -52912,15 +52917,20 @@ saved:
   power of our Lord Jesus, you are to deliver this man to Satan for the destruction of the flesh, so that his
   spirit may be saved in the day of the Lord. (ESV)
 
+G1067. geenna
+Hell is the place of the future punishment called "Gehenna" or "Gehenna of fire". This was originally the valley
+of Hinnom, south of Jerusalem, where the filth and dead animals of the city were cast out and burned; a fit symbol
+of the wicked and their future destruction.
+
   Matthew 5:29-30 - If your right eye causes you to sin, tear it out and throw it away. For it is better that you
-  lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to
-  sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body
-  go into hell. (ESV)
+  lose one of your members than that your whole body be thrown into hell (G1067. geenna). And if your right hand
+  causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that
+  your whole body go into hell. (ESV)
 
 Me speculating
 
 Hades as it's used in this way could possibly look appearance-wise the same, but perhaps God re-organises cities
-and their inhabitants (me speculating), say forcing unrepentant sinners to other cities. Or perhaps it really is a
+and their inhabitants (me speculating), say forcing unrepentant sinners to other cities. I still believe it's also
 literal place.
 
 Luke 10:15 - And you, Capernaum, will you be exalted to heaven? You shall be brought down to Hades. (ESV)
@@ -53388,6 +53398,14 @@ youtube.com: All Honor {Consuming Fire} | Jesus Image
 Song
 youtube.com: Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship
 
+youtube.com: Hillsong - Saviour King 2007
+Life began for me in just the realisation that there is the absolute truth, and that is a Person, Jesus, and
+knowing Him - knowing the Christ - is knowing the hands that created me. The thing is, I've known what it is to
+live without truth, and then to be living in truth, and it's a difference between being bound, and then living in
+absolute freedom. Like I just think about the grace of God, just His grace, undeserved for me, bought at the
+highest price and I think in that understanding alone there's no option but to give Him everything I have. That is
+the only possible response.
+
   Isaiah 64:4 - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts
   for those who wait for him. (ESV)
 
@@ -53527,11 +53545,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-10-30 Wed 00:00
+Date: 2024-11-02 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-10-30 Wed 21:49
+Created: 2024-11-02 Sat 10:06
 
 Validate
 

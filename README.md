@@ -741,7 +741,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7df1f2f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb5eba9c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -4698,8 +4698,8 @@ Being led by the Spirit and obeying God, repenting from sin and passing forward 
 ## Walk by the Spirit = Obey Jesus = Led by the Spirit = Walk in the light as He is in the light
 
 -   Walk in the truth
-    -   Walk in a way that is in and alignment, allegiance and agreement with Jesus and Jesus' teachings.
--   Under Christ, following Christ, aligning to Christ and His teachings
+    -   Walk in a way that is in alignment, allegiance and agreement with Jesus and Jesus' teachings.
+-   Under Christ, in Christ, following Christ, aligning to Christ and His teachings
 -   Being sanctified in the Truth
 
 > **[John 12:26](https://www.biblegateway.com/passage/?search=John%2012%3A26&version=ESV)** - If anyone serves me, **he must follow me;** and where I am, there will my servant be also. If anyone serves me, the Father will honor him. (ESV)
@@ -13077,6 +13077,10 @@ Repentance involves turning away from sin, and all believers are supposed to tur
 
 > **[Romans 2:1-5](https://www.biblegateway.com/passage/?search=Romans%202%3A1-5&version=ESV)** - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. We know that the judgment of God rightly falls on those who do such things. Do you suppose, O man—you who judge those who do such things and yet do them yourself—that you will escape the judgment of God? Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? But because of your <ins>hard and impenitent heart</ins> you are storing up wrath for yourself on the day of wrath when God's righteous judgment will be revealed. (ESV)
 
+Turn away from sin and be corrected by the Truth:
+
+> **[Daniel 9:13](https://www.biblegateway.com/passage/?search=Daniel%209%3A13&version=ESV)** - As it is written in the Law of Moses, all this calamity has come upon us; yet we have not <ins>entreated the favor of the LORD our God</ins>, **turning from our iniquities and gaining insight by your truth**. (ESV)
+
 We must stop doing evil:
 
 > **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works: **to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life**; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for **every human being who does evil**, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
@@ -14792,7 +14796,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgfc2cc8e)
+See: [33.4.1](#org5baff61)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -26063,7 +26067,7 @@ If the spirit spouse stuff is actually related to leftover sin in the body/mind/
 
 > **[Romans 7:22-8](https://www.biblegateway.com/passage/?search=Romans%207%3A22-8&version=ESV):2** - For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. There is therefore now no condemnation for those who are in Christ Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
 
-> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
+> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell ([1067. geenna](https://biblehub.com/greek/1067.htm)). And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
 
 > **[I Corinthians 5:5](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A5&version=ESV)** - you are to deliver this man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
 
@@ -29230,7 +29234,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgfc2cc8e)
+See: [33.4.1](#org5baff61)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31154,7 +31158,7 @@ Be reconciled to one another:
 
 Take sin very seriously:
 
-> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
+> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell ([1067. geenna](https://biblehub.com/greek/1067.htm)). And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
 
 Follow the commandments **from the heart**, and in truth, accountable to God:
 
@@ -31427,7 +31431,7 @@ Following Jesus:
 
 ### 
 
-> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
+> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell ([1067. geenna](https://biblehub.com/greek/1067.htm)). And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
 
 
 ### Do not swear an oath at all
@@ -37213,10 +37217,12 @@ If a person is a remorseless, unrepentant sinner, it's better for them that thei
 
 > **[I Corinthians 5:4-5](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A4-5&version=ESV)** - When you are assembled in the name of the Lord Jesus and my spirit is present, with the power of our Lord Jesus, you are to deliver this man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
 
-> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell. And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
+-   **[G1067. geenna](https://www.blueletterbible.org/lexicon/g1067/kjv/tr/0-1/):** Hell is the place of the future punishment called "Gehenna" or "Gehenna of fire". This was originally the [valley of Hinnom](https://en.wikipedia.org/wiki/Gehenna), south of Jerusalem, where the filth and dead animals of the city were cast out and burned; a fit symbol of the wicked and their future destruction.
+
+> **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)** - If your right eye causes you to sin, tear it out and throw it away. For it is better that you lose one of your members than that your whole body be thrown into hell ([G1067. geenna](https://www.blueletterbible.org/lexicon/g1067/kjv/tr/0-1/)). And if your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your members than that your whole body go into hell. (ESV)
 
 -   **Me speculating:** Hades as it's used in this way could possibly look
-    appearance-wise the same, but perhaps God re-organises cities and their inhabitants (me speculating), say forcing unrepentant sinners to other cities. Or perhaps it really is a literal place.
+    appearance-wise the same, but perhaps God re-organises cities and their inhabitants (me speculating), say forcing unrepentant sinners to other cities. I still believe it's also literal place.
     
     **[Luke 10:15](https://www.biblegateway.com/passage/?search=Luke%2010%3A15&version=ESV)** - And you, Capernaum, will you be exalted to heaven? You shall be brought down to Hades. (ESV)
 
@@ -37552,6 +37558,20 @@ It should be:
 -   **Medley:** [youtube.com: Holy Are You Lord Medley | Jesus Image](https://www.youtube.com/watch?v=8xs_wiKWZuc)
 -   **Song:** [youtube.com: All Honor {Consuming Fire} | Jesus Image](https://www.youtube.com/watch?v=DeHWWK3Vmnk)
 -   **Song:** [youtube.com: Praise {feat. Brandon Lake, Chris Brown & Chandler Moore} | Elevation Worship](https://www.youtube.com/watch?v=f2oxGYpuLkw)
+-   **[youtube.com: Hillsong - Saviour King 2007](https://youtu.be/kDRaaVKFV1s?t=2801):** Life began for me in just the realisation
+    that there is the absolute truth, and that is a Person,
+    Jesus, and knowing Him - knowing the Christ -
+    is knowing the hands that created me. The
+    thing is, I've known what it is to live
+    without truth, and then to be living in
+    truth, and it's a difference between
+    being *bound*, and then *living in absolute freedom*.
+    Like I just think about the
+    grace of God, just His grace, undeserved
+    for me, bought at the highest price and I
+    think in that understanding alone
+    there's no option but to give Him
+    everything I have. That is the only possible response.
 
 > **[Isaiah 64:4](https://www.biblegateway.com/passage/?search=Isaiah%2064%3A4&version=ESV)** - From of old no one has heard or perceived by the ear, no eye has seen a God besides you, who acts for those who wait for him. (ESV)
 
