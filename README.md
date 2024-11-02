@@ -742,7 +742,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9d062e0) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf84ddf6) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -1139,6 +1139,10 @@ We are freed from, for example, making the worries of the world our first though
     
     One of the things we're saved from is this awful bent towards sinning.
 
+Without blood atonement, corruption gets progressively worse and we perish:
+
+> **[Hebrews 9:22](https://www.biblegateway.com/passage/?search=Hebrews%209%3A22&version=ESV)** - Indeed, under the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness of sins. (ESV)
+
 Our salvation looks like being cleaned up by His spirit, behaving in a way now reflecting that we have knowledge of God (i.e. godliness), and not worldliness, treasuring God and one another, and letting go of treasuring/valuing worldly things, with hope for eternal life:
 
 > **[Titus 2:11-13](https://www.biblegateway.com/passage/?search=Titus%202%3A11-13&version=ESV)** - For the grace of God has appeared, bringing **salvation for all people**, <ins>training us</ins> to **renounce ungodliness and worldly passions**, and to **live self-controlled, upright, and godly lives** <ins>in the present age</ins>, **waiting for our blessed hope**, the appearing of the glory of our great God and Savior Jesus Christ, (ESV)
@@ -1147,7 +1151,7 @@ Our salvation looks like being cleaned up by His spirit, behaving in a way now r
 
 We're supposed to arrive at doing the will of God from the heart, loving one another in peace:
 
-> **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+> **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of **God our Savior, who desires all people to be saved and to come to the knowledge of the truth.** (ESV)
 
 We must embrace sanctification:
 
@@ -14808,7 +14812,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org89e402f)
+See: [33.4.1](#orgb93e684)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -21241,7 +21245,7 @@ As we come into Jesus' Kingdom, we should be praying for and trying to lead othe
 
 > **[Matthew 9:37-38](https://www.biblegateway.com/passage/?search=Matthew%209%3A37-38&version=ESV)** - Then he said to his disciples, The harvest is plentiful, but the laborers are few; therefore pray earnestly to the Lord of the harvest to send out laborers into his harvest. (ESV)
 
-> **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+> **[I Timothy 2:1-4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A1-4&version=ESV)** - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life, godly and dignified in every way. This is good, and it is pleasing in the sight of **God our Savior, who desires all people to be saved and to come to the knowledge of the truth.** (ESV)
 
 And build each other up to help each other attain unity of faith and knowledge of the Lord Jesus Christ, the Son of God:
 
@@ -29246,7 +29250,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org89e402f)
+See: [33.4.1](#orgb93e684)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -37199,6 +37203,8 @@ As God judges, unrighteous people remain under punishment until they are judged 
 
 
 ### The outcome of just judgement for all
+
+> **[Job 12:10](https://www.biblegateway.com/passage/?search=Job%2012%3A10&version=ESV)** - In his hand is the life of every living thing and the breath of all mankind. (ESV)
 
 Glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality.
 
