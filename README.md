@@ -256,6 +256,7 @@ I'm trying to side with Jesus over issues regarding the evil which is still pres
 > 
 > I appreciated hearing about Tucker Carlson's journey here and I also appreciate Living Waters' very straight-forward gospel message:
 > 
+> -   [youtube.com: Recent Demon Attack Leads Tucker Carlson to CHRIST?](https://www.youtube.com/watch?v=iPI-EbP26EU)
 > -   [youtube.com: Tucker Says Supernatural Beings Are Taking Physical Form. Here's What He Means.](https://www.youtube.com/watch?v=5RboaLY3GDE)
 
 -   **Acknowledgement:** To be able to have affection for God and treasure God, and have a desire for God is such a gift&#x2026;. Thank you John Piper for helping me to see that, and lead me into that truth&#x2026; It makes so much sense in hindsight. Nothing in this world could replace the gift of being able to know God Himself and have an affectionate, treasuring, obedient, believing, desiring love for God.
@@ -741,7 +742,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb5eba9c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9d062e0) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -8346,6 +8347,17 @@ We should use the Word of God to come against even arguments and opinions which 
 
 > **[Proverbs 16:32](https://www.biblegateway.com/passage/?search=Proverbs%2016%3A32&version=ESV)** - Whoever is slow to anger is better than the mighty, and <ins>he who rules his spirit</ins> than he who takes a city. (ESV)
 
+Follow God's statutes until the end. It's very blessed to do so. Allow God to change our heart and take our idols away from us and teach us to love Him and others as we take our thoughts captive to be obedient to Jesus:
+
+-   **Encouragement:** [youtube.com: Psalm 119:33 follow Gods statutes until the end.](https://www.youtube.com/watch?v=E52T8RMiZ2k)
+
+Having given your money away to the poor, then when the devil typically tempts us through other people
+or through a dream, or whatever way, by saying that "Christians still have their vices".
+Then instead of spending money on whatever has previously been a vice,
+we should put that money into God's Kingdom, and I truly believe that God sanctifies and works in us as we do this.
+
+> **[Psalms 119:1-19](https://www.biblegateway.com/passage/?search=Psalms%20119%3A1-19&version=ESV)** - Blessed are those whose way is blameless, who walk in the law of the LORD! Aleph Blessed are those who keep his testimonies, who seek him with their whole heart, who also do no wrong, but walk in his ways! You have commanded your precepts to be kept diligently. Oh that my ways may be steadfast in keeping your statutes! Then I shall not be put to shame, having my eyes fixed on all your commandments. I will praise you with an upright heart, when I learn your righteous rules. I will keep your statutes; do not utterly forsake me! How can a young man keep his way pure? By guarding it according to your word. Beth With my whole heart I seek you; let me not wander from your commandments! I have stored up your word in my heart, that I might not sin against you. Blessed are you, O LORD; teach me your statutes! With my lips I declare all the rules of your mouth. In the way of your testimonies I delight as much as in all riches. I will meditate on your precepts and fix my eyes on your ways. I will delight in your statutes; I will not forget your word. Deal bountifully with your servant, that I may live and keep your word. Gimel Open my eyes, that I may behold wondrous things out of your law. I am a sojourner on the earth; hide not your commandments from me! (ESV)
+
 
 ## The free gift of salvation is to be set free from sin to be a slave of righteousness
 
@@ -14796,7 +14808,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5baff61)
+See: [33.4.1](#org89e402f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29234,7 +29246,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5baff61)
+See: [33.4.1](#org89e402f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

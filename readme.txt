@@ -292,6 +292,7 @@ youtube.com youtube.com: Day 9: Repent New York City | Phillip Blair
   I appreciated hearing about Tucker Carlson's journey here and I also appreciate Living Waters' very
   straight-forward gospel message:
 
+    • youtube.com: Recent Demon Attack Leads Tucker Carlson to CHRIST?
     • youtube.com: Tucker Says Supernatural Beings Are Taking Physical Form. Here's What He Means.
 
 Acknowledgement
@@ -12191,6 +12192,30 @@ against slip-ups.
 
   Proverbs 16:32 - Whoever is slow to anger is better than the mighty, and he who rules his spirit than he who
   takes a city. (ESV)
+
+Follow God's statutes until the end. It's very blessed to do so. Allow God to change our heart and take our idols
+away from us and teach us to love Him and others as we take our thoughts captive to be obedient to Jesus:
+
+Encouragement
+youtube.com: Psalm 119:33 follow Gods statutes until the end.
+
+Having given your money away to the poor, then when the devil typically tempts us through other people or through
+a dream, or whatever way, by saying that "Christians still have their vices". Then instead of spending money on
+whatever has previously been a vice, we should put that money into God's Kingdom, and I truly believe that God
+sanctifies and works in us as we do this.
+
+  Psalms 119:1-19 - Blessed are those whose way is blameless, who walk in the law of the LORD! Aleph Blessed are
+  those who keep his testimonies, who seek him with their whole heart, who also do no wrong, but walk in his ways!
+  You have commanded your precepts to be kept diligently. Oh that my ways may be steadfast in keeping your
+  statutes! Then I shall not be put to shame, having my eyes fixed on all your commandments. I will praise you
+  with an upright heart, when I learn your righteous rules. I will keep your statutes; do not utterly forsake me!
+  How can a young man keep his way pure? By guarding it according to your word. Beth With my whole heart I seek
+  you; let me not wander from your commandments! I have stored up your word in my heart, that I might not sin
+  against you. Blessed are you, O LORD; teach me your statutes! With my lips I declare all the rules of your
+  mouth. In the way of your testimonies I delight as much as in all riches. I will meditate on your precepts and
+  fix my eyes on your ways. I will delight in your statutes; I will not forget your word. Deal bountifully with
+  your servant, that I may live and keep your word. Gimel Open my eyes, that I may behold wondrous things out of
+  your law. I am a sojourner on the earth; hide not your commandments from me! (ESV)
 
 5.12. The free gift of salvation is to be set free from sin to be a slave of righteousness
 
@@ -53545,11 +53570,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-11-02 Sat 00:00
+Date: 2024-11-03 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-02 Sat 10:06
+Created: 2024-11-03 Sun 09:34
 
 Validate
 
