@@ -742,7 +742,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf84ddf6) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6b8e4ec) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -5080,6 +5080,40 @@ Father God has given Jesus Christ all authority in heaven and on earth. In other
 And God in His mercy saves us and brings us to Himself through Jesus His Son:
 
 > **[Ephesians 2:1-5](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-5&version=ESV)** - And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved— (ESV)
+
+As I was on my way driving to Elim church today, I was thinking "external holiness/cleanliness" is a good thing.
+Jesus told some hypocritical Pharisees who were teachers of the Law but unclean within that they were like \_whitewashed tombs.
+
+> **[Matthew 23:26-28](https://www.biblegateway.com/passage/?search=Matthew%2023%3A26-28&version=ESV)** - You blind Pharisee! First clean the inside of the cup and the plate, that the outside also may be clean. Woe to you, scribes and Pharisees, hypocrites! For you are like whitewashed tombs, which outwardly appear beautiful, but within are full of dead people's bones and all uncleanness. So you also outwardly appear righteous to others, but within you are full of hypocrisy and lawlessness. (ESV)
+
+The Pharisees were focusing on external cleanliness but ignoring their own hearts.
+
+When we think of sin, it involves being enslaved to the practice of it, and it also involves the heart's desire of it.
+Sinful thoughts should be quickly disposed of and not allowed to be sown in the heart.
+
+If we focus on cleaning the heart through obedience to the Truth and the washing of the Word in our heart, then that's the most important thing. We can be justified by humbling ourselves before God.
+
+> **[Luke 18:11-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A11-14&version=ESV)** - The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, **God, be merciful to me, a sinner**! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+But our external circumstances may be making it difficult to meet the external appearance of obedient faith, such as "being employed and working money" which is important as to bear one's own load by working is a commandment from the Apostle Paul, but having paid employment in this world to earn your keep is no sure indication of actual obedient faith in the heart of the person.
+
+> **[II Thessalonians 3:10](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A10&version=ESV)** - For even when we were with you, we would give you this command: If anyone is not willing to work, let him not eat. (ESV)
+
+If we focus on cleaning the heart through obedience to the Truth and the washing of the Word, then that's the priority over trying to maintain the external appearance of godliness. The devil can take your job, but should not be allowed to take your obedience and faith and love for the Lord Jesus. It's good and glorifies God to keep obeying Jesus' commandments to serve Him, serving others, even if the devil puts pressure on you to make you fear for your own self-preservation.
+
+That doesn't mean we don't endeavour to meet the commandment of the Apostle Paul but we are baptised into Christ, not into Paul, and Christ is our Master, not Paul, nor the Law of Moses. We are enslaved to Christ who is our righteousness - we are enslaved to Righteousness, obeying Jesus. The requirement of the Law is really fulfilled in our hearts and then that should become apparent on our outside.
+
+We are made clean on the inside of the Word which Jesus has spoken to us:
+
+> **[John 15:3](https://www.biblegateway.com/passage/?search=John%2015%3A3&version=ESV)** - Already you are clean because of the word that I have spoken to you. (ESV)
+
+> **[Ephesians 1:13](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, (ESV)
+
+> **[Acts 10:43](https://www.biblegateway.com/passage/?search=Acts%2010%3A43&version=ESV)** - To him all the prophets bear witness that everyone who believes in him receives forgiveness of sins through his name. (ESV)
+
+That Word should clean our souls as we believe/obey it. The gospel (that seed of Truth) then cleans our hearts as we believe/obey it. And then we live in good conscience with God (forgiven and repentant), holding to the Truth - all of what we have heard from Jesus including the teaching about godliness (righteous living in accord with the knowledge of God, in accord with repentance). Our exterior behaviour also is cleaned as our hearts and thoughts are cleansed. We must continue to believe and obey Jesus as we read/hear His words.
+
+> **[Matthew 17:5](https://www.biblegateway.com/passage/?search=Matthew%2017%3A5&version=ESV)** - He was still speaking when, behold, a bright cloud overshadowed them, and a voice from the cloud said, This is my beloved Son, with whom I am well pleased; listen to him. (ESV)
 
 
 ### Anti-christ-like behaviour
@@ -14812,7 +14846,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgb93e684)
+See: [33.4.1](#org602d555)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29250,7 +29284,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgb93e684)
+See: [33.4.1](#org602d555)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
