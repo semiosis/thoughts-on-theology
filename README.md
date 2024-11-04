@@ -742,7 +742,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6b8e4ec) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8c26e92) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -14846,7 +14846,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org602d555)
+See: [33.4.1](#orgbbd279a)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -17254,6 +17254,11 @@ Therefore, it's an ongoing thing.
 But for our prayer requests to be answered this way, we must be keeping His commandments and do what pleases Him:
 
 > **[I John 3:21-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A21-24&version=ESV)** - Beloved, if our heart does not condemn us, **we have confidence before God**; and <ins>whatever we ask we receive from him</ins>, **because we keep his commandments and do what pleases him**. And this is his commandment, that we **believe in the name of his Son Jesus Christ and love one another**, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+If we want our prayers answered by Father God, we must trust Jesus came from God as we treasure Jesus and treasure His words. It's **in that day** (when we are trusting Jesus and keeping His commandments, doing what pleases God), doing God's will, whatever we may ask of the Father in Jesus' name, He will give to us.
+In what day? In the day that the Father Himself loves (agape loves) us **because we have loved (agape loved) Jesus and trusted that He came from God**.
+
+> **[John 16:22-27](https://www.biblegateway.com/passage/?search=John%2016%3A22-27&version=ESV)** - So also you have sorrow now, but I will see you again and your hearts will rejoice, and no one will take your joy from you. **In that day you will ask nothing of me. Truly, truly, I say to you, whatever you ask of the Father in my name, he will give it to you.** Until now you have asked nothing in my name. Ask, and you will receive, that your joy may be full. I have said these things to you in figures of speech. The hour is coming when I will no longer speak to you in figures of speech but will tell you plainly about the Father. **In that day you will ask in my name, and I do not say to you that I will ask the Father on your behalf; for the Father himself loves you, because you have loved me and have believed that I came from God.** (ESV)
 
 > **[Proverbs 14:26](https://www.biblegateway.com/passage/?search=Proverbs%2014%3A26&version=ESV)** - In the fear of the LORD one has strong confidence, and his children will have a refuge. (ESV)
 
@@ -29284,7 +29289,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org602d555)
+See: [33.4.1](#orgbbd279a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
