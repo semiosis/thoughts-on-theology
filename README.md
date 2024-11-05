@@ -742,7 +742,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org775e0ec) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org0338f5b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11518,9 +11518,41 @@ We are commanded by Paul the Apostle to present our members as **slaves to right
 
 > **[Romans 6:19](https://www.biblegateway.com/passage/?search=Romans%206%3A19&version=ESV)** - I am speaking in human terms, because of your natural limitations. For just as you once presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading to sanctification. (ESV)
 
-We were purchased with the precious blood of Jesus Christ and we are supposed to be changed and purified to no longer being lawless!
+Here, I read light as basically a synonym for the truth:
+
+> **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
+
+> **[I John 2:9-11](https://www.biblegateway.com/passage/?search=1%20John%202%3A9-11&version=ESV)** - Whoever says he is in the light and hates his brother is still in darkness. Whoever loves his brother abides in the light, and in him there is no cause for stumbling. But whoever hates his brother is in the darkness and walks in the darkness, and does not know where he is going, because the darkness has blinded his eyes. (ESV)
+
+Having fellowship with Him (Jesus) involves practicing the Truth as much as it involves believing the truth:
+
+> **[I John 1:6](https://www.biblegateway.com/passage/?search=1%20John%201%3A6&version=ESV)** - If we say we have **fellowship with him** while we <ins>walk</ins> in darkness, we lie and do not **practice the truth**. (ESV)
+
+We were purchased with the precious blood of Jesus Christ and we are supposed to be changed and purified to no longer being lawless!:
 
 > **[Titus 2:14](https://www.biblegateway.com/passage/?search=Titus%202%3A14&version=ESV)** - who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works. (ESV)
+
+We confess as sinful what the Bible says is sinful, then when we are tempted to obey unrighteousness we instead obey Righteousness (we obey Jesus) and when we continue learning from Jesus we believe and affirm what He says, becoming sanctified by the Truth as we go, while holding to the Truth of who He is with belief in His name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) we also maintain we are forgiven by faith in His name. For example, if we <ins>confess that what is sinful is sinful instead of denying that it is sinful</ins> then when we are tempted to commit sin, we instead choose to put our time/money/effort that would have been spent practicing  that sinful (such as a vice) towards supporting your neighbour out of obedience to Jesus (especially those you consider are in the family of Christ), we are being sanctified by obedience to the truth:
+
+> **[I John 1:9](https://www.biblegateway.com/passage/?search=1%20John%201%3A9&version=ESV)** - If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. (ESV)
+
+Believe and obey Jesus:
+
+> **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same. And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
+
+We must submit to the Righteousness of God, and that means accepting the testimony of God regarding His Son:
+
+> **[John 3:19](https://www.biblegateway.com/passage/?search=John%203%3A19&version=ESV)** - And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. (ESV)
+
+> **[I John 4:10](https://www.biblegateway.com/passage/?search=1%20John%204%3A10&version=ESV)** - In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. (ESV)
+
+> **[John 9:39](https://www.biblegateway.com/passage/?search=John%209%3A39&version=ESV)** - Jesus said, For judgment I came into this world, that those who do not see may see, and those who see may become blindn. (ESV)
+
+So the righteous ones walk in the light as He is in the light, believing and obeying Jesus, loving their neighbour as Jesus loved them first, and they submit to the Righteousness of God (Jesus Christ).
+
+Our faith we keep between ourself and God. You're accountable to Jesus for your beliefs:
+
+> **[Romans 14:22](https://www.biblegateway.com/passage/?search=Romans%2014%3A22&version=ESV)** - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. (ESV)
 
 We must not allow ourselves to be conformed to or carried away by the error of lawless people. The error is their lawlessness:
 
@@ -14846,7 +14878,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org9ed176e)
+See: [33.4.1](#org88c40a3)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29289,7 +29321,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org9ed176e)
+See: [33.4.1](#org88c40a3)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
