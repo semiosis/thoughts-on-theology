@@ -25,78 +25,82 @@ This is a short preview of where I'm at with my theology. I don't claim to know 
      8      believes in him receives forgiveness of sins through his name.
      9      (ESV)
     10  
-    11      Ephesians 1:7-12 - In him we have redemption through his blood, the
-    12      forgiveness of our trespasses, according to the riches of his grace, which
-    13      he lavished upon us, in all wisdom and insight making known to us the
-    14      mystery of his will, according to his purpose, which he set forth in
-    15      Christ as a plan for the fullness of time, to unite all things in him,
-    16      things in heaven and things on earth.
-    17      In him we have obtained an inheritance, having been predestined according
-    18      to the purpose of him who works all things according to the counsel of his
-    19      will, so that we who were the first to hope in Christ might be to the
-    20      praise of his glory.
-    21      (ESV)
-    22  
-    23  Trust, obedience, belief and faith are not really separate things when it
-    24  comes to believing the Word of God in the heart, and if a person has put their
-    25  trust in Jesus then they've done something which is in the will of God.
+    11  Then we call on Jesus to save us, (usually out of desperation).
+    12  Noone calls on a law to save them. We call on Jesus to save us.
+    13  This is another act of obedience to the Gospel.
+    14  
+    15      Ephesians 1:7-12 - In him we have redemption through his blood, the
+    16      forgiveness of our trespasses, according to the riches of his grace, which
+    17      he lavished upon us, in all wisdom and insight making known to us the
+    18      mystery of his will, according to his purpose, which he set forth in
+    19      Christ as a plan for the fullness of time, to unite all things in him,
+    20      things in heaven and things on earth.
+    21      In him we have obtained an inheritance, having been predestined according
+    22      to the purpose of him who works all things according to the counsel of his
+    23      will, so that we who were the first to hope in Christ might be to the
+    24      praise of his glory.
+    25      (ESV)
     26  
-    27  Our faith and obedience are supposed to continue as we are sanctified and are
-    28  taught by Christ, especially by the teachings He taught while walking the
-    29  earth even before His crucifixion.
+    27  Trust, obedience, belief and faith are not really separate things when it
+    28  comes to believing the Word of God in the heart, and if a person has put their
+    29  trust in Jesus then they've done something which is in the will of God.
     30  
-    31  Trust, belief and obedience, and even agape and knowledge of God when they are
-    32  settled in the heart is what God sees and God is our justifier, and He
-    33  justifies the one who puts their faith/trust in Jesus Christ.
+    31  Our faith and obedience are supposed to continue as we are sanctified and are
+    32  taught by Christ, especially by the teachings He taught while walking the
+    33  earth even before His crucifixion.
     34  
-    35  We believe by faith that we are justified by the blood of Jesus and just get
-    36  to serving God with agape love proceeding from a good conscience having
-    37  believed the Gospel and placed our faith in Christ.
+    35  Trust, belief and obedience, and even agape and knowledge of God when they are
+    36  settled in the heart is what God sees and God is our justifier, and He
+    37  justifies the one who puts their faith/trust in Jesus Christ.
     38  
-    39  Christ died for our sins according to the Scriptures, He was buried, He was
-    40  raised on the third day according to the Scriptures, and He appeared to many
-    41  eye-witnesses.
+    39  We believe by faith that we are justified by the blood of Jesus and just get
+    40  to serving God with agape love proceeding from a good conscience having
+    41  believed the Gospel and placed our faith in Christ.
     42  
-    43  In this way did God agape love (treasure/value) the world, that He gave His
-    44  Only-Begotten Son that everyone who is trusting/believing in Him may not
-    45  perish, but may have life everlasting which is to be reconciled to our Creator
-    46  and His Son, in relationship with God forever, never perishing nor being cut
-    47  off from our source of life and all that is good.
-    48  
-    49  Agape love is a treasuring/valuing/preserving/compassion love and God the
-    50  Father and Jesus God the Son should be our first agape love, and those in the
-    51  family of Christ we must also agape love, and our spouses we must agape love
-    52  and we are even called to agape all people, but we're supposed to have no
-    53  agape for this world.
-    54  
-    55  Agape-loving our neighbour as ourself necessitates not bearing a grudge against
-    56  our neighbour and not taking vengeance - there is no fear or grudge or
-    57  vengence in agape love because agape love is selfless and compassionate and
-    58  agape love gives everything and holds nothing back to have a chance to
-    59  preserve and protect, to save. God would have sent Jesus even if there was
-    60  only one more person to save. Agape comes from God. God loved us this way and
-    61  paid the price for us for sin to be defeated that we may be reconciled back to
-    62  Him through Jesus. And we pass this type of love, agape love, forward to
-    63  others.
-    64  
-    65  We move forward serving God with hope to see His glory.
-    66  
-    67  Obedience is in the heart, along with belief in the Truth and understanding of
-    68  the gospel.
-    69  
-    70  Obedience can exist without work.
-    71  
-    72  Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
-    73  also be followed by faith where it's a matter of seeking praise from God and
-    74  not from men.
+    43  Christ died for our sins according to the Scriptures, He was buried, He was
+    44  raised on the third day according to the Scriptures, and He appeared to many
+    45  eye-witnesses.
+    46  
+    47  In this way did God agape love (treasure/value) the world, that He gave His
+    48  Only-Begotten Son that everyone who is trusting/believing in Him may not
+    49  perish, but may have life everlasting which is to be reconciled to our Creator
+    50  and His Son, in relationship with God forever, never perishing nor being cut
+    51  off from our source of life and all that is good.
+    52  
+    53  Agape love is a treasuring/valuing/preserving/compassion love and God the
+    54  Father and Jesus God the Son should be our first agape love, and those in the
+    55  family of Christ we must also agape love, and our spouses we must agape love
+    56  and we are even called to agape all people, but we're supposed to have no
+    57  agape for this world.
+    58  
+    59  Agape-loving our neighbour as ourself necessitates not bearing a grudge against
+    60  our neighbour and not taking vengeance - there is no fear or grudge or
+    61  vengence in agape love because agape love is selfless and compassionate and
+    62  agape love gives everything and holds nothing back to have a chance to
+    63  preserve and protect, to save. God would have sent Jesus even if there was
+    64  only one more person to save. Agape comes from God. God loved us this way and
+    65  paid the price for us for sin to be defeated that we may be reconciled back to
+    66  Him through Jesus. And we pass this type of love, agape love, forward to
+    67  others.
+    68  
+    69  We move forward serving God with hope to see His glory.
+    70  
+    71  Obedience is in the heart, along with belief in the Truth and understanding of
+    72  the gospel.
+    73  
+    74  Obedience can exist without work.
     75  
-    76  Our faith should be modelled on Abraham's faith.
-    77  
-    78  We're supposed to have joy in our obedience to God.
+    76  Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
+    77  also be followed by faith where it's a matter of seeking praise from God and
+    78  not from men.
     79  
-    80  We're supposed to go from agapeing darkness to agapeing God's light, and into
-    81  walking in the light, walking in God's will, and we're supported by God's
-    82  Spirit as we are doing this.
+    80  Our faith should be modelled on Abraham's faith.
+    81  
+    82  We're supposed to have joy in our obedience to God.
+    83  
+    84  We're supposed to go from agapeing darkness to agapeing God's light, and into
+    85  walking in the light, walking in God's will, and we're supported by God's
+    86  Spirit as we are doing this.
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are found in Christ Jesus:
 
@@ -744,7 +748,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org498a292) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org308f767) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -11210,7 +11214,7 @@ Therefore, to arrive at the knowledge of the truth, you've got to have an obedie
 
 We must hear about Jesus, believe and have faith in Him, and call on Him. In Paul's writing here, the <ins>calling on Jesus</ins> comes **after** <ins>hearing about Jesus</ins> and **after** <ins>believing in Him</ins>, and the hear of Jesus, necessitates a preacher:
 
-> **[Romans 10:14-15](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-15&version=ESV)**- But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news!
+> **[Romans 10:14-15](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-15&version=ESV)**- But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news!
 
 Confess:
 
@@ -13830,7 +13834,7 @@ This is what we must come to know in truth - that Jesus came from Father God, an
         -   **[Mark 16:15](https://www.biblegateway.com/passage/?search=Mark%2016%3A15&version=ESV)** - And he said to them, Go into all the world and proclaim the gospel to the whole creation. (ESV)
         -   **[Matthew 28:20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A20&version=ESV)** - teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
         -   We are to preach the gospel and not just live out the gospel
-            -   **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us? So faith comes from hearing, and hearing through the word of Christ. (ESV)
+            -   **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us? So faith comes from hearing, and hearing through the word of Christ. (ESV)
     -   I choose to worship Him in spirit and in truth, and I will continually offer up the sacrifices of praise and thanksgiving as I recognise Jesus Christ as my Lord, God and Saviour
         -   **[John 4:23-24](https://www.biblegateway.com/passage/?search=John%204%3A23-24&version=ESV)** - But the hour is coming, and is now here, when the true worshipers will worship the Father in spirit and truth, for the Father is seeking such people to worship him. God is spirit, and those who worship him must worship in spirit and truth. (ESV)
         -   **[Mark 7:6-9](https://www.biblegateway.com/passage/?search=Mark%207%3A6-9&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, **This people honors me with their lips,** but **their heart is far from me**; **in vain do they worship me, teaching as doctrines the commandments of men**. **You leave the commandment of God** and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! (ESV)
@@ -14417,6 +14421,14 @@ So what Jesus is saying is quite similar - we must have the faith that Abraham h
 
 ### Salvation by obedience
 
+We need to believe and **then** call on Jesus to save us, (usually out of desperation). This is another act of obedience to the Gospel. We don't call on a law to save us; we call on Jesus to save us. That looks like beating hand on chest, wanting to turn from sin and begging God to save us:
+
+> **[Romans 10:12-14](https://www.biblegateway.com/passage/?search=Romans%2010%3A12-14&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him. For **everyone who calls on the name of the Lord will be saved.** But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? (ESV)
+
+Ironically, I feel like this word [hupakouó](https://biblehub.com/greek/5219.htm) which means to "fully hearken" (it's an intensification of the verb "to listen" with connotations of paying attention and responding to obey) may have been "demoted" in meaning by many people to not at all mean "fully hearken to / become obedient to the command":
+
+> **[Romans 10:16](https://www.biblegateway.com/passage/?search=Romans%2010%3A16&version=ESV)** - But they have not all obeyed ([G5219. hupakouó](https://biblehub.com/greek/5219.htm) - *I listen, hearken to, obey, answer*) gospel. For Isaiah says, Lord, who has believed [(G4100 pisteuó)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) what he has heard from us? (ESV)
+
 > **[Acts 5:29-32](https://www.biblegateway.com/passage/?search=Acts%205%3A29-32&version=ESV)** - But Peter and the apostles answered, We must obey God rather than men. The God of our fathers raised Jesus, whom you killed by hanging him on a tree. God exalted him at his right hand as Leader and Savior, to give repentance to Israel and forgiveness of sins. And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey him. (ESV)
 
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
@@ -14927,7 +14939,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga690fcc)
+See: [33.4.1](#orgd739aec)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -15538,9 +15550,9 @@ If the belief is true then we'll continue believing Jesus with all the other thi
 
 > **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
-We need to believe and **then** call on Jesus, usually out of desperation, to save us:
+We need to believe and **then** call on Jesus to save us, (usually out of desperation). This is another act of obedience to the Gospel. We don't call on a law to save us; we call on Jesus to save us. That looks like beating hand on chest, wanting to turn from sin and begging God to save us:
 
-> **[Romans 10:12-14](https://www.biblegateway.com/passage/?search=Romans%2010%3A12-14&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him. For **everyone who calls on the name of the Lord will be saved.** But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? (ESV)
+> **[Romans 10:12-14](https://www.biblegateway.com/passage/?search=Romans%2010%3A12-14&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him. For **everyone who calls on the name of the Lord will be saved.** But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? (ESV)
 
 Ironically, I feel like this word [hupakouó](https://biblehub.com/greek/5219.htm) which means to "fully hearken" (it's an intensification of the verb "to listen" with connotations of paying attention and responding to obey) may have been "demoted" in meaning by many people to not at all mean "fully hearken to / become obedient to the command":
 
@@ -15683,7 +15695,7 @@ I think that coming to trust in Jesus is a free gift to us. It's a really low ba
 
 Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings), even from reading it as described in the Old Testament ([Romans 1:1-2](https://www.biblegateway.com/passage/?search=Romans%201%3A1-2&version=ESV)). Sharing the gospel is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and **in trusting Jesus' words we trust in Jesus**:
 
-> **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But **they have not all obeyed the gospel**. For Isaiah says, Lord, **who has believed what he has heard from us**? So **faith comes from hearing, and hearing through the word of Christ.** (ESV)
+> **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But **they have not all obeyed the gospel**. For Isaiah says, Lord, **who has believed what he has heard from us**? So **faith comes from hearing, and hearing through the word of Christ.** (ESV)
 
 God's commandment is to bring about the obedience of faith (having faith is in God and through Jesus Christ is being obedient to God):
 
@@ -19977,7 +19989,7 @@ Actually complying with the law (not breaking it) is good:
     
     > **[I Thessalonians 4:14](https://www.biblegateway.com/passage/?search=1%20Thessalonians%204%3A14&version=ESV)** - For since we believe that Jesus died and rose again, even so, through Jesus, God will bring with him those who have fallen asleep.
     
-    > **[Romans 10:12-21](https://www.biblegateway.com/passage/?search=Romans%2010%3A12-21&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him.  For everyone who calls on the name of the Lord will be saved.  But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching?  And how are they to preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news!  But they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us?  So faith comes from hearing, and hearing through the word of Christ.  But I ask, have they not heard? Indeed they have, for Their voice has gone out to all the earth, and their words to the ends of the world.  But I ask, did Israel not understand? First Moses says, I will make you jealous of those who are not a nation; with a foolish nation I will make you angry.  Then Isaiah is so bold as to say, **I have been found by those who did not seek me; I have shown myself to those who did not ask for me.** But of Israel he says, All day long I have held out my hands to a disobedient and contrary people.
+    > **[Romans 10:12-21](https://www.biblegateway.com/passage/?search=Romans%2010%3A12-21&version=ESV)** - For there is no distinction between Jew and Greek; the same Lord is Lord of all, bestowing his riches on all who call on him.  For everyone who calls on the name of the Lord will be saved.  But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching?  And how are they to preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news!  But they have not all obeyed the gospel. For Isaiah says, Lord, who has believed what he has heard from us?  So faith comes from hearing, and hearing through the word of Christ.  But I ask, have they not heard? Indeed they have, for Their voice has gone out to all the earth, and their words to the ends of the world.  But I ask, did Israel not understand? First Moses says, I will make you jealous of those who are not a nation; with a foolish nation I will make you angry.  Then Isaiah is so bold as to say, **I have been found by those who did not seek me; I have shown myself to those who did not ask for me.** But of Israel he says, All day long I have held out my hands to a disobedient and contrary people.
 
 
 ### Faith in Jesus essential to even those who pursue the law, but the law is still pursued
@@ -27825,7 +27837,7 @@ Yes, believing in Jesus is obeying the gospel - but there is so much more to the
 
 Obeying the gospel and having faith in Jesus comes from hearing Jesus' words (his teachings). Sharing the gospel is speak to people what Jesus has spoken and allowing them to trust Jesus' words, and **in trusting Jesus' words we trust in Jesus**:
 
-> **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But **they have not all obeyed the gospel**. For Isaiah says, Lord, **who has believed what he has heard from us**? So **faith comes from hearing, and hearing through the word of Christ.** (ESV)
+> **[Romans 10:14-17](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-17&version=ESV)** - But how are they to **call on him** in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How **beautiful are the feet of those who preach the good news!** But **they have not all obeyed the gospel**. For Isaiah says, Lord, **who has believed what he has heard from us**? So **faith comes from hearing, and hearing through the word of Christ.** (ESV)
 
 Those that obey Jesus' voice He will give eternal life:
 
@@ -29436,7 +29448,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga690fcc)
+See: [33.4.1](#orgd739aec)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 

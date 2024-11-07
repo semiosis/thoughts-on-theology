@@ -38,6 +38,10 @@ perfect theology:
 |      believes in him receives forgiveness of sins through his name.
 |      (ESV)
 |  
+|   Then we call on Jesus to save us, (usually out of desperation).
+|   Noone calls on a law to save them. We call on Jesus to save us.
+|   This is another act of obedience to the Gospel.
+|  
 |       Ephesians 1:7-12 - In him we have redemption through his blood, the
 |       forgiveness of our trespasses, according to the riches of his grace, which
 |       he lavished upon us, in all wisdom and insight making known to us the
@@ -22348,6 +22352,23 @@ the Altar, but in regards to following Jesus:
 
 17.0.1. Salvation by obedience
 
+We need to believe and then call on Jesus to save us, (usually out of desperation). This is another act
+of obedience to the Gospel. We don't call on a law to save us; we call on Jesus to save us. That looks
+like beating hand on chest, wanting to turn from sin and begging God to save us:
+
+  Romans 10:12-14 - For there is no distinction between Jew and Greek; the same Lord is Lord of all,
+  bestowing his riches on all who call on him. For everyone who calls on the name of the Lord will be
+  saved. But how are they to call on him in whom they have not believed? And how are they to believe in
+  him of whom they have never heard? And how are they to hear without someone preaching? (ESV)
+
+Ironically, I feel like this word hupakouó which means to "fully hearken" (it's an intensification of
+the verb "to listen" with connotations of paying attention and responding to obey) may have been
+"demoted" in meaning by many people to not at all mean "fully hearken to / become obedient to the
+command":
+
+  Romans 10:16 - But they have not all obeyed (G5219. hupakouó - I listen, hearken to, obey, answer)
+  gospel. For Isaiah says, Lord, who has believed (G4100 pisteuó) what he has heard from us? (ESV)
+
   Acts 5:29-32 - But Peter and the apostles answered, We must obey God rather than men. The God of our
   fathers raised Jesus, whom you killed by hanging him on a tree. God exalted him at his right hand as
   Leader and Savior, to give repentance to Israel and forgiveness of sins. And we are witnesses to these
@@ -24227,7 +24248,9 @@ If the belief is true then we'll continue believing Jesus with all the other thi
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have
   God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
-We need to believe and then call on Jesus, usually out of desperation, to save us:
+We need to believe and then call on Jesus to save us, (usually out of desperation). This is another act
+of obedience to the Gospel. We don't call on a law to save us; we call on Jesus to save us. That looks
+like beating hand on chest, wanting to turn from sin and begging God to save us:
 
   Romans 10:12-14 - For there is no distinction between Jew and Greek; the same Lord is Lord of all,
   bestowing his riches on all who call on him. For everyone who calls on the name of the Lord will be
@@ -56716,7 +56739,7 @@ Date: 2024-11-07 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-07 Thu 20:21
+Created: 2024-11-07 Thu 20:53
 
 Validate
 
