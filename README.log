@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  7 NOV 2024 13:42
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  7 NOV 2024 15:36
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -432,7 +432,7 @@ Missing character: There is no 􀀱 in font [lmroman10-regular]:mapping=tex-text
 Missing character: There is no 􂮌 in font [lmroman10-regular]:mapping=tex-text;!
  [16] [17] [18] [19]
 
-LaTeX Warning: Hyper reference `sec:orgcbdd674' on page 20 undefined on input l
+LaTeX Warning: Hyper reference `sec:org4b3fd9c' on page 20 undefined on input l
 ine 1050.
 
 [20] [21] [22]
@@ -2112,7 +2112,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [408]
 
-LaTeX Warning: Reference `sec:org932f4a1' on page 409 undefined on input line 2
+LaTeX Warning: Reference `sec:org9f98f14' on page 409 undefined on input line 2
 1112.
 
 [409] [410] [411] [412] [413] [414]
@@ -3268,7 +3268,7 @@ Package hyperref Warning: Token not allowed in a PDF string (Unicode):
 
 [782] [783] [784] [785]
 
-LaTeX Warning: Reference `sec:org932f4a1' on page 786 undefined on input line 4
+LaTeX Warning: Reference `sec:org9f98f14' on page 786 undefined on input line 4
 0455.
 
 [786] [787]

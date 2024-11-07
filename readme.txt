@@ -8871,8 +8871,11 @@ another:
   I Timothy 1:5 - The aim of our charge is love that issues from a pure heart and a good conscience and a sincere
   faith. (ESV)
 
-But our good works can't make atonement for our sin. We must still be granted forgiveness from God. We know that
-anyone who places their trust in Jesus receives this forgiveness:
+While our good works can't make atonement for our sin, we are sanctified by Jesus' blood as we hold fast to the
+Truth and are corrected by and believe the Truth when we hear it and as we obey Righteousness (Jesus, the Truth).
+The Truth is the Word of God. Be believe and obey Jesus and we are sanctified in the Truth as we believe and obey
+Jesus. We must still be granted forgiveness from God. We know that anyone who places their trust in Jesus receives
+this forgiveness:
 
   Hebrews 9:22 - Indeed, under the law almost everything is purified with blood, and without the shedding of blood
   there is no forgiveness of sins. (ESV)
@@ -53807,7 +53810,7 @@ Date: 2024-11-07 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-07 Thu 13:35
+Created: 2024-11-07 Thu 15:23
 
 Validate
 
