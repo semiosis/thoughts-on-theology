@@ -4419,6 +4419,15 @@ the LORD has taken away; blessed be the name of the LORD. (ESV)
   not a needy person among them, for as many as were owners of lands or houses sold them and brought the proceeds
   of what was sold and laid it at the apostles' feet, and it was distributed to each as any had need. (ESV)
 
+1Clem 2:1
+And ye were all lowly in mind and free from arrogance, yielding rather than claiming submission, more glad to give
+than to receive, and content with the provisions which God supplieth. And giving heed unto His words, ye laid them
+up diligently in your hearts, and His sufferings were before your eyes.
+
+1Clem 2:2
+Thus a profound and rich peace was given to all, and an insatiable desire of doing good. An abundant outpouring
+also of the Holy Spirit fell upon all;
+
 3.13. In God's mercy, we come to obedient faith and come into Christ Jesus
 
 "At one time disobedient…" means we are brought to obedience. Therefore, God's mercy is that we become obedient:
@@ -53833,7 +53842,7 @@ Date: 2024-11-07 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-07 Thu 18:18
+Created: 2024-11-07 Thu 18:46
 
 Validate
 

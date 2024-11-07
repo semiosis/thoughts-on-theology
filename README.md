@@ -744,7 +744,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org49b7795) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org401083d) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3065,6 +3065,10 @@ Like Jesus, we should do the will of God:
     -   **[Romans 11:36](https://www.biblegateway.com/passage/?search=Romans%2011%3A36&version=ESV)** - For from him and through him and to him are all things. To him be glory forever. Amen. (ESV)
 
 > **[Acts 4:24-35](https://www.biblegateway.com/passage/?search=Acts%204%3A24-35&version=ESV)** - And when they heard it, they lifted their voices together to God and said, Sovereign Lord, who made the heaven and the earth and the sea and everything in them, who through the mouth of our father David, <ins>your servant, said by the Holy Spirit</ins>, Why did the Gentiles rage, and the peoples plot in vain? The kings of the earth set themselves, and the rulers were gathered together, against the Lord and against his Anointed— for truly in this city there were gathered together against your **holy servant Jesus**, whom you anointed, both Herod and Pontius Pilate, along with the Gentiles and the peoples of Israel, to do whatever your hand and your plan had predestined to take place. And now, Lord, look upon their threats and grant to your **servants** to continue to speak your word with all boldness, while you stretch out your hand to heal, and signs and wonders are performed through the name of your holy servant Jesus. And when they had prayed, the place in which they were gathered together was shaken, and **they were all filled with the Holy Spirit and continued to speak the word of God with boldness**. Now the full number of those who believed were of <ins>one heart and soul</ins>, and **no one said that any of the things that belonged to him was his own, but they had everything in common**. And with great power the apostles were giving their testimony to the resurrection of the Lord Jesus, and great grace was upon them all. There was not a needy person among them, for as many as were owners of lands or houses sold them and brought the proceeds of what was sold and laid it at the apostles' feet, <ins>and it was distributed to each **as any had need**</ins>. (ESV)
+
+-   **[1Clem 2:1](https://www.earlychristianwritings.com/text/1clement-lightfoot.html):** And ye were all lowly in mind and free from arrogance, yielding rather than claiming submission, more glad to give than to receive, and content with the provisions which God supplieth. And giving heed unto His words, ye laid them up diligently in your hearts, and His sufferings were before your eyes.
+
+-   **[1Clem 2:2](https://www.earlychristianwritings.com/text/1clement-lightfoot.html):** Thus a profound and rich peace was given to all, and an insatiable desire of doing good. **An abundant outpouring also of the Holy Spirit fell upon all;**
 
 
 ## In God's mercy, we come to obedient faith and come into Christ Jesus
@@ -14923,7 +14927,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgd689759)
+See: [33.4.1](#org349e1c5)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29378,7 +29382,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgd689759)
+See: [33.4.1](#org349e1c5)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
