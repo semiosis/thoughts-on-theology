@@ -12305,10 +12305,16 @@ away from us and teach us to love Him and others as we take our thoughts captive
 Encouragement
 youtube.com: Psalm 119:33 follow Gods statutes until the end.
 
-Having given your money away to the poor, then when the devil typically tempts us through other people or through
-a dream, or whatever way, by saying that "Christians still have their vices". Then instead of spending money on
-whatever has previously been a vice, we should put that money into God's Kingdom, and I truly believe that God
-sanctifies and works in us as we do this.
+For example: Having given your money away to the poor, then when the devil typically tempts us through other
+people or through a dream, or whatever way, by saying that "Christians still have their vices". Then instead of
+spending money on whatever has previously been a vice, we should put that money into God's Kingdom, and I truly
+believe that God sanctifies and works in us as we choose to obey Jesus and are taught (corrected) by Jesus Himself
+by His teachings. God sets up the opportunities.
+
+1Clem prologue:1 (from the first epistle of Clement to the Corinthians)
+The Church of God which sojourneth in Rome to the Church of God which sojourneth in Corinth, to them which are
+called and sanctified by the will of God through our Lord Jesus Christ. Grace to you and peace from Almighty God
+through Jesus Christ be multiplied.
 
   Psalms 119:1-19 - Blessed are those whose way is blameless, who walk in the law of the LORD! Aleph Blessed are
   those who keep his testimonies, who seek him with their whole heart, who also do no wrong, but walk in his ways!
@@ -12322,6 +12328,23 @@ sanctifies and works in us as we do this.
   fix my eyes on your ways. I will delight in your statutes; I will not forget your word. Deal bountifully with
   your servant, that I may live and keep your word. Gimel Open my eyes, that I may behold wondrous things out of
   your law. I am a sojourner on the earth; hide not your commandments from me! (ESV)
+
+The Apostle John is teaching Jesus' teachings. Even if we / when we sin, we should just confess the sin we did,
+confess it as sin, turn away from it and try to not cease obeying Jesus, practicing His commandments. We shouldn't
+be deterred from "getting back up" when we make mistakes, but we want to continue with a good conscience having
+confessed the sin as sin and continuing endeavouring to practice Jesus' commandments, serving Jesus. We want to be
+walking in the light, practicing our righteousness (obeying Jesus who is our righteousness) with a good conscience
+with God:
+
+  I John 1:5-10 - This is the message we have heard from him and proclaim to you, that God is light, and in him is
+  no darkness at all. If we say we have fellowship with him while we walk in darkness, we lie and do not practice
+  the truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the truth
+  is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
+  unrighteousness. If we say we have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+  I Peter 1:22 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one
+  another earnestly from a pure heart, (ESV)
 
 5.12. The free gift of salvation is to be set free from sin to be a slave of righteousness
 
@@ -53810,7 +53833,7 @@ Date: 2024-11-07 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-07 Thu 15:23
+Created: 2024-11-07 Thu 18:18
 
 Validate
 

@@ -744,7 +744,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org819160f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org49b7795) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -8407,12 +8407,21 @@ Follow God's statutes until the end. It's very blessed to do so. Allow God to ch
 
 -   **Encouragement:** [youtube.com: Psalm 119:33 follow Gods statutes until the end.](https://www.youtube.com/watch?v=E52T8RMiZ2k)
 
-Having given your money away to the poor, then when the devil typically tempts us through other people
+For example: Having given your money away to the poor, then when the devil typically tempts us through other people
 or through a dream, or whatever way, by saying that "Christians still have their vices".
 Then instead of spending money on whatever has previously been a vice,
-we should put that money into God's Kingdom, and I truly believe that God sanctifies and works in us as we do this.
+we should put that money into God's Kingdom, and I truly believe that God sanctifies and works in us as we choose to obey Jesus and are taught (corrected) by Jesus Himself by His teachings.
+God sets up the opportunities.
+
+-   **[1Clem prologue:1 (from the first epistle of Clement to the Corinthians)](https://www.earlychristianwritings.com/text/1clement-lightfoot.html):** The Church of God which sojourneth in Rome to the Church of God which sojourneth in Corinth, to them which are called and sanctified **by the will of God** through our Lord Jesus Christ. Grace to you and peace from Almighty God through Jesus Christ be multiplied.
 
 > **[Psalms 119:1-19](https://www.biblegateway.com/passage/?search=Psalms%20119%3A1-19&version=ESV)** - Blessed are those whose way is blameless, who walk in the law of the LORD! Aleph Blessed are those who keep his testimonies, who seek him with their whole heart, who also do no wrong, but walk in his ways! You have commanded your precepts to be kept diligently. Oh that my ways may be steadfast in keeping your statutes! Then I shall not be put to shame, having my eyes fixed on all your commandments. I will praise you with an upright heart, when I learn your righteous rules. I will keep your statutes; do not utterly forsake me! How can a young man keep his way pure? By guarding it according to your word. Beth With my whole heart I seek you; let me not wander from your commandments! I have stored up your word in my heart, that I might not sin against you. Blessed are you, O LORD; teach me your statutes! With my lips I declare all the rules of your mouth. In the way of your testimonies I delight as much as in all riches. I will meditate on your precepts and fix my eyes on your ways. I will delight in your statutes; I will not forget your word. Deal bountifully with your servant, that I may live and keep your word. Gimel Open my eyes, that I may behold wondrous things out of your law. I am a sojourner on the earth; hide not your commandments from me! (ESV)
+
+The Apostle John is teaching Jesus' teachings. Even if we / when we sin, we should just confess the sin we did, confess it as sin, turn away from it and try to not cease obeying Jesus, practicing His commandments. We shouldn't be deterred from "getting back up" when we make mistakes, but we want to continue with a good conscience having confessed the sin as sin and continuing endeavouring to practice Jesus' commandments, serving Jesus. We want to be walking in the light, practicing our righteousness (obeying Jesus who is our righteousness) with a good conscience with God:
+
+> **[I John 1:5-10](https://www.biblegateway.com/passage/?search=1%20John%201%3A5-10&version=ESV)** - **This is the message we have heard from him and proclaim to you**, that God is light, and in him is no darkness at all. If we say we have fellowship with him while we walk in darkness, we lie and do not practice the truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. If we say we have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+> **[I Peter 1:22](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, (ESV)
 
 
 ## The free gift of salvation is to be set free from sin to be a slave of righteousness
@@ -14914,7 +14923,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgaefcdfe)
+See: [33.4.1](#orgd689759)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29369,7 +29378,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgaefcdfe)
+See: [33.4.1](#orgd689759)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
