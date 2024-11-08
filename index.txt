@@ -2257,6 +2257,18 @@ Lord of Eternity - Fernando Ortega (Live)
 Lord of Eternity; Blessed is the man; Who walks in Your favor; Who loves all Your words; And hides them like
 treasure; In the darkest place; Of his desperate heart, They are a light; A strong, sure light.
 
+Those who will to agape love God must also will to love his brother or they are not loving God:
+
+  I Peter 1:8 - Though you have not seen him, you love (G25. agapate) him. Though you do not now see him, you
+  believe in him and rejoice with joy that is inexpressible and filled with glory, (ESV)
+
+  I John 4:20-21 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
+  brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
+  loves (G25. agapōn) God must also love (G25. agapa) his brother. (ESV)
+
+  John 20:29 - Jesus said to him, Have you believed because you have seen me? Blessed are those who have not seen
+  and yet have believed. (ESV)
+
 I think I John 2:15-17 is essentially saying, "Do not agape love the world or what's in the world. Do not love the
 things of this world with the type of love that we have for God and for people, namely agape love." If we fall out
 of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds
@@ -52136,8 +52148,9 @@ I've been going through a lot of trial and tribulation over the last 2 years:
   I Peter 1:6-9 - In this you rejoice, though now for a little while, if necessary, you have been grieved by
   various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is
   tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. Though
-  you have not seen him, you love him. Though you do not now see him, you believe in him and rejoice with joy that
-  is inexpressible and filled with glory, obtaining the outcome of your faith, the salvation of your souls. (ESV)
+  you have not seen him, you love (G25. agapaó) him. Though you do not now see him, you believe in him and rejoice
+  with joy that is inexpressible and filled with glory, obtaining the outcome of your faith, the salvation of your
+  souls. (ESV)
 
 By the Holy Spirit we are supposed to put to death the deeds of the body:
 
@@ -54024,11 +54037,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-11-08 Fri 00:00
+Date: 2024-11-09 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-08 Fri 21:04
+Created: 2024-11-09 Sat 08:52
 
 Validate
 
