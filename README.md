@@ -748,7 +748,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6ff25a2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4b6f859) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3408,6 +3408,20 @@ Keeping means, not only <ins>having</ins> them but also **keeping**, **obeying**
 
 > **[John 14:21-24](https://www.biblegateway.com/passage/?search=John%2014%3A21-24&version=ESV)** - Whoever **has my commandments and keeps them**, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
+-   **[Lord of Eternity - Fernando Ortega (Live)](https://www.youtube.com/watch?v=u-ZAQwXZ7YQ):** Lord of Eternity;
+    Blessed is the man;
+    Who walks in Your favor;
+    Who loves all Your words;
+    And hides them like treasure;
+    In the darkest place;
+    Of his desperate heart,
+    They are a light;
+    A strong, sure light.
+
+Essentially, we must believe Jesus. We must not reject Jesus. We must receive Jesus' words. We must be teachable by Jesus:
+
+> **[John 12:48](https://www.biblegateway.com/passage/?search=John%2012%3A48&version=ESV)** - The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. (ESV)
+
 Jesus comes to dwell in our hearts through faith, His spirit in our inner being, as we are rooted and grounded in love:
 
 > **[Ephesians 3:14-21](https://www.biblegateway.com/passage/?search=Ephesians%203%3A14-21&version=ESV)** - For this reason I bow my knees before the Father, from whom every family in heaven and on earth is named, that according to the riches of his glory he may grant you to be strengthened with power through his Spirit in your inner being, so that Christ may dwell in your hearts through faith—that you, being rooted and grounded in love, may have strength to comprehend with all the saints what is the breadth and length and height and depth, and to **know the love of Christ that surpasses knowledge**, that you may be filled with all the fullness of God. Now to him who is able to do far more abundantly than all that we ask or think, according to the power at work within us, to him be glory in the church and in Christ Jesus throughout all generations, forever and ever. Amen. (ESV)
@@ -3666,6 +3680,14 @@ In treasuring Jesus' words, keeping them, guarding them, observing them, in Him 
 Repent, be sanctified, love God and your neighbour, believe and obey Jesus:
 
 > **[Luke 10:25-28](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-28&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have answered correctly; **do this, and you will live.** (ESV)
+
+-   **[youtube.com: Steven Curtis Chapman - For The Sake Of The Call](https://www.youtube.com/watch?v=HoCgp8dVarA):** We will abandon it all for the sake of the call;
+    No other reason at all but the sake of the call;
+    Wholly devoted to live and to die;
+    Not for the sake of a creed or a cause;
+    Not for a dream or a promise;
+    Simply because it is Jesus who called;
+    And if we believe we'll obey
 
 Repent from sin and receive with meekness the implanted word, the gospel of Jesus Christ, which is able to save us, and persevere with it and allow it to change us:
 
@@ -14984,7 +15006,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga1caead)
+See: [33.4.1](#orgb075b45)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29493,7 +29515,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga1caead)
+See: [33.4.1](#orgb075b45)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
