@@ -2253,6 +2253,10 @@ preached:
 
   Psalms 9:17 - The wicked shall return to Sheol, all the nations that forget God. (ESV)
 
+Lord of Eternity - Fernando Ortega (Live)
+Lord of Eternity; Blessed is the man; Who walks in Your favor; Who loves all Your words; And hides them like
+treasure; In the darkest place; Of his desperate heart, They are a light; A strong, sure light.
+
 I think I John 2:15-17 is essentially saying, "Do not agape love the world or what's in the world. Do not love the
 things of this world with the type of love that we have for God and for people, namely agape love." If we fall out
 of agape love for the world and are not conformed to the world but are transformed by the renewing of our minds
@@ -9660,6 +9664,15 @@ another, as we have different roles in the body of Christ:
   I Corinthians 2:4 - and my speech and my message were not in plausible words of wisdom, but in demonstration of
   the Spirit and of power, (ESV)
 
+I'll let the Didache speak for itself here
+But not every one who speaks in the Spirit is a prophet but only if he holds the ways of the Lord. Therefore from
+their ways shall the false prophet and the prophet be known. And every prophet who orders a meal in the Spirit
+does not eat it, unless he is indeed a false prophet. And every prophet who teaches the truth, but does not do
+what he teaches, is a false prophet. And every prophet, proved true, working unto the mystery of the Church in the
+world, yet not teaching others to do what he himself does, shall not be judged among you, for with God he has his
+judgment for so did also the ancient prophets. But whoever says in the Spirit, Give me money, or something else,
+you shall not listen to him. But if he tells you to give for others' sake who are in need, let no one judge him.
+
 Also, this seems relevant:
 
   Matthew 11:11 - Truly, I say to you, among those born of women there has arisen no one greater than John the
@@ -10544,6 +10557,11 @@ Abraham believed and obeyed:
   Genesis 26:4-5 - I will multiply your offspring as the stars of heaven and will give to your offspring all these
   lands. And in your offspring all the nations of the earth shall be blessed, because Abraham obeyed my voice and
   kept my charge, my commandments, my statutes, and my laws. (ESV)
+
+youtube.com: Steven Curtis Chapman - For The Sake Of The Call
+We will abandon it all for the sake of the call; No other reason at all but the sake of the call; Wholly devoted
+to live and to die; Not for the sake of a creed or a cause; Not for a dream or a promise; Simply because it is
+Jesus who called; And if we believe we'll obey
 
 One of the criminals crucified next to Jesus came to the obedience of faith and obeyed the gospel:
 
@@ -54007,7 +54025,7 @@ Date: 2024-11-08 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-08 Fri 18:30
+Created: 2024-11-08 Fri 19:03
 
 Validate
 
