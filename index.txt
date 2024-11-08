@@ -41293,7 +41293,7 @@ Fulfilling the requirement of the law is required of us by God. God judges the s
 Song
 youtube.com: Delirious? - {Investigate} Live From Farewell Show In London - 2010
 
-54.29.1. These people performed dead works, and never obeyed Jesus
+54.29.1. These people who were unable to enter the kingdom of heaven performed dead works, and never obeyed Jesus
 
   Matthew 7:21-27 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who
   does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in
@@ -41306,6 +41306,9 @@ youtube.com: Delirious? - {Investigate} Live From Farewell Show In London - 2010
   and great was the fall of it. (ESV)
 
 To get to know Jesus, follow His commandments - be obedient to Jesus.
+
+A relationship with Jesus necessitates being correctable by Jesus. If we hear Jesus' words and believe Him, and
+are corrected by Him and sanctified by Him and follow Him and obey Him, then that is great!
 
 54.30. Outside of the Holy Spirit, noone can say Jesus is Lord
 
@@ -54025,7 +54028,7 @@ Date: 2024-11-08 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-08 Fri 19:03
+Created: 2024-11-08 Fri 21:04
 
 Validate
 
