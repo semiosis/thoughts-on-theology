@@ -26,92 +26,93 @@ youtube.com: Isn't Veganism Closer to God's Original Design?
 This is a short preview of where I'm at with my theology. I don't claim to know everything or to have perfect
 theology:
 
-|  If we trust God, believing on Yeshua's (Jesus's) name, it's typically the
-|  initial act of obedience of a Christian, Jesus having commanded us to trust
-|  Him, and believe Him, especialy concerning His name as Son of God, Christ,
-|  Messiah as foretold by the prophets, and we are sealed by the Holy Spirit when
-|  we do this.
+|    If we trust God, believing on Yeshua's (Jesus's) name, it's typically the
+|    initial act of obedience of a Christian, Jesus having commanded us to trust
+|    Him, and believe Him, especialy concerning His name as Son of God, Christ,
+|    Messiah as foretold by the prophets, and we are sealed by the Holy Spirit when
+|    we do this.
 | 
-|      Acts 10:43 - To him all the prophets bear witness that everyone who
-|      believes in him receives forgiveness of sins through his name.
-|      (ESV)
+|        Acts 10:43 - To him all the prophets bear witness that everyone who
+|        believes in him receives forgiveness of sins through his name.
+|        (ESV)
 |  
-|   Then we call on Jesus to save us, (usually out of desperation).
-|   Noone calls on a law to save them. We call on Jesus to save us.
-|   This is another act of obedience to the Gospel.
+|     Then we call on Jesus to save us, (usually out of desperation).
+|     Noone calls on a law to save them. We call on Jesus to save us.
+|     This is another act of obedience to the Gospel.
 |  
-|       Ephesians 1:7-12 - In him we have redemption through his blood, the
-|       forgiveness of our trespasses, according to the riches of his grace, which
-|       he lavished upon us, in all wisdom and insight making known to us the
-|       mystery of his will, according to his purpose, which he set forth in
-|       Christ as a plan for the fullness of time, to unite all things in him,
-|       things in heaven and things on earth.
-|       In him we have obtained an inheritance, having been predestined according
-|       to the purpose of him who works all things according to the counsel of his
-|       will, so that we who were the first to hope in Christ might be to the
-|       praise of his glory.
-|       (ESV)
+|         Ephesians 1:7-12 - In him we have redemption through his blood, the
+|         forgiveness of our trespasses, according to the riches of his grace, which
+|         he lavished upon us, in all wisdom and insight making known to us the
+|         mystery of his will, according to his purpose, which he set forth in
+|         Christ as a plan for the fullness of time, to unite all things in him,
+|         things in heaven and things on earth.
+|         In him we have obtained an inheritance, having been predestined according
+|         to the purpose of him who works all things according to the counsel of his
+|         will, so that we who were the first to hope in Christ might be to the
+|         praise of his glory.
+|         (ESV)
 |  
-|   Trust, obedience, belief and faith are not really separate things when it
-|   comes to believing the Word of God in the heart, and if a person has put their
-|   trust in Jesus then they've done something which is in the will of God.
+|     Trust, obedience, belief and faith are not really separate things when it
+|     comes to believing the Word of God in the heart, and if a person has put their
+|     trust in Jesus then they've done something which is in the will of God.
 |  
-|   Our faith and obedience are supposed to continue as we are sanctified and are
-|   taught by Christ, especially by the teachings He taught while walking the
-|   earth even before His crucifixion.
+|     Our faith and obedience are supposed to continue as we are sanctified and are
+|     taught by Christ, especially by the teachings He taught while walking the
+|     earth even before His crucifixion.
 |  
-|   Trust, belief and obedience, and even agape and knowledge of God when they are
-|   settled in the heart is what God sees and God is our justifier, and He
-|   justifies the one who puts their faith/trust in Jesus Christ.
+|     Trust, belief and obedience, and even agape and knowledge of God when they are
+|     settled in the heart is what God sees and God is our justifier, and He
+|     justifies the one who puts their faith/trust in Jesus Christ.
 |  
-|   We believe by faith that we are justified by the blood of Jesus and just get
-|   to serving God with agape love proceeding from a good conscience having
-|   believed the Gospel and placed our faith in Christ.
+|     We believe by faith that we are justified by the blood of Jesus and just get
+|     to serving God with agape love proceeding from a good conscience having
+|     believed the Gospel and placed our faith in Christ.
 |  
-|   Christ died for our sins according to the Scriptures, He was buried, He was
-|   raised on the third day according to the Scriptures, and He appeared to many
-|   eye-witnesses.
+|     Christ died for our sins according to the Scriptures, He was buried, He was
+|     raised on the third day according to the Scriptures, and He appeared to many
+|     eye-witnesses.
 |  
-|   In this way did God agape love (treasure/value) the world, that He gave His
-|   Only-Begotten Son that everyone who is trusting/believing in Him may not
-|   perish, but may have life everlasting which is to be reconciled to our Creator
-|   and His Son, in relationship with God forever, never perishing nor being cut
-|   off from our source of life and all that is good.
+|     In this way did God agape love (treasure/value) the world, that He gave His
+|     Only-Begotten Son that everyone who is trusting/believing in Him may not
+|     perish, but may have life everlasting which is to be reconciled to our Creator
+|     and His Son, in relationship with God forever, never perishing nor being cut
+|     off from our source of life and all that is good.
 |  
-|   Agape love is a treasuring/valuing/preserving/compassion love and God the
-|   Father and Jesus God the Son should be our first agape love, and those in the
-|   family of Christ we must also agape love, and our spouses we must agape love
-|   and we are even called to agape all people, but we're supposed to have no
-|   agape for this world.
+|     Agape love is a treasuring/valuing/preserving/compassion love and God the
+|     Father and Jesus God the Son should be our first agape love, and those in the
+|     family of Christ we must also agape love, and our spouses we must agape love
+|     and we are even called to agape all people, but we're supposed to have no
+|     agape for this world.
 |  
-|   Agape-loving our neighbour as ourself necessitates not bearing a grudge against
-|   our neighbour and not taking vengeance - there is no fear or grudge or
-|   vengence in agape love because agape love is selfless and compassionate and
-|   agape love gives everything and holds nothing back to have a chance to
-|   preserve and protect, to save. God would have sent Jesus even if there was
-|   only one more person to save. Agape comes from God. God loved us this way and
-|   paid the price for us for sin to be defeated that we may be reconciled back to
-|   Him through Jesus. And we pass this type of love, agape love, forward to
-|   others.
+|     Agape-loving our neighbour as ourself necessitates not bearing a grudge against
+|     our neighbour and not taking vengeance - there is no fear or grudge or
+|     vengence in agape love because agape love is selfless and compassionate and
+|     agape love gives everything and holds nothing back to have a chance to
+|     preserve and protect, to save. God would have sent Jesus even if there was
+|     only one more person to save. Agape comes from God. God loved us this way and
+|     paid the price for us for sin to be defeated that we may be reconciled back to
+|     Him through Jesus. And we pass this type of love, agape love, forward to
+|     others.
 |  
-|   We move forward serving God with hope to see His glory.
+|     We move forward serving God with hope to see His glory.
 |  
-|   Obedience is in the heart, along with belief in the Truth and understanding of
-|   the gospel.
+|     Obedience is in the heart, along with belief in the Truth and understanding of
+|     the gospel.
 |  
-|   Obedience can exist without work.
+|     Obedience can exist without work.
 |  
-|   Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
-|   also be followed by faith where it's a matter of seeking praise from God and
-|   not from men.
+|     Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
+|     also be followed by faith where it's a matter of seeking praise from God and
+|     not from men.
 |  
-|   Our faith should be modelled on Abraham's faith.
+|     Our faith should be modelled on Abraham's faith.
+|   - By faith Abraham obeyed God. By faith Christians obey Christ.
 |  
-|   We're supposed to have joy in our obedience to God.
+|     We're supposed to have joy in our obedience to God.
 |  
-|   We're supposed to go from agapeing darkness to agapeing God's light, and into
-|   walking in the light, walking in God's will, and we're supported by God's
-|   Spirit as we are doing this.
+|     We're supposed to go from agapeing darkness to agapeing God's light, and into
+|     walking in the light, walking in God's will, and we're supported by God's
+|     Spirit as we are doing this.
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are
 found in Christ Jesus:
@@ -442,6 +443,23 @@ straight for us:
 
 youtube.com: STOP Trying To Be a Better Christian… {Let Me Explain}
 
+So I want to give you an illustration say for example you take a piece of fruit and this represents righteous
+living, as the Bible commands us to live as Christians.
+
+Now, what I want to say is that Christians spend too much time focusing on the fruit rather than the tree. There
+are so many Christians that are trying to live right in order to be made, right rather than knowing that they've
+been made right, so they live right out of that place.
+
+Now, if I was to take a piece of fruit and I was to stick it on a tree that is not a fruit tree, would that make
+it a fruit tree? Of course not. Why? Because that tree can't produce fruit naturally on its own. But what if we
+were to look at a fruit tree? How would we know that it's a fruit tree? Because that fruit tree produces fruit on
+its own. If it's planted in good soil, if it has water, if it has adequate sunlight, that tree is going to produce
+good fruit naturally on its own. It's not going to stress and strive to produce the fruit. It's going to produce
+the fruit in due season simply because it is a fruit tree and that's what a fruit tree does.
+
+And this is very similar for the Christian. So many Christians spend their time basically trying to stick pieces
+of fruit on a tree rather than recognizing that they are a tree that has been made right.
+
 David Mathis
 "Don't think that becoming like Jesus in his death means that Paul is anticipating that he himself will be
 crucified, or that we will be crucified, but that he wants us to know Christ as we live in the pattern in which he
@@ -451,8 +469,20 @@ means walking in the footsteps of his self-humbling, and experiencing Jesus' hel
 near and His resurrection power on the path of our obedience when it's the hardest".
 
 Very well put by David Mathis. I'd say that in obeying Christ and imitating Christ, we endeavour to be found in
-Him, and He is our righteousness, and He is also our strength. However, I still believe that the upward call of
-God in Christ Jesus may result in some being martyred.
+Him, and He is our righteousness, and He is also our strength. We believe Truth because we believe Jesus. We obey
+Righteousness because we obey Jesus.
+
+Since the real Jesus is Faithful and True, He is trustworthy. If we trust in Jesus then we trust the real Jesus
+which means we trust the words He spoke. We are teachable by Jesus:
+
+  Revelation of John 19:11 - Then I saw heaven opened, and behold, a white horse! The one sitting on it is called
+  Faithful and True, and in righteousness he judges and makes war. (ESV)
+
+I still believe that the upward call of God in Christ Jesus may result in some being martyred. Holding to the
+Truth (remaining faithful to the Word of God) while practicing righteousness (being obedient to Jesus, obedient to
+His commandments), a person will receive persecution.
+
+  II Timothy 3:12 - Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, (ESV)
 
   John 21:19 - (This he said to show by what kind of death he was to glorify God.) And after saying this he said
   to him, Follow me. (ESV)
@@ -2259,12 +2289,12 @@ treasure; In the darkest place; Of his desperate heart, They are a light; A stro
 
 Those who will to agape love God must also will to love his brother or they are not loving God:
 
-  I Peter 1:8 - Though you have not seen him, you love (G25. agapate) him. Though you do not now see him, you
+  I Peter 1:8 - Though you have not seen him, you love (G25 agapate) him. Though you do not now see him, you
   believe in him and rejoice with joy that is inexpressible and filled with glory, (ESV)
 
   I John 4:20-21 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
   brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
-  loves (G25. agapōn) God must also love (G25. agapa) his brother. (ESV)
+  loves (G25 agapōn) God must also love (G25 agapa) his brother. (ESV)
 
   John 20:29 - Jesus said to him, Have you believed because you have seen me? Blessed are those who have not seen
   and yet have believed. (ESV)
@@ -10784,11 +10814,19 @@ I believe that anyone who is trusting Jesus is saved by Him through His finished
 abide in / obey Jesus' teachings. God raised Jesus from the dead for our justification. If we believe this fact we
 believe God's testimony about Jesus - that's important and it shows we trust God. Believing the gospel and
 trusting Father God, trusting Jesus, trusting God's words, trusting Jesus and God's words spoken through Jesus is
-obeying the gospel. When we trust Jesus, we believe who He is and what He accomplished and we believe His words. I
-also think there's more to faith in Jesus than just an intellectual belief as far as getting to know your Saviour
-(knowing God) and abiding forever. I think we need to actually trust Jesus - so we believe His words when we hear
-them. Because we must bear fruit etc. and follow His commandments to come to know Him. I don't condemn anyone who
-is believing on Him for life through His name.
+obeying the gospel. When we trust Jesus, we believe who He is and what He accomplished and we believe His words.
+
+If a person thinks Jesus is untrustworthy then if they say they put trust in Jesus they have put their trust in
+the wrong Jesus because the real Jesus is trustworthy and His words are trustworthy. So the one who truly puts
+their trust in Jesus is the one who trusts Jesus, hears His voice and believes Him and follows Him.
+
+John 12:48 - The one who rejects me and does not receive my words has a judge; the word that I have spoken will
+judge him on the last day.
+
+I also think there's more to faith in Jesus than just an intellectual belief as far as getting to know your
+Saviour (knowing God) and abiding forever. I think we need to actually trust Jesus - so we believe His words when
+we hear them. Because we must bear fruit etc. and follow His commandments to come to know Him. I don't condemn
+anyone who is believing on Him for life through His name.
 
 Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
 of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
@@ -54037,11 +54075,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-11-09 Sat 00:00
+Date: 2024-11-10 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-09 Sat 08:52
+Created: 2024-11-10 Sun 13:10
 
 Validate
 
