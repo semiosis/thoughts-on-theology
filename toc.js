@@ -27,7 +27,7 @@ class TOC {
           // console.log(titleText + " " + currentTOCitem.level + " " + previousTOCitem.level)
 
           const TOCparent = currentTOCitem.level > previousTOCitem.level ? previousTOCitem : previousTOCitem.TOCparent
-          
+
           if (TOCparent) {
             currentTOCitem.TOCparent = TOCparent
             TOCparent.children.push(currentTOCitem)
