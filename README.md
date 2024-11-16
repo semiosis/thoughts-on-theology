@@ -795,7 +795,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org72af364) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org80f1ed0) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2887,6 +2887,8 @@ It's totally fair to say that anybody should be able to circumcise themself to t
 
 > **[Romans 2:29](https://www.biblegateway.com/passage/?search=Romans%202%3A29&version=ESV)** - But a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
 
+> **[Ruth 1:15-17](https://www.biblegateway.com/passage/?search=Ruth%201%3A15-17&version=ESV)** - And she said, See, your sister-in-law has gone back to her people and to her gods; return after your sister-in-law. But Ruth said, Do not urge me to leave you or to return from following you. For where you go I will go, and where you lodge I will lodge. Your people shall be my people, and your God my God. Where you die I will die, and there will I be buried. May the LORD do so to me and more also if anything but death parts me from you. (ESV)
+
 I know I had begun to repent according to the 10 commandments even a year in advance of being born-again of the Spirit in an effort to seek God and I got born-again.
 
 It's been commanded all the way back here in Deuteronomy:
@@ -3172,7 +3174,7 @@ Like Jesus, we should do the will of God:
 
 "At one time disobedient&#x2026;" means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
-> **[Romans 11:30-32](https://www.biblegateway.com/passage/?search=Romans%2011%3A30-32&version=ESV)** - Just as you were <ins>at one time disobedient</ins> to God but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For **God has consigned all to disobedience, that he may have mercy on all.** (ESV)
+> **[Romans 11:30-32](https://www.biblegateway.com/passage/?search=Romans%2011%3A30-32&version=ESV)** - Just as you were <ins>at one time disobedient</ins> to God but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For **God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all.** (ESV)
 
 Mercy is so that we can be forgiven and change our ways:
 
@@ -4178,7 +4180,7 @@ So receive the words of Jesus and the Apostles to know the thoughts of God insid
 
 We need to perform our salvation in obedience to God:
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**[G2716 katergazomai](https://www.blueletterbible.org/lexicon/g2716/kjv/tr/0-1/)**) your own salvation with fear and trembling, (ESV)
 
 -   **Sermon:** [youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty](https://www.youtube.com/watch?v=g1L9ZyBF2Z8)
 
@@ -4192,7 +4194,7 @@ When it comes to be being saved to serve Christ, we can't boast that in some way
 
 > **[Ephesians 2:8-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-9&version=ESV)** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
-> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For God has consigned all to disobedience, that he may have mercy on all. (ESV)
+> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all. (ESV)
 
 Let's see what the word **katergazomai** (the word for 'work out') means:
 
@@ -4210,7 +4212,7 @@ Let's see what the word **katergazomai** (the word for 'work out') means:
     4  only     but     now      much     more     in       the      absence of me    with     fear     and
     5  Adv      Conj    Adv      Adj-DNS  Adv      Prep     Art-DFS  N-DFS   PPro-G1S Prep     N-GMS    Conj
 
-'Work out' (**katergazomai**) means here to perform your salvation by work (which has yet still been gifted to us, and the salvation which we are performing is not the result of works) - so I think it's more like 'walk'*'perform'*'obey' similarly to the Israelites through the Red Sea, but with respect to obeying the gospel, rather than 'work' in any way that is not in obedience to the gospel:
+'Work out' (**[G2716 katergazomai](https://www.blueletterbible.org/lexicon/g2716/kjv/tr/0-1/)**) means here to perform your salvation by work (which has yet still been gifted to us, and the salvation which we are performing is not the result of works) - so I think it's more like 'walk'*'perform'*'obey' similarly to the Israelites through the Red Sea, but with respect to obeying the gospel, rather than 'work' in any way that is not in obedience to the gospel:
 
     1  5156      3588     1438        4991      2716
     2  tromou    tēn      heautōn     sōtērian  katergazesthe
@@ -7538,7 +7540,7 @@ The good news must be united by obedient faith (putting Jesus' words into action
 
 > **[Hebrews 4:1-2](https://www.biblegateway.com/passage/?search=Hebrews%204%3A1-2&version=ESV)** - Therefore, while the promise of entering his rest still stands, let us fear lest any of you should seem to have failed to reach it. For good news came to us just as to them, but the message they heard did not benefit them, because they were not united by faith with those who listened. (ESV)
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**[G2716 katergazomai](https://www.blueletterbible.org/lexicon/g2716/kjv/tr/0-1/)**) your own salvation with fear and trembling, (ESV)
 
 I believe in 'once saved, always saved, <ins>while doing the will of God</ins>'. So someone must be a both a believer and a follower of Jesus.
 
@@ -7988,7 +7990,7 @@ When it comes to be being saved to serve Christ, we can't boast that in some way
 
 > **[Ephesians 2:8-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-9&version=ESV)** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
 
-> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For God has consigned all to disobedience, that he may have mercy on all. (ESV)
+> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all. (ESV)
 
 Even with stewardship (being brought into service to God with a calling), we have different gifts, a different calling. We cannot compare or boast in this regard because we are *stewards* of His varied grace. We're different parts of the body of Christ. Being a steward, we are obligated to fulfill our calling. But, technically, we may have something to boast about if we go beyond what is required of us.
 
@@ -8957,6 +8959,11 @@ These people just sat around watching Jesus but didn't obey Him:
 We strive to enter through Jesus who is the door:
 
 > **[John 10:9-16](https://www.biblegateway.com/passage/?search=John%2010%3A9-16&version=ESV)** - <ins>I am the door. If anyone enters by me, he will be saved and will go in and out and find pasture.</ins> The thief comes only to steal and kill and destroy. I came that they may have life and have it abundantly. I am the good shepherd. The good shepherd lays down his life for the sheep. He who is a hired hand and not a shepherd, who does not own the sheep, sees the wolf coming and leaves the sheep and flees, and the wolf snatches them and scatters them. He flees because he is a hired hand and cares nothing for the sheep. I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know the Father; and I lay down my life for the sheep. And I have other sheep that are not of this fold. I must bring them also, and they will listen to my voice. So there will be one flock, one shepherd. (ESV)
+
+-   **[youtube.com: Strive to Enter or Believe to Enter??](https://www.youtube.com/shorts/4qQLeg4qFoQ):** Apparently the author of Hebrews
+    believes that <ins>making every effort to labor to get into God's rest</ins> and
+    <ins>believing in order to get into God's rest</ins>
+    are not incompatible partners.
 
     1  agónizomai: to contend for a prize, struggle
     2  Original Word: ἀγωνίζομαι
@@ -11217,7 +11224,7 @@ We are ransommed by the blood of Jesus and the blood of Jesus [continues to clea
 
 ### Everyone needs saving
 
-> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For God has consigned all to disobedience, that he may have mercy on all. (ESV)
+> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all. (ESV)
 
 > **[Romans 3:1-19](https://www.biblegateway.com/passage/?search=Romans%203%3A1-19&version=ESV)** - Then what advantage has the Jew? Or what is the value of circumcision? Much in every way. To begin with, the Jews were entrusted with the oracles of God. What if some were unfaithful? Does their faithlessness nullify the faithfulness of God? By no means! **Let God be true though every one were a liar**, as it is written, That you may be justified in your words, and prevail when you are judged. But if our unrighteousness serves to show the righteousness of God, what shall we say? That God is unrighteous to inflict wrath on us? (I speak in a human way.) By no means! For then how could God judge the world? But if through my lie God's truth abounds to his glory, why am I still being condemned as a sinner? And why not do evil that good may come?—as some people slanderously charge us with saying. Their condemnation is just. What then? Are we Jews any better off? No, not at all. For we have already charged that **all, both Jews and Greeks, are under sin**, as it is written: **None is righteous, no, not one**; no one understands; no one seeks for God. All have turned aside; together they have become worthless; no one does good, not even one. Their throat is an open grave; they use their tongues to deceive. The venom of asps is under their lips. Their mouth is full of curses and bitterness. Their feet are swift to shed blood; in their paths are ruin and misery, and the way of peace they have not known. There is no fear of God before their eyes. Now we know that **whatever the law says it speaks to those who are under the law, so that every mouth may be stopped, and the whole world may be held accountable to God.** (ESV)
 
@@ -14557,7 +14564,7 @@ Through faith in Jesus / obedience to Jesus we can have faith in Father God:
 
 You can't even have faith in God without obeying Jesus because the one who has faith in God has already obeyed Jesus whether they know about [Mark 11:22](https://www.biblegateway.com/passage/?search=Mark%2011%3A22&version=ESV) or not. So it's not a dead work.
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**[G2716 katergazomai](https://www.blueletterbible.org/lexicon/g2716/kjv/tr/0-1/)**) your own salvation with fear and trembling, (ESV)
 
 Having believed in Jesus, having begun to trust in Jesus, we have become obedient to Jesus. Jesus works on us as we trust in Him even before we understand what He's doing, and we have become obedient because he commanded us to trust Him:
 
@@ -14845,7 +14852,7 @@ See even the Apostle Paul from my perspective has entertained the idea that a pe
 
 Also, Jesus' own work on the cross is sufficient work for us to be justified by faith alone without our own work, but that does not mean we should not <ins>'work'/walk for God through obedience</ins> which is characteristic of faith, even for our salvation, or be sanctified in the Truth through trusting obedience to God, and arrive at the knowledge of the Truth, even that Jesus Christ is the propitiation of our sin and works in us to save us.
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**[G2716 katergazomai](https://www.blueletterbible.org/lexicon/g2716/kjv/tr/0-1/)**) your own salvation with fear and trembling, (ESV)
 
 Faith that from a good conscience with God produces Christ's love:
 
@@ -15119,7 +15126,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org19860d7)
+See: [33.4.1](#orgc2c961b)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -18035,7 +18042,7 @@ Jesus obeyed, and his disciples become obedient.
 
 I think that is the correct way to see the following Scripture:
 
-> **[Romans 11:29-33](https://www.biblegateway.com/passage/?search=Romans%2011%3A29-33&version=ESV)**: For the gifts and the calling of God are irrevocable. Just <ins>as you were at one time disobedient to God</ins> but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For <ins>God has consigned all to disobedience, that he may have mercy on all.</ins> Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his judgments and how inscrutable his ways!
+> **[Romans 11:29-33](https://www.biblegateway.com/passage/?search=Romans%2011%3A29-33&version=ESV)**: For the gifts and the calling of God are irrevocable. Just <ins>as you were at one time disobedient to God</ins> but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For <ins>God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all.</ins> Oh, the depth of the riches and wisdom and knowledge of God! How unsearchable are his judgments and how inscrutable his ways!
 
 The obedient are led by the Spirit of God. But it isn't a Spirit of slavery, it's a Spirit of sonship, where we get to be conformed to the image of Christ!:
 
@@ -20357,7 +20364,7 @@ Adam's disobedience caused our disobedience:
 
 > **[Romans 11:30](https://www.biblegateway.com/passage/?search=Romans%2011%3A30&version=ESV)** - Just <ins>as you were at one time disobedient to God</ins> but now have received mercy because of their disobedience,
 
-> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For <ins>God has consigned all to disobedience, that he may have mercy on all.</ins>
+> **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)** - For <ins>God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all.</ins>
 
 > **[Ephesians 2:2](https://www.biblegateway.com/passage/?search=Ephesians%202%3A2&version=ESV)** - in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience—
 
@@ -23865,7 +23872,7 @@ We must do good, and behave like the children of God, or we will not enter the K
 
 We need to perform our salvation in obedience to God:
 
-> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**katergazomai**) your own salvation with fear and trembling, (ESV)
+> **[Philippians 2:12](https://www.biblegateway.com/passage/?search=Philippians%202%3A12&version=ESV)** - Therefore, my beloved, as you have **always obeyed**, so now, not only as in my presence but much more in my absence, work out (**[G2716 katergazomai](https://www.blueletterbible.org/lexicon/g2716/kjv/tr/0-1/)**) your own salvation with fear and trembling, (ESV)
 
 -   **Sermon:** [youtube.com: Work Out What Christ Has Won: The Christian Life as Gift and Duty](https://www.youtube.com/watch?v=g1L9ZyBF2Z8)
 
@@ -28516,7 +28523,7 @@ So take stopping sin seriously, and keep Jesus' words and His commandments, and 
 
 > **[John 15:1-14](https://www.biblegateway.com/passage/?search=John%2015%3A1-14&version=ESV)** - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. **If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned**. If you abide in me, and my words abide in you, ask whatever you wish, and it will be done for you. By this my Father is glorified, that you bear much fruit and so prove to be my disciples. As the Father has loved me, so have I loved you. Abide in my love. If you keep my commandments, you will abide in my love, just as I have kept my Father's commandments and abide in his love. These things I have spoken to you, that my joy may be in you, and that your joy may be full. This is my commandment, that you love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his friends. You are my friends if you do what I command you.
 
-> **[Romans 11:15-32](https://www.biblegateway.com/passage/?search=Romans%2011%3A15-32&version=ESV)** - For if their rejection means the reconciliation of the world, what will their acceptance mean but life from the dead? If the dough offered as firstfruits is holy, so is the whole lump, and if the root is holy, so are the branches. But if some of the branches were broken off, and you, although a wild olive shoot, were grafted in among the others and now share in the nourishing root of the olive tree, do not be arrogant toward the branches. If you are, remember it is not you who support the root, but the root that supports you. Then you will say, Branches were broken off so that I might be grafted in. That is true. They were broken off because of their unbelief, but you stand fast through faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. Lest you be wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon Israel, until the fullness of the Gentiles has come in. And in this way all Israel will be saved, as it is written, The Deliverer will come from Zion, he will banish ungodliness from Jacob; and this will be my covenant with them when I take away their sins. As regards the gospel, they are enemies of God for your sake. But as regards election, they are beloved for the sake of their forefathers. For the gifts and the calling of God are irrevocable. Just <ins>as you were at one time disobedient to God</ins> but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For <ins>God has consigned all to disobedience, that he may have mercy on all.</ins>
+> **[Romans 11:15-32](https://www.biblegateway.com/passage/?search=Romans%2011%3A15-32&version=ESV)** - For if their rejection means the reconciliation of the world, what will their acceptance mean but life from the dead? If the dough offered as firstfruits is holy, so is the whole lump, and if the root is holy, so are the branches. But if some of the branches were broken off, and you, although a wild olive shoot, were grafted in among the others and now share in the nourishing root of the olive tree, do not be arrogant toward the branches. If you are, remember it is not you who support the root, but the root that supports you. Then you will say, Branches were broken off so that I might be grafted in. That is true. They were broken off because of their unbelief, but you stand fast through faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. Lest you be wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon Israel, until the fullness of the Gentiles has come in. And in this way all Israel will be saved, as it is written, The Deliverer will come from Zion, he will banish ungodliness from Jacob; and this will be my covenant with them when I take away their sins. As regards the gospel, they are enemies of God for your sake. But as regards election, they are beloved for the sake of their forefathers. For the gifts and the calling of God are irrevocable. Just <ins>as you were at one time disobedient to God</ins> but now have received mercy because of their disobedience, so they too have now been disobedient in order that by the mercy shown to you they also may now receive mercy. For <ins>God has consigned all to disobedience ([543. apeitheia](https://biblehub.com/greek/543.htm) - *willful unbelief, obstinancy, disobedience*), that he may have mercy on all.</ins>
 
 > **[Matthew 12:33-37](https://www.biblegateway.com/passage/?search=Matthew%2012%3A33-37&version=ESV)** - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the tree is known by its fruit. You brood of vipers! How can you speak good, when you are evil? For out of the abundance of the heart the mouth speaks. The good person out of his good treasure brings forth good, and the evil person out of his evil treasure brings forth evil. I tell you, on the day of judgment people will give account for every careless word they speak, for by your words you will be justified, and by your words you will be condemned. (ESV)
 
@@ -29642,7 +29649,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org19860d7)
+See: [33.4.1](#orgc2c961b)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -37599,6 +37606,8 @@ As God judges, unrighteous people remain under punishment until they are judged 
 ### The outcome of just judgement for all
 
 > **[Job 12:10](https://www.biblegateway.com/passage/?search=Job%2012%3A10&version=ESV)** - In his hand is the life of every living thing and the breath of all mankind. (ESV)
+
+> **[Revelation of John 11:18](https://www.biblegateway.com/passage/?search=Revelation%2011%3A18&version=ESV)** - The nations raged, but your wrath came, and the time for the dead to be judged, and for rewarding your servants, the prophets and saints, and those who fear your name, both small and great, and for destroying the destroyers of the earth. (ESV)
 
 Glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality.
 

@@ -8,14 +8,16 @@ New Testament Greek study
 
 1.1. Question
 
-I'd like to understand the Greek behind the phrase in the teaching of Christ. Because I'm interested
-in whether the phrase teaching of Christ refers to the teachings that Christ taught including His
-teachings before His death, burial and resurrection, or if it the phrase is also talking about the
-doctrine surrounding what is known about Christ. My guess is both, but I'd like to understand the
-Greek a bit better.
+I'd like to understand the Greek behind the phrase in the teaching of
+Christ. Because I'm interested in whether the phrase teaching of Christ
+refers to the teachings that Christ taught including His teachings before
+His death, burial and resurrection, or if it the phrase is also talking
+about the doctrine surrounding what is known about Christ. My guess is
+both, but I'd like to understand the Greek a bit better.
 
-  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not
-  have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
+  II John 1:9 - Everyone who goes on ahead and does not abide in the
+  teaching of Christ, does not have God. Whoever abides in the teaching
+  has both the Father and the Son. (ESV)
 
 1.2. Case
 
@@ -60,9 +62,10 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
 • Obey the law.
 • Interrogative:
 • Whom or what?
-• Notes: Corresponds to English's object pronouns and preposition for construction before the
-object, often marked by a definite article the. Together with dative, it forms modern
-English's oblique case.
+• Notes: Corresponds to English's object pronouns and preposition
+for construction before the object, often marked by a definite
+article the. Together with dative, it forms modern English's
+oblique case.
 • G (Genitive)
 • Indicates: Possessor of another noun
 • Sample case words: 's, of (the)
@@ -71,8 +74,8 @@ English's oblique case.
 • The pages of the book turned yellow.
 • The table is made out of wood.
 • Interrogative: Whose? From what or what of?
-• Notes: Roughly corresponds to English's possessive (possessive determiners and pronouns)
-and preposition of construction.
+• Notes: Roughly corresponds to English's possessive (possessive
+determiners and pronouns) and preposition of construction.
 • D (Dative)
 • Indicates: Indirect object of a verb
 • Sample case words: us, to us, to the (object)
@@ -81,14 +84,16 @@ and preposition of construction.
 • The clerk gave a discount to us.
 • According to the law…
 • Interrogative: Whom or to what?
-• Notes: Corresponds to English's object pronouns and preposition to construction before the
-object, often marked by a definite article the. Together with accusative, it forms modern
-English's oblique case.
+• Notes: Corresponds to English's object pronouns and preposition
+to construction before the object, often marked by a definite
+article the. Together with accusative, it forms modern English's
+oblique case.
 
 1.2.1. Interlinear
 
-┌─────────┐ 1722 3588 1322 │ 3588 │ 5547 2316 en tē didachē │ tou │ Christou Theon ἐν τῇ διδαχῇ │
-τοῦ │ Χριστοῦ , Θεὸν in the teaching │ - │ of Christ God Prep Art-DFS N-DFS │ Art-GMS │ N-GMS N-AMS
+┌─────────┐ 1722 3588 1322 │ 3588 │ 5547 2316 en tē didachē │ tou │
+Christou Theon ἐν τῇ διδαχῇ │ τοῦ │ Χριστοῦ , Θεὸν in the teaching │ - │
+of Christ God Prep Art-DFS N-DFS │ Art-GMS │ N-GMS N-AMS
 
 |  3956    3588    4254           2532 3361 3306
 |  pas     ho      proagōn        kai  mē   menōn
