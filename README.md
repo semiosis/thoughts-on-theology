@@ -795,7 +795,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org80f1ed0) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf244190) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3891,7 +3891,10 @@ I was quickly baptised in the Holy Spirit and I asked God in prayer that the who
 
 -   **video:** [youtube.com: Life or Death by Your Tongue](https://www.youtube.com/watch?v=WcGhzysmCl8)
 
-I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken into service by Jesus but also I had much error and my tongue may was not well-bridled.
+I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken into service by Jesus but also I had much error and my tongue was not well-bridled.
+We need to be corrected by God's Word and be doers. Talking about religious doctrine is worthless without doing the Word in obedience to Jesus.
+
+> **[James 1:23-27](https://www.biblegateway.com/passage/?search=James%201%3A23-27&version=ESV)** - For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. But the one who looks into the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer who acts, he will be blessed in his doing. If anyone thinks he is religious and does not bridle his tongue but deceives his heart, this person's religion is worthless. Religion that is pure and undefiled before God, the Father, is this: to visit orphans and widows in their affliction, and to keep oneself unstained from the world. (ESV)
 
 Paul was an [Apostle by Command](https://www.youtube.com/watch?v=lr9zJYw9tlc&t=560s). As for me, I'm just acting on faith after confessing Jesus.
 
@@ -5847,7 +5850,7 @@ We aim for perfection / to be made complete / full restoration:
 
 > **[II Corinthians 13:11-14](https://www.biblegateway.com/passage/?search=2%20Corinthians%2013%3A11-14&version=NASB)** - Finally, brethren, rejoice, **be made complete**, be comforted, be like-minded, live in peace; and the God of love and peace will be with you. Greet one another with a holy kiss. All the saints greet you. The grace of the Lord Jesus Christ, and the love of God, and the fellowship of **the Holy Spirit**, be with you all. (NASB)
 
-Paul presses on to try to live like Christ, and his rational is that Jesus made him (Paul) his own (i.e. Jesus loved him),
+Paul presses on to try to live like Christ, and his rationale is that Jesus made him (Paul) his own (i.e. Jesus loved him),
 and Paul loves Jesus back, so he wants to be obedient out of love for Jesus (I'm convinced that's the motivation). He wants to be with Jesus.
 
 > **[Philippians 3:9-13](https://www.biblegateway.com/passage/?search=Philippians%203%3A9-13&version=ESV)** - and **be found in him**, not having a righteousness of my own that comes from the law, but that which comes through <ins>faith in Christ</ins>, the righteousness from God that depends on faith— that I may **know him** and the power of his resurrection, and may **share his sufferings**, **becoming like him in his death**, that by any means possible I may attain the resurrection from the dead. <ins>Not that I have already obtained this or am already perfect</ins>, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
@@ -8985,6 +8988,25 @@ We strive to enter through Jesus who is the door:
     6  Definition: injustice, unrighteousness
     7  Usage: injustice, unrighteousness, hurt.
 
+We must hear His voice today:
+
+> **[Hebrews 3:7-11](https://www.biblegateway.com/passage/?search=Hebrews%203%3A7-11&version=ESV)** - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my works for forty years. Therefore I was provoked with that generation, and said, They always go astray in their heart; they have not known my ways. As I swore in my wrath, They shall not enter my rest. (ESV)
+
+Psalm 95's today is *now*. Today is the day to strive to enter God's rest:
+
+> **[Psalms 95:6-11](https://www.biblegateway.com/passage/?search=Psalms%2095%3A6-11&version=ESV)** - Oh come, let us worship and bow down; let us kneel before the LORD, our Maker! For he is our God, and we are the people of his pasture, and the sheep of his hand. Today, if you hear his voice, do not harden your hearts, as at Meribah, as on the day at Massah in the wilderness, when your fathers put me to the test and put me to the proof, though they had seen my work. For forty years I loathed that generation and said, They are a people who go astray in their heart, and they have not known my ways. Therefore I swore in my wrath, They shall not enter my rest. (ESV)
+
+-   **[youtube.com: Striving Faith: Few Pursue What Jesus Commands {Luke 13:24} - Tim Conway @time: 32 min 27 sec](https://youtube.com/watch?v=oG-cwh1xVsU&t=1947):** This is no small matter. All sorts of professing
+    Christians look to enter in based on
+    yesterday's victories or yesterday's
+    whatever. And they procrastinating
+    expect to somehow live for Christ
+    tomorrow. This writer is saying that
+    neither of those types of Christianity
+    work as far as striving after God's
+    rest. The Christianity of the Bible is
+    the *today* kind of Christianity.
+
 
 ### Obedience to Jesus has everything to do with receiving Him, and receiving Salvation
 
@@ -9817,9 +9839,11 @@ Fear of God is not only about having the heart to repent from sin and "beat hand
 
 > **[I Timothy 1:13](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A13&version=ESV)** - though formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy because **I had acted ignorantly in unbelief**, (ESV)
 
-Jesus was pleased with some of the Israelites here. But we must learn from the example here so that we still walk in righteousness and desire to do good and not evil according to God's precepts:
+Jesus was pleased with some of the Israelites here. But we must learn from the example here so that we still walk in righteousness and **desire to do good and not evil according to God's precepts** but also called to literally not practice evil either, but most importantly to not desire evil/to do evil:
 
-> **[I Corinthians 10:1-10](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-10&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and **the Rock was Christ**. Nevertheless, with **most** of them God was not pleased, for they were overthrown in the wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of them did and were destroyed by the Destroyer. (ESV)
+> **[I Corinthians 10:1-10](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-10&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and **the Rock was Christ**. Nevertheless, with **most** of them God was not pleased, for they were **overthrown in the wilderness**. Now these things took place as examples for us, **that we might not desire evil as they did**. Do not be idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. <ins>We must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day</ins>. **We must not put Christ to the test**, as some of them did and were destroyed by serpents, nor grumble, as some of them did and were destroyed by the Destroyer. (ESV)
+
+> **[Hebrews 3:16-19](https://www.biblegateway.com/passage/?search=Hebrews%203%3A16-19&version=ESV)** - For some, when they had heard, did provoke: howbeit not all that came out of Egypt by Moses. But with whom was he grieved forty years? was it not **with them that had sinned, whose carcases fell in the wilderness**? And to whom sware he that they should not enter into his rest, but to them that believed not? So we see that **they could not enter in because of unbelief**. (KJV)
 
 It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is really talking about how the Law of God is effectively used to judge people. And what's interesting is that it seems as though, through Christ Jesus, God judges the secrets of men, and that happens to all people:
 
@@ -10665,7 +10689,7 @@ The worldly people rejected Him. Neither did His own people receive Him.
 
 > **[John 5:17](https://www.biblegateway.com/passage/?search=John%205%3A17&version=ESV)** - But Jesus answered them, My Father is working until now, and I am working. (ESV)
 
-> **[I Corinthians 10:1-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-7&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. Nevertheless, <ins>with most of them God was not pleased, for they were overthrown in the wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be idolaters as some of them were;</ins> as it is written, The people sat down to eat and drink and rose up to play.
+> **[I Corinthians 10:1-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-7&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. Nevertheless, <ins>with most of them God was not pleased, for they were **overthrown in the wilderness**. Now these things took place as examples for us, **that we might not desire evil as they did**. Do not be idolaters as some of them were;</ins> as it is written, The people sat down to eat and drink and rose up to play.
 
 > **[Revelation of John 3:8](https://www.biblegateway.com/passage/?search=Revelation%203%3A8&version=ESV)** - I know your works. Behold, I have set before you an open door, which no one is able to shut. I know that <ins>you have but little power, and yet you have kept my word and have not denied my name.</ins>
 
@@ -10922,7 +10946,7 @@ We must obey! This obedience is being led by the Spirit.
 
 We must look upon Jesus and stop sexual immorality and stop idolatry. The stories mentioned here are examples for us to follow:
 
-> **[I Corinthians 10:1-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-7&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. Nevertheless, <ins>with most of them God was not pleased, for they were overthrown in the wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be idolaters as some of them were;</ins> as it is written, The people sat down to eat and drink and rose up to play.
+> **[I Corinthians 10:1-7](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A1-7&version=ESV)** - I want you to know, brothers, that our fathers were all under the cloud, and all passed through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the Rock was Christ. Nevertheless, <ins>with most of them God was not pleased, for they were **overthrown in the wilderness**. Now these things took place as examples for us, **that we might not desire evil as they did**. Do not be idolaters as some of them were;</ins> as it is written, The people sat down to eat and drink and rose up to play.
 
 We must take heed of this, because we don't want to **fall**:
 
@@ -15126,7 +15150,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc2c961b)
+See: [33.4.1](#org01c4c54)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -29649,7 +29673,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc2c961b)
+See: [33.4.1](#org01c4c54)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -36590,7 +36614,7 @@ And then we await personal commendation from God.
 
 > **[I Timothy 1:13](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A13&version=ESV)** - though formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy because **I had acted ignorantly in unbelief**, (ESV)
 
-> **[I Corinthians 10:5-12](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A5-12&version=ESV)** - Nevertheless, with most of them God was not pleased, for they were overthrown in the wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an example, but they were written down for our instruction, on whom the end of the ages has come. Therefore let anyone who thinks that he stands take heed lest he fall. (ESV)
+> **[I Corinthians 10:5-12](https://www.biblegateway.com/passage/?search=1%20Corinthians%2010%3A5-12&version=ESV)** - Nevertheless, with most of them God was not pleased, for they were **overthrown in the wilderness**. Now these things took place as examples for us, **that we might not desire evil as they did**. Do not be idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an example, but they were written down for our instruction, on whom the end of the ages has come. Therefore let anyone who thinks that he stands take heed lest he fall. (ESV)
 
 I think it's dangerous and probably incorrect to say, "I've been justified and saved from the wrath of God" without having become trustingly obedient to Jesus, or without having become someone steadfastly hoping in Him to fulfill His promises.
 

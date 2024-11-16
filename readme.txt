@@ -5587,7 +5587,17 @@ video
 youtube.com: Life or Death by Your Tongue
 
 I guess that God has been testing me and using me similarly to as He did with Paul the Apostle after he was taken
-into service by Jesus but also I had much error and my tongue may was not well-bridled.
+into service by Jesus but also I had much error and my tongue was not well-bridled. We need to be corrected by
+God's Word and be doers. Talking about religious doctrine is worthless without doing the Word in obedience to
+Jesus.
+
+  James 1:23-27 - For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his
+  natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. But the
+  one who looks into the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer
+  who acts, he will be blessed in his doing. If anyone thinks he is religious and does not bridle his tongue but
+  deceives his heart, this person's religion is worthless. Religion that is pure and undefiled before God, the
+  Father, is this: to visit orphans and widows in their affliction, and to keep oneself unstained from the world.
+  (ESV)
 
 Paul was an Apostle by Command. As for me, I'm just acting on faith after confessing Jesus.
 
@@ -8494,7 +8504,7 @@ We aim for perfection / to be made complete / full restoration:
   you. The grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit, be with you
   all. (NASB)
 
-Paul presses on to try to live like Christ, and his rational is that Jesus made him (Paul) his own (i.e. Jesus
+Paul presses on to try to live like Christ, and his rationale is that Jesus made him (Paul) his own (i.e. Jesus
 loved him), and Paul loves Jesus back, so he wants to be obedient out of love for Jesus (I'm convinced that's the
 motivation). He wants to be with Jesus.
 
@@ -13060,6 +13070,28 @@ in order to get into God's rest are not incompatible partners.
 |  Definition: injustice, unrighteousness
 |  Usage: injustice, unrighteousness, hurt.
 
+We must hear His voice today:
+
+  Hebrews 3:7-11 - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as
+  in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my
+  works for forty years. Therefore I was provoked with that generation, and said, They always go astray in their
+  heart; they have not known my ways. As I swore in my wrath, They shall not enter my rest. (ESV)
+
+Psalm 95's today is now. Today is the day to strive to enter God's rest:
+
+  Psalms 95:6-11 - Oh come, let us worship and bow down; let us kneel before the LORD, our Maker! For he is our
+  God, and we are the people of his pasture, and the sheep of his hand. Today, if you hear his voice, do not
+  harden your hearts, as at Meribah, as on the day at Massah in the wilderness, when your fathers put me to the
+  test and put me to the proof, though they had seen my work. For forty years I loathed that generation and said,
+  They are a people who go astray in their heart, and they have not known my ways. Therefore I swore in my wrath,
+  They shall not enter my rest. (ESV)
+
+youtube.com: Striving Faith: Few Pursue What Jesus Commands {Luke 13:24} - Tim Conway @time: 32 min 27 sec
+This is no small matter. All sorts of professing Christians look to enter in based on yesterday's victories or
+yesterday's whatever. And they procrastinating expect to somehow live for Christ tomorrow. This writer is saying
+that neither of those types of Christianity work as far as striving after God's rest. The Christianity of the
+Bible is the today kind of Christianity.
+
 5.15.3. Obedience to Jesus has everything to do with receiving Him, and receiving Salvation
 
   Hebrews 3:18 - And to whom did he swear that they would not enter his rest, but to those who were disobedient?
@@ -14345,7 +14377,8 @@ Disbelief causes disobedience. Disbelief caused the Israelites to not walk in ob
   because I had acted ignorantly in unbelief, (ESV)
 
 Jesus was pleased with some of the Israelites here. But we must learn from the example here so that we still walk
-in righteousness and desire to do good and not evil according to God's precepts:
+in righteousness and desire to do good and not evil according to God's precepts but also called to literally not
+practice evil either, but most importantly to not desire evil/to do evil:
 
   I Corinthians 10:1-10 - I want you to know, brothers, that our fathers were all under the cloud, and all passed
   through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual
@@ -14356,6 +14389,11 @@ in righteousness and desire to do good and not evil according to God's precepts:
   must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We
   must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of
   them did and were destroyed by the Destroyer. (ESV)
+
+  Hebrews 3:16-19 - For some, when they had heard, did provoke: howbeit not all that came out of Egypt by Moses.
+  But with whom was he grieved forty years? was it not with them that had sinned, whose carcases fell in the
+  wilderness? And to whom sware he that they should not enter into his rest, but to them that believed not? So we
+  see that they could not enter in because of unbelief. (KJV)
 
 It's not "having (having possession of) the law" which counts, but "doing it". I think this part of Romans is
 really talking about how the Law of God is effectively used to judge people. And what's interesting is that it
@@ -54188,11 +54226,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-11-16 Sat 00:00
+Date: 2024-11-17 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-16 Sat 22:53
+Created: 2024-11-17 Sun 09:01
 
 Validate
 
