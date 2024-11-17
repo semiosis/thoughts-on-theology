@@ -16039,7 +16039,7 @@ us to follow:
 
 We must take heed of this, because we don't want to fall:
 
-  I Corinthians 10:8-13- We must not indulge in sexual immorality as some of them did, and twenty-three thousand
+  I Corinthians 10:8-13 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
   nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
   example, but they were written down for our instruction, on whom the end of the ages has come. Therefore let
@@ -16047,20 +16047,34 @@ We must take heed of this, because we don't want to fall:
   man. God is faithful, and he will not let you be tempted beyond your ability, but with the temptation he will
   also provide the way of escape, that you may be able to endure it.
 
-  II Peter 2:2-4 - And many will follow their sensuality, and because of them the way of truth will be blasphemed.
-  And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and
-  their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into hell and
-  committed them to chains of gloomy darkness to be kept until the judgment;
+  II Peter 2:2-11 - And many will follow their sensuality, and because of them the way of truth will be
+  blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is not
+  idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into
+  hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the
+  ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon
+  the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to
+  extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot,
+  greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after
+  day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows
+  how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment, and
+  especially those who indulge in the lust of defiling passion and despise authority. Bold and willful, they do
+  not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not
+  pronounce a blasphemous judgment against them before the Lord. (ESV)
 
   II Peter 2:19-20 - They promise them freedom, but they themselves are slaves of corruption. For whatever
   overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
   the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state
   has become worse for them than the first.
 
-Therefore, the way of truth involves following Jesus and putting a stop to sin.
+Therefore, the way of truth involves believing the truth and to not blaspheme it involves also practicing the
+truth and obeying Righteousness (trusting and obeying Jesus) and turning away from sin is certainly a consequence
+of turning to trust and obey Jesus.
 
 I agree with Billy Graham
 youtube.com: Billy Graham Classic Sermon
+
+  II Peter 2:2 - And many will follow their sensuality, and because of them the way of truth will be blasphemed.
+  (ESV)
 
   Revelation of John 21:8 - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually
   immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
@@ -24027,7 +24041,10 @@ I'd rather be a doer than merely a hearer.
   bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down
   and thrown into the fire. Thus you will recognize them by their fruits. (ESV)
 
-Correct Christology is important, but so is obeying Jesus' commandments.
+Correct Christology is important, but so is obeying Jesus' commandments:
+
+  Acts 24:22 - But Felix, having a rather accurate knowledge of the Way, put them off, saying, When Lysias the
+  tribune comes down, I will decide your case. (ESV)
 
   Matthew 21:28-31 - “But what do you think? A man had two sons, and he came to the first and said, ‘Son, go work
   today in the vineyard.’ And he answered, ‘I will not’; but afterward he regretted it and went. The man came to
@@ -26165,20 +26182,34 @@ So we still must/should forsake sin after getting born-again, but the Holy Spiri
 us from sin by giving us immediate justification through faith to be in relationship with Him, plus the strength
 to forsake sin.
 
-  II Peter 2:2-4 - And many will follow their sensuality, and because of them the way of truth will be blasphemed.
-  And in their greed they will exploit you with false words. Their condemnation from long ago is not idle, and
-  their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into hell and
-  committed them to chains of gloomy darkness to be kept until the judgment;
+  II Peter 2:2-11 - And many will follow their sensuality, and because of them the way of truth will be
+  blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is not
+  idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into
+  hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the
+  ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon
+  the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to
+  extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot,
+  greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after
+  day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows
+  how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment, and
+  especially those who indulge in the lust of defiling passion and despise authority. Bold and willful, they do
+  not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not
+  pronounce a blasphemous judgment against them before the Lord. (ESV)
 
   II Peter 2:19-20 - They promise them freedom, but they themselves are slaves of corruption. For whatever
   overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
   the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state
   has become worse for them than the first.
 
-Therefore, the way of truth involves following Jesus and putting a stop to sin.
+Therefore, the way of truth involves believing the truth and to not blaspheme it involves also practicing the
+truth and obeying Righteousness (trusting and obeying Jesus) and turning away from sin is certainly a consequence
+of turning to trust and obey Jesus.
 
 Talk
 youtube.com: The Hidden Parable of Moses that Few Christians Understand
+
+  II Peter 2:2 - And many will follow their sensuality, and because of them the way of truth will be blasphemed.
+  (ESV)
 
 19.4.3. With God, following the 10 commandments and to love God and our neighbour is possible
 
@@ -36630,7 +36661,10 @@ theology, than if thought I had all the correct theology but didn't do what Jesu
 reality of Jesus Christ, we must believe Him, believe who He is, believe what He's done, love Him and put our
 faith in Him:
 
-Correct Christology is important, but so is obeying Jesus' commandments.
+Correct Christology is important, but so is obeying Jesus' commandments:
+
+  Acts 24:22 - But Felix, having a rather accurate knowledge of the Way, put them off, saying, When Lysias the
+  tribune comes down, I will decide your case. (ESV)
 
   Matthew 21:28-31 - “But what do you think? A man had two sons, and he came to the first and said, ‘Son, go work
   today in the vineyard.’ And he answered, ‘I will not’; but afterward he regretted it and went. The man came to
@@ -45103,8 +45137,8 @@ Because truth is truth, it is imperishable:
 
  3. Victory over sin and death through Jesus
 
-will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and
-will experience the literal place Hades (the bad part).
+Sinning believers will still experience tribulation. Believers who are unrepentant from sin are probably not
+true believers and will experience the literal place Hades (the bad part).
 
 youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec
 
@@ -53572,10 +53606,10 @@ partiality.
 76.3.9. The unrepentant sinners including believers who do not want to repent from sin
 
 Sinning believers will still experience tribulation. Believers who are unrepentant from sin are probably not true
-believers or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades
-(the bad part).
+trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place
+Hades (the bad part). It's a bad idea to put Christ to the test.
 
-Those who do not repent from sin, but instead embrace evil will experience tribulation.
+Those who do not repent from sin (stop serving sin), but instead embrace evil will experience tribulation.
 
 Polycarp 2:1
 Wherefore gird up your loins and serve God in fear and truth, forsaking the vain and empty talking and the error
@@ -53584,15 +53618,19 @@ glory and a throne on His right hand; unto whom all things were made subject tha
 the earth; to whom every creature that hath breath doeth service; who cometh as judge of quick and dead; whose
 blood God will require of them that are disobedient unto Him.
 
-All sinners (even believers) will experience tribulation and distress on earth if they do not turn away from their
-sinning.
+All sin servers (rather than those who serve Christ - even 'believers' who don't serve Jesus) will experience
+tribulation and distress on earth if they do not turn to Jesus to serve Christ and simultaneously turn away from
+serving sin.
 
-If a person is a remorseless, unrepentant sinner, it's better for them that their body destroyed so their soul is
-saved:
+If a person is a remorseless, unrepentant "sin server", it's better for them that their body destroyed so their
+soul is saved:
 
   I Corinthians 5:4-5 - When you are assembled in the name of the Lord Jesus and my spirit is present, with the
   power of our Lord Jesus, you are to deliver this man to Satan for the destruction of the flesh, so that his
   spirit may be saved in the day of the Lord. (ESV)
+
+I don't say sinner here anymore because even those who trust Jesus make mistakes, and we're always reliant on the
+mercy of God.
 
 G1067. geenna
 Hell is the place of the future punishment called "Gehenna" or "Gehenna of fire". This was originally the valley
@@ -53612,6 +53650,14 @@ literal place.
 
 Luke 10:15 - And you, Capernaum, will you be exalted to heaven? You shall be brought down to Hades. (ESV)
 
+7585. sheol
+Definition: underworld (place to which people descend at death).
+
+86. hadés
+Definition: Hades, the abode of departed spirits. Usage: Hades, the unseen world.
+
+  Psalms 9:17 - The wicked shall return to Sheol, all the nations that forget God. (ESV)
+
 Any person who is experiencing tribulation/torment for wrongdoing would not be experiencing the Kingdom of God on
 earth, but they may still go to heaven at the final judgment if they end up putting their trust in Jesus Christ:
 
@@ -53620,6 +53666,28 @@ earth, but they may still go to heaven at the final judgment if they end up putt
   obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress
   for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for
   everyone who does good, the Jew first and also the Greek. For God shows no partiality. (ESV)
+
+  I Corinthians 10:8-13 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
+  fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
+  nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
+  example, but they were written down for our instruction, on whom the end of the ages has come. Therefore let
+  anyone who thinks that he stands take heed lest he fall. No temptation has overtaken you that is not common to
+  man. God is faithful, and he will not let you be tempted beyond your ability, but with the temptation he will
+  also provide the way of escape, that you may be able to endure it.
+
+  II Peter 2:2-11 - And many will follow their sensuality, and because of them the way of truth will be
+  blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is not
+  idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them into
+  hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the
+  ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon
+  the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to
+  extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot,
+  greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after
+  day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows
+  how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment, and
+  especially those who indulge in the lust of defiling passion and despise authority. Bold and willful, they do
+  not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not
+  pronounce a blasphemous judgment against them before the Lord. (ESV)
 
 The bad part of Sheol/Hades is for those who do evil deeds, possibly including believers who do not repent from
 sin:
@@ -53679,8 +53747,8 @@ second death, the Lake of Fire
   Luke 5:31-32 - And Jesus answered them, Those who are well have no need of a physician, but those who are sick.
   I have not come to call the righteous but sinners to repentance. (ESV)
 
-Those who do not ultimately repent from practicing sin and also distrust Jesus (they do not want to do the will of
-God) will go to the lake of fire:
+Those who do not ultimately repent from serving/practicing sin who also distrust Jesus (they do not want to do the
+will of God) will go to the lake of fire:
 
   Revelation of John 21:5-8 - And he who was seated on the throne said, Behold, I am making all things new. Also
   he said, Write this down, for these words are trustworthy and true. And he said to me, It is done! I am the
@@ -54230,7 +54298,7 @@ Date: 2024-11-17 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-17 Sun 09:01
+Created: 2024-11-17 Sun 15:16
 
 Validate
 
