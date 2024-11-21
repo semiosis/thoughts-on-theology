@@ -32962,14 +32962,42 @@ desiringgod.org: Invincible in Christ: How Believers Never Die | Desiring God
   I Corinthians 14:19 - Nevertheless, in church I would rather speak five words with my mind in order to instruct
   others, than ten thousand words in a tongue.
 
-34.3. The utterance of tongues is given by the Spirit
+34.3. Tongues etiquette
+
+youtube.com: An Open Letter to the Pentecostal Churches - Speaking in Tongues
+
+but it has been turned into a spiritual competition our validation before God or even a measure of our salvation
+and it's none of that but a supernatural move of the spirit upon a mere weak man to proclaim the words of God.
+
+Speaking in tongues won't save you.
+
+Speaking in tongues won't validate you before God.
+
+Speaking tongues doesn't make you more spiritual than your brother or sister in the pew next to you.
+
+But when it becomes this in your church you quench the Spirit by bringing this order into the fellowship and
+bringing a bad witness to the Gospel of Jesus.
+
+  I Corinthians 14:23-25 - If, therefore, the whole church comes together and all speak in tongues, and outsiders
+  or unbelievers enter, will they not say that you are out of your minds? But if all prophesy, and an unbeliever
+  or outsider enters, he is convicted by all, he is called to account by all, the secrets of his heart are
+  disclosed, and so, falling on his face, he will worship God and declare that God is really among you. (ESV)
+
+  I Corinthians 14:26 - What then, brothers? When you come together, each one has a hymn, a lesson, a revelation,
+  a tongue, or an interpretation. Let all things be done for building up. (ESV)
+
+  I Corinthians 14:27-28 - If any speak in a tongue, let there be only two or at most three, and each in turn, and
+  let someone interpret. But if there is no one to interpret, let each of them keep silent in church and speak to
+  himself and to God. (ESV)
+
+34.4. The utterance of tongues is given by the Spirit
 
 youtube.com: What Is Speaking in Tongues?
 
   Acts 2:4 - And they were all filled with the Holy Spirit and began to speak in other tongues as the Spirit gave
   them utterance. (ESV)
 
-34.4. This type of tongues is for communicating with one another - like a "babel-fish" - when people speak, people
+34.5. This type of tongues is for communicating with one another - like a "babel-fish" - when people speak, people
 hear them speak in their language
 
 It breaks down language barriers.
@@ -32981,7 +33009,7 @@ It breaks down language barriers.
   the parts of Libya belonging to Cyrene, and visitors from Rome, both Jews and proselytes, Cretans and
   Arabians—we hear them telling in our own tongues the mighty works of God. (ESV)
 
-34.5. This type of tongues is for speaking to God
+34.6. This type of tongues is for speaking to God
 
   I Corinthians 14:2 - For one who speaks in a tongue speaks not to men but to God; for no one understands him,
   but he utters mysteries in the Spirit.
@@ -54390,11 +54418,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-11-21 Thu 00:00
+Date: 2024-11-22 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-21 Thu 23:37
+Created: 2024-11-22 Fri 01:45
 
 Validate
 

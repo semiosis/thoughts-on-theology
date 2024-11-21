@@ -812,7 +812,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3f8172b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge36bd97) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -15232,7 +15232,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbf827bb)
+See: [33.4.1](#org1b4e132)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -22281,6 +22281,37 @@ Everyone who lives and believes in Jesus Christ shall never die.
 ## Using one's mind to speak to others intelligible words in the church is not subordinate to speaking in tongues
 
 > **[I Corinthians 14:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A19&version=ESV)** - Nevertheless, in church I would rather speak five words with my mind in order to instruct others, than ten thousand words in a tongue.
+
+
+## Tongues etiquette
+
+-   **[youtube.com: An Open Letter to the Pentecostal Churches - Speaking in Tongues](https://www.youtube.com/watch?v=ojwE2MRTZpY):** but it has been
+    turned into a spiritual competition our
+    validation before God or even a measure of
+    our salvation and **it's none of that** but
+    a supernatural move of the spirit upon a
+    mere weak man to proclaim the words of
+    God.
+    
+    Speaking in tongues won't save you.
+    
+    Speaking in tongues won't validate you
+    before God.
+    
+    Speaking tongues doesn't make you more
+    spiritual than your brother or sister in
+    the pew next to you.
+    
+    But when it becomes this in your church
+    you quench the Spirit by bringing this
+    order into the fellowship and bringing a
+    bad witness to the Gospel of Jesus.
+
+> **[I Corinthians 14:23-25](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A23-25&version=ESV)** - If, therefore, the whole church comes together and all speak in tongues, and outsiders or unbelievers enter, will they not say that you are out of your minds? But if all prophesy, and an unbeliever or outsider enters, he is convicted by all, he is called to account by all, the secrets of his heart are disclosed, and so, falling on his face, he will worship God and declare that God is really among you. (ESV)
+
+> **[I Corinthians 14:26](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A26&version=ESV)** - What then, brothers? When you come together, each one has a hymn, a lesson, a revelation, a tongue, or an interpretation. Let all things be done for building up. (ESV)
+
+> **[I Corinthians 14:27-28](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A27-28&version=ESV)** - If any speak in a tongue, let there be only two or at most three, and each in turn, and let someone interpret. But if there is no one to interpret, let each of them keep silent in church and speak to himself and to God. (ESV)
 
 
 ## The utterance of tongues is given by the Spirit
@@ -29761,7 +29792,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbf827bb)
+See: [33.4.1](#org1b4e132)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31462,7 +31493,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#org6d8a573) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
+    [Sinning believers](#org21adc6d) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
