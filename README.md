@@ -544,11 +544,21 @@ In believing we have eternal life, but we need to continue in obedience to Jesus
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to trust" / "to believe" / "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing" / "trusting."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 [Dietrich Bonhoeffer](https://www.youtube.com/watch?v=FVVImVBQ_nc) says it like this, “Only he who believes is obedient, and only he who is obedient believes.”
 
@@ -812,7 +822,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbb34b4e) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5e3ef48) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -3378,11 +3388,21 @@ In believing we have eternal life, but we need to continue in obedience to Jesus
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 Jesus Christ is our Lord and Teacher - that means we believe and obey Him:
 
@@ -3817,11 +3837,21 @@ We need to obey Jesus to see the life. That obedience isn't "working" but it is 
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -6003,11 +6033,21 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 I think believing in the Son is also obedience, but it is an act of obedience which is a gift to us.
 
@@ -7459,11 +7499,17 @@ I really believe we should both believe and obey Jesus, but I don't want to cond
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -7591,11 +7637,21 @@ Whoever believes Jesus obeys Jesus - His sheep hear his voice, <ins>trust and ob
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 God loves those who love Him and keep His commandments:
 
@@ -7836,11 +7892,17 @@ Believers are generally sealed with the Holy Spirit when they first believe:
 
 > **[Acts 19:2](https://www.biblegateway.com/passage/?search=Acts%2019%3A2&version=ESV)** - And he said to them, Did you receive the Holy Spirit when you believed? And they said, No, we have not even heard that there is a Holy Spirit. (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 We are saved as we are believing:
 
@@ -8166,11 +8228,21 @@ or they do not have the heart to obey and receive salvation - so they are a goat
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 
 ### Doing the will of God
@@ -8272,6 +8344,12 @@ We are being saved by the gospel as we hold fast to the word:
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 By the grace of God, Christ died for our sins:
 
@@ -8743,11 +8821,21 @@ We need to obey Jesus to see the life. That obedience isn't "working" but it is 
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 On the other hand, if we obey Jesus we will never see death:
 
@@ -9320,11 +9408,21 @@ Where there is perfect belief, I think there is perfect obedience. i.e. if we ho
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
 
@@ -11100,11 +11198,21 @@ You **must** obey Jesus, and that is choosing **light** and choosing **agape lov
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 
 ### Get to know Jesus by believing Him and following His commandments
@@ -14769,11 +14877,21 @@ Where there is perfect belief, I think there is perfect obedience. i.e. if we ho
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 I am confident also that if we hold firm to obedience in Jesus keeping and obeying His sayings and believe Jesus through testing, we have eternal life and will see life:
 
@@ -15273,7 +15391,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgfe3e5ac)
+See: [33.4.1](#org1e359be)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -15456,11 +15574,21 @@ Believing in Jesus and obeying Jesus go hand in hand. Believing in Jesus, obeyin
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 Jesus' commandments are all about selfless love. We must abide in Jesus' teaching and believe. It's imperative that as we go ahead, we **must** abide in the teaching of Christ. Confessing the coming of Jesus Christ in the flesh, and walking according to Jesus' commandments go hand in hand:
 
@@ -16247,11 +16375,21 @@ Seriously, this verse:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews <ins>who had believed ([4100. pisteuó](https://biblehub.com/greek/4100.htm), [pepisteukotas](https://biblehub.com/greek/pepisteukotas_4100.htm)) in him</ins>, **If you abide in my word, you are truly my disciples, and you will know the truth**, <ins>and the truth will set you free.</ins> (ESV)
 
@@ -16369,11 +16507,21 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 
 ### God desired to give assurance to the heirs of the promise
@@ -24592,11 +24740,21 @@ Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 > **[John 5:34](https://www.biblegateway.com/passage/?search=John%205%3A34&version=ESV)** - Not that the testimony that I receive is from man, but I say these things so that you may be saved. (ESV)
 
@@ -25792,11 +25950,21 @@ Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Je
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 Therefore, I don't want to flat-out disqualify people who do not have precisely the correct doctrine or theology.
 
@@ -29735,11 +29903,21 @@ Obeying Jesus is very important:
 
 > **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
-But we must not believe in vain. Rather, we must believe and hold fast to the gospel:
+-   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
 > **[I Corinthians 15:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-2&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast ([2722. katechó](https://biblehub.com/greek/2722.htm)) to the word I preached to you—unless you believed in vain. (ESV)
 
 -   **[2722. katechó](https://biblehub.com/greek/2722.htm):** Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain, (d) I hold a ship, keep its head.
+
+Of first importance is that we are believing in the correct Jesus. We must be *teachable* / *correctable* by Jesus (accepting as true His words and his deeds):
+
+> **[I Corinthians 15:3-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A3-9&version=ESV)** - For I delivered to you as of **first importance** what I also received: that **Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve.** Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. For I am the least of the apostles, unworthy to be called an apostle, because I persecuted the church of God. (ESV)
+
+> **[John 18:37](https://www.biblegateway.com/passage/?search=John%2018%3A37&version=ESV)** - Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was born and for this purpose I have come into the world—to bear witness to the truth. Everyone who is of the truth listens to my voice. (ESV)
 
 -   **Song:** [youtube.com: Charity Gayle - Thank You Jesus for the Blood {Live}](https://www.youtube.com/watch?v=dhU-Omwg2rU&list=RDdhU-Omwg2rU&start_radio=1)
 
@@ -29833,7 +30011,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgfe3e5ac)
+See: [33.4.1](#org1e359be)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31534,7 +31712,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#org98da0b6) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
+    [Sinning believers](#org4763578) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
