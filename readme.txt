@@ -840,7 +840,7 @@ overcome the sin and to put the sin to death:
 
 That is the obvious conclusion. I should not be a hypocrite about it.
 
-youtube.com: Ready or Not: Here Comes Temptation Pt 2 - 21 November 2024 @time: 5 min 47 sec
+youtube.com: Jeff Vines - Ready or Not: Here Comes Temptation Pt 2 - 21 November 2024 @time: 5 min 47 sec
 Trial and temp[tation] - are they the same? No. But a test in your life either takes you closer to God or takes
 you farther away from God, depending on your response. A test is a test until you respond inappropriately at which
 point it becomes a temptation. Now please stay with me, this is so important, you are going to encounter all kinds
@@ -2912,12 +2912,56 @@ liberated me from observing them, among others things, if that makes sense:
   world, whose slaves you want to be once more? You observe days and months and seasons and years! I am afraid I
   may have labored over you in vain. (ESV)
 
+3.1.1. New creation (kainē ktisis) - All things new
+
+By a sovereign act of God we are born-again of the Spirit. For me, from my perspective, it felt as though all my
+relationships were reset after 2 April 2022. As we are reconciled to God, all things become new.
+
+II Corinthians 5:17 (Interlinear)
+
+|  5620      1487 5100     1722    5547      2537          2937 [e]  3588
+|  hōste     ei   tis      en      Christō   kainē         ktisis    ta
+|  ὥστε      εἴ   τις      ἐν      Χριστῷ  , καινὴ         κτίσις  . τὰ
+|  Therefore if   anyone   [is] in Christ    [he is] a new creation  The
+|  Conj      Conj IPro-NMS Prep    N-DMS     Adj-NFS       N-NFS     Art-NNP
+| 
+|  744        3928             2400     1096 [e]            2537
+|  archaia    parēlthen        idou     gegonen             kaina
+|  ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,  γέγονεν             καινά  .
+|   old things have passed away behold   has come into being [the] new
+|   Adj-NNP    V-AIA-3S         V-AMA-2S V-RIA-3S            Adj-NNP
+
+  Galatians 6:15 - For neither circumcision counts for anything, nor uncircumcision, but a new creation. (ESV)
+
+|  3777    1063 4061         5100     1510     3777 203
+|  oute    gar  peritomē     ti       estin    oute akrobystia
+|  οὔτε    γὰρ  περιτομή     τί       ἐστιν  , οὔτε ἀκροβυστία  ;
+|  Neither for  circumcision anything is       nor  uncircumcision
+|  Conj    Conj N-NFS        IPro-NNS V-PIA-3S Conj N-NFS
+| 
+|  235     2537    2937
+|  alla    kainē   ktisis
+|  ἀλλὰ    καινὴ   κτίσις  .
+|   instead a new   creation
+|   Conj    Adj-NFS N-NFS
+
+  II Corinthians 5:16-21 - From now on, therefore, we regard no one according to the flesh. Even though we once
+  regarded Christ according to the flesh, we regard him thus no longer. Therefore, if anyone is in Christ, he is a
+  new creation. The old has passed away; behold, the new has come. All this is from God, who through Christ
+  reconciled us to himself and gave us the ministry of reconciliation; that is, in Christ God was reconciling the
+  world to himself, not counting their trespasses against them, and entrusting to us the message of
+  reconciliation. Therefore, we are ambassadors for Christ, God making his appeal through us. We implore you on
+  behalf of Christ, be reconciled to God. For our sake he made him to be sin who knew no sin, so that in him we
+  might become the righteousness of God. (ESV)
+
+3.1.2. Repentance after being born of the Spirit
+
 As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of
 Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of
 false religion, and I hope that this helps others also to be corrected. I have been trying to be corrected by
 obedience to the Gospel of Jesus a lot since recording this 'dream' / conversation in my sleep. After actively
-trying to be obedient to the Truth, obedient to Jesus, saved to obey Jesus, I have come to distrust odd spirits
-which speak to me in my sleep.
+trying to be obedient to the Truth (obedient to Jesus), corrected and believing the Truth (Jesus and His words,
+Scripture), I have come to distrust odd spirits which speak to me in my sleep.
 
 I believe that among other things I have had to fight against, reject or repent from:
 
@@ -3229,7 +3273,7 @@ was made to Abraham and to Christ. Now we must be found in Christ. Amen:
   to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one,
   And to your offspring, who is Christ. (ESV)
 
-3.1.1. Becoming born-again of the Spirit may be receiving the inheritance
+3.1.3. Becoming born-again of the Spirit may be receiving the inheritance
 
 Then there may be some nuance between receiving the Holy Spirit who is the guarantee of our inheritance, and being
 born of the Spirit which may be [part of] our inheritance.
@@ -3252,7 +3296,7 @@ In trusting in Jesus Christ, we may receive the Holy Spirit:
   John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. (ESV)
 
-3.1.2. The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in
+3.1.4. The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in
 Jesus
 
   John 4:10 - Jesus answered her, If you knew the gift of God, and who it is that is saying to you, Give me a
@@ -3261,7 +3305,7 @@ Jesus
   John 4:14 - but whoever drinks of the water that I will give him will never be thirsty forever. The water that I
   will give him will become in him a spring of water welling up to eternal life. (ESV)
 
-3.1.3. Jesus being glorified means we can receive the Holy Spirit through faith
+3.1.5. Jesus being glorified means we can receive the Holy Spirit through faith
 
   John 13:31-32 - Therefore, when he was gone out, Jesus said, Now is the Son of man glorified, and God is
   glorified in him. If God be glorified in him, God shall also glorify him in himself, and shall straightway
@@ -3272,7 +3316,7 @@ Jesus
   Acts 2:4 - And they were all filled with the Holy Spirit and began to speak in other tongues as the Spirit gave
   them utterance. (ESV)
 
-3.1.4. When we are born of the Spirit, we receive a regenerated spirit-man. This is part of the inheritance, I think
+3.1.6. When we are born of the Spirit, we receive a regenerated spirit-man. This is part of the inheritance, I think
 
 Being born of the Spirit / spiritually regenerated I think is a different event to receiving the Holy Spirit which
 typically happens beforehand, particularly for Gentile Christians when we give our heart to the Lord Jesus:
@@ -3296,7 +3340,7 @@ typically happens beforehand, particularly for Gentile Christians when we give o
   believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
   acquire possession of it, to the praise of his glory. (ESV)
 
-3.1.5. Any spiritual experience should be in the character of the Holy Spirit
+3.1.7. Any spiritual experience should be in the character of the Holy Spirit
 
 youtube.com: How to Preach with Supernatural Power @time: 8 min 16 sec
 He does not mean that something spiritual is religious or mystical or other-worldly. That's what most people think
@@ -3317,7 +3361,7 @@ youtube.com: C. S. Lewis 2024 - Characteristics of the Holy Spirit's personality
   Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact
   the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
-3.1.6. My testimony of being born-again of the Spirit
+3.1.8. My testimony of being born-again of the Spirit
 
 Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's
 not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used
@@ -4411,6 +4455,18 @@ It's crucial to keep Jesus Christ's commandments:
 
 Work flowing from obedience is still totally by grace because we needed Jesus to obey God perfectly first! We must
 still obey Jesus.
+
+  II Timothy 1:6-14 - For this reason I remind you to fan into flame the gift of God, which is in you through the
+  laying on of my hands, for God gave us a spirit not of fear but of power and love and self-control. Therefore do
+  not be ashamed of the testimony about our Lord, nor of me his prisoner, but share in suffering for the gospel by
+  the power of God, who saved us and called us to a holy calling, not because of our works but because of his own
+  purpose and grace, which he gave us in Christ Jesus before the ages began, and which now has been manifested
+  through the appearing of our Savior Christ Jesus, who abolished death and brought life and immortality to light
+  through the gospel, for which I was appointed a preacher and apostle and teacher, which is why I suffer as I do.
+  But I am not ashamed, for I know whom I have believed, and I am convinced that he is able to guard until that
+  Day what has been entrusted to me. Follow the pattern of the sound words that you have heard from me, in the
+  faith and love that are in Christ Jesus. By the Holy Spirit who dwells within us, guard the good deposit
+  entrusted to you. (ESV)
 
 Believing in Jesus should result in continued loving obedience to Jesus (following Jesus), and doing the work
 which is similar to the work that Jesus did:
@@ -32975,7 +33031,7 @@ Speaking in tongues won't validate you before God.
 
 Speaking tongues doesn't make you more spiritual than your brother or sister in the pew next to you.
 
-But when it becomes this in your church you quench the Spirit by bringing this order into the fellowship and
+But when it becomes this in your church you quench the Spirit by bringing disorder into the fellowship and
 bringing a bad witness to the Gospel of Jesus.
 
   I Corinthians 14:23-25 - If, therefore, the whole church comes together and all speak in tongues, and outsiders
@@ -54422,7 +54478,7 @@ Date: 2024-11-22 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-22 Fri 01:45
+Created: 2024-11-22 Fri 23:26
 
 Validate
 

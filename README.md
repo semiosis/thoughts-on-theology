@@ -637,7 +637,7 @@ I believe that if I am disobeying sin and obeying Jesus then I am cooperating wi
 
 That is the obvious conclusion. I should not be a hypocrite about it.
 
--   **[youtube.com: Ready or Not: Here Comes Temptation Pt 2 - 21 November 2024 @time: 5 min 47 sec](https://youtube.com/watch?v=SXmSg7lBjUY&t=347):** Trial and temp[tation] - are they the same? No. But a test in
+-   **[youtube.com: Jeff Vines - Ready or Not: Here Comes Temptation Pt 2 - 21 November 2024 @time: 5 min 47 sec](https://youtube.com/watch?v=SXmSg7lBjUY&t=347):** Trial and temp[tation] - are they the same? No. But a test in
     your life either takes you closer to God
     or takes you farther away from God,
     depending on your response.
@@ -812,7 +812,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge36bd97) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbb34b4e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -2111,7 +2111,46 @@ I just want to say that I don't observe any of these seasons, but it still happe
 
 > **[Galatians 4:6-11](https://www.biblegateway.com/passage/?search=Galatians%204%3A6-11&version=ESV)** - And because you are sons, God has sent the Spirit of his Son into our hearts, crying, Abba! Father! So you are no longer a slave, but a son, and if a son, then an heir through God. Formerly, when you did not know God, you were enslaved to those that by nature are not gods. But now that you have come to know God, or rather to be known by God, how can you turn back again to the weak and worthless elementary principles of the world, whose slaves you want to be once more? **You observe days and months and seasons and years! I am afraid I may have labored over you in vain.** (ESV)
 
-As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of false religion, and I hope that this helps others also to be corrected. I have been trying to be corrected by obedience to the Gospel of Jesus a lot since [recording this 'dream' / conversation in my sleep](https://web.archive.org/web/20221128020542/https://mullikine.github.io/posts/dream-king-john-the-baptist/). After actively trying to be obedient to the Truth, obedient to Jesus, saved to obey Jesus, I have come to distrust odd spirits which speak to me in my sleep.
+
+### New creation (kainē ktisis) - All things new
+
+By a sovereign act of God we are born-again of the Spirit.
+For me, from my perspective, it felt as though all my relationships were reset after 2 April 2022. As we are reconciled to God, <ins>all things become new</ins>.
+
+[II Corinthians 5:17 (Interlinear)](https://biblehub.com/interlinear/2_corinthians/5-17.htm)
+
+     1  5620      1487 5100     1722    5547      2537          2937 [e]  3588
+     2  hōste     ei   tis      en      Christō   kainē         ktisis    ta
+     3  ὥστε      εἴ   τις      ἐν      Χριστῷ  , καινὴ         κτίσις  . τὰ
+     4  Therefore if   anyone   [is] in Christ    [he is] a new creation  The
+     5  Conj      Conj IPro-NMS Prep    N-DMS     Adj-NFS       N-NFS     Art-NNP
+     6  
+     7  744        3928             2400     1096 [e]            2537
+     8  archaia    parēlthen        idou     gegonen             kaina
+     9  ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,  γέγονεν             καινά  .
+    10  old things have passed away behold   has come into being [the] new
+    11  Adj-NNP    V-AIA-3S         V-AMA-2S V-RIA-3S            Adj-NNP
+
+> **[Galatians 6:15](https://www.biblegateway.com/passage/?search=Galatians%206%3A15&version=ESV)** - For neither circumcision counts for anything, nor uncircumcision, but a new creation. (ESV)
+
+     1  3777    1063 4061         5100     1510     3777 203
+     2  oute    gar  peritomē     ti       estin    oute akrobystia
+     3  οὔτε    γὰρ  περιτομή     τί       ἐστιν  , οὔτε ἀκροβυστία  ;
+     4  Neither for  circumcision anything is       nor  uncircumcision
+     5  Conj    Conj N-NFS        IPro-NNS V-PIA-3S Conj N-NFS
+     6  
+     7  235     2537    2937
+     8  alla    kainē   ktisis
+     9  ἀλλὰ    καινὴ   κτίσις  .
+    10  instead a new   creation
+    11  Conj    Adj-NFS N-NFS
+
+> **[II Corinthians 5:16-21](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A16-21&version=ESV)** - From now on, therefore, we regard no one according to the flesh. Even though we once regarded Christ according to the flesh, we regard him thus no longer. Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come. All this is from God, who through Christ reconciled us to himself and gave us the ministry of reconciliation; that is, in Christ God was reconciling the world to himself, not counting their trespasses against them, and entrusting to us the message of reconciliation. Therefore, we are ambassadors for Christ, God making his appeal through us. We implore you on behalf of Christ, be reconciled to God. For our sake he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
+
+
+### Repentance after being born of the Spirit
+
+As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of false religion, and I hope that this helps others also to be corrected. I have been trying to be corrected by obedience to the Gospel of Jesus a lot since [recording this 'dream' / conversation in my sleep](https://web.archive.org/web/20221128020542/https://mullikine.github.io/posts/dream-king-john-the-baptist/). After actively trying to be obedient to the Truth (obedient to Jesus), corrected and believing the Truth (Jesus and His words, Scripture), I have come to distrust odd spirits which speak to me in my sleep.
 
 I believe that among other things I have had to fight against, reject or repent from:
 
@@ -3132,6 +3171,8 @@ It's crucial to keep Jesus Christ's commandments:
 > **[I John 3:20-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A20-24&version=ESV)** - for whenever our heart condemns us, God is greater than our heart, and he knows everything. Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
 
 Work flowing from obedience is still totally by grace because we needed Jesus to obey God perfectly first! We must still obey Jesus.
+
+> **[II Timothy 1:6-14](https://www.biblegateway.com/passage/?search=2%20Timothy%201%3A6-14&version=ESV)** - For this reason I remind you to fan into flame **the gift of God, which is in you through the laying on of my hands**, for God gave us a spirit not of fear but of power and love and self-control. Therefore do not be ashamed of the testimony about our Lord, nor of me his prisoner, but share in suffering for the gospel by the power of God, who saved us and called us to a holy calling, **not because of our works but because of his own purpose and grace, which he gave us in Christ Jesus before the ages began**, and which now has been manifested through the appearing of our Savior Christ Jesus, who abolished death and brought life and immortality to light through the gospel, for which I was appointed a preacher and apostle and teacher, which is why I suffer as I do. But I am not ashamed, for I know whom I have believed, and I am convinced that he is able to guard until that Day what has been entrusted to me. **Follow the pattern of the sound words that you have heard from me, in the faith and love that are in Christ Jesus.** <ins>By the Holy Spirit who dwells within us, guard the good deposit entrusted to you.</ins> (ESV)
 
 Believing in Jesus should result in continued loving obedience to Jesus (following Jesus), and doing the work which is similar to the work that Jesus did:
 
@@ -15232,7 +15273,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1b4e132)
+See: [33.4.1](#orgfe3e5ac)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -22303,8 +22344,8 @@ Everyone who lives and believes in Jesus Christ shall never die.
     the pew next to you.
     
     But when it becomes this in your church
-    you quench the Spirit by bringing this
-    order into the fellowship and bringing a
+    you quench the Spirit by bringing
+    disorder into the fellowship and bringing a
     bad witness to the Gospel of Jesus.
 
 > **[I Corinthians 14:23-25](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A23-25&version=ESV)** - If, therefore, the whole church comes together and all speak in tongues, and outsiders or unbelievers enter, will they not say that you are out of your minds? But if all prophesy, and an unbeliever or outsider enters, he is convicted by all, he is called to account by all, the secrets of his heart are disclosed, and so, falling on his face, he will worship God and declare that God is really among you. (ESV)
@@ -29792,7 +29833,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1b4e132)
+See: [33.4.1](#orgfe3e5ac)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31493,7 +31534,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#org21adc6d) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
+    [Sinning believers](#org98da0b6) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
