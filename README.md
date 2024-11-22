@@ -51,57 +51,59 @@ This is a short preview of where I'm at with my theology. I don't claim to know 
     34  
     35  Trust, belief and obedience, and even agape and knowledge of God when they are
     36  settled in the heart is what God sees and God is our justifier, and He
-    37  justifies the one who puts their faith/trust in Jesus Christ.
-    38  
-    39  We believe by faith that we are justified by the blood of Jesus and just get
-    40  to serving God with agape love proceeding from a good conscience having
-    41  believed the Gospel and placed our faith in Christ.
-    42  
-    43  Christ died for our sins according to the Scriptures, He was buried, He was
-    44  raised on the third day according to the Scriptures, and He appeared to many
-    45  eye-witnesses.
-    46  
-    47  In this way did God agape love (treasure/value) the world, that He gave His
-    48  Only-Begotten Son that everyone who is trusting/believing in Him may not
-    49  perish, but may have life everlasting which is to be reconciled to our Creator
-    50  and His Son, in relationship with God forever, never perishing nor being cut
-    51  off from our source of life and all that is good.
-    52  
-    53  Agape love is a treasuring/valuing/preserving/compassion love and God the
-    54  Father and Jesus God the Son should be our first agape love, and those in the
-    55  family of Christ we must also agape love, and our spouses we must agape love
-    56  and we are even called to agape all people, but we're supposed to have no
-    57  agape for this world.
-    58  
-    59  Agape-loving our neighbour as ourself necessitates not bearing a grudge against
-    60  our neighbour and not taking vengeance - there is no fear or grudge or
-    61  vengence in agape love because agape love is selfless and compassionate and
-    62  agape love gives everything and holds nothing back to have a chance to
-    63  preserve and protect, to save. God would have sent Jesus even if there was
-    64  only one more person to save. Agape comes from God. God loved us this way and
-    65  paid the price for us for sin to be defeated that we may be reconciled back to
-    66  Him through Jesus. And we pass this type of love, agape love, forward to
-    67  others.
-    68  
-    69  We move forward serving God with hope to see His glory.
+    37  justifies the one who puts their faith/trust in Jesus Christ, and we continue
+    38  trusting Him so we are teachable by Him - we accept His sayings and believe Him
+    39  and are corrected by Him.
+    40  
+    41  We believe by faith that we are justified by the blood of Jesus and just get
+    42  to serving God with agape love proceeding from a good conscience having
+    43  believed the Gospel and placed our faith in Christ.
+    44  
+    45  Christ died for our sins according to the Scriptures, He was buried, He was
+    46  raised on the third day according to the Scriptures, and He appeared to many
+    47  eye-witnesses.
+    48  
+    49  In this way did God agape love (treasure/value) the world, that He gave His
+    50  Only-Begotten Son that everyone who is trusting/believing in Him may not
+    51  perish, but may have life everlasting which is to be reconciled to our Creator
+    52  and His Son, in relationship with God forever, never perishing nor being cut
+    53  off from our source of life and all that is good.
+    54  
+    55  Agape love is a treasuring/valuing/preserving/compassion love and God the
+    56  Father and Jesus God the Son should be our first agape love, and those in the
+    57  family of Christ we must also agape love, and our spouses we must agape love
+    58  and we are even called to agape all people, but we're supposed to have no
+    59  agape for this world.
+    60  
+    61  Agape-loving our neighbour as ourself necessitates not bearing a grudge against
+    62  our neighbour and not taking vengeance - there is no fear or grudge or
+    63  vengence in agape love because agape love is selfless and compassionate and
+    64  agape love gives everything and holds nothing back to have a chance to
+    65  preserve and protect, to save. God would have sent Jesus even if there was
+    66  only one more person to save. Agape comes from God. God loved us this way and
+    67  paid the price for us for sin to be defeated that we may be reconciled back to
+    68  Him through Jesus. And we pass this type of love, agape love, forward to
+    69  others.
     70  
-    71  Obedience is in the heart, along with belief in the Truth and understanding of
-    72  the gospel.
-    73  
-    74  Obedience can exist without work - a willingness of the spirit.
+    71  We move forward serving God with hope to see His glory.
+    72  
+    73  Obedience is in the heart, along with belief in the Truth and understanding of
+    74  the gospel.
     75  
-    76  Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
-    77  also be followed by faith where it's a matter of seeking praise from God and
-    78  not from men.
-    79  
-    80  Our faith should be modelled on Abraham's faith.
-    81  By faith Abraham obeyed God. By faith Christians obey Christ.
-    82  
-    83  We're supposed to have joy in our obedience to God.
+    76  Obedience can exist without work - a willingness of the spirit.
+    77  
+    78  Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
+    79  also be followed by faith where it's a matter of seeking praise from God and
+    80  not from men.
+    81  
+    82  Our faith should be modelled on Abraham's faith.
+    83  By faith Abraham obeyed God. By faith Christians obey Christ.
     84  
-    85  We're supposed to go from agapeing darkness to agapeing God's light, and into
-    86  walking in the light, walking in God's will, and we're supported by God's
-    87  Spirit as we are doing this.
+    85  We're supposed to have joy in our obedience to God.
+    86  
+    87  We're supposed to go from agapeing darkness to agapeing God's light, and into
+    88  walking in the light, walking in God's will, and we're supported by God's
+    89  Spirit as we are doing this.
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are found in Christ Jesus:
 
@@ -289,7 +291,13 @@ It's <ins>perfect</ins> self-humbling obedience throughout His sinless life as H
 
 > **[I Corinthians 15:45](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A45&version=ESV)** - Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit. (ESV)
 
-We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to serve/obey Christ. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience.
+We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to serve/obey and be taught by Christ. In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your life through belief-obedience. The gospel being inclusive of all the sayings which Jesus spoke during His ministry recorded in the books of Matthew, Mark, Luke and John and the deeds which He carried out, including making atonement for sin:
+
+> **[Luke 4:18-19](https://www.biblegateway.com/passage/?search=Luke%204%3A18-19&version=ESV)** - The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor. He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those who are oppressed, to proclaim the year of the Lord's favor. (ESV)
+
+> **[Luke 4:42-43](https://www.biblegateway.com/passage/?search=Luke%204%3A42-43&version=ESV)** - And when it was day, he departed and went into a desolate place. And the people sought him and came to him, and would have kept him from leaving them, but he said to them, I must preach **the good news of the kingdom of God** to the other towns as well; for I was sent for this purpose. (ESV)
+
+> **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
 > **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
 
@@ -441,7 +449,7 @@ This is Christ's law:
 
 > **[John 15:12](https://www.biblegateway.com/passage/?search=John%2015%3A12&version=ESV)** - **This is my commandment**, that you love one another as I have loved you. (ESV)
 
-We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and I believe we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
+We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and since we trust Jesus we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
 
 > **[Romans 2:13-16](https://www.biblegateway.com/passage/?search=Romans%202%3A13-16&version=ESV)** - For it is not the hearers of the law who are righteous before God, but **the doers of the law who will be justified**. For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law. They show that the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, <ins>God judges the secrets of men by Christ Jesus.</ins> (ESV)
 
@@ -542,11 +550,11 @@ Slaves worship idols. Christians obey God, and in obeying God we are free. We lo
 
 In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God. Even if "[apeitheó](https://biblehub.com/greek/544.htm)" is better translated to "not be pursuaded", trusting in Jesus Christ is still obedience. Unless you believe that trusting in Jesus is disobedience, which it is not. It's obedient to trust in Jesus because He commanded it in [John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV). They're not separate things. A heart that is pursuaded to trust Jesus is an obedient heart:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to trust" / "to believe" / "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing" / "trusting."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -822,7 +830,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5e3ef48) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb276358) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -848,7 +856,7 @@ The general order of salvation from what I can dilvulge from **Acts 26** and **A
     -   They believe in / trust in Jesus Christ's name
         -   **[Acts 10:43-45](https://www.biblegateway.com/passage/?search=Acts%2010%3A43-45&version=ESV)** - To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, the Holy Spirit fell on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed, because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
     -   They become trusting to God, pursuaded in the heart, believing and obedient
-        -   **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
+        -   **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
         -   **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going. (ESV)
 -   Turn from the power of Satan to God
     -   Satan stops controlling them. God starts working through them, as we believe and obey, and our house is built.
@@ -1269,7 +1277,7 @@ As we hold our faith in God, we understand that He loved us first. As we hold ou
 
 While obedience exists in the heart, as belief does, as **faith is** <ins>believing and obedient</ins> **trust**, works are the actions we do out of that obedience, that love for Jesus, and out of ongoing believing, obedient faith, out of obedience to the Holy Spirit. Doing the will of God isn't "work", but is a just mode of walking. It's a mode of walking that is different from doing the will of satan. Satan is not God's equal and opposite.
 
-> **[John 3:36](https://biblehub.com/interlinear/john/3-36.htm)** - The [one] believing (**[pisteuōn](https://biblehub.com/greek/4100.htm)**) in the Son has life eternal; the [one] however not obeying (**[apeithōn](https://biblehub.com/greek/544.htm)**) the Son not will see life but the wrath - of God abides on him (Interlinear)
+> **[John 3:36](https://biblehub.com/interlinear/john/3-36.htm)** - The [one] believing (**[G4100 pisteuōn](https://biblehub.com/greek/4100.htm)**) in the Son has life eternal; the [one] however not obeying (**[apeithōn](https://biblehub.com/greek/544.htm)**) the Son not will see life but the wrath - of God abides on him (Interlinear)
 
 We need a trusting, obedient heart. It's not just about obeying one point of belief in Jesus, but about having a heart which believes Jesus, trusts Jesus, obeys Jesus, and accepting Him and His words.
 
@@ -1291,7 +1299,7 @@ We need a trusting, obedient heart. It's not just about obeying one point of bel
     16  life    but  the     wrath  -      of God abides   on   him
     17  N-AFS   Conj Art-NFS N-NFS Art-GMS N-GMS  V-PIA-3S Prep PPro-AM3S
 
-The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
+The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God. I think the most important takeaway from this is that **faith is trusting**, even if our trusting faith may waver, our faith intrinsically is trusting of God, and trust naturally elicits both belief and obedience:
 
 > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
@@ -1324,11 +1332,11 @@ Christianity is a relationship, like a marriage:
 
 > **[Proverbs 3:5-6](https://www.biblegateway.com/passage/?search=Proverbs%203%3A5-6&version=ESV)** - **Trust** in the LORD with all your heart, and do not lean on your own understanding. In all your ways acknowledge him, and he will make straight your paths. (ESV)
 
-Belief in Jesus Christ continues in obedience, and imitating Christ:
+Belief in Jesus Christ continues in obedience, and imitating Christ as we continue trusting Him and in Him:
 
 > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
 
-It's imperative that we continue in obedience to abide by the Lord Jesus' teachings, and that includes repentance from sin:
+It's imperative that we continue in obedience to abide by the Lord Jesus' teachings, and that includes repentance from sin because He taught us to turn from our sin:
 
 > **[Colossians 3:23-25](https://www.biblegateway.com/passage/?search=Colossians%203%3A23-25&version=ESV)** - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord you will receive the inheritance as your reward. You are serving the Lord Christ. For **the wrongdoer will be paid back for the wrong he has done, and there is no partiality.**
 
@@ -1919,7 +1927,7 @@ In trusting Jesus' words - or even His name (**[onoma](https://biblehub.com/gree
 
 > **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears (**[191. akouó](https://biblehub.com/greek/191.htm)**) my word (**[3056. logos](https://biblehub.com/greek/3056.htm)**) <ins>and believes</ins> (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
 
-> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes (**[pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm)**) in him is not condemned, but **whoever does not believe is condemned already**, because he has not believed in the name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) of the only Son of God. (ESV)
+> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes (**[G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm)**) in him is not condemned, but **whoever does not believe is condemned already**, because he has not believed in the name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) of the only Son of God. (ESV)
 
 An indication that we have passed from death to life is that we [agapé](https://biblehub.com/interlinear/1_john/3-14.htm) / treasure our family in Christ:
 
@@ -3386,11 +3394,11 @@ There is always more chances to believe:
 
 In believing we have eternal life, but we need to continue in obedience to Jesus Christ or will not see life, so there should be a change of behaviour. We should have changed to serve God. Even if "[apeitheó](https://biblehub.com/greek/544.htm)" is better translated to "not be pursuaded", trusting in Jesus Christ is still obedience. Unless you believe that trusting in Jesus is disobedience, which it is not. It's obedient to trust in Jesus because He commanded it in [John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV). They're not separate things. A heart that is pursuaded to trust Jesus is an obedient heart:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -3835,11 +3843,11 @@ That's confirmed here:
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -6031,11 +6039,11 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -7107,7 +7115,7 @@ Faith is both believing and obedient, even faith in the heart:
 
 <tr>
 <td class="org-left"><a href="https://www.biblegateway.com/passage/?search=John%203%3A36&amp;version=ESV">John 3:36</a></td>
-<td class="org-left">Whoever believes in the Son has eternal life</td>
+<td class="org-left">Whoever believes (<a href="https://biblehub.com/greek/pisteuo_n_4100.htm">G4100 pisteuōn</a> - <i>is believing (verb)</i>) in the Son has eternal life</td>
 <td class="org-left">whoever does not obey (<a href="https://biblehub.com/greek/544.htm">544. apeitheó</a>) the Son shall not see life</td>
 </tr>
 
@@ -7491,7 +7499,7 @@ But we are obedient slaves now to righteousness, slaves of God, as slaves of Chr
 
 We need to obey Jesus in order to be in relationship with Him, even to live a godly life which has its benefits, and without being **persuaded by Jesus** (trusting Jesus' voice), the wrath of God remains:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 That word [apeitheó](https://biblehub.com/greek/544.htm), means to be persuaded by (with connotations of obedience). Therefore, it really means to fully hearken to Jesus, accepting Jesus' words, believing Him, trusting Him, accepting Him, including accepting His teachings, and believing His teachings.
 
@@ -7635,11 +7643,11 @@ Jesus commands us to take His yoke (obey Him) and learn from Him (believe Him):
 
 Whoever believes Jesus obeys Jesus - His sheep hear his voice, <ins>trust and obey</ins>:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -8226,11 +8234,11 @@ We must live for the will of God:
 If a person doesn't obey Jesus and His commandments then they probably are not saved because they either deny they have the spiritual circumcision which causes us to obey,
 or they do not have the heart to obey and receive salvation - so they are a goat, not a sheep.
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -8819,11 +8827,11 @@ The Holy Spirit is received through faith:
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our justification isn't contingent on "working":
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -9406,11 +9414,11 @@ We are implored to strive to follow Jesus to our best ability:
 
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -11188,7 +11196,7 @@ I know I can testify to this fiery trial being a real thing:
 
 ### If we trust in the name of the Son of God, Jesus Christ, we have eternal life
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 It's imperative that as we go ahead, we **must** abide in the teaching of Christ, or we won't have God (Jehovah God), and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience. For example, in **[Mark 10:18](https://www.biblegateway.com/passage/?search=Mark%2010%3A18&version=ESV)**, Jesus affirmed that God is Good. Therefore when we read this, we must also be sanctified by this truth, affirming and coming into agreement that God is Good. Also, Jesus commanded us to love one another as He loved us **[John 13:34-35](https://www.biblegateway.com/passage/?search=John%2013%3A34-35&version=ESV)**:
 
@@ -11196,11 +11204,11 @@ It's imperative that as we go ahead, we **must** abide in the teaching of Christ
 
 You **must** obey Jesus, and that is choosing **light** and choosing **agape love** towards God and people and not towards the world or worldly things:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -11880,7 +11888,7 @@ We are under Christ's law, not the Mosaic law:
 
 > **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but <ins>under the law of Christ</ins>) that I might win those outside the law.
 
-We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and I believe we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
+We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and since we trust Jesus we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
 
 > **[Romans 2:13-16](https://www.biblegateway.com/passage/?search=Romans%202%3A13-16&version=ESV)** - For it is not the hearers of the law who are righteous before God, but **the doers of the law who will be justified**. For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law. They show that the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, <ins>God judges the secrets of men by Christ Jesus.</ins> (ESV)
 
@@ -14875,11 +14883,11 @@ Ironically, I feel like this word [hupakouó](https://biblehub.com/greek/5219.ht
 
 Where there is perfect belief, I think there is perfect obedience. i.e. if we hold firm to belief in Jesus, keeping and believing His sayings and obey Jesus through testing, we have eternal life and will see life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -15391,7 +15399,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1e359be)
+See: [33.4.1](#org72746e3)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -15572,11 +15580,11 @@ The reason we do our good deeds is not as if we are trying to earn our acceptanc
 
 Believing in Jesus and obeying Jesus go hand in hand. Believing in Jesus, obeying Jesus, trusting in Jesus, His words and promises, are all in the heart and not the head. I'm going to keep trying to do all of those things, and not make any sweeping statements about free will:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -15641,7 +15649,7 @@ My best understanding of **[Romans 4:4](https://www.biblegateway.com/passage/?se
 
 However, the work we produce doesn't **justify us** before God (it doesn't clear us from being guilty of sin before God). We still need to have faith on God to justify us even though we are ungodly, due to the atonement for our sin by Christ's blood.
 
-We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and I believe we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
+We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and since we trust Jesus we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
 
 > **[Romans 2:13-16](https://www.biblegateway.com/passage/?search=Romans%202%3A13-16&version=ESV)** - For it is not the hearers of the law who are righteous before God, but **the doers of the law who will be justified**. For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law. They show that the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, <ins>God judges the secrets of men by Christ Jesus.</ins> (ESV)
 
@@ -16373,11 +16381,11 @@ Probably not justified:
 
 Seriously, this verse:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -16505,11 +16513,11 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -19490,7 +19498,7 @@ This is Christ's law:
 
 > **[John 15:12](https://www.biblegateway.com/passage/?search=John%2015%3A12&version=ESV)** - **This is my commandment**, that you love one another as I have loved you. (ESV)
 
-We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and I believe we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
+We must have faith in Jesus to be justified by faith. God justifies the person who trusts in Jesus and since we trust Jesus we should be doers of Christ's law (which is not outside the law of God, so we are doers of the law), and God justifies the person with the blood of Jesus. If we're trusting in Jesus then we're trusting in God who justifies the ungodly. We're not trusting in God to justify our ungodliness, but to justify us as we keep our faith in Jesus:
 
 > **[Romans 2:13-16](https://www.biblegateway.com/passage/?search=Romans%202%3A13-16&version=ESV)** - For it is not the hearers of the law who are righteous before God, but **the doers of the law who will be justified**. For when Gentiles, who do not have the law, by nature do what the law requires, they are a law to themselves, even though they do not have the law. They show that the work of the law is written on their hearts, while their conscience also bears witness, and their conflicting thoughts accuse or even excuse them on that day when, according to my gospel, <ins>God judges the secrets of men by Christ Jesus.</ins> (ESV)
 
@@ -20765,7 +20773,7 @@ I still think that trust elicits obedience. Since God commanded us to place our 
 
 Abraham was unwavering in trusting God who is absolutely reliable.
 
-The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God:
+The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God. I think the most important takeaway from this is that **faith is trusting**, even if our trusting faith may waver, our faith intrinsically is trusting of God, and trust naturally elicits both belief and obedience:
 
 > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=ESV)** - **No distrust ([apistia](https://biblehub.com/greek/570.htm)) made him waver** concerning the promise of God, but he grew strong in his faith as he gave glory to God, fully convinced that God was able to do what he had promised. **That is why** his faith was counted to him as righteousness. (ESV)
 
@@ -24283,7 +24291,7 @@ Where **[Galatians 3:12](https://www.biblegateway.com/passage/?search=Galatians%
 
 Faith and obedience are not mutually exclusive but they are mutually inclusive:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 When we obey His commandments we have obeyed Him. It's all obedience, and it's all belief. Even belief is obedience. So obedient faith is still faith and a person can be obedient to God even with regards to Mosaic law while being obedient to Jesus and placing faith in Jesus for our justification. Jesus did the work that we may be justified by faith in Him, and that includes the adherent of the law and the Gentiles. We believe that we are justified by faith in Him thanks to His perfect obedience but we **must** obey Jesus to see life. If a person is totally disobedient to Jesus then they haven't believed Him. It doesn't help in the slightest bit to be disobedient to Jesus. Obedience is an intrinsic part of faith:
 
@@ -24738,11 +24746,11 @@ Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
 
 > **[Romans 4:5](https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV)** - And to the one who does not work but **trusts** [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -25948,11 +25956,11 @@ Keeping Jesus Christ's commandments is a <ins>requirement</ins> to inherit etern
 
 Whoever truly believes Jesus trusts in and is obedient to Jesus. We must obey Jesus Christ, and that obedience means being a slave of righteousness, leading to sanctification, which leads to eternal life:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -26798,7 +26806,7 @@ AMEN!! If only someone had told me this first. We're saved from walking in evil 
 
 It's a serious act of treason when you love other things more than God; When you love something else more than God, and do not obey God, and do not believe God and do not turn from doing the will of satan to doing the will of God:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son has eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 We are instructed to do good, and to stop doing evil. We're supposed to repent from doing evil:
 
@@ -27228,7 +27236,7 @@ In the Holy Spirit, Jesus spoke the Word of God:
 
 > **[Matthew 4:1,4,7](https://www.biblegateway.com/passage/?search=Matthew%204%3A1&version=ESV)** - Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. But he answered, It is written, Man shall not live by bread alone, but by every word that comes from the mouth of God. Jesus said to him, Again it is written, You shall not put the Lord your God to the test. (ESV)
 
-> **[I John 5:7-11](https://www.biblegateway.com/passage/?search=1%20John%205%3A7-11&version=ESV)** - For there are **three that testify**: the **Spirit** and the **water** and the **blood**; and these three agree. If we receive the testimony of men, the testimony of God is greater, for this is the testimony of God that he has borne concerning his Son. Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in **the testimony that God has borne concerning his Son**. And this is the testimony, that God gave us eternal life, and this life is in his Son. (ESV)
+> **[I John 5:7-11](https://www.biblegateway.com/passage/?search=1%20John%205%3A7-11&version=ESV)** - For there are **three that testify**: the **Spirit** and the **water** and the **blood**; and these three agree. If we receive the testimony of men, the testimony of God is greater, for this is the testimony of God that he has borne concerning his Son. Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in **the testimony that God has borne concerning his Son**. And this is the testimony, that God gave us eternal life, and this life is in his Son. (ESV)
 
 Blood speaks:
 
@@ -28666,7 +28674,7 @@ Knowing Jesus Christ and Him crucified means believing the testimony and also kn
 
 > **[I Corinthians 2:1-2](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A1-2&version=ESV)** - And I, when I came to you, brothers, did not come proclaiming to you the testimony of God with lofty speech or wisdom. For I decided to **know** nothing among you except **Jesus Christ and him crucified**. (ESV)
 
-> **[I John 5:10](https://www.biblegateway.com/passage/?search=1%20John%205%3A10&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. (ESV)
+> **[I John 5:10](https://www.biblegateway.com/passage/?search=1%20John%205%3A10&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. (ESV)
 
 Know Jesus experientially:
 
@@ -29901,11 +29909,11 @@ I just have faith that I'm justified by Jesus' blood, and called out to God to h
 
 Obeying Jesus is very important:
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 -   [G4100 πιστεύων (pisteuōn)](https://biblehub.com/greek/pisteuo_n_4100.htm): This is the present participle form of the verb "πιστεύω" ([G4100 pisteuō](https://biblehub.com/greek/4100.htm)), meaning "to believe" or "to have faith." In the participle form, it functions as a verbal adjective and can be translated as "believing."
 
-> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
 But we must not believe in vain. We must continue trusting Jesus. We must believe and hold fast to the gospel:
 
@@ -30011,7 +30019,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1e359be)
+See: [33.4.1](#org72746e3)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31712,7 +31720,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#org4763578) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
+    [Sinning believers](#org70b3fc5) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
@@ -34335,7 +34343,7 @@ I confess that God was acting through Jesus Christ of Nazareth as He walked the 
 
 Whoever has faith in the Son of God has the testimony in himself.
 
-> **[I John 5:9-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A9-13&version=ESV)** - If we receive the testimony of men, the testimony of God is greater, for this is the testimony of God that he has borne concerning his Son. <ins>Whoever believes in the Son of God has the testimony in himself.</ins> Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life.
+> **[I John 5:9-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A9-13&version=ESV)** - If we receive the testimony of men, the testimony of God is greater, for this is the testimony of God that he has borne concerning his Son. <ins>Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself.</ins> Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life.
 
 
 ### We must be in Him, Jesus Christ
@@ -37796,7 +37804,7 @@ In trusting Jesus' words - or even His name (**[onoma](https://biblehub.com/gree
 
 > **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to you, whoever hears (**[191. akouó](https://biblehub.com/greek/191.htm)**) my word (**[3056. logos](https://biblehub.com/greek/3056.htm)**) <ins>and believes</ins> (**[4100. pisteuó](https://biblehub.com/greek/4100.htm)**) him who sent me has eternal life. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed (**[3327. metabain](https://biblehub.com/interlinear/john/5-24.htm)**) from death to life. (ESV)
 
-> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes (**[pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm)**) in him is not condemned, but **whoever does not believe is condemned already**, because he has not believed in the name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) of the only Son of God. (ESV)
+> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes (**[G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm)**) in him is not condemned, but **whoever does not believe is condemned already**, because he has not believed in the name (**[onoma](https://biblehub.com/greek/onoma_3686.htm)**) of the only Son of God. (ESV)
 
 
 ### Eternal life vs eternal punishment - Judgement at the close of the age
@@ -37906,7 +37914,7 @@ Proclaiming the gospel in the place of the dead *might* have only been a one-tim
 
 > **[I Peter 3:18-22](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A18-22&version=ESV)** - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring us to God, being put to death in the flesh but made alive in the spirit, in which **he went and proclaimed to the spirits in prison, because they formerly did not obey**, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of God, with angels, authorities, and powers having been subjected to him. (ESV)
 
-> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
+> **[John 3:36](https://www.biblegateway.com/passage/?search=John%203%3A36&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son **has** eternal life; whoever does not obey ([544. apeitheó](https://biblehub.com/greek/544.htm)) the Son shall not **see** life, but <ins>the wrath of God remains on him.</ins> (ESV)
 
 > **[John 5:28-29](https://www.biblegateway.com/passage/?search=John%205%3A28-29&version=ESV)** - Do not marvel at this, for an hour is coming when all who are in the tombs will hear his voice and come out, those who have done good to the resurrection of life, and those who have done evil to the resurrection of judgment. (ESV)
 
