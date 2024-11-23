@@ -830,7 +830,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org06fb863) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2a2c747) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -15399,7 +15399,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org44b5385)
+See: [33.4.1](#org3d8be24)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -28172,6 +28172,8 @@ The ones who are made perfect are the ones who are being sanctified:
 
 > **[Hebrews 10:14](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A14&version=ESV)** - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
 
+[youtube.com: counting the cost of following Jesus - romans 6  college ave young adults ](https://www.youtube.com/watch?v=15zBSGqbUis)
+
 
 ## How Christians agape love
 
@@ -30019,7 +30021,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org44b5385)
+See: [33.4.1](#org3d8be24)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31720,7 +31722,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#orge4c45ba) will still experience tribulation and 'believers' who are still unrepentantly serving sin and not serving Jesus I think might experience the literal place Hades (the bad part).
+    [Sinning believers](#orge5058d5) will still experience tribulation and 'believers' who are still unrepentantly serving sin and not serving Jesus I think might experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
@@ -38142,6 +38144,26 @@ Jesus Christ has total dominion:
 
 > **[I Peter 4:11](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A11&version=ESV)** - whoever speaks, as one who speaks oracles of God; whoever serves, as one who serves by the strength that God supplies—in order that in everything God may be glorified through Jesus Christ. To him belong glory and dominion forever and ever. Amen. (ESV)
 
+> **[Acts 2:36](https://www.biblegateway.com/passage/?search=Acts%202%3A36&version=ESV)** - Let all the house of Israel therefore know for certain that God has made him both Lord [(G2962 kurios)](https://www.blueletterbible.org/lexicon/g2962/kjv/tr/0-1/) and Christ [(G5547 Christos)](https://www.blueletterbible.org/lexicon/g5547/kjv/tr/0-1/), this Jesus whom you crucified. (ESV)
+
+    1  kurios: Lord, master, owner
+    2  Original Word: κύριος
+    3  Part of Speech: Noun, Masculine
+    4  Transliteration: kurios
+    5  Pronunciation: koo'-ree-os
+    6  Phonetic Spelling: (koo'-ree-os)
+    7  Definition: Lord, master, owner
+    8  Meaning: lord, master, sir; the Lord.
+
+    1  Christos: Christ, Anointed One, Messiah
+    2  Original Word: Χριστός
+    3  Part of Speech: Noun, Masculine
+    4  Transliteration: Christos
+    5  Pronunciation: khris-TOS
+    6  Phonetic Spelling: (khris-tos')
+    7  Definition: Christ, Anointed One, Messiah
+    8  Meaning: Anointed One; the Messiah, the Christ.
+
 
 ## The Bible says the ones who are co-heirs with Christ are the ones who suffer with Him
 
@@ -38408,6 +38430,8 @@ Please, God, continue to sanctify us.
 ## Gospel
 
 -   **Amen:** [youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling](https://www.youtube.com/watch?v=RgAjAwDACMU)
+
+> **[Isaiah 53:4-10](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A4-10&version=ESV)** - Surely he has borne our griefs and carried our sorrows; yet we esteemed him stricken, smitten by God, and afflicted. But he was wounded for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his stripes we are healed. All we like sheep have gone astray; we have turned every one to his own way; and the LORD ([3068. Yhvh](https://biblehub.com/hebrew/3068.htm) - *Phonetic Spelling: (yeh-ho-vaw'), Meaning: Jehovah*) has laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened not his mouth; like a lamb that is led to the slaughter, and like a sheep that before its shearers is silent, so he opened not his mouth. By oppression and judgment he was taken away; and as for his generation, who considered that he was cut off out of the land of the living, stricken for the transgression of my people? And they made his grave with the wicked and with a rich man in his death, although he had done no violence, and there was no deceit in his mouth. Yet it was the will of the LORD to crush him; he has put him to grief; when his soul makes an offering for sin, he shall see his offspring; he shall prolong his days; the will of the LORD shall prosper in his hand. (ESV)
 
 
 ### Christ is a ransom to be offered to all

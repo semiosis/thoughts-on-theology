@@ -40586,6 +40586,8 @@ The ones who are made perfect are the ones who are being sanctified:
 
   Hebrews 10:14 - For by a single offering he has perfected for all time those who are being sanctified. (ESV)
 
+youtube.com: counting the cost of following Jesus - romans 6 college ave young adults
+
 54.2. How Christians agape love
 
 • https://biblehub.com/interlinear/1_john/2-15.htm
@@ -54492,6 +54494,27 @@ Jesus Christ has total dominion:
   strength that God supplies—in order that in everything God may be glorified through Jesus Christ. To him belong
   glory and dominion forever and ever. Amen. (ESV)
 
+  Acts 2:36 - Let all the house of Israel therefore know for certain that God has made him both Lord (G2962
+  kurios) and Christ (G5547 Christos), this Jesus whom you crucified. (ESV)
+
+|  kurios: Lord, master, owner
+|  Original Word: κύριος
+|  Part of Speech: Noun, Masculine
+|  Transliteration: kurios
+|  Pronunciation: koo'-ree-os
+|  Phonetic Spelling: (koo'-ree-os)
+|  Definition: Lord, master, owner
+|  Meaning: lord, master, sir; the Lord.
+
+|  Christos: Christ, Anointed One, Messiah
+|  Original Word: Χριστός
+|  Part of Speech: Noun, Masculine
+|  Transliteration: Christos
+|  Pronunciation: khris-TOS
+|  Phonetic Spelling: (khris-tos')
+|  Definition: Christ, Anointed One, Messiah
+|  Meaning: Anointed One; the Messiah, the Christ.
+
 77.1. The Bible says the ones who are co-heirs with Christ are the ones who suffer with Him
 
   Romans 8:16-17 - The Spirit himself bears witness with our spirit that we are children of God, and if children,
@@ -54818,6 +54841,19 @@ Please, God, continue to sanctify us.
 Amen
 youtube.com: The Holy Spirit took over my preaching in Las Vegas and left me in awe and trembling
 
+  Isaiah 53:4-10 - Surely he has borne our griefs and carried our sorrows; yet we esteemed him stricken, smitten
+  by God, and afflicted. But he was wounded for our transgressions; he was crushed for our iniquities; upon him
+  was the chastisement that brought us peace, and with his stripes we are healed. All we like sheep have gone
+  astray; we have turned every one to his own way; and the LORD (3068. Yhvh - Phonetic Spelling: (yeh-ho-vaw'),
+  Meaning: Jehovah) has laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened
+  not his mouth; like a lamb that is led to the slaughter, and like a sheep that before its shearers is silent, so
+  he opened not his mouth. By oppression and judgment he was taken away; and as for his generation, who considered
+  that he was cut off out of the land of the living, stricken for the transgression of my people? And they made
+  his grave with the wicked and with a rich man in his death, although he had done no violence, and there was no
+  deceit in his mouth. Yet it was the will of the LORD to crush him; he has put him to grief; when his soul makes
+  an offering for sin, he shall see his offspring; he shall prolong his days; the will of the LORD shall prosper
+  in his hand. (ESV)
+
 78.4.1. Christ is a ransom to be offered to all
 
 There is one God, one Mediator. We are called to take this message to the world. And we definitely should continue
@@ -54937,7 +54973,7 @@ Date: 2024-11-23 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-23 Sat 19:38
+Created: 2024-11-23 Sat 20:28
 
 Validate
 
