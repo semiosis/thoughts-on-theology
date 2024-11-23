@@ -830,7 +830,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb276358) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org06fb863) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -15399,7 +15399,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org72746e3)
+See: [33.4.1](#org44b5385)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -30019,7 +30019,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org72746e3)
+See: [33.4.1](#org44b5385)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31720,7 +31720,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#org70b3fc5) will still experience tribulation. Believers who are unrepentant from sin are probably not true believers and will experience the literal place Hades (the bad part).
+    [Sinning believers](#orge4c45ba) will still experience tribulation and 'believers' who are still unrepentantly serving sin and not serving Jesus I think might experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
@@ -37034,6 +37034,7 @@ This is in line with what is written in Hebrews:
 > **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
 
 This morning <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-10-13 Sun&gt;</span></span>, I woke up to a dream of my Dad and my little brother Joshua in the bosom of my Dad and my Dad said, "Pardon me." - I woke up and thought about this.
+God doesn't make mistakes. We should not hold grudges with God, but instead we should be sanctified through faith in Jesus. We are to agape love God with our whole heart.
 
 And I remembered this Bible verse:
 
@@ -37044,6 +37045,8 @@ Now, writing this out, I realise it connects to this verse:
 > **[Matthew 5:8](https://www.biblegateway.com/passage/?search=Matthew%205%3A8&version=ESV)** - Blessed are the pure in heart, for they shall see God. (ESV)
 
 Recently, I have written about agape-love. Jesus commanded us to agape love the Lord our God with all our heart, soul, mind and strength. Agape love does not bear a grudge or take vengeance. Agape love is a saving, treasuring, valuing, love. We need to treasure Jesus' words, and treasure God Himself. God has to be our number one treasure and we must agape-love our wives too with the same agape love which Christ showed us, and we must agape-love those in Christ, and we are called to agape-love all people but we must not have any agape for anything of the world. And I know that what the dream I had was saying was pointing out that agape-loving God first also means not bearing a grudge with God.
+
+> **[Job 9:2-3](https://www.biblegateway.com/passage/?search=Job%209%3A2-3&version=ESV)** - Truly I know that it is so: But how can a man be in the right before God? If one wished to contend with him, one could not answer him once in a thousand times. (ESV)
 
 I was born-again on 1 Nisan, (2 April 2022). Then had a meeting with Holy Spirit on 3 May 2022 and I said my God is the True God and Jesus saved me from lies. Then on 6 Aug 2022 (feast of transfiguration of Christ) I had a dream/vision of someone I wanted to marry and on the 10 Aug, the 222nd day of 2022 at 2:22pm I proposed marriage. Then it felt like witchcraft - I was pulled into court over harassment and forced to plead a week before easter. I pleaded guilty because I was following Jesus' commandments, and only because in an extremely strict sense I am guilty. I claim that it felt like all the grace in the world was utterly sucked out of the world when I was pulled into court for breaking bail by copying out reformed church quiz night results and being baptised and telling the other side I was baptised after a harassment charge from proposing marriage - absurd, I know, but around the time I proposed marriage, I had been giving to a hindu guy who was asking me for help (i was just obeying Jesus) and I pleaded guilty in this absurd situation where I am taken to court over marriage proposal because it does no harm to the other party and because I love them. It was agape love which does no harm to your neighbour and treasures your neighbour and and in court the judge on 3 May 2023 told me I must have been baptised at midnight and that I'm not remorseful. I have been trying to love literally everybody. Being denied marriage not necessarily this one incident but generally in my life surely comes from demons / antichrist spirit.
 

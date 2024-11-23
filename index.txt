@@ -45761,8 +45761,8 @@ Because truth is truth, it is imperishable:
 
  3. Victory over sin and death through Jesus
 
-Sinning believers will still experience tribulation. Believers who are unrepentant from sin are probably not
-true believers and will experience the literal place Hades (the bad part).
+Sinning believers will still experience tribulation and 'believers' who are still unrepentantly serving sin
+and not serving Jesus I think might experience the literal place Hades (the bad part).
 
 youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec
 
@@ -52754,7 +52754,9 @@ This is in line with what is written in Hebrews:
   shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
 
 This morning <2024-10-13 Sun>, I woke up to a dream of my Dad and my little brother Joshua in the bosom of my Dad
-and my Dad said, "Pardon me." - I woke up and thought about this.
+and my Dad said, "Pardon me." - I woke up and thought about this. God doesn't make mistakes. We should not hold
+grudges with God, but instead we should be sanctified through faith in Jesus. We are to agape love God with our
+whole heart.
 
 And I remembered this Bible verse:
 
@@ -52771,6 +52773,9 @@ and we must agape-love our wives too with the same agape love which Christ showe
 in Christ, and we are called to agape-love all people but we must not have any agape for anything of the world.
 And I know that what the dream I had was saying was pointing out that agape-loving God first also means not
 bearing a grudge with God.
+
+  Job 9:2-3 - Truly I know that it is so: But how can a man be in the right before God? If one wished to contend
+  with him, one could not answer him once in a thousand times. (ESV)
 
 I was born-again on 1 Nisan, (2 April 2022). Then had a meeting with Holy Spirit on 3 May 2022 and I said my God
 is the True God and Jesus saved me from lies. Then on 6 Aug 2022 (feast of transfiguration of Christ) I had a
@@ -54932,7 +54937,7 @@ Date: 2024-11-23 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-23 Sat 09:59
+Created: 2024-11-23 Sat 19:38
 
 Validate
 
