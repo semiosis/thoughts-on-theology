@@ -830,7 +830,7 @@ AMEN!!
 
 # Confessions of faith
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge039b6f) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge692d6d) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -15399,7 +15399,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org627c7ba)
+See: [33.4.1](#orgcbe0ac1)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -22616,11 +22616,46 @@ I have to agree with the Apostle Paul here:
 
 ### Tongues etiquette
 
-I then went to another Pentecostal church, which has been my home church for the last 2 years.
+I then went to another Pentecostal church <span class="timestamp-wrapper"><span class="timestamp">&lt;2024-11-24 Sun&gt;</span></span>, which has been my home church for the last 2-3 years (also I should mention the local Reformed church has also been a support to me through 2022 and 2023).
 
-They handled the routine aspect of [I Corinthians 14:18-32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A18-32&version=ESV) today pretty well; allowing people to speak in tongues and seeking interpretation, with a good amount of prophesy mixed in. However, I think that it should be accompanied by teaching people to be discerning with a reasonable amount of the prophesies/visions/etc. building people up. But I was very disappointed that testing the spirits was not mentioned, but wildly, it was taught that we should simply speak the dreams and visions so that they come to pass. Very dodgy. We're not supposed to prophesy lying dreams or visions, etc. We've got to teach testing and discernment. We've got to test the spirits. It's very unwise to spread around any old vision or dream we get, and interpret them for ourselves without asking for interpretation, etc. I've spread lying visions to other people before and it has resulted in disastrous consequences. Very concerning stuff.
+They handled the routine aspect of [I Corinthians 14:18-32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A18-32&version=ESV) today pretty well; allowing people to speak in tongues and seeking interpretation, with a good amount of prophesy mixed in. A healthy balance of tongues and prophesy, songs, and scripture. However, I think that it should be accompanied by teaching people to be discerning with the prophesies/visions/etc. It seemed like it was all for building people up though which is good. But I was very disappointed that testing the spirits was not mentioned, but wildly, it was taught that we should simply speak the dreams and visions so that they come to pass. Very dodgy. We're not supposed to prophesy lying dreams or visions, etc. We've got to teach testing and discernment. We've got to test the spirits. It's very unwise to spread around any old vision or dream we get, and interpret them for ourselves without asking for interpretation, etc. I've spread lying visions to other people before and it has resulted in disastrous consequences. Very concerning stuff.
 
-> **[I Corinthians 14:18-32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A18-32&version=ESV)** - I thank God that I speak in tongues more than all of you. Nevertheless, in church I would rather speak five words with my mind in order to instruct others, than ten thousand words in a tongue. Brothers, do not be children in your thinking. Be infants in evil, but in your thinking be mature. In the Law it is written, By people of strange tongues and by the lips of foreigners will I speak to this people, and even then they will not listen to me, says the Lord. Thus tongues are a sign not for believers but for unbelievers, while prophecy is a sign not for unbelievers but for believers. If, therefore, the whole church comes together and all speak in tongues, and outsiders or unbelievers enter, will they not say that you are out of your minds? But if all prophesy, and an unbeliever or outsider enters, he is convicted by all, he is called to account by all, the secrets of his heart are disclosed, and so, falling on his face, he will worship God and declare that God is really among you. What then, brothers? When you come together, each one has a hymn, a lesson, a revelation, a tongue, or an interpretation. Let all things be done for building up. If any speak in a tongue, let there be only two or at most three, and each in turn, and let someone interpret. But if there is no one to interpret, let each of them keep silent in church and speak to himself and to God. Let two or three prophets speak, and let the others weigh what is said. If a revelation is made to another sitting there, let the first be silent. For you can all prophesy one by one, so that all may learn and all be encouraged, and the spirits of prophets are subject to prophets. (ESV)
+Tongues and prophecy should be encouraged, but there is etiquette.
+
+[I Corinthians 14:21-23](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A21-23&version=ESV), from what I can see *seems* to say that for the unbelievers, prophesy is not a sign, but [I Corinthians 14:24-25](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A24-25&version=ESV) says that prophesy will convicts them, and calls them to account. But tongues to the unbeliever is a sign and they are perplexed by it but not convicted - rather they are confused.
+
+This clearly says that unbelievers are convicted when they hear prophesy, but that **tongues doesn't help them to hear the Lord**.
+It also says that speaking words of instruction with our minds (bridled by the Word of God, I might add) is a priority over tongues.
+The way this word sign [(G4592 sémeion)](https://www.blueletterbible.org/lexicon/g4592/kjv/tr/0-1/) as it is used seems to indicate that it perplexes people because it's an unusual occurance.
+So to unbelievers tongues is a [sémeion](https://www.blueletterbible.org/lexicon/g4592/kjv/tr/0-1/) but to believers it is not unusual. And prophecy also perplexes believers and we should seek to weigh in on what is said, and prophesy convicts unbelievers.
+
+> **[I Corinthians 14:18-32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2014%3A18-32&version=ESV)** - I thank God that I speak in tongues more than all of you. Nevertheless, in church **I would rather speak five words with my mind in order to instruct others, than ten thousand words in a tongue**. Brothers, do not be children in your thinking. Be infants in evil, but in your thinking be mature. 21 In the Law it is written, <ins>By people of strange tongues and by the lips of foreigners will I speak to this people, and even then they will not listen to me, says the Lord. 22 Thus tongues are a sign [(G4592 sémeion)](https://www.blueletterbible.org/lexicon/g4592/kjv/tr/0-1/) not for believers but for unbelievers, while prophecy is a sign not for unbelievers but for believers.</ins> 23 If, therefore, the whole church comes together and all speak in tongues, and outsiders or unbelievers enter, will they not say that you are out of your minds? 24 But **if all prophesy, and an unbeliever or outsider enters, he is convicted by all, he is called to account by all, 25 the secrets of his heart are disclosed**, and so, falling on his face, he will worship God and declare that God is really among you. What then, brothers? **When you come together, each one has a hymn, a lesson, a revelation, a tongue, or an interpretation. Let all things be done for building up.** If any speak in a tongue, let there be only two or at most three, and each in turn, and let someone interpret. But if there is no one to interpret, let each of them keep silent in church and speak to himself and to God. Let two or three prophets speak, and **let the others weigh what is said**. If a revelation is made to another sitting there, let the first be silent. For **you can all prophesy one by one, so that all may learn and all be encouraged, and the spirits of prophets are subject to prophets**. (ESV)
+
+     1  5620    3588    1100    1519 4592    1510     3756 3588
+     2  Hōste   hai     glōssai eis  sēmeion eisin    ou   tois
+     3  Ὥστε    αἱ      γλῶσσαι εἰς  σημεῖόν εἰσιν  , οὐ   τοῖς
+     4  So then  -      tongues for  a sign  are      not  to those
+     5  Conj    Art-NFP N-NFP   Prep N-ANS   V-PIA-3P Adv  Art-DMP
+     6  
+     7  4100           235  3588    571         3588    1161
+     8  pisteuousin    alla tois    apistois    hē      de
+     9  πιστεύουσιν  , ἀλλὰ τοῖς    ἀπίστοις  ; ἡ       δὲ
+    10  believing      but  to the  unbelieving  -      but
+    11  V-PPA-DMP      Conj Art-DMP Adj-DMP     Art-NFS Conj
+    12  
+    13  4394       3756     3588    571         235
+    14  prophēteia ou       tois    apistois    alla
+    15  προφητεία  οὐ       τοῖς    ἀπίστοις  , ἀλλὰ
+    16  prophecy   [is] not to the  unbelieving but
+    17  N-NFS      Adv      Art-DMP Adj-DMP     Conj
+    18  
+    19  3588    4100
+    20  tois    pisteuousin
+    21  τοῖς    πιστεύουσιν  .
+    22  to the  believing
+    23  Art-DMP V-PPA-DMP
+
+-   **[4592 sēmeíon](https://biblehub.com/greek/4592.htm):** a sign (typically miraculous), given especially to confirm, corroborate or authenticate. 4592 /sēmeíon ("sign") then emphasizes the end-purpose which exalts the one giving it. Accordingly, it is used dozens of times in the NT for what authenticates the Lord and His eternal purpose, especially by doing what mere man can not replicate of take credit for.
 
 -   **[youtube.com: An Open Letter to the Pentecostal Churches - Speaking in Tongues](https://www.youtube.com/watch?v=ojwE2MRTZpY):** but it has been
     turned into a spiritual competition our
@@ -30161,7 +30196,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance:
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org627c7ba)
+See: [33.4.1](#orgcbe0ac1)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -31862,7 +31897,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
 
 3.  Victory over sin and death through Jesus
 
-    [Sinning believers](#orgc109c30) will still experience tribulation and 'believers' who are still unrepentantly serving sin and not serving Jesus I think might experience the literal place Hades (the bad part).
+    [Sinning believers](#org95c98c5) will still experience tribulation and 'believers' who are still unrepentantly serving sin and not serving Jesus I think might experience the literal place Hades (the bad part).
     
     -   **[youtube.com: Christ Appeared for Our Sake @time: 11 min 21 sec](https://youtu.be/MEYSRQCfIHc?t=660):** I think the resurrection of Jesus does two things: One, it vindicates the value of the ransom. When God looked down on the bloodshedding of his Son, which he himself ordained and caused, and He looked at it and Jesus said, "It is finished.", the Father said, "It **is** finished."
         Then He raised him from the dead to say to all the world, "It was finished. It is all satisfying and all valuable and all sufficient. No more needs to be paid. Once for all, it is done."
