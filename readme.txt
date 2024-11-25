@@ -27219,6 +27219,29 @@ false interpretations floating around.
 
 It's false to say that 'all spirit is true' and body and soul are false.
 
+  Jeremiah 14:14 - And the LORD said to me: The prophets are prophesying lies in my name. I did not send them, nor
+  did I command them or speak to them. They are prophesying to you a lying vision, worthless divination, and the
+  deceit of their own minds. (ESV)
+
+  Isaiah 30:1-5 - Ah, stubborn children, declares the LORD, who carry out a plan, but not mine, and who make an
+  alliance, but not of my Spirit, that they may add sin to sin; who set out to go down to Egypt, without asking
+  for my direction, to take refuge in the protection of Pharaoh and to seek shelter in the shadow of Egypt!
+  Therefore shall the protection of Pharaoh turn to your shame, and the shelter in the shadow of Egypt to your
+  humiliation. For though his officials are at Zoan and his envoys reach Hanes, everyone comes to shame through a
+  people that cannot profit them, that brings neither help nor profit, but shame and disgrace. (ESV)
+
+  Hosea 4:12 - My people inquire of a piece of wood, and their walking staff gives them oracles. For a spirit of
+  whoredom has led them astray, and they have left their God to play the whore. (ESV)
+
+  Isaiah 30:9 - For they are a rebellious people, lying children, children unwilling to hear the instruction of
+  the LORD; (ESV)
+
+  I Chronicles 10:13-14 - So Saul died for his breach of faith. He broke faith with the LORD in that he did not
+  keep the command of the LORD, and also consulted a medium, seeking guidance. He did not seek guidance from the
+  LORD. Therefore the LORD put him to death and turned the kingdom over to David the son of Jesse. (ESV)
+
+Rather we must listen to God:
+
   John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
   through me. (ESV)
 
@@ -55211,7 +55234,7 @@ Date: 2024-11-25 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-25 Mon 10:06
+Created: 2024-11-25 Mon 16:09
 
 Validate
 
