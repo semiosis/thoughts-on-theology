@@ -34984,6 +34984,9 @@ Those in the Kingdom of God are serving Christ. As we serve Christ, we are appro
 
   Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
+  II Timothy 2:15 - Do your best to present yourself to God as one approved, a worker who has no need to be
+  ashamed, rightly handling the word of truth. (ESV)
+
 Inheriting the Kingdom, however, appears to be reigning with Christ:
 
   Daniel 7:18 - But the saints of the Most High shall receive the kingdom and possess the kingdom forever, forever
@@ -54497,6 +54500,20 @@ partiality.
   and come out, those who have done good to the resurrection of life, and those who have done evil to the
   resurrection of judgment. (ESV)
 
+Jesus has literally taught people that that if we love our enemies, do good and lend, expecting nothing in return
+we will be rewarded and be sons of the Most High. This shows that obedience to Jesus is just part of having faith
+in Jesus:
+
+  Luke 6:35-36 - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will
+  be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful,
+  even as your Father is merciful. (ESV)
+
+The prophets, saints, and servants of Jesus will be rewarded:
+
+  Revelation of John 11:18 - The nations raged, but your wrath came, and the time for the dead to be judged, and
+  for rewarding your servants, the prophets and saints, and those who fear your name, both small and great, and
+  for destroying the destroyers of the earth. (ESV)
+
 76.3.9. The unrepentant sinners including believers who do not want to repent from sin
 
 Sinning believers will still experience tribulation. Believers who are unrepentant from sin are probably not true
@@ -55234,7 +55251,7 @@ Date: 2024-11-25 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-25 Mon 16:09
+Created: 2024-11-25 Mon 23:08
 
 Validate
 
