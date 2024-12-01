@@ -1154,6 +1154,8 @@ AMEN!!
 
 1. Confessions of faith
 
+1.1. The order of salvation
+
 I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious
 topics as the order of salvation, or salvation by obedience and I want my theology to be 'raw and real', and
 always Scriptural.
@@ -1283,7 +1285,7 @@ they have the authority to become children of God:
   became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of
   grace and truth. (ESV)
 
-1.1. Living in observance of the Law is fine, and even encouraged
+1.2. Living in observance of the Law is fine, and even encouraged
 
 Given that Moses had been already been proclaimed in those cities of the Gentiles mentioned, they sought to remind
 them to observe these 4 things:
@@ -1293,9 +1295,10 @@ them to observe these 4 things:
   been strangled, and from blood. For from ancient generations Moses has had in every city those who proclaim him,
   for he is read every Sabbath in the synagogues. (ESV)
 
-God who knows the heart gave the Gentiles who trusted/believed the Holy Spirit, and cleansed their hearts by
-faith. The Apostle Peter made a point that he (Peter) and the other Apostles were also relying on the grace of
-God, believing that they (the Aposles) would be saved, just as the Gentiles who believed would:
+God (who knows the heart) gave to the Gentiles who had trusted/believed the Holy Spirit, just as he had given to
+those Jews who had believed, and God cleansed their hearts by faith. The Apostle Peter made a point that he
+(Peter) and the other Apostles were also relying on the grace of God, believing that they (the Apostles) would be
+saved, just as the Gentiles who believed would be saved:
 
   Acts 15:5-11 - But some believers who belonged to the party of the Pharisees rose up and said, It is necessary
   to circumcise them and to order them to keep the law of Moses. The apostles and the elders were gathered
@@ -1339,7 +1342,7 @@ some circulating rumor that he had been doing that:
   abstain from what has been sacrificed to idols, and from blood, and from what has been strangled, and from
   sexual immorality. (ESV)
 
-1.1.1. It's interesting that the KJV reads quite differently here, but I'm comfortable with the ESV
+1.2.1. It's interesting that the KJV reads quite differently here, but I'm comfortable with the ESV
 
   Acts 21:20-25 - And when they heard it, they glorified the Lord, and said unto him, Thou seest, brother, how
   many thousands of Jews there are which believe; and they are all zealous of the law: And they are informed of
@@ -1354,7 +1357,7 @@ some circulating rumor that he had been doing that:
 
   Proverbs 28:9 - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
 
-1.2. I'm non-denominational
+1.3. I'm non-denominational
 
 I do not consider myself to be a part of any particular denomination; I have an affinity to churches which have
 strong Biblical teaching, and a focus on applying Jesus' commandments.
@@ -1367,12 +1370,12 @@ due to Him who sends it.
   Romans 14:22 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to
   pass judgment on himself for what he approves. (ESV)
 
-1.3. 1689 Baptist confession of faith
+1.4. 1689 Baptist confession of faith
 
 Read
 https://www.the1689confession.com/
 
-1.3.1. Chapter 1
+1.4.1. Chapter 1
 
 |  Paragraph 10
 | 
@@ -1390,7 +1393,7 @@ https://www.the1689confession.com/
 
 AMEN!!
 
-1.3.2. Notes for Chapter 2, paragraph 1
+1.4.2. Notes for Chapter 2, paragraph 1
 
   Numbers 14:18 - The LORD is slow to anger and abounding in steadfast love, forgiving iniquity and transgression,
   but he will by no means clear the guilty, visiting the iniquity of the fathers on the children, to the third and
@@ -1459,7 +1462,7 @@ Jesus will serve His servants who are awake:
 
   Matthew 23:11 - The greatest among you shall be your servant. (ESV)
 
-1.3.3. Notes for Chapter 9, paragraph 3
+1.4.3. Notes for Chapter 9, paragraph 3
 
 |  Paragraph 3
 | 
@@ -1505,7 +1508,7 @@ So the problem in my opinion is not the will to do the will of God but the abili
   who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
   have the desire to do what is right, but not the ability to carry it out. (ESV)
 
-1.4. Heidelberg Catechism
+1.5. Heidelberg Catechism
 
 • https://www.crcna.org/welcome/beliefs/confessions/heidelberg-catechism
 
@@ -55322,7 +55325,7 @@ Date: 2024-12-01 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-12-01 Sun 17:44
+Created: 2024-12-01 Sun 18:07
 
 Validate
 
