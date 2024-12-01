@@ -1283,7 +1283,79 @@ they have the authority to become children of God:
   became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of
   grace and truth. (ESV)
 
-1.1. I'm non-denominational
+1.1. Living in observance of the Law is fine, and even encouraged
+
+Given that Moses had been already been proclaimed in all the cities of the Gentiles, they sought to remind them to
+observe these 4 things:
+
+  Acts 15:19-21 - Therefore my judgment is that we should not trouble those of the Gentiles who turn to God, but
+  should write to them to abstain from the things polluted by idols, and from sexual immorality, and from what has
+  been strangled, and from blood. For from ancient generations Moses has had in every city those who proclaim him,
+  for he is read every Sabbath in the synagogues. (ESV)
+
+God who knows the heart gave the Gentiles who trusted/believed the Holy Spirit, and cleansed their hearts by
+faith. The Apostle Peter made a point that he (Peter) and the other Apostles were also relying on the grace of
+God, believing that they (the Aposles) would be saved, just as the Gentiles who believed would:
+
+  Acts 15:5-11 - But some believers who belonged to the party of the Pharisees rose up and said, It is necessary
+  to circumcise them and to order them to keep the law of Moses. The apostles and the elders were gathered
+  together to consider this matter. And after there had been much debate, Peter stood up and said to them,
+  Brothers, you know that in the early days God made a choice among you, that by my mouth the Gentiles should hear
+  the word of the gospel and believe. And God, who knows the heart, bore witness to them, by giving them the Holy
+  Spirit just as he did to us, and he made no distinction between us and them, having cleansed their hearts by
+  faith. Now, therefore, why are you putting God to the test by placing a yoke on the neck of the disciples that
+  neither our fathers nor we have been able to bear? But we believe that we will be saved through the grace of the
+  Lord Jesus, just as they will. (ESV)
+
+The same Apostle Peter made a point here about how we obey the Truth for a sincere brotherly love from a pure
+heart, purifying our souls. We believe and obey the good news:
+
+  I Peter 1:22-25 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love
+  one another earnestly from a pure heart, since you have been born again, not of perishable seed but of
+  imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the
+  flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this
+  word is the good news that was preached to you. (ESV)
+
+• The soul is purified by obeying the truth for a sincere brotherly love issuing from a pure heart
+• this may be done in observing the Law (Torah) which is useful for correction and training in
+righteousness
+• Step 1: Believe the gospel / good news / the word of the Lord, cleansing our heart by faith.
+• The heart is purified by faith - believing the gospel.
+• Step 2 and ongoing: Love one another earnestly from a pure heart, obeying the Truth.
+• This obedience to the Truth may be done in observing the Law (Torah) which is useful for correction and
+training in righteousness.
+• Also we hold fast to the gospel.
+
+It seems that people can indeed be both zealous for the Law (Torah), observing the Law (Torah), and at the same
+time be believers in Jesus:
+
+  Acts 21:20-25 - And when they heard it, they glorified God. And they said to him, You see, brother, how many
+  thousands there are among the Jews of those who have believed. They are all zealous for the law, and they have
+  been told about you that you teach all the Jews who are among the Gentiles to forsake Moses, telling them not to
+  circumcise their children or walk according to our customs. What then is to be done? They will certainly hear
+  that you have come. Do therefore what we tell you. We have four men who are under a vow; take these men and
+  purify yourself along with them and pay their expenses, so that they may shave their heads. Thus all will know
+  that there is nothing in what they have been told about you, but that you yourself also live in observance of
+  the law. But as for the Gentiles who have believed, we have sent a letter with our judgment that they should
+  abstain from what has been sacrificed to idols, and from blood, and from what has been strangled, and from
+  sexual immorality. (ESV)
+
+1.1.1. It's interesting that the KJV reads quite differently here, but I'm comfortable with the ESV
+
+  Acts 21:20-25 - And when they heard it, they glorified the Lord, and said unto him, Thou seest, brother, how
+  many thousands of Jews there are which believe; and they are all zealous of the law: And they are informed of
+  thee, that thou teachest all the Jews which are among the Gentiles to forsake Moses, saying that they ought not
+  to circumcise their children, neither to walk after the customs. What is it therefore? the multitude must needs
+  come together: for they will hear that thou art come. Do therefore this that we say to thee: We have four men
+  which have a vow on them; Them take, and purify thyself with them, and be at charges with them, that they may
+  shave their heads: and all may know that those things, whereof they were informed concerning thee, are nothing;
+  but that thou thyself also walkest orderly, and keepest the law. As touching the Gentiles which believe, we have
+  written and concluded that they observe no such thing, save only that they keep themselves from things offered
+  to idols, and from blood, and from strangled, and from fornication. (KJV)
+
+  Proverbs 28:9 - If one turns away his ear from hearing the law, even his prayer is an abomination. (ESV)
+
+1.2. I'm non-denominational
 
 I do not consider myself to be a part of any particular denomination; I have an affinity to churches which have
 strong Biblical teaching, and a focus on applying Jesus' commandments.
@@ -1296,12 +1368,12 @@ due to Him who sends it.
   Romans 14:22 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to
   pass judgment on himself for what he approves. (ESV)
 
-1.2. 1689 Baptist confession of faith
+1.3. 1689 Baptist confession of faith
 
 Read
 https://www.the1689confession.com/
 
-1.2.1. Chapter 1
+1.3.1. Chapter 1
 
 |  Paragraph 10
 | 
@@ -1319,7 +1391,7 @@ https://www.the1689confession.com/
 
 AMEN!!
 
-1.2.2. Notes for Chapter 2, paragraph 1
+1.3.2. Notes for Chapter 2, paragraph 1
 
   Numbers 14:18 - The LORD is slow to anger and abounding in steadfast love, forgiving iniquity and transgression,
   but he will by no means clear the guilty, visiting the iniquity of the fathers on the children, to the third and
@@ -1388,7 +1460,7 @@ Jesus will serve His servants who are awake:
 
   Matthew 23:11 - The greatest among you shall be your servant. (ESV)
 
-1.2.3. Notes for Chapter 9, paragraph 3
+1.3.3. Notes for Chapter 9, paragraph 3
 
 |  Paragraph 3
 | 
@@ -1434,7 +1506,7 @@ So the problem in my opinion is not the will to do the will of God but the abili
   who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
   have the desire to do what is right, but not the ability to carry it out. (ESV)
 
-1.3. Heidelberg Catechism
+1.4. Heidelberg Catechism
 
 • https://www.crcna.org/welcome/beliefs/confessions/heidelberg-catechism
 
@@ -55247,11 +55319,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-11-25 Mon 00:00
+Date: 2024-12-01 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-11-25 Mon 23:08
+Created: 2024-12-01 Sun 16:32
 
 Validate
 
