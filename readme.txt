@@ -1285,8 +1285,8 @@ they have the authority to become children of God:
 
 1.1. Living in observance of the Law is fine, and even encouraged
 
-Given that Moses had been already been proclaimed in all the cities of the Gentiles, they sought to remind them to
-observe these 4 things:
+Given that Moses had been already been proclaimed in those cities of the Gentiles mentioned, they sought to remind
+them to observe these 4 things:
 
   Acts 15:19-21 - Therefore my judgment is that we should not trouble those of the Gentiles who turn to God, but
   should write to them to abstain from the things polluted by idols, and from sexual immorality, and from what has
@@ -1316,18 +1316,17 @@ heart, purifying our souls. We believe and obey the good news:
   flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this
   word is the good news that was preached to you. (ESV)
 
-• The soul is purified by obeying the truth for a sincere brotherly love issuing from a pure heart
-• this may be done in observing the Law (Torah) which is useful for correction and training in
-righteousness
 • Step 1: Believe the gospel / good news / the word of the Lord, cleansing our heart by faith.
 • The heart is purified by faith - believing the gospel.
 • Step 2 and ongoing: Love one another earnestly from a pure heart, obeying the Truth.
+• The soul is purified by obeying the truth for a sincere brotherly love issuing from a pure heart
 • This obedience to the Truth may be done in observing the Law (Torah) which is useful for correction and
 training in righteousness.
 • Also we hold fast to the gospel.
 
 It seems that people can indeed be both zealous for the Law (Torah), observing the Law (Torah), and at the same
-time be believers in Jesus:
+time be believers in Jesus. Paul wasn't telling people to forsake Moses, as far as I understand, but there was
+some circulating rumor that he had been doing that:
 
   Acts 21:20-25 - And when they heard it, they glorified God. And they said to him, You see, brother, how many
   thousands there are among the Jews of those who have believed. They are all zealous for the law, and they have
@@ -55323,7 +55322,7 @@ Date: 2024-12-01 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-12-01 Sun 16:32
+Created: 2024-12-01 Sun 17:44
 
 Validate
 
