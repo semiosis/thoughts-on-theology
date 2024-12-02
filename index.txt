@@ -1329,11 +1329,62 @@ heart, purifying our souls. We believe and obey the good news:
 • Step 1 and ongoing: Believe the gospel / good news / the word of the Lord, cleansing our heart by faith.
 • The heart is purified by faith - believing the gospel.
 • Hold fast to the gospel.
-• Step 2 and ongoing: Love one another earnestly from a pure heart, obeying the Truth.
-• The soul is purified by obeying the truth for a sincere brotherly love issuing from a pure heart
-• This obedience to the Truth may be done in observing the Law (Torah) which is useful for correction and
-training in righteousness.
+• Step 2 and ongoing: Love one another earnestly from a pure heart, obeying the Truth who is Jesus and the Truth
+which is the Word of God, even the Scripture.
+• The soul is purified by obeying the Truth for a sincere brotherly love issuing from a pure heart.
+• This obedience to the Truth is primarily continuing to obey Jesus who is the Truth and our Lord and
+Master and may be done while observing the Law (Torah) which is useful for correction and training in
+righteousness, but we do not call the Law our Master. We are primarily slaves to Jesus who is our
+Righteousness. We don't teach against following the Law by faith but we follow Jesus first and foremost
+and have freedom as we do this, and the law doesn't condemn us as we are following Jesus.
 • Also we continue holding fast to the gospel.
+
+So you see that whoever hopes in Jesus (has faith in Jesus) purifies himself as He is pure by obedience to the
+Truth. So this is really about turning away from sin, even after having come to faith in Jesus:
+
+  I John 3:2-7 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that
+  when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him
+  purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
+  lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him
+  keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one
+  deceive you. Whoever practices righteousness is righteous, as he is righteous. (ESV)
+
+It's the flesh which is weak thanks to sin in the flesh. But in our inner being, we delight in the law of God.
+This is definitely true to me:
+
+  Romans 7:16-25 - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I
+  who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
+  have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but
+  the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but
+  sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I
+  delight in the law of God, in my inner being, but I see in my members another law waging war against the law of
+  my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will
+  deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the
+  law of God with my mind, but with my flesh I serve the law of sin. (ESV)
+
+And whoever doesn't have the heart to do this is of the devil. God's seed does not sin. Whatever is born of God
+does not sin:
+
+  I John 3:7-11 - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+But also, not only the flesh but worldly people rebel against us when we want to obey God. I get all sorts of
+opposition against me for obedience to God or when I say we must obey God.
+
+  I John 5:19 - We know that we are from God, and the whole world lies in the power of the evil one. (ESV)
+
+We must believe in, trust, believe, obey, follow Jesus:
+
+  John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
+  darkness, but will have the light of life. (ESV)
+
+  John 12:46 - I have come into the world as light, so that whoever believes in me may not remain in darkness.
+  (ESV)
 
 It seems that people can indeed be both zealous for the Law (Torah), observing the Law (Torah), and at the same
 time be believers in Jesus. Paul wasn't telling people to forsake Moses, as far as I understand, but there was
@@ -3715,6 +3766,11 @@ I think being born of God might in some way mean being born of the will of God:
 
   I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. (ESV)
+
+I find both of these helpful:
+
+• youtube.com: "Whosoever is Born of God Doth Not Commit Sin" 1 John 3 Explained {@OnoDiamante}
+• youtube.com: Does the Bible Say True Christians Never Sin? {@desiringGod}
 
 I think this verse could likely mean that the person who is born of God has the power to not sin, as opposed to
 "never sins", but I'd have to research that:
@@ -55329,11 +55385,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-12-01 Sun 00:00
+Date: 2024-12-03 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-12-01 Sun 18:41
+Created: 2024-12-03 Tue 09:38
 
 Validate
 
