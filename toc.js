@@ -13,6 +13,8 @@ class TOC {
       const hLevel = heading.outerHTML.match(/<h([\d]).*>/)[1]
       const titleText = heading.innerText
 
+      console.log(hLevel + " " + titleText)
+
       // console.log(hLevel)
 
       switch (hLevel >= curLevel) {
