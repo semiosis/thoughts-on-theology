@@ -10,10 +10,10 @@ New Testament Greek study
 
 I'd like to understand the Greek behind the phrase in the teaching of
 Christ. Because I'm interested in whether the phrase teaching of Christ
-refers to the teachings that Christ taught including His teachings
-before His death, burial and resurrection, or if it the phrase is also
-talking about the doctrine surrounding what is known about Christ. My
-guess is both, but I'd like to understand the Greek a bit better.
+refers to the teachings that Christ taught including His teachings before
+His death, burial and resurrection, or if it the phrase is also talking
+about the doctrine surrounding what is known about Christ. My guess is
+both, but I'd like to understand the Greek a bit better.
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the
   teaching of Christ, does not have God. Whoever abides in the teaching
@@ -52,8 +52,7 @@ Notes from https://en.wikipedia.org/wiki/Grammatical_case:
 • Hello, John!
 • O John, how are you! (archaic)
 • Interrogative:
-• Notes: Roughly corresponds to the archaic use of "O" in
-English.
+• Notes: Roughly corresponds to the archaic use of "O" in English.
 • A (Accusative)
 • Indicates: Direct object of a transitive verb
 • Sample case words: us, for us, the (object)
@@ -87,8 +86,8 @@ determiners and pronouns) and preposition of construction.
 • Interrogative: Whom or to what?
 • Notes: Corresponds to English's object pronouns and preposition
 to construction before the object, often marked by a definite
-article the. Together with accusative, it forms modern
-English's oblique case.
+article the. Together with accusative, it forms modern English's
+oblique case.
 
 1.2.1. Interlinear
 
