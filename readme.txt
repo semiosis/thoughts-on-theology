@@ -4239,9 +4239,11 @@ repent from:
 
 • a spirit of Mormomism
 • youtube.com: Mormon Religion in a nutshell - John MacArthur
+{@apologetics-jude1383}
 • Thanks, John MacArthur. Yeah, I do not affirm Mormonism at all.
 • youtube.com: Mormon Jesus vs Bible Jesus - Jeff Durbin
-• youtube.com: Dr. John MacArthur on Mormonism
+{@apologetics-jude1383}
+• youtube.com: Dr. John MacArthur on Mormonism {@JmPizzle1}
 • According to Mormon theology, the Mormon couples that have
 been baptized in the temple in Salt Lake and have been
 faithful Mormons and done what you're supposed to do they
@@ -4256,13 +4258,16 @@ different Source material and you got a false religion.
 • Joseph Smith is a false prophet.
 • a spirit of Islam
 • youtube.com: How Thomas Aquinas refuted Muhammad and Islam
+{@SanctusApologetics}
 • Summa Contra Gentiles of St. Thomas Aquinas
+• youtube.com: The Heresy of Islam | St. John of Damascus
+{@SanctusApologetics}
 • a spirit of LGBT
 • a spirit of Hinduism
 • a spirit of Gnosticism
 • a spirit of New Age
 • youtube.com: Demonically Oppressed to Divinely Saved, New Age to
-Jesus Testimony
+Jesus Testimony {@samkalawart}
 
 I have also had to:
 
@@ -4289,6 +4294,7 @@ I appreciated Bryce's testimony here as he also had to turn away from
 false religion to follow Jesus:
 
 youtube.com: Bryce Crawford's testimony: Sharing Jesus With An Atheist!
+{@thebrycecrawford}
 
 So there was a night I was going to take my life - it was on Christmas of
 2020 - and I went to go have my last meal and I had a supernatural
@@ -18028,6 +18034,74 @@ procrastinating expect to somehow live for Christ tomorrow. This writer
 is saying that neither of those types of Christianity work as far as
 striving after God's rest. The Christianity of the Bible is the today
 kind of Christianity.
+
+It was unbelief which led to these people's sin of idolatry and
+covetousness which prevented them from entering into God's rest:
+
+  Hebrews 3:7-15 - Therefore, as the Holy Spirit says, Today, if you hear
+  his voice, do not harden your hearts as in the rebellion, on the day of
+  testing in the wilderness, where your fathers put me to the test and
+  saw my works for forty years. Therefore I was provoked with that
+  generation, and said, They always go astray in their heart; they have
+  not known my ways. As I swore in my wrath, They shall not enter my
+  rest. Take care, brothers, lest there be in any of you an evil,
+  unbelieving heart, leading you to fall away from the living God. But
+  exhort one another every day, as long as it is called today, that none
+  of you may be hardened by the deceitfulness of sin. For we share in
+  Christ, if indeed we hold our original confidence firm to the end. As
+  it is said, Today, if you hear his voice, do not harden your hearts as
+  in the rebellion. (ESV)
+
+  Hebrews 3:16-19 - For who were those who heard and yet rebelled? Was it
+  not all those who left Egypt led by Moses? And with whom was he
+  provoked for forty years? Was it not with those who sinned, whose
+  bodies fell in the wilderness? And to whom did he swear that they would
+  not enter his rest, but to those who were disobedient? So we see that
+  they were unable to enter because of unbelief. (ESV)
+
+  Hebrews 4:7-11 - again he appoints a certain day, Today, saying through
+  David so long afterward, in the words already quoted, Today, if you
+  hear his voice, do not harden your hearts. For if Joshua had given them
+  rest, God would not have spoken of another day later on. So then, there
+  remains a Sabbath rest for the people of God, for whoever has entered
+  God's rest has also rested from his works as God did from his. Let us
+  therefore strive to enter that rest, so that no one may fall by the
+  same sort of disobedience. (ESV)
+
+It was idolatry that was the disobedience which prevented these from
+entering into God's rest:
+
+  I Corinthians 10:1-14 - I want you to know, brothers, that our fathers
+  were all under the cloud, and all passed through the sea, and all were
+  baptized into Moses in the cloud and in the sea, and all ate the same
+  spiritual food, and all drank the same spiritual drink. For they drank
+  from the spiritual Rock that followed them, and the Rock was Christ.
+  Nevertheless, with most of them God was not pleased, for they were
+  overthrown in the wilderness. Now these things took place as examples
+  for us, that we might not desire evil as they did. Do not be idolaters
+  as some of them were; as it is written, The people sat down to eat and
+  drink and rose up to play. We must not indulge in sexual immorality as
+  some of them did, and twenty-three thousand fell in a single day. We
+  must not put Christ to the test, as some of them did and were destroyed
+  by serpents, nor grumble, as some of them did and were destroyed by the
+  Destroyer. Now these things happened to them as an example, but they
+  were written down for our instruction, on whom the end of the ages has
+  come. Therefore let anyone who thinks that he stands take heed lest he
+  fall. No temptation has overtaken you that is not common to man. God is
+  faithful, and he will not let you be tempted beyond your ability, but
+  with the temptation he will also provide the way of escape, that you
+  may be able to endure it. Therefore, my beloved, flee from idolatry.
+  (ESV)
+
+If you keep Jesus' commandments then the Spirit of Truth will come to
+you, and help you, and be in you. If we obey Jesus, the Holy Spirit helps
+us, even before He's inside us:
+
+  John 14:15-17 - If you love me, you will keep my commandments. And I
+  will ask the Father, and he will give you another Helper, to be with
+  you forever, even the Spirit of truth, whom the world cannot receive,
+  because it neither sees him nor knows him. You know him, for he dwells
+  with you and will be in you. (ESV)
 
 5.15.3. Obedience to Jesus has everything to do with receiving Him, and
 receiving Salvation
@@ -46298,39 +46372,39 @@ perish. We have to stop believing falsehood and believe the truth,
 believe/trust Jesus and Jesus' words:
 
   Luke 13:3 - No, I tell you; but unless you repent (3340. metanoeó), you
-  will all likewise perish. (ESV) #+END[QUOTE]􀀲􇊜
+  will all likewise perish. (ESV)
 
-  We must repent (change our minds, turning from our wicked ways, and
-  turn to God) and obey God and it typically starts with changing our
-  beliefs and most importantly believing Jesus Christ is who He says He
-  is - Son of God, Messiah - but also believing what He achieved on our
-  behalf with His death, burial and resurrection, and trusting the Word
-  of God and obeying Him.
+We must repent (change our minds, turning from our wicked ways, and turn
+to God) and obey God and it typically starts with changing our beliefs
+and most importantly believing Jesus Christ is who He says He is - Son of
+God, Messiah - but also believing what He achieved on our behalf with His
+death, burial and resurrection, and trusting the Word of God and obeying
+Him.
 
-  God has said many things, about his statutes and about how we should
-  listen to Jesus.
+God has said many things, about his statutes and about how we should
+listen to Jesus.
 
-  I think repentance from sin (from the heart turning from sin) out of
-  obedience to God is still approaching Jesus because Jesus fulfilled the
-  law but when presented with the gospel message, we are to accept Jesus
-  and submit to God's righteousness.
+I think repentance from sin (from the heart turning from sin) out of
+obedience to God is still approaching Jesus because Jesus fulfilled the
+law but when presented with the gospel message, we are to accept Jesus
+and submit to God's righteousness.
 
-  So we should humble ourselves and obey God's commandments (not out of
-  pride, but out of authentic faith with God, being accountable to God,
-  in secret).
+So we should humble ourselves and obey God's commandments (not out of
+pride, but out of authentic faith with God, being accountable to God, in
+secret).
 
-  For example, abstaining from partaking in stealing, or adultery and
-  being faithful to God, even if you lose friends over it. This type of
-  obeying God's commandments is nothing to do with pride or
-  self-exultation or self-righteousness and everything to do with being
-  faithful to God and humbling oneself to God.
+For example, abstaining from partaking in stealing, or adultery and being
+faithful to God, even if you lose friends over it. This type of obeying
+God's commandments is nothing to do with pride or self-exultation or
+self-righteousness and everything to do with being faithful to God and
+humbling oneself to God.
 
-  Trying to turn from sin in truth and reality.
+Trying to turn from sin in truth and reality.
 
-  #+BEGIN[QUOTE] 2 Chronicles 7:14 - if my people who are called by my
-  name humble themselves, and pray and seek my face and turn from their
-  wicked ways, then I will hear from heaven and will forgive their sin
-  and heal their land. (ESV)
+  2 Chronicles 7:14 - if my people who are called by my name humble
+  themselves, and pray and seek my face and turn from their wicked ways,
+  then I will hear from heaven and will forgive their sin and heal their
+  land. (ESV)
 
   Matthew 18:3 - and said, Truly, I say to you, unless you turn and
   become like children, you will never enter the kingdom of heaven. (ESV)
@@ -64980,6 +65054,64 @@ receive or reject Jesus - we must be obedient believers:
   anyone hears my voice and opens the door, I will come in to him and eat
   with him, and he with me. (ESV)
 
+It was unbelief which led to these people's sin of idolatry and
+covetousness which prevented them from entering into God's rest:
+
+  Hebrews 3:7-15 - Therefore, as the Holy Spirit says, Today, if you hear
+  his voice, do not harden your hearts as in the rebellion, on the day of
+  testing in the wilderness, where your fathers put me to the test and
+  saw my works for forty years. Therefore I was provoked with that
+  generation, and said, They always go astray in their heart; they have
+  not known my ways. As I swore in my wrath, They shall not enter my
+  rest. Take care, brothers, lest there be in any of you an evil,
+  unbelieving heart, leading you to fall away from the living God. But
+  exhort one another every day, as long as it is called today, that none
+  of you may be hardened by the deceitfulness of sin. For we share in
+  Christ, if indeed we hold our original confidence firm to the end. As
+  it is said, Today, if you hear his voice, do not harden your hearts as
+  in the rebellion. (ESV)
+
+  Hebrews 3:16-19 - For who were those who heard and yet rebelled? Was it
+  not all those who left Egypt led by Moses? And with whom was he
+  provoked for forty years? Was it not with those who sinned, whose
+  bodies fell in the wilderness? And to whom did he swear that they would
+  not enter his rest, but to those who were disobedient? So we see that
+  they were unable to enter because of unbelief. (ESV)
+
+  Hebrews 4:7-11 - again he appoints a certain day, Today, saying through
+  David so long afterward, in the words already quoted, Today, if you
+  hear his voice, do not harden your hearts. For if Joshua had given them
+  rest, God would not have spoken of another day later on. So then, there
+  remains a Sabbath rest for the people of God, for whoever has entered
+  God's rest has also rested from his works as God did from his. Let us
+  therefore strive to enter that rest, so that no one may fall by the
+  same sort of disobedience. (ESV)
+
+It was idolatry that was the disobedience which prevented these from
+entering into God's rest:
+
+  I Corinthians 10:1-14 - I want you to know, brothers, that our fathers
+  were all under the cloud, and all passed through the sea, and all were
+  baptized into Moses in the cloud and in the sea, and all ate the same
+  spiritual food, and all drank the same spiritual drink. For they drank
+  from the spiritual Rock that followed them, and the Rock was Christ.
+  Nevertheless, with most of them God was not pleased, for they were
+  overthrown in the wilderness. Now these things took place as examples
+  for us, that we might not desire evil as they did. Do not be idolaters
+  as some of them were; as it is written, The people sat down to eat and
+  drink and rose up to play. We must not indulge in sexual immorality as
+  some of them did, and twenty-three thousand fell in a single day. We
+  must not put Christ to the test, as some of them did and were destroyed
+  by serpents, nor grumble, as some of them did and were destroyed by the
+  Destroyer. Now these things happened to them as an example, but they
+  were written down for our instruction, on whom the end of the ages has
+  come. Therefore let anyone who thinks that he stands take heed lest he
+  fall. No temptation has overtaken you that is not common to man. God is
+  faithful, and he will not let you be tempted beyond your ability, but
+  with the temptation he will also provide the way of escape, that you
+  may be able to endure it. Therefore, my beloved, flee from idolatry.
+  (ESV)
+
 If you keep Jesus' commandments then the Spirit of Truth will come to
 you, and help you, and be in you. If we obey Jesus, the Holy Spirit helps
 us, even before He's inside us:
@@ -73423,11 +73555,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-12-15 Sun 00:00
+Date: 2024-12-17 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-12-15 Sun 11:19
+Created: 2024-12-17 Tue 08:29
 
 Validate
 
