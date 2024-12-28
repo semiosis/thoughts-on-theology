@@ -1,12 +1,6 @@
-
-# Table of Contents
-
-
-
 -   **[youtube.com: Jesus '24 | Michael Koulianos + Jesus Image | Saturday Night | June 8th, 2024 {@jesusimage} @time: 2 hrs 56 min 2 sec](https://youtube.com/watch?v=mLSCu4pKmu4&t=10562):** Dream about being his
     bride. As sister said, "I'm not a
-    theologian, but I am his
-    bride." As I,
+    theologian, but I am his bride." As I,
     by his mercy, continue to walk with
     him, and read his Holy
     Word, I began to
