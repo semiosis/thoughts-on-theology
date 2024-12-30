@@ -3015,7 +3015,7 @@ When we believe God's word given through Jesus, we have passed from death to lif
 listen to Jesus to see what He has actually spoken.
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
@@ -3026,6 +3026,9 @@ to pass over, withdraw, depart
 In trusting Jesus' words - or even His name (onoma) and He is the judge - we do not come into judgement, but
 change direction, and instead our destiny is life eternal. Jesus is the judge of that. We do not come into
 judgement:
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
   John 5:21-24 - For as the Father raises the dead and gives them life, so also the Son gives life to whom he
   will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they
@@ -5219,13 +5222,16 @@ eternal. We do not come into judgement. Jesus is the judge of that:
   not come (2064. erchomai) into judgment, but has passed (3327. metabain) from death to life. (ESV)
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
 If we actually believe Jesus Christ is who He says He is, the Son of God, Messiah, we are not condemned. We're
 never condemned if we are believing in Jesus Christ, Son of God:
@@ -5516,13 +5522,16 @@ eternal. We do not come into judgement. Jesus is the judge of that:
   not come (2064. erchomai) into judgment, but has passed (3327. metabain) from death to life. (ESV)
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
 AMEN!!
 
@@ -5965,13 +5974,16 @@ eternal. We do not come into judgement. Jesus is the judge of that:
   not come (2064. erchomai) into judgment, but has passed (3327. metabain) from death to life. (ESV)
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
   John 7:16 - So Jesus answered them, My teaching is not mine, but his who sent me. (ESV)
 
@@ -7513,6 +7525,42 @@ For assurance of salvation, here's some indicators:
 • That you have kept the faith despite trials and testing
 • What I mean by this is that confidence grows as you go through trials
 • Receiving the Spirit of God
+• Believing the testimony that God has borne of His Son (Read: I John 5:9-13 and Hebrews 6:17-20)
+• Treasuring our family in Christ (Read: I John 3:14-20)
+• It's true that like Abraham, confidence will come as a result of keeping the faith and continuing to obey
+God
+
+  I John 3:21-23 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
+  we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that
+  we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. (ESV)
+
+An indication that we have passed from death to life is that we agapé / treasure our family in Christ:
+
+  I John 3:14-20 - We know that we have passed out of death into life, because we love (agapōmen) the brothers.
+  Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no
+  murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought
+  to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet
+  closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk
+  but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for
+  whenever our heart condemns us, God is greater than our heart, and he knows everything. (ESV)
+
+We must believe God's testimony concerning Jesus. God's testimony is greatest:
+
+  I John 5:9-13 - If we receive the testimony of men, the testimony of God is greater, for this is the testimony
+  of God that he has borne concerning his Son. Whoever believes in the Son of God has the testimony in himself.
+  Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has
+  borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son.
+  Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to
+  you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+  Hebrews 6:17-20 - So when God desired to show more convincingly to the heirs of the promise the unchangeable
+  character of his purpose, he guaranteed it with an oath, so that by two unchangeable things, in which it is
+  impossible for God to lie, we who have fled for refuge might have strong encouragement to hold fast to the hope
+  set before us. We have this as a sure and steadfast anchor of the soul, a hope that enters into the inner place
+  behind the curtain, where Jesus has gone as a forerunner on our behalf, having become a high priest forever
+  after the order of Melchizedek. (ESV)
+
+Doing what pleases God brings confidence, as I John 3:21-23 says.
 
 1. A change of heart towards humility, fear of God, belief and trust in Jesus to be saved, an awareness of one's
 own sin and the reality of judgement, and acknowledging Jesus' Lordship and deity:
@@ -11217,13 +11265,16 @@ eternal. We do not come into judgement. Jesus is the judge of that:
   not come (2064. erchomai) into judgment, but has passed (3327. metabain) from death to life. (ESV)
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
 Therefore, I believe that believing Jesus is the Christ (Messiah), the Son of God, who has come into the world, is
 God's gift to us and it is a very easy to receive (low barrier to entry) act of obedience to Him:
@@ -41563,13 +41614,16 @@ eternal. We do not come into judgement. Jesus is the judge of that:
   not come (2064. erchomai) into judgment, but has passed (3327. metabain) from death to life. (ESV)
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
 All who have believed will marvel:
 
@@ -50091,13 +50145,16 @@ eternal. We do not come into judgement. Jesus is the judge of that:
   not come (2064. erchomai) into judgment, but has passed (3327. metabain) from death to life. (ESV)
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
 It's imperative that as we go ahead, we must abide in the teaching of Christ, or we won't have God (Jehovah God),
 and God is love and love comes from God, so we need to abide in Christ's teachings, by belief and by obedience.
@@ -55666,13 +55723,16 @@ believers, doers, imitators of Him:
 be condemned
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
-is holds/posesses eternal life and has passed from death into life.
+is holds/posesses eternal life and has passed/is passing/passes from death into life.
 
 2064. erchomai
 to come, go
 
 3327. metabain
 to pass over, withdraw, depart
+
+  John 5:24 - Verily, verily, I say unto you, He that heareth my word, and believeth on him that sent me, hath
+  everlasting life, and shall not come into condemnation; but is passed from death unto life. (KJV)
 
 In trusting Jesus' words - or even His name (onoma) and He is the judge - we do not come into judgement, but
 change direction, and instead our destiny is life eternal. Jesus is the judge of that. We do not come into
@@ -56820,11 +56880,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-12-29 Sun 00:00
+Date: 2024-12-30 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-12-29 Sun 22:44
+Created: 2024-12-30 Mon 20:33
 
 Validate
 
