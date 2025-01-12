@@ -1801,6 +1801,15 @@ treasure God with all our heart. God also commands us to love one another as our
 value other people with that same treasuring love, but God wants Him to be our number one treasure, and I think we
 have to make God our number one love.
 
+I affirm John MacArthur's message here. If we love the Lord our God with all our heart, soul mind and strength, it
+will be much easier to kill sin:
+
+youtube.com: Killing the Sin in Your Life {@gracetoyou}
+Help us to live so conscious of Your glory in Your majesty that we love You supremely that we love You with all
+our heart, soul, mind and strength and if we love You like that there never will be a replacement for you,
+certainly not us, and Lord remind us that sin is always the result of dethroning you and usurping your sovereignty
+for ourselves.
+
 God wants Him to be our treasure. We must obey Jesus and Jehovah Jireh will provide:
 
 I have also had a lot of suffering as I keep a good conscience with God, having been obedient to Him.
@@ -3395,6 +3404,14 @@ God.
 But they have failed to realize this truth: They can never kill desire. You know why? Because the one who put
 desire in the human being is God and what God gives no one can take away. God put desire in us so we can desire
 Him in order to worship Him. Without desire, there is no worship.
+
+In my view it doesn't seem as though the Roman Catholic church are not Christians, as some people say, but know
+very little about Roman Catholicism. Their doctrine is different from the Reformists, but they are judged by the
+doctrine they affirm, and by Jesus Christ's words.
+
+So I would say that the common foundation is faith in Jesus Christ Himself, including faith in Jesus Christ's
+words, and Jesus has purchased the redemption, and God justifies the one who puts their faith in Jesus, and it's
+God who tests the heart.
 
   Now I had gone into court willingly after being born-again as I held my faith in Jesus and submitted to the
   authorities, but not perfect. After breaking bail to get baptised and bring everything into the light, obeying
@@ -6611,7 +6628,7 @@ The Apostle Paul strove to maintain a clear conscience with God:
   which these men themselves accept, that there will be a resurrection of both the just and the unjust. So I
   always take pains to have a clear conscience toward both God and man. (ESV)
 
-Yes, it's very important for Christians to practice righteousness:
+Yes, it's very important for Christians to practice their righteousness sincerely:
 
   I John 3:7 - Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
   righteous. (ESV)
@@ -8249,6 +8266,8 @@ It's right that we must affirm God's name and remember God's name:
   this to the people of Israel, The LORD (3068. Yhvh), the God of your fathers, the God of Abraham, the God of
   Isaac, and the God of Jacob, has sent me to you. This is my name forever, and thus I am to be remembered
   throughout all generations. (ESV)
+
+A translation which contains the Divine Name: https://www.njvbible.com/
 
   Exodus 9:16 - But for this purpose I have raised you up, to show you my power, so that my name may be proclaimed
   in all the earth. (ESV)
@@ -10302,13 +10321,30 @@ even the 10 commandments from the heart.
   himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
   are zealous for good works. (ESV)
 
-5.7.2. We should not pervert grace into something which is disobedient to God
+5.7.2. By the blood of Jesus
+
+The Blood of Jesus empowers us to do works that are pleasing to God.
+
+We are purchased by Jesus' blood:
+
+  I Peter 1:18-19 - knowing that you were ransomed from the futile ways inherited from your forefathers, not with
+  perishable things such as silver or gold, but with the precious blood of Christ, like that of a lamb without
+  blemish or spot. (ESV)
+
+God works in us to help us to practice righteousness:
+
+  Hebrews 13:20-21 - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd
+  of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will,
+  working in us that which is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever.
+  Amen. (ESV)
+
+5.7.3. We should not pervert grace into something which is disobedient to God
 
   Jude 1:4 - For certain people have crept in unnoticed who long ago were designated for this condemnation,
   ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus
   Christ. (ESV)
 
-5.7.3. God works in us by His transforming grace as we work
+5.7.4. God works in us by His transforming grace as we work
 
   Hebrews 13:20-21 - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd
   of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will,
@@ -11673,11 +11709,13 @@ God loves those who love Him and keep His commandments:
 If a person has an obedient and believing heart - a heart of faith - towards Jesus, then they will be saved:
 
 • If a person truthfully confesses (admits) with their mouth that Jesus is Lord, they have an obedient heart.
+• They believed that Jesus is Lord, King, Master.
 • This must result in the person obeying Jesus; freely forgiving others, loving others as He loved us,
 keeping Jesus' commandments
 • If they believe in their heart that God raised Jesus from the dead, they believe Jesus, and believe God who
 sent Him.
-• This must result in the person accepting forgiveness for sin
+• They obey Jesus' commandment to trust in Him / trust Him.
+• This must result in the person accepting forgiveness for sin.
 
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
@@ -26518,6 +26556,23 @@ impulses. You are not free to do it.
 • John 12:31-32 - Now is the judgment of this world; now will the ruler of this world be cast out. And I,
 when I am lifted up from the earth, will draw all people to myself. (ESV)
 
+Resist the devil. Stand firm in our faith:
+
+  I Peter 5:8-9 - Be sober-minded; be watchful. Your adversary the devil prowls around like a roaring lion,
+  seeking someone to devour. Resist him, firm in your faith, knowing that the same kinds of suffering are being
+  experienced by your brotherhood throughout the world. (ESV)
+
+Do not sin:
+
+  Ephesians 4:26-27 - Be angry and do not sin; do not let the sun go down on your anger, and give no opportunity
+  to the devil. (ESV)
+
+Put on the full armour of God:
+
+  Ephesians 6:11-12 - Put on the whole armor of God, that you may be able to stand against the schemes of the
+  devil. For we do not wrestle against flesh and blood, but against the rulers, against the authorities, against
+  the cosmic powers over this present darkness, against the spiritual forces of evil in the heavenly places. (ESV)
+
 18.10.8. Prayer by Derek Prince
 
 youtube.com: How To Expel The Enemy | Basics Of Deliverance Pt. 2 | Derek Prince @time: 48 min 48 sec
@@ -27592,7 +27647,61 @@ end.
   John 8:31-32 - So Jesus was saying to those Jews who had believed Him, “If you continue in My word, then you are
   truly disciples of Mine; and you will know the truth, and the truth will make you free.” (NASB)
 
-19.2. We work as servants of God, and the foundation of our work must be Jesus Christ
+19.2. Jesus Christ is the cornerstone of the foundation which we build as disciples
+
+Faith in Jesus' finished works on the cross is the cornerstone: Faith in His blood.
+
+  Hebrews 6:1-2 - Therefore let us leave the elementary doctrine of Christ and go on to maturity, not laying again
+  a foundation of repentance from dead works and of faith toward God, and of instruction about washings, the
+  laying on of hands, the resurrection of the dead, and eternal judgment. (ESV)
+
+  Ephesians 2:19-21 - So then you are no longer strangers and aliens, but you are fellow citizens with the saints
+  and members of the household of God, built on the foundation of the apostles and prophets, Christ Jesus himself
+  being the cornerstone, in whom the whole structure, being joined together, grows into a holy temple in the Lord.
+  (ESV)
+
+  I Corinthians 3:10-15 - According to the grace of God given to me, like a skilled master builder I laid a
+  foundation, and someone else is building upon it. Let each one take care how he builds upon it. For no one can
+  lay a foundation other than that which is laid, which is Jesus Christ. Now if anyone builds on the foundation
+  with gold, silver, precious stones, wood, hay, straw— each one's work will become manifest, for the Day will
+  disclose it, because it will be revealed by fire, and the fire will test what sort of work each one has done. If
+  the work that anyone has built on the foundation survives, he will receive a reward. If anyone's work is burned
+  up, he will suffer loss, though he himself will be saved, but only as through fire. (ESV)
+
+19.3. God is the one building the foundations of the city
+
+  Hebrews 11:8-10 - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an
+  inheritance. And he went out, not knowing where he was going. By faith he went to live in the land of promise,
+  as in a foreign land, living in tents with Isaac and Jacob, heirs with him of the same promise. For he was
+  looking forward to the city that has foundations, whose designer and builder is God. (ESV)
+
+19.4. Building a foundation (on the cornerstone of Jesus)
+
+Faith in Jesus' finished works is the foundation of any further foundation, but the foundation building continues
+as we do (believe and obey) His teachings.
+
+  Luke 14:27-30 - Whoever does not bear his own cross and come after me cannot be my disciple. For which of you,
+  desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it?
+  Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying,
+  This man began to build and was not able to finish. (ESV)
+
+  Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
+  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
+  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
+  because it had been well built. But the one who hears and does not do them is like a man who built a house on
+  the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
+  house was great. (ESV)
+
+19.5. To go where Jesus has not yet been preached is to avoid building on other people's foundations
+
+  Romans 15:18-21 - For I will not venture to speak of anything except what Christ has accomplished through me to
+  bring the Gentiles to obedience—by word and deed, by the power of signs and wonders, by the power of the Spirit
+  of God—so that from Jerusalem and all the way around to Illyricum I have fulfilled the ministry of the gospel of
+  Christ; and thus I make it my ambition to preach the gospel, not where Christ has already been named, lest I
+  build on someone else's foundation, but as it is written, Those who have never been told of him will see, and
+  those who have never heard will understand. (ESV)
+
+19.6. We work as servants of God, and the foundation of our work must be Jesus Christ
 
   I Corinthians 3:9-15 - For we are God's fellow workers. You are God's field, God's building. According to the
   grace of God given to me, like a skilled master builder I laid a foundation, and someone else is building upon
@@ -27603,13 +27712,13 @@ end.
   survives, he will receive a reward. If anyone's work is burned up, he will suffer loss, though he himself will
   be saved, but only as through fire.
 
-19.2.1. For Christ
+19.6.1. For Christ
 
   I Corinthians 4:9-10 - For I think that God has exhibited us apostles as last of all, like men sentenced to
   death, because we have become a spectacle to the world, to angels, and to men. We are fools for Christ's sake,
   but you are wise in Christ. We are weak, but you are strong. You are held in honor, but we in disrepute.
 
-19.3. Love
+19.7. Love
 
 • Love without God's grace is not God's love
 • It's sacrificial
@@ -27618,7 +27727,7 @@ end.
 • It's cheerful obedience to God, cheerful obedience to Jesus
 • It's what happens when faith is working
 
-19.3.1. Love is doing what Jesus has said for us to do. Love is following the commandments
+19.7.1. Love is doing what Jesus has said for us to do. Love is following the commandments
 
   II John 1:5-6 - And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we
   have had from the beginning—that we love one another. And this is love, that we walk according to his
@@ -27629,7 +27738,7 @@ end.
   bountifully will also reap bountifully. Each one must give as he has made up his mind, not reluctantly or under
   compulsion, for God loves a cheerful giver. (ESV)
 
-19.3.2. Almsgiving is a great practice - God really loves a cheerful giver
+19.7.2. Almsgiving is a great practice - God really loves a cheerful giver
 
   Acts 10:2 - a devout man and one who feared God with all his household, and gave many alms to the Jewish people
   and prayed to God continually. About the ninth hour of the day he clearly saw in a vision an angel of God who
@@ -27639,11 +27748,11 @@ end.
   II Corinthians 9:7 - Each one must give as he has made up his mind, not reluctantly or under compulsion, for God
   loves a cheerful giver.
 
-19.3.3. The person who loves their brother abides in light
+19.7.3. The person who loves their brother abides in light
 
   1 John 2:10 - Whoever loves his brother abides in the light, and in him there is no cause for stumbling. (ESV)
 
-19.4. Justifying faith should result in going from it being impossible to obey God to possible
+19.8. Justifying faith should result in going from it being impossible to obey God to possible
 
 All things are possible for God. Without God we can't have eternal life, because we need a relationship with
 Jesus.
@@ -27652,7 +27761,7 @@ We need to be able to fulfill the requirement of the law, to love God and one's 
 submit to the righteousness of God through faith in Jesus Christ and to do the will of Father God in order to have
 eternal life. It's impossible without God's help.
 
-19.4.1. Faith submits to God's will
+19.8.1. Faith submits to God's will
 
   Mark 14:36 - And he said, Abba, Father, all things are possible for you. Remove this cup from me. Yet not what I
   will, but what you will.
@@ -27693,7 +27802,7 @@ It's impossible to please God without faith, but with faith all things are possi
   Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
   that he exists and that he rewards those who seek him.
 
-19.4.2. The Mosaic law doesn't help people to keep the law. It doesn't save - it only condemns or justifies. Only
+19.8.2. The Mosaic law doesn't help people to keep the law. It doesn't save - it only condemns or justifies. Only
 grace through faith in God who raised Jesus from the dead saves
 
 The law doesn't save:
@@ -27884,7 +27993,7 @@ youtube.com: The Hidden Parable of Moses that Few Christians Understand
   II Peter 2:2 - And many will follow their sensuality, and because of them the way of truth will be blasphemed.
   (ESV)
 
-19.4.3. With God, following the 10 commandments and to love God and our neighbour is possible
+19.8.3. With God, following the 10 commandments and to love God and our neighbour is possible
 
   Matthew 19:16-26 - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal
   life? And he said to him, Why do you ask me about what is good? There is only one who is good. If you would
@@ -28049,7 +28158,7 @@ The reason we want to be righteous is so we get God.
 
 youtube.com: God is the Gospel @time: 40 min 42 sec
 
-19.5. Justifying faith should result in going from disobedient to obedient
+19.9. Justifying faith should result in going from disobedient to obedient
 
   Colossians 1:21 - And you, who once were alienated and hostile in mind, doing evil deeds,
 
@@ -28100,7 +28209,7 @@ Fear and doubt weakened their faith. Maybe Peter took his eyes off Jesus, and in
   Hebrews 9:14 - how much more will the blood of Christ, who through the eternal Spirit offered himself without
   blemish to God, purify our conscience from dead works to serve the living God.
 
-19.6. Obedience is essential to justifying faith
+19.10. Obedience is essential to justifying faith
 
 Abraham believed God and it was counted to him as righteousness:
 
@@ -28176,7 +28285,7 @@ pisteuo = to have faith upon
 
 We must trust Him and Obey.
 
-19.7. Jesus' odedience resulted in turning others to obedience
+19.11. Jesus' odedience resulted in turning others to obedience
 
   Romans 5:19 - For as by the one man's disobedience the many were made sinners, so by the one man's obedience the
   many will be made righteous.
@@ -28189,14 +28298,14 @@ Adam disobeyed, and his descendants become disobedient.
 
 Jesus obeyed, and his disciples become obedient.
 
-19.7.1. Likewise, we are commanded to do the same
+19.11.1. Likewise, we are commanded to do the same
 
   Matthew 28:18-20 - And Jesus came and said to them, All authority in heaven and on earth has been given to me.
   Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of
   the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to
   the end of the age.
 
-19.8. It is the mercy of God that we are turned from disobedience to obedience
+19.12. It is the mercy of God that we are turned from disobedience to obedience
 
   II Corinthians 10:6 - being ready to punish every disobedience, when your obedience is complete.
 
@@ -28292,7 +28401,7 @@ through Him who loved us:
   height nor depth, nor anything else in all creation, will be able to separate us from the love of God in Christ
   Jesus our Lord.
 
-19.8.1. As obedient children, we are to be conformed to holiness
+19.12.1. As obedient children, we are to be conformed to holiness
 
   I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
   who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
@@ -28305,14 +28414,14 @@ through Him who loved us:
   of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
   pleasing to the Lord.
 
-19.8.2. Illegitimate children are left without discipline and are not sons
+19.12.2. Illegitimate children are left without discipline and are not sons
 
   Hebrews 12:6-8 - For the Lord disciplines the one he loves, and chastises every son whom he receives. It is for
   discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not
   discipline? If you are left without discipline, in which all have participated, then you are illegitimate
   children and not sons.
 
-19.9. The measure of what we hear and take heed of and how we hear and let take root in us will be measured to us
+19.13. The measure of what we hear and take heed of and how we hear and let take root in us will be measured to us
 
   Mark 4:24 - And he said to them, Pay attention to what you hear: with the measure you use, it will be measured
   to you, and still more will be added to you.
@@ -33296,6 +33405,122 @@ We must live for the will of God:
   I Peter 4:1-2 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
   longer for human passions but for the will of God. (ESV)
+
+I agree that the one who tried to serve Jesus and produce work is still saved yet as through fire.
+
+There's nothing wrong either with calling on people to repent (turn away from sin) and believe in Jesus Christ, or
+believe in Jesus Christ's blood or to get baptised or as Jesus said, believe in Jesus for the sake of the works
+that Jesus did. But in my view putting out "believe in the finished work of Jesus" whilst at the same time saying
+that Lordship salvation is false is problematic because people seem to take this to mean that obedience is bad, or
+that they are not saved by obeying Jesus, and so coming to get confused or distrust scripture that says we are, or
+by taking Hebrews 4 out of context and telling people to stop "doing good" because we've got to rest from serving
+God even through Hebrews 3:18-19 says they were disobedient and disbelieving and the crossreference to I Cor 10
+says they were idolators and lusted - they wanted to go back to Egypt, so they didn't continue on. Out of
+disbelief they disobeyed more, they sinned. Disbelieving was also disobedience. So they kept disobeying out of
+disbelief. They didn't trust God and so they didn't walk in it. And when people then say that we must obey Jesus,
+obey Righteousness, obey the Truth, obey Jesus' commandments, that comes with the response, "that's religious
+legalism" - these problems are caused by anti-lordship. I don't like the anti-lordship stuff.
+
+  Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
+  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
+  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
+  because it had been well built. But the one who hears and does not do them is like a man who built a house on
+  the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
+  house was great. (ESV)
+
+Keep in mind that when Jesus washed Peter's feet, Peter obeyed before he understood what Jesus was even doing.
+Yes, obedience leads to faith in Jesus, like the disciples in the wedding at Cana. We are saved by obedience to
+Jesus and we are saved by faith in Jesus. They're very much linked together.
+
+  John 13:6-7 - He came to Simon Peter, who said to him, Lord, do you wash my feet? Jesus answered him, What I am
+  doing you do not understand now, but afterward you will understand. (ESV)
+
+So I just think this anti-lordship salvation is really really damaging to the gospel of Jesus and results in
+people not trusting in scripture, and moving towards promoting antinomianism. I think it's super, super damaging,
+personally. We can trust on verses, and trust in certain verses too and God's Word is reliable. Jesus is the judge
+a person's faith trust, not me. I personally think we can indeed lean on the scripture, but we have to make an
+account of ourselves to God. By the way I do believe in the free grace of God but it teaches us to deny
+ungodliness.
+
+I think trying to shoehorn the scripture into one person's understanding of the order of salvation and then
+present that as the truth and say that the Lordship salvation, say, is wrong because they interpreted the
+scripture in a way that doesn't fit their own understanding is really damaging because it's creating divisions. We
+are saved by obedience to Jesus, just as we are saved by our faith in Jesus.
+
+Keep in mind these verses:
+
+  Romans 14:4 - Who are you to pass judgment on the servant of another? It is before his own master that he stands
+  or falls. And he will be upheld, for the Lord is able to make him stand. (ESV)
+
+  Matthew 7:2 - For with the judgment you pronounce you will be judged, and with the measure you use it will be
+  measured to you. (ESV)
+
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson} The word of
+truth is free, and carries its own authority, disdaining to fall under any skilful argument, or to endure the
+logical scrutiny of its hearers. But it would be believed for its own nobility, and for the confidence due to Him
+who sends it. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is not arrogant.
+For being sent with authority, it were not fit that it should be required to produce proof of what is said; since
+neither is there any proof beyond itself, which is God. For every proof is more powerful and trustworthy than that
+which it proves; since what is disbelieved, until proof is produced, gets credit when such proof is produced, and
+is recognised as being what it was stated to be. But nothing is either more powerful or more trustworthy than the
+truth; so that he who requires proof of this is like one who wishes it demonstrated why the things that appear to
+the senses do appear. For the test of those things which are received through the reason, is sense; but of sense
+itself there is no test beyond itself. As then we bring those things which reason hunts after, to sense, and by it
+judge what kind of things they are, whether the things spoken be true or false, and then sit in judgment no
+longer, giving full credit to its decision; so also we refer all that is said regarding men and the world to the
+truth, and by it judge whether it be worthless or no. But the utterances of truth we judge by no separate test,
+giving full credit to itself.
+
+For that reason, I would have more confidence before God if I was serving Him endeavouring to be pleasing to God
+through serving Jesus with a sincere faith, turning away from sin, renouncing ungodliness , loving the brethren,
+and trying to be holy and selfless and loving in faith towards Jesus, than if like a lawyer looking for a loophole
+I put confidence on doctrine but had no changed life / love for Jesus.
+
+There is great confidence that comes from keeping a good conscience with God - having a relationship with God,
+being obedient to Him, doing what pleases Him. Obviously God's testimony is greater. Yes we're still saved by
+trusting in the finished work of Jesus but I mean what do they mean by saved when they say this? Do they mean they
+have finished being sanctified - I've heard this type of teaching at church. We're not saved to go on spreading
+dangerous heresy. Obedience to Jesus is trusting in JESUS! Was Marcion of Sinope saved even though he denied the
+father and the son etc. and went around teaching that and became like the most infamous heretic who the early
+church almost unanimously condemned asides from all the people he misled? What are we being saved from? We're not
+being saved from Jesus but to continue trusting and obeying Him. We're getting married to Jesus, and like it
+describes in Daniel, we probably will never stop serving Jesus. We're stopping trusting in sin and at the same
+time turning to trust in Jesus. Rejecting Jesus is sin, as is murder, lust, idolatry, blasphemy all sin. Those in
+Christ are not murderers of one another in the heart - we are saved to love one another in Christ sincerely. Those
+who do not have this love in their heart are NOT SAVED. It's heart obedience which is of the most importance and
+this happens through God cleaning the heart through faith. And if someone doesn't have true faith in Jesus then
+this probably hasn't happened to them and their heart hasn't been purified yet and they're probably not saved.
+That's nothing to do with the works we produce. God makes the new heart and gives the spirit in order to obey Him.
+Someone who has been saved has been given a repentant, obedient heart. We can repent from sin as an act of
+obedient faith to God:
+
+  Jeremiah 4:4 - Circumcise yourselves to the LORD; remove the foreskin of your hearts, O men of Judah and
+  inhabitants of Jerusalem; lest my wrath go forth like fire, and burn with none to quench it, because of the evil
+  of your deeds. (ESV)
+
+  Deuteronomy 10:16-17 - Circumcise therefore the foreskin of your heart, and be no longer stubborn. For the LORD
+  your God is God of gods and Lord of lords, the great, the mighty, and the awesome God, who is not partial and
+  takes no bribe. (ESV)
+
+It's simultaneous:
+
+  James 4:8 - Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your
+  hearts, you double-minded. (ESV):
+
+  Psalms 1:4-5 - The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will
+  not stand in the judgment, nor sinners in the congregation of the righteous; (ESV) We are literally saved by
+  obedience to the gospel to continue trusting and obeying God, and what is that first step of obedience or belief
+  or trust? I was born-again by sheer grace from God who did it to me after I called out to Him to be saved. I
+  didn't earn my salvation. But the way I see it my salvation started before I knew it and the salvation is still
+  going. I had to repent and I was taken to court and tested on Christ's law. My salvation is a process.
+  Sanctification is a process. Salvation is in 3 tenses in the NT. Even then I only have faith that I've probably
+  been justified, but it's not my own justification I have faith in but Jesus Christ Himself. I have as much
+  confidence that God has justified me as I have that God has justified the person who believes they were saved
+  when they first believed, and that's up to God. But Father God is the vinedresser.
+
+  Colossians 3:23-25 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
+  you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid
+  back for the wrong he has done, and there is no partiality. (ESV)
 
 30.3.1. We practice personal righteousness AND we have obtained a faith of equal standing with the Apostles by the
 righteousness of our God and Savior Jesus Christ
@@ -40224,7 +40449,9 @@ It helps when I am pro-active and pray to God before bed asking Him for a good n
 and scriptures written down next to or on me when I sleep.
 
 All of that spiritual attack I have received pales in comparison to the depression from having my joy taken from
-me.
+me. I have joy in God though. What really matters is that joy that comes from believing the gospel, having faith
+in Jesus' blood and maintaining that good conscience with God through repentance from sin, faithfulness to God
+with our thoughts and actions including with obedience to His precepts.
 
 What I'm experiencing is certainly not the kingdom of God, and the Holy Spirit certainly doesn't steal kill and
 destroy.
@@ -42086,6 +42313,11 @@ We must be fruitful branches, abiding in Jesus:
 God is our Father:
 
   Matthew 23:9 - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+
+God is the Father of our spirits. God makes us born of the spirit:
+
+  Hebrews 12:9 - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not
+  much more be subject to the Father of spirits and live? (ESV)
 
 Jesus Christ is our Teacher:
 
@@ -46341,7 +46573,14 @@ Promise: The Kingdom of Heaven will be theirs.
   saltiness be restored? It is no longer good for anything except to be thrown out and trampled under people's
   feet. (ESV)
 
-The "salt of the earth" are the disciples of Jesus.
+The "salt of the earth" are the disciples of Jesus:
+
+• distinct from worldliness - a distinct 'taste'
+• standing up for the Truth in word and deed
+• light in the darkness
+• We are to be 'salted' in Him, so we are to be corrected and sanctified by Him
+• Jesus preserves us
+• the salt of the earth helps to preserve the earth?
 
   Ignatius to the Magnesians 10 - Let us not, therefore, be insensible to His kindness. For were He to reward us
   according to our works, we should cease to be. Therefore, having become His disciples, let us learn to live
@@ -47022,6 +47261,21 @@ The law doesn't save:
 
   I Corinthians 11:3 - But I want you to understand that the head of every man is Christ, the head of a wife is
   her husband, and the head of Christ is God. (ESV)
+
+Submit to God
+
+• Listen to God
+• Walk in His ways
+
+  Psalms 81:11-13 - But my people did not listen to my voice; Israel would not submit to me. So I gave them over
+  to their stubborn hearts, to follow their own counsels. Oh, that my people would listen to me, that Israel would
+  walk in my ways! (ESV)
+
+Serve God:
+
+  II Chronicles 30:8 - Do not now be stiff-necked as your fathers were, but yield yourselves to the LORD and come
+  to his sanctuary, which he has consecrated forever, and serve the LORD your God, that his fierce anger may turn
+  away from you. (ESV)
 
 57.3. The freedom Christ gives us involves obeying Christ
 
@@ -48947,6 +49201,11 @@ provision to do your work without struggle, in the name of Jesus. Amen
 62.1.60.
 
   Matthew 23:9 - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+
+God is the Father of our spirits. God makes us born of the spirit:
+
+  Hebrews 12:9 - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not
+  much more be subject to the Father of spirits and live? (ESV)
 
 62.1.61. Be instructed by Christ
 
@@ -54643,23 +54902,6 @@ fulfill His promises.
   Hebrews 3:14-15 - For we share in Christ, if indeed we hold our original confidence firm to the end. As it is
   said, Today, if you hear his voice, do not harden your hearts as in the rebellion. (ESV)
 
-We aren't the justifiers of ourselves ever. So I have a small problem with what Derek Prince says at the end here.
-But I have faith in Jesus' blood, and I have faith that God justifies the one who puts their faith in Christ
-Jesus. I trust Jesus, I believe Jesus and I obey Jesus. I could be better but I'm a new creation who trusts and
-obeys Jesus now. Not perfectly but I still do. Jesus is my Lord and Saviour. That doesn't mean I say, "I am
-justified." I trust and obey Jesus. I have confidence that God sees everything. I have confidence because I
-believe on the name of His Son and keep His commandments. God is sovereign to justify the one who places their
-faith in Christ Jesus. I'm not going to justify myself. I'm not saying I'm not justified. I'm not saying I am
-justified. I'm not going to be the justifier of myself. I will just put my faith in Jesus and keep the faith and
-that's enough assurance for me. Also, striving to enter is OK, I think. I don't completely agree with everything
-Derek Prince has said, but I do believe we need to submit to the righteousness of God by faith in Jesus' blood.
-But I believe that God tests the hearts and is the one to grant this righteousness. I believe in holding to faith
-in God to grant me the imputed righteousness of Jesus, while continuing to trust in Jesus and obey Jesus, and God
-is the one to grant that righteousness. Because God justifies the one who puts their faith in Jesus (trusting
-Jesus). So I'll trust the correct God, the God who justifies the ungodly. That means trusting in Jesus Himself.
-And God can do the justifying and the assurance-giving. I'll fight for my position on this. I think my perspective
-here is more Scripturally correct than Derek's.
-
 We aren't the justifiers of ourselves ever, but we still have faith that we are justified already by God as we
 hold faith in Jesus, and we don't necessarily know when God has personally justified us by faith because, like
 Abraham's faith, it's from obedience to God's commandments that we get personal assurance. But if we are hoping in
@@ -54682,6 +54924,22 @@ receives the wrath of God.
   conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous
   soul over their lawless deeds that he saw and heard); then the Lord knows how to rescue the godly from trials,
   and to keep the unrighteous under punishment until the day of judgment, (ESV)
+
+So I have a small problem with what Derek Prince says at the end here. But I have faith in Jesus' blood, and I
+have faith that God justifies the one who puts their faith in Christ Jesus. I trust Jesus, I believe Jesus and I
+obey Jesus. I could be better but I'm a new creation who trusts and obeys Jesus now. Not perfectly but I still do.
+Jesus is my Lord and Saviour. That doesn't mean I say, "I am justified." I trust and obey Jesus. I have confidence
+that God sees everything. I have confidence because I believe on the name of His Son and keep His commandments.
+God is sovereign to justify the one who places their faith in Christ Jesus. I'm not going to justify myself. I'm
+not saying I'm not justified. I'm not saying I am justified. I'm not going to be the justifier of myself. I will
+just put my faith in Jesus and keep the faith and that's enough assurance for me. Also, striving to enter is OK, I
+think. I don't completely agree with everything Derek Prince has said, but I do believe we need to submit to the
+righteousness of God by faith in Jesus' blood. But I believe that God tests the hearts and is the one to grant
+this righteousness. I believe in holding to faith in God to grant me the imputed righteousness of Jesus, while
+continuing to trust in Jesus and obey Jesus, and God is the one to grant that righteousness. Because God justifies
+the one who puts their faith in Jesus (trusting Jesus). So I'll trust the correct God, the God who justifies the
+ungodly. That means trusting in Jesus Himself. And God can do the justifying and the assurance-giving. I'll fight
+for my position on this. I think my perspective here is more Scripturally correct than Derek's.
 
 Faith maintains hope in God to fulfill His promises:
 
@@ -57113,11 +57371,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2024-12-30 Mon 00:00
+Date: 2025-01-12 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2024-12-30 Mon 23:43
+Created: 2025-01-12 Sun 22:23
 
 Validate
 
