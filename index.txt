@@ -3024,7 +3024,7 @@ We must live in the spirit the way God does, not for human passions, but for the
   Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, not a result of works, so that no one may boast. (ESV)
 
-My thoughts
+My thoughts (an analogy)
 
 If someone was living in Egypt and was given daily food on the basis that they would bow to an idol once every
 day, and then by faith they heeded God's call to leave Egypt and go to a promised land of abundance without
@@ -3034,14 +3034,48 @@ idolatrous way of life, then God or someone God had sent (maybe a "good samarita
 them some food and they ate the food then the initial leaving of Egypt or the receiving of the food itself could
 both be described as that initial step of faith, or having arrived at salvation but the "putting hand to the
 plough and not looking back" and the actual consumption of the food could be described as the "working out of that
-salvation". And the 'process' of being saved is the salvation.
+salvation" which is a process that continues. And the 'process' of being saved is the salvation. God needed to
+then get the Egypt out of the Israelites, and train them to trust Him, and this removal of idols etc. to come to
+follow God's commandments is part of the working out of the salvation. We are saved to serve God and we're still
+being saved as we are getting the Egypt out of us. All this is done as we hold our faith in Jesus, believing in
+His finished work on the cross and His passion. Jesus supports us as we do this.
+
+I Corinthians 15:2 - and by which you are being saved, if you hold fast to the word I preached to you—unless you
+believed in vain. (ESV)
+
+As we hold our faith in Jesus Christ's finished work we still continue to obey God and repent from sin and are
+sanctified into better obedience, better faith, better obedience of faith.
+
+I Corinthians 10:4-5 - and all drank the same spiritual drink. For they drank from the spiritual Rock that
+followed them, and the Rock was Christ. Nevertheless, with most of them God was not pleased, for they were
+overthrown in the wilderness. (ESV)
 
 So if someone says that when they first believed in their heart the gospel they were saved, based entirely on
 Jesus' finished works, this is correct in a way, but Jesus has purchased the salvation which is a process to be
 worked out, and I just think the fullness of hte gospel has a lot more to it.
 
+We must continue to hold our faith. We are saved to perpetually trust, believe, love and obey God:
+
+Romans 11:17-23 - But if some of the branches were broken off, and you, although a wild olive shoot, were grafted
+in among the others and now share in the nourishing root of the olive tree, do not be arrogant toward the
+branches. If you are, remember it is not you who support the root, but the root that supports you. Then you will
+say, Branches were broken off so that I might be grafted in. That is true. They were broken off because of their
+unbelief, but you stand fast through faith. So do not become proud, but stand in awe. For if God did not spare the
+natural branches, neither will he spare you. Note then the kindness and the severity of God: severity toward those
+who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you too will be cut
+off. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft
+them in again. (ESV)
+
 When we believe God's word given through Jesus, we have passed from death to life. We should definitely then
 listen to Jesus to see what He has actually spoken.
+
+We must be slaves of Christ, not slaves of sin, in order to abide forever in Him:
+
+John 8:34-36 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The
+slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free
+indeed. (ESV)
+
+God help us put sin to death please.
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
 is holds/posesses eternal life and has passed/is passing/passes from death into life.
@@ -57537,7 +57571,7 @@ Date: 2025-02-03 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-03 Mon 08:43
+Created: 2025-02-03 Mon 10:25
 
 Validate
 
