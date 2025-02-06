@@ -339,6 +339,14 @@ loved us and forgave us first
 would dare even to die— but God shows his love for us in that while we were still sinners, Christ died
 for us. (ESV)
 • We must forgive as we have been forgiven
+• Colossians 3:12-14 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving
+each other; as the Lord has forgiven you, so you also must forgive. And above all these put on love,
+which binds everything together in perfect harmony. (ESV)
+• We must be conformed to holiness
+• I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
+as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
+holy, for I am holy. (ESV)
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -347,6 +355,21 @@ for us. (ESV)
   perfect, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider
   that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies
   ahead, (ESV)
+
+Those who confess that Jesus is the Son of God abides in God and God in Him. Whoever abides in agape love abides
+in God and God abides in Him.
+
+  I John 4:15-16 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have
+  come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God,
+  and God abides in him. (ESV)
+
+You can't have real agape love while denying the truth:
+
+  I John 2:22 - Who is the liar but he who denies that Jesus is the Christ? This is the antichrist, he who denies
+  the Father and the Son. (ESV)
+
+  I John 4:3 - and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist,
+  which you heard was coming and now is in the world already. (ESV)
 
 youtube.com: The Deception Behind the Saying: God is Love {@DerekPrinceMinistries} @time: 5 min 9 sec
 
@@ -5721,6 +5744,16 @@ of righteousness to God. We should be practicing righteousness, practicing love 
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
   those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
+A person who believes on Jesus' name has the right to become a child of God:
+
+• John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children
+of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+A child of God makes a practice of practicing righteousness and does not make a practice of sinning.
+
+• I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil:
+whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+
 3.14.3. We become obedient to Jesus
 
 The righteous try to be obedient. They make mistakes sometimes, they mess up sometimes but they return to God with
@@ -5947,6 +5980,28 @@ That's confirmed here:
 
   I John 3:5-6 - You know that he appeared to take away sins, and in him there is no sin. No one who abides in him
   keeps on sinning; no one who keeps on sinning has either seen him or known him.
+
+We must turn away from our idols to not receive the wrath of God:
+
+  I Thessalonians 1:9-10 - For they themselves report concerning us the kind of reception we had among you, and
+  how you turned to God from idols to serve the living and true God, and to wait for his Son from heaven, whom he
+  raised from the dead, Jesus who delivers us from the wrath to come. (ESV)
+
+  Malachi 3:18 - Then once more you shall see the distinction between the righteous and the wicked, between one
+  who serves God and one who does not serve him. (ESV)
+
+  Zephaniah 2:1-3 - Gather together, yes, gather, O shameless nation, before the decree takes effect —before the
+  day passes away like chaff— before there comes upon you the burning anger of the LORD, before there comes upon
+  you the day of the anger of the LORD. Seek the LORD, all you humble of the land, who do his just commands; seek
+  righteousness; seek humility; perhaps you may be hidden on the day of the anger of the LORD. (ESV)
+
+  Psalms 57:1 - Be merciful to me, O God, be merciful to me, for in you my soul takes refuge; in the shadow of
+  your wings I will take refuge, till the storms of destruction pass by. (ESV)
+
+  Isaiah 26:20-21 - Come, my people, enter your chambers, and shut your doors behind you; hide yourselves for a
+  little while until the fury has passed by. For behold, the LORD is coming out from his place to punish the
+  inhabitants of the earth for their iniquity, and the earth will disclose the blood shed on it, and will no more
+  cover its slain. (ESV)
 
 We need to obey Jesus to see the life. That obedience isn't "working" but it is "performing/carrying out" but our
 justification isn't contingent on "working":
@@ -6750,7 +6805,10 @@ We work then find rest:
   the Lord from now on. Blessed indeed, says the Spirit, that they may rest from their labors, for their deeds
   follow them! (ESV)
 
-That rest looks like living for the will of God:
+That rest looks like living for the will of God (i.e. faith in Jesus, faith in God, our sanctification, keeping
+His commandments, putting a stop to breaking the 10 commandments from the heart, putting a stop to
+false-witnessing, idolatry etc., so faith in God beliving the gospel, producing agape love especially for our
+family in Christ):
 
   I Peter 4:1-2 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
@@ -9625,6 +9683,11 @@ its end, eternal life:
   leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
   eternal life in Christ Jesus our Lord. (ESV)
 
+Salvation is something which we are destined for at the end of our sanctification:
+
+  I Thessalonians 5:9-10 - For God has not destined us for wrath, but to obtain salvation through our Lord Jesus
+  Christ, who died for us so that whether we are awake or asleep we might live with him. (ESV)
+
 Can you be overcome by sin again? Yes, you can. But we're supposed to be overcome by practicing righteousness.
 Jesus sets us free, washes and regenerates us. Once that happens, we must not go back into sin.
 
@@ -9636,6 +9699,28 @@ Jesus sets us free, washes and regenerates us. Once that happens, we must not go
   bears thorns and thistles, it is worthless and near to being cursed, and its end is to be burned. (ESV)
 
   Romans 6:7 - For one who has died has been set free from sin. (ESV)
+
+Believers are sanctified in God's Truth, His Word - they are corrected to obey in word and deed:
+
+  John 17:14-17 - I have given them your word, and the world has hated them because they are not of the world,
+  just as I am not of the world. I do not ask that you take them out of the world, but that you keep them from the
+  evil one. They are not of the world, just as I am not of the world. Sanctify them in the truth; your word is
+  truth. (ESV)
+
+  Romans 15:18 - For I will not venture to speak of anything except what Christ has accomplished through me to
+  bring the Gentiles to obedience—by word and deed, (ESV)
+
+Keeping Jesus' commandments, we come to know Him:
+
+  John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+  (ESV)
+
+  I John 3:17 - But if anyone has the world's goods and sees his brother in need, yet closes his heart against
+  him, how does God's love abide in him? (ESV)
+
+  I John 4:20-21 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
+  brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
+  loves God must also love his brother. (ESV)
 
 You are not your own:
 
@@ -10129,7 +10214,10 @@ We work then find rest:
   the Lord from now on. Blessed indeed, says the Spirit, that they may rest from their labors, for their deeds
   follow them! (ESV)
 
-That rest looks like living for the will of God:
+That rest looks like living for the will of God (i.e. faith in Jesus, faith in God, our sanctification, keeping
+His commandments, putting a stop to breaking the 10 commandments from the heart, putting a stop to
+false-witnessing, idolatry etc., so faith in God beliving the gospel, producing agape love especially for our
+family in Christ):
 
   I Peter 4:1-2 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
@@ -18991,7 +19079,17 @@ the ages has come. (ESV)
 • I would say it's breaking the Great Commandments
 • To not love God with all one's heart, mind, soul and strength, and to not love their neighbour.
 
-7.1. Iniquity and sin: In this case, sin is the verb, I think, and iniquity is the noun
+7.1. Sin is disobedience
+
+Instead of being a slave of sin, we become obedient from the heart to the standard of teaching of the gospel:
+
+  Romans 6:16-18 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of
+  the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But
+  thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of
+  teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness.
+  (ESV)
+
+7.2. Iniquity and sin: In this case, sin is the verb, I think, and iniquity is the noun
 
   Job 10:14 - If I sin, you watch me and do not acquit me of my iniquity. (ESV)
 
@@ -19002,7 +19100,7 @@ the ages has come. (ESV)
 
   Psalms 51:2 - Wash me thoroughly from my iniquity, and cleanse me from my sin! (ESV)
 
-7.2. God searches the heart and tests the mind
+7.3. God searches the heart and tests the mind
 
   Jeremiah 17:10 - I the LORD search the heart and test the mind, to give every man according to his ways,
   according to the fruit of his deeds. (ESV)
@@ -19022,7 +19120,7 @@ We should ask God to search our heart, and our thoughts, and try us:
   Psalms 19:14 - Let the words of my mouth and the meditation of my heart be acceptable in your sight, O LORD, my
   rock and my redeemer. (ESV)
 
-7.3. The law is laid down for the sinners
+7.4. The law is laid down for the sinners
 
 Sinners:
 
@@ -19035,12 +19133,12 @@ Sinners:
   disobedient, for the ungodly and sinners, for the unholy and profane, for those who strike their fathers and
   mothers, for murderers, (ESV)
 
-7.4. Whoever transgresses the law is liable to judgement
+7.5. Whoever transgresses the law is liable to judgement
 
   Matthew 5:21 - You have heard that it was said to those of old, You shall not murder; and whoever murders will
   be liable to judgment. (ESV)
 
-7.5. Anger leads to the matter being settled in God's court
+7.6. Anger leads to the matter being settled in God's court
 
 Anger is not necessarily sinful but it has to be well-placed:
 
@@ -19133,7 +19231,7 @@ justice of God and upholding the glory of God.
 
 You got to get that otherwise you will sentimentalize God and people are sentimentalizing God everywhere.
 
-7.6. Sin - what does it look like
+7.7. Sin - what does it look like
 
 • doing and devising and being evil
 • disobedience to God
@@ -19157,7 +19255,7 @@ You got to get that otherwise you will sentimentalize God and people are sentime
 • envy, strife, deceit, maliciousness. They are gossips, slanderers, haters of God, insolent, haughty,
 boastful, inventors of evil, disobedient to parents, foolish, faithless, heartless, ruthless.
 
-7.6.1. Transgressing the 10 Commandments
+7.7.1. Transgressing the 10 Commandments
 
 The way to keep the 10 commandments properly is to love your neighbour as yourself. It's lawful to love. It's
 lawful to save life. It's overarchingly lawful to do good. If we endeavour to keep the 10 commandments, then that
@@ -19360,7 +19458,7 @@ Quote from a friend
 "God's will is going to be done. If we don't resist it then it will be a blessing to us and if we resist it then
 it will be a curse to us."
 
-7.6.2. Having a will to do evil, rather than a will to do God's will
+7.7.2. Having a will to do evil, rather than a will to do God's will
 
   John 8:44 - You are of your father the devil, and your will is to do your father's desires. He was a murderer
   from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he
@@ -19369,7 +19467,7 @@ it will be a curse to us."
   Matthew 15:19 - For out of the heart come evil thoughts, murder, adultery, sexual immorality, theft, false
   witness, slander. (ESV)
 
-7.6.3. All manner of unrighteousness
+7.7.3. All manner of unrighteousness
 
   Romans 1:26-32 - For this reason God gave them up to dishonorable passions. For their women exchanged natural
   relations for those that are contrary to nature; and the men likewise gave up natural relations with women and
@@ -19381,7 +19479,7 @@ it will be a curse to us."
   faithless, heartless, ruthless. Though they know God's decree that those who practice such things deserve to
   die, they not only do them but give approval to those who practice them. (ESV)
 
-7.6.4. Murder
+7.7.4. Murder
 
   I John 3:15 - Everyone who hates his brother is a murderer, and you know that no murderer has eternal life
   abiding in him. (ESV)
@@ -19392,12 +19490,12 @@ it will be a curse to us."
   Revelation of John 22:15 - Outside are the dogs and sorcerers and the sexually immoral and murderers and
   idolaters, and everyone who loves and practices falsehood. (ESV)
 
-7.6.5. Theft
+7.7.5. Theft
 
   Revelation of John 9:21 - nor did they repent of their murders or their sorceries or their sexual immorality or
   their thefts. (ESV)
 
-7.6.6. Rejecting the word of the LORD
+7.7.6. Rejecting the word of the LORD
 
   Isaiah 30:9-13 - For they are a rebellious people, lying children, children unwilling to hear the instruction of
   the LORD; who say to the seers, Do not see, and to the prophets, Do not prophesy to us what is right; speak to
@@ -19409,7 +19507,7 @@ it will be a curse to us."
   1 Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.6.7. Presumption and going beyond the Scripture
+7.7.7. Presumption and going beyond the Scripture
 
   I Corinthians 4:6 - I have applied all these things to myself and Apollos for your benefit, brothers, that you
   may learn by us not to go beyond what is written, that none of you may be puffed up in favor of one against
@@ -19428,7 +19526,7 @@ it will be a curse to us."
   I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.6.8. Wandering / backsliding from God
+7.7.8. Wandering / backsliding from God
 
   Jeremiah 14:7 - Though our iniquities testify against us, act, O LORD, for your name's sake; for our
   backslidings are many; we have sinned against you. (ESV)
@@ -19437,19 +19535,19 @@ it will be a curse to us."
   restrained their feet; therefore the LORD does not accept them; now he will remember their iniquity and punish
   their sins. (ESV)
 
-7.6.9. Prophesying lies
+7.7.9. Prophesying lies
 
   Jeremiah 14:14 - And the LORD said to me: The prophets are prophesying lies in my name. I did not send them, nor
   did I command them or speak to them. They are prophesying to you a lying vision, worthless divination, and the
   deceit of their own minds. (ESV)
 
-7.6.10. Ungodliness
+7.7.10. Ungodliness
 
   Isaiah 32:6 - For the fool speaks folly, and his heart is busy with iniquity, to practice ungodliness, to utter
   error concerning the LORD, to leave the craving of the hungry unsatisfied, and to deprive the thirsty of drink.
   (ESV)
 
-7.6.11. Pride, debauchery, greed
+7.7.11. Pride, debauchery, greed
 
   Ezekiel 16:49-58 - Behold, this was the guilt of your sister Sodom: she and her daughters had pride, excess of
   food, and prosperous ease, but did not aid the poor and needy. They were haughty and did an abomination before
@@ -19467,7 +19565,7 @@ it will be a curse to us."
   and for the daughters of the Philistines, those all around who despise you. You bear the penalty of your
   lewdness and your abominations, declares the LORD. (ESV)
 
-7.6.12. Pride in self and lack of humility towards God
+7.7.12. Pride in self and lack of humility towards God
 
 youtube.com: The Great Sin by C. S. Lewis Doodle {BBC Talk 16, Mere Christianity, Bk. 3, Chapter 8}.
 
@@ -19574,7 +19672,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Peter 5:6-7 - Humble yourselves, therefore, under the mighty hand of God so that at the proper time he may
   exalt you, casting all your anxieties on him, because he cares for you. (ESV)
 
-7.6.13. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
+7.7.13. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
 
   Ezekiel 13:22 - Because you have disheartened the righteous falsely, although I have not grieved him, and you
   have encouraged the wicked, that he should not turn from his evil way to save his life, (ESV)
@@ -19582,7 +19680,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   Isaiah 31:2 - And yet he is wise and brings disaster; he does not call back his words, but will arise against
   the house of the evildoers and against the helpers of those who work iniquity. (ESV)
 
-7.6.14. Dishonesty
+7.7.14. Dishonesty
 
   Isaiah 59:4-8 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak
   lies, they conceive mischief and give birth to iniquity. They hatch adders' eggs; they weave the spider's web;
@@ -19593,13 +19691,13 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   and there is no justice in their paths; they have made their roads crooked; no one who treads on them knows
   peace. (ESV)
 
-7.6.15. Lies and adultery
+7.7.15. Lies and adultery
 
   Jeremiah 23:14 - But in the prophets of Jerusalem I have seen a horrible thing: they commit adultery and walk in
   lies; they strengthen the hands of evildoers, so that no one turns from his evil; all of them have become like
   Sodom to me, and its inhabitants like Gomorrah. (ESV)
 
-7.6.16. Iniquity
+7.7.16. Iniquity
 
   II Samuel 7:14-15 - I will be to him a father, and he shall be to me a son. When he commits iniquity, I will
   discipline him with the rod of men, with the stripes of the sons of men, but my steadfast love will not depart
@@ -19608,24 +19706,24 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   Psalms 53:1 - The fool says in his heart, There is no God. They are corrupt, doing abominable iniquity; there is
   none who does good. (ESV)
 
-7.6.17. Profaning what is holy
+7.7.17. Profaning what is holy
 
   Leviticus 19:8 - and everyone who eats it shall bear his iniquity, because he has profaned what is holy to the
   LORD, and that person shall be cut off from his people. (ESV)
 
-7.6.18. Blasphemy
+7.7.18. Blasphemy
 
   I Samuel 3:13 - And I declare to him that I am about to punish his house forever, for the iniquity that he knew,
   because his sons were blaspheming God, and he did not restrain them. (ESV)
 
-7.6.19. Lawlessness is sin - unresponsive and disobedient to God
+7.7.19. Lawlessness is sin - unresponsive and disobedient to God
 
   I John 3:4 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
 
   Isaiah 53:6 - All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid
   on him the iniquity of us all. (ESV)
 
-7.6.20. Rebellion against God is sin
+7.7.20. Rebellion against God is sin
 
   Deuteronomy 9:7 - Remember and do not forget how you provoked the LORD your God to wrath in the wilderness. From
   the day you came out of the land of Egypt until you came to this place, you have been rebellious against the
@@ -19642,12 +19740,12 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.6.21. Not caring for the innocent
+7.7.21. Not caring for the innocent
 
   Isaiah 59:7 - Their feet run to evil, and they are swift to shed innocent blood; their thoughts are thoughts of
   iniquity; desolation and destruction are in their highways. (ESV)
 
-7.6.22. Doing evil deeds is sin
+7.7.22. Doing evil deeds is sin
 
   Colossians 1:21 - And you, who once were alienated and hostile in mind, doing evil deeds, (ESV)
 
@@ -19665,17 +19763,17 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   stable and steadfast, not shifting from the hope of the gospel that you heard, which has been proclaimed in all
   creation under heaven, and of which I, Paul, became a minister. (ESV)
 
-7.6.23. unjust gain
+7.7.23. unjust gain
 
   Isaiah 57:17 - Because of the iniquity of his unjust gain I was angry, I struck him; I hid my face and was
   angry, but he went on backsliding in the way of his own heart. (ESV)
 
-7.6.24. dishonesty
+7.7.24. dishonesty
 
   Isaiah 59:4 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak lies,
   they conceive mischief and give birth to iniquity. (ESV)
 
-7.6.25. idolatry
+7.7.25. idolatry
 
   Jeremiah 16:18 - But first I will doubly repay their iniquity and their sin, because they have polluted my land
   with the carcasses of their detestable idols, and have filled my inheritance with their abominations. (ESV)
@@ -19693,7 +19791,7 @@ But we should worship God and be sanctified:
 
   Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
 
-7.6.26. sexual immorality
+7.7.26. sexual immorality
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
@@ -19703,7 +19801,7 @@ But we should worship God and be sanctified:
   immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
   which is the second death. (ESV)
 
-7.6.27. carnal, fleshly things, greed and self-indulgence
+7.7.27. carnal, fleshly things, greed and self-indulgence
 
   James 5:5 - You have lived on the earth in luxury and in self-indulgence. You have fattened your hearts in a day
   of slaughter. (ESV)
@@ -19712,7 +19810,7 @@ But we should worship God and be sanctified:
   plate, but inside they are full of greed and self-indulgence. You blind Pharisee! First clean the inside of the
   cup and the plate, that the outside also may be clean. (ESV)
 
-7.6.28. unnatural desire
+7.7.28. unnatural desire
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
@@ -19729,7 +19827,7 @@ Defiling passion defiles:
   Jude 1:7 - just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality
   and pursued unnatural desire, serve as an example by undergoing a punishment of eternal fire. (ESV)
 
-7.6.29. Rape is very, very bad
+7.7.29. Rape is very, very bad
 
   Deuteronomy 22:23-29 - If there is a betrothed virgin, and a man meets her in the city and lies with her, then
   you shall bring them both out to the gate of that city, and you shall stone them to death with stones, the young
@@ -19743,7 +19841,7 @@ Defiling passion defiles:
   father of the young woman fifty shekels of silver, and she shall be his wife, because he has violated her. He
   may not divorce her all his days. (ESV)
 
-7.6.30. Being habitually drunk is sinful
+7.7.30. Being habitually drunk is sinful
 
   I Corinthians 6:9-10 - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
@@ -19759,7 +19857,7 @@ then alcohol could be sin, but it may not be.
 
 youtube.com: CAN CHRISTIANS DRINK/SMOKE?! {The Harsh Truth…}
 
-7.6.31. Abortion
+7.7.31. Abortion
 
 Abortion specifically has been condemned as a grave sin since the beginnings of the Church.
 
@@ -19781,7 +19879,7 @@ entire crowd erupted into loud cheers. But then a lone student in the crowd who 
 called out "Jesus is Lord". Now, instinctively and without pause Kamala mocked him telling him he was at the
 "wrong rally".
 
-7.6.32. More sins condemned by the early Church
+7.7.32. More sins condemned by the early Church
 
   Didache Chapter 3 - Other Sins Forbidden. My child, flee from every evil thing, and from every likeness of it.
   Be not prone to anger, for anger leads to murder. Be neither jealous, nor quarrelsome, nor of hot temper, for
@@ -22569,6 +22667,14 @@ loved us and forgave us first
 would dare even to die— but God shows his love for us in that while we were still sinners, Christ died
 for us. (ESV)
 • We must forgive as we have been forgiven
+• Colossians 3:12-14 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving
+each other; as the Lord has forgiven you, so you also must forgive. And above all these put on love,
+which binds everything together in perfect harmony. (ESV)
+• We must be conformed to holiness
+• I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
+as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
+holy, for I am holy. (ESV)
 
 Practicing righteousness is an indicator that someone is born of God:
 
@@ -23666,6 +23772,14 @@ loved us and forgave us first
 would dare even to die— but God shows his love for us in that while we were still sinners, Christ died
 for us. (ESV)
 • We must forgive as we have been forgiven
+• Colossians 3:12-14 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving
+each other; as the Lord has forgiven you, so you also must forgive. And above all these put on love,
+which binds everything together in perfect harmony. (ESV)
+• We must be conformed to holiness
+• I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
+as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
+holy, for I am holy. (ESV)
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -32980,6 +33094,14 @@ loved us and forgave us first
 would dare even to die— but God shows his love for us in that while we were still sinners, Christ died
 for us. (ESV)
 • We must forgive as we have been forgiven
+• Colossians 3:12-14 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving
+each other; as the Lord has forgiven you, so you also must forgive. And above all these put on love,
+which binds everything together in perfect harmony. (ESV)
+• We must be conformed to holiness
+• I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
+as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
+holy, for I am holy. (ESV)
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -37693,7 +37815,13 @@ Like a child of God:
 • obey like a child obeys their parents
 • follow like a child follows their parents
 
-  Colossians 3:20 - Children, obey your parents in everything, for this pleases the Lord. (ESV)
+  Colossians 3:20-21 - Children, obey your parents in everything, for this pleases the Lord. Fathers, do not
+  provoke your children, lest they become discouraged. (ESV)
+
+  Ephesians 6:1-4 - Children, obey your parents in the Lord, for this is right. Honor your father and mother (this
+  is the first commandment with a promise), that it may go well with you and that you may live long in the land.
+  Fathers, do not provoke your children to anger, but bring them up in the discipline and instruction of the Lord.
+  (ESV)
 
 The kingdom of God is all about serving Christ, and having righteousness, peace and joy in the Holy Spirit:
 
@@ -53606,6 +53734,14 @@ loved us and forgave us first
 would dare even to die— but God shows his love for us in that while we were still sinners, Christ died
 for us. (ESV)
 • We must forgive as we have been forgiven
+• Colossians 3:12-14 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving
+each other; as the Lord has forgiven you, so you also must forgive. And above all these put on love,
+which binds everything together in perfect harmony. (ESV)
+• We must be conformed to holiness
+• I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
+as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
+holy, for I am holy. (ESV)
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -57740,11 +57876,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-03 Mon 00:00
+Date: 2025-02-06 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-03 Mon 12:19
+Created: 2025-02-06 Thu 23:33
 
 Validate
 
