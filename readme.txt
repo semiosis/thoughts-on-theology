@@ -3589,9 +3589,52 @@ doctrine they affirm, and by Jesus Christ's words.
 Watch
 youtube.com: DEBATE Catholic Truth vs NeedGodnet {Part 2 - Catholic Debate } {@CatholicTruthOfficial}
 
-So I would say that the common foundation is faith in Jesus Christ Himself, including faith in Jesus Christ's
-words, and Jesus has purchased the redemption, and God justifies the one who puts their faith in Jesus, and it's
-God who tests the heart.
+I do indeed believe that we are allowed to read the Word of God for ourselves, and have our own relationship with
+Jesus, where we are trusting His word and acting out of obedience to it.
+
+And I believe that is part of God's gift to us, to be able to be in a relationship where we believe in something
+God has said, and then act on that basis - there should be unity between believers, but we're going to have our
+own individual journeys and personal relationship with God.
+
+So I would say that the common foundation between Protestants and Catholics is faith in Jesus Christ Himself,
+including faith in Jesus Christ's words, and Jesus has purchased the redemption, and God justifies the one who
+puts their faith in Jesus, and it's God who tests the heart.
+
+We should certainly be allowed to have faith in Jesus' words:
+
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}
+The word of truth is free, and carries its own authority, disdaining to fall under any skilful argument, or to
+endure the logical scrutiny of its hearers. But it would be believed for its own nobility, and for the confidence
+due to Him who sends it. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is not
+arrogant. For being sent with authority, it were not fit that it should be required to produce proof of what is
+said; since neither is there any proof beyond itself, which is God. For every proof is more powerful and
+trustworthy than that which it proves; since what is disbelieved, until proof is produced, gets credit when such
+proof is produced, and is recognised as being what it was stated to be. But nothing is either more powerful or
+more trustworthy than the truth; so that he who requires proof of this is like one who wishes it demonstrated why
+the things that appear to the senses do appear. For the test of those things which are received through the
+reason, is sense; but of sense itself there is no test beyond itself. As then we bring those things which reason
+hunts after, to sense, and by it judge what kind of things they are, whether the things spoken be true or false,
+and then sit in judgment no longer, giving full credit to its decision; so also we refer all that is said
+regarding men and the world to the truth, and by it judge whether it be worthless or no. But the utterances of
+truth we judge by no separate test, giving full credit to itself.
+
+So, for example, a Protestant may simple lead very heavily on their understanding of this verse, and that would be
+their faith. That's fine. At the end of the day, I'm also trusting on Jesus Himself and His finished work to
+deliver me from death and receive eternal life or that He has already delivered me from death and I've already
+received and receiving and awaiting eternal life (because I've been baptised into His death):
+
+  John 5:24 - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He
+  does not come into judgment, but has passed from death to life. (ESV)
+
+There's many other things which Jesus has taught though.
+
+  John 12:48 - The one who rejects me and does not receive my words has a judge; the word that I have spoken will
+  judge him on the last day. (ESV)
+
+For that reason, I would have more confidence before God if I was serving Him endeavouring to be pleasing to God
+through serving Jesus with a sincere faith, turning away from sin, renouncing ungodliness , loving the brethren,
+and trying to be holy and selfless and loving in faith towards Jesus, than if like a lawyer looking for a loophole
+I put confidence on doctrine but had no changed life / love for Jesus.
 
   Now I had gone into court willingly after being born-again as I held my faith in Jesus and submitted to the
   authorities, but not perfect. After breaking bail to get baptised and bring everything into the light, obeying
@@ -34313,21 +34356,21 @@ Keep in mind these verses:
   Matthew 7:2 - For with the judgment you pronounce you will be judged, and with the measure you use it will be
   measured to you. (ESV)
 
-Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson} The word of
-truth is free, and carries its own authority, disdaining to fall under any skilful argument, or to endure the
-logical scrutiny of its hearers. But it would be believed for its own nobility, and for the confidence due to Him
-who sends it. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is not arrogant.
-For being sent with authority, it were not fit that it should be required to produce proof of what is said; since
-neither is there any proof beyond itself, which is God. For every proof is more powerful and trustworthy than that
-which it proves; since what is disbelieved, until proof is produced, gets credit when such proof is produced, and
-is recognised as being what it was stated to be. But nothing is either more powerful or more trustworthy than the
-truth; so that he who requires proof of this is like one who wishes it demonstrated why the things that appear to
-the senses do appear. For the test of those things which are received through the reason, is sense; but of sense
-itself there is no test beyond itself. As then we bring those things which reason hunts after, to sense, and by it
-judge what kind of things they are, whether the things spoken be true or false, and then sit in judgment no
-longer, giving full credit to its decision; so also we refer all that is said regarding men and the world to the
-truth, and by it judge whether it be worthless or no. But the utterances of truth we judge by no separate test,
-giving full credit to itself.
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}
+The word of truth is free, and carries its own authority, disdaining to fall under any skilful argument, or to
+endure the logical scrutiny of its hearers. But it would be believed for its own nobility, and for the confidence
+due to Him who sends it. Now the word of truth is sent from God; wherefore the freedom claimed by the truth is not
+arrogant. For being sent with authority, it were not fit that it should be required to produce proof of what is
+said; since neither is there any proof beyond itself, which is God. For every proof is more powerful and
+trustworthy than that which it proves; since what is disbelieved, until proof is produced, gets credit when such
+proof is produced, and is recognised as being what it was stated to be. But nothing is either more powerful or
+more trustworthy than the truth; so that he who requires proof of this is like one who wishes it demonstrated why
+the things that appear to the senses do appear. For the test of those things which are received through the
+reason, is sense; but of sense itself there is no test beyond itself. As then we bring those things which reason
+hunts after, to sense, and by it judge what kind of things they are, whether the things spoken be true or false,
+and then sit in judgment no longer, giving full credit to its decision; so also we refer all that is said
+regarding men and the world to the truth, and by it judge whether it be worthless or no. But the utterances of
+truth we judge by no separate test, giving full credit to itself.
 
 For that reason, I would have more confidence before God if I was serving Him endeavouring to be pleasing to God
 through serving Jesus with a sincere faith, turning away from sin, renouncing ungodliness , loving the brethren,
@@ -58356,11 +58399,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-08 Sat 00:00
+Date: 2025-02-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-08 Sat 15:13
+Created: 2025-02-09 Sun 09:45
 
 Validate
 
