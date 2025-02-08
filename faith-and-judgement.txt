@@ -3618,7 +3618,7 @@ and then sit in judgment no longer, giving full credit to its decision; so also 
 regarding men and the world to the truth, and by it judge whether it be worthless or no. But the utterances of
 truth we judge by no separate test, giving full credit to itself.
 
-So, for example, a Protestant may simple lead very heavily on their understanding of this verse, and that would be
+So, for example, a Protestant may simply lean very heavily on their understanding of this verse, and that would be
 their faith. That's fine. At the end of the day, I'm also trusting on Jesus Himself and His finished work to
 deliver me from death and receive eternal life or that He has already delivered me from death and I've already
 received and receiving and awaiting eternal life (because I've been baptised into His death):
@@ -58403,7 +58403,7 @@ Date: 2025-02-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-09 Sun 09:45
+Created: 2025-02-09 Sun 09:58
 
 Validate
 
