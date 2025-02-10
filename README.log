@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  10 FEB 2025 16:01
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  10 FEB 2025 16:20
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -462,7 +462,7 @@ Missing character: There is no 􀀱 in font [lmroman10-regular]:mapping=tex-text
 Missing character: There is no 􂮌 in font [lmroman10-regular]:mapping=tex-text;!
 [21] [22] [23] [24] [25]
 
-LaTeX Warning: Hyper reference `sec:orgab678a9' on page 26 undefined on input l
+LaTeX Warning: Hyper reference `sec:org1ef0994' on page 26 undefined on input l
 ine 1431.
 
 [26] [27] [28] [29] [30] [31] [32]
@@ -2650,7 +2650,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [459]
 
-LaTeX Warning: Reference `sec:org827e610' on page 460 undefined on input line 2
+LaTeX Warning: Reference `sec:org7c26e98' on page 460 undefined on input line 2
 3702.
 
 [460] [461] [462] [463] [464]
@@ -4132,7 +4132,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [875] [876] [877]
 
-LaTeX Warning: Reference `sec:org827e610' on page 878 undefined on input line 4
+LaTeX Warning: Reference `sec:org7c26e98' on page 878 undefined on input line 4
 4895.
 
 [878] [879]
@@ -4333,7 +4333,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 47483--47502
 
 [924] [925] [926]
 
-LaTeX Warning: Hyper reference `sec:org1597e77' on page 927 undefined on input 
+LaTeX Warning: Hyper reference `sec:org06ac6e3' on page 927 undefined on input 
 line 47627.
 
 
@@ -4683,31 +4683,30 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 56347--56348
 []
  []
 
-[1086] [1087]
+[1086] [1087] [1088] [1089]
 
-LaTeX Warning: Hyper reference `sec:org1597e77' on page 1088 undefined on input
- line 56453.
+LaTeX Warning: Hyper reference `sec:org06ac6e3' on page 1090 undefined on input
+ line 56488.
 
-[1088] [1089] [1090]
-Overfull \hbox (11.86232pt too wide) in paragraph at lines 56533--56545
+[1090] [1091]
+Overfull \hbox (11.86232pt too wide) in paragraph at lines 56568--56580
 []\TU/lmr/m/n/10.95 God is love.
  []
 
-[1091] [1092]
+[1092] [1093] [1094]
 Missing character: There is no κ in font [lmmono10-regular]:!
 Missing character: There is no ύ in font [lmmono10-regular]:!
 Missing character: There is no ρ in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
- [1093]
 Missing character: There is no ρ in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
- [1094]
+ [1095]
 Missing character: There is no κ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ὶ in font [lmmono10-regular]:!
@@ -4801,6 +4800,7 @@ Missing character: There is no ς in font [lmmono10-regular]:!
 Missing character: There is no κ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ὶ in font [lmmono10-regular]:!
+ [1096]
 Missing character: There is no λ in font [lmmono10-regular]:!
 Missing character: There is no ύ in font [lmmono10-regular]:!
 Missing character: There is no σ in font [lmmono10-regular]:!
@@ -4873,7 +4873,6 @@ Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
- [1095]
 Missing character: There is no ἱ in font [lmmono10-regular]:!
 Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no ρ in font [lmmono10-regular]:!
@@ -4983,37 +4982,38 @@ Missing character: There is no ῦ in font [lmmono10-regular]:!
 Missing character: There is no φ in font [lmmono10-regular]:!
 Missing character: There is no ῶ in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
- [1096] [1097] [1098] [1099]
+ [1097] [1098] [1099] [1100] [1101]
 Missing character: There is no 细 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 罗 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
- [1100]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 57134--57134
+ [1102]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 57169--57169
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 57134--57134
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 57169--57169
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
-[1101]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 57147--57147
+
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 57182--57182
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 57172.
-[1102]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 57172.
+[1103]
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 57207.
+ [1104]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 57207.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 57172.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 57172
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 57207.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 57207
 .
 
 
@@ -5030,7 +5030,7 @@ LaTeX Warning: There were undefined references.
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 57172.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 57207.
  ) 
 Here is how much of TeX's memory you used:
  11227 strings out of 494868
@@ -5041,4 +5041,4 @@ Here is how much of TeX's memory you used:
  14 hyphenation exceptions out of 8191
  28i,9n,45p,6363b,1338s stack positions out of 5000i,500n,10000p,200000b,80000s
 
-Output written on ./README.pdf (1102 pages).
+Output written on ./README.pdf (1104 pages).
