@@ -3733,6 +3733,34 @@ What Ryan is saying here sounds correct to me. I think he's speaking from the Sp
 really with Ryan here
 youtube.com: THIS Is What NeedGod.net Thinks About Calvinism & Free Will! {@NeedGodnet}
 
+However, I have to agree with Leighton here:
+
+youtube.com: Why Calvinism Fails | Leighton Flowers | Soteriology 101 {@Soteriology101} @time: 19 min 37 sec
+
+Because the two times that Paul uses the term predestination in chapter 8 (Romans 8) and in Ephesians 1 are both
+about God predesting people to become conformed in the image of his Son and predestining people to become holy and
+blameless, which is exactly the same thing, it's synonymous. Becoming holy and blameless is the same as being
+conformed to the image of his Son. It doesn't say he's conforming he's predestining certain people to become
+believers, it says predestined believers to become like Jesus. He's predestined believers, those who are in
+Christ, to become holy and blameless.
+
+Hebrews 2:11-12 - For he who sanctifies and those who are sanctified all have one origin. That is why he is not
+ashamed to call them brothers, saying, I will tell of your name to my brothers; in the midst of the congregation I
+will sing your praise. (ESV)
+
+Romans 8:29-30 - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order
+that he might be the firstborn among many brothers. And those whom he predestined he also called, and those whom
+he called he also justified, and those whom he justified he also glorified. (ESV)
+
+Ephesians 1:3-10 - Blessed be the God and Father of our Lord Jesus Christ, who has blessed us in Christ with every
+spiritual blessing in the heavenly places, even as he chose us in him before the foundation of the world, that we
+should be holy and blameless before him. In love he predestined us for adoption through Jesus Christ, according to
+the purpose of his will, to the praise of his glorious grace, with which he has blessed us in the Beloved. In him
+we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace,
+which he lavished upon us, in all wisdom and insight making known to us the mystery of his will, according to his
+purpose, which he set forth in Christ as a plan for the fullness of time, to unite all things in him, things in
+heaven and things on earth. (ESV)
+
 I do indeed believe that we are allowed to read the Word of God for ourselves, and have our own relationship with
 Jesus, where we are trusting His word and acting out of obedience to it.
 
@@ -52177,6 +52205,32 @@ walks in the footsteps of the faith that Abraham had before he was circumcised.
   make him the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the
   faith that our father Abraham had before he was circumcised.
 
+youtube.com: Why Calvinism Fails | Leighton Flowers | Soteriology 101 {@Soteriology101} @time: 19 min 37 sec
+
+Because the two times that Paul uses the term predestination in chapter 8 (Romans 8) and in Ephesians 1 are both
+about God predesting people to become conformed in the image of his Son and predestining people to become holy and
+blameless, which is exactly the same thing, it's synonymous. Becoming holy and blameless is the same as being
+conformed to the image of his Son. It doesn't say he's conforming he's predestining certain people to become
+believers, it says predestined believers to become like Jesus. He's predestined believers, those who are in
+Christ, to become holy and blameless.
+
+Hebrews 2:11-12 - For he who sanctifies and those who are sanctified all have one origin. That is why he is not
+ashamed to call them brothers, saying, I will tell of your name to my brothers; in the midst of the congregation I
+will sing your praise. (ESV)
+
+Romans 8:29-30 - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order
+that he might be the firstborn among many brothers. And those whom he predestined he also called, and those whom
+he called he also justified, and those whom he justified he also glorified. (ESV)
+
+Ephesians 1:3-10 - Blessed be the God and Father of our Lord Jesus Christ, who has blessed us in Christ with every
+spiritual blessing in the heavenly places, even as he chose us in him before the foundation of the world, that we
+should be holy and blameless before him. In love he predestined us for adoption through Jesus Christ, according to
+the purpose of his will, to the praise of his glorious grace, with which he has blessed us in the Beloved. In him
+we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace,
+which he lavished upon us, in all wisdom and insight making known to us the mystery of his will, according to his
+purpose, which he set forth in Christ as a plan for the fullness of time, to unite all things in him, things in
+heaven and things on earth. (ESV)
+
 We do have the ability to make choices:
 
   Isaiah 66:3 - He who slaughters an ox is like one who kills a man; he who sacrifices a lamb, like one who breaks
@@ -59369,7 +59423,7 @@ Date: 2025-02-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-10 Mon 16:24
+Created: 2025-02-10 Mon 17:06
 
 Validate
 
