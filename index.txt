@@ -3729,6 +3729,10 @@ In this instance I think @CatholicTruthOfficial is speaking from the flesh and M
 from the Spirit
 youtube.com: Answering an Ex-Catholic! {Debunking Lion of Fire Raw} {@CatholicTruthOfficial}
 
+What Ryan is saying here sounds correct to me. I think he's speaking from the Spirit here, not the flesh. I'm
+really with Ryan here
+youtube.com: THIS Is What NeedGod.net Thinks About Calvinism & Free Will! {@NeedGodnet}
+
 I do indeed believe that we are allowed to read the Word of God for ourselves, and have our own relationship with
 Jesus, where we are trusting His word and acting out of obedience to it.
 
@@ -59365,7 +59369,7 @@ Date: 2025-02-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-10 Mon 16:12
+Created: 2025-02-10 Mon 16:24
 
 Validate
 
