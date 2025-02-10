@@ -49683,6 +49683,80 @@ Law.
 
  3. Victory over sin and death through Jesus
 
+Jesus is our Lord and Master, not sin. Being under grace means we have been forgiven and now present ourselves
+as slaves of Righteousness, obeying Jesus:
+
+  Romans 6:9-14 - Knowing that Christ being raised from the dead dieth no more; death hath no more dominion
+  over him. For in that he died, he died unto sin once: but in that he liveth, he liveth unto God. Likewise
+  reckon ye also yourselves to be dead indeed unto sin, but alive unto God through Jesus Christ our Lord. Let
+  not sin therefore reign in your mortal body, that ye should obey it in the lusts thereof. Neither yield ye
+  your members as instruments of unrighteousness unto sin: but yield yourselves unto God, as those that are
+  alive from the dead, and your members as instruments of righteousness unto God. For sin shall not have
+  dominion over you: for ye are not under the law, but under grace. (KJV)
+
+We should be obedient slaves of Righteousness (slaves of Jesus). If you're not enslaved to Christ you're
+enslaved to something else - either yourself or to sin or to the world or to satan. I realise that word
+'enslaved' carries connotations of slavery but it's slavery to Jesus, and freedom from slavery to sin, slavery
+from walking in disobedience to God, to instead serve God through Jesus. No servant is greater than their
+master, but at least the servant of Jesus has Jesus has their master.
+
+If we continue on serving, trusting, obeying sin, we will die. But of we continue serving, trusting, obeying
+Jesus we will be sanctified and have eternal life: Faith is commanded so is inseparable from obedience. It's
+the real gospel, the one that calls people to obedience by word and deed, obedience to Jesus. Obedience which
+leads to righteousness.
+
+  Romans 6:15-23 - What then? Are we to sin because we are not under law but under grace? By no means! Do you
+  not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you
+  obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to
+  God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to
+  which you were committed, and, having been set free from sin, have become slaves of righteousness. I am
+  speaking in human terms, because of your natural limitations. For just as you once presented your members as
+  slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to
+  righteousness leading to sanctification. When you were slaves of sin, you were free in regard to
+  righteousness. But what fruit were you getting at that time from the things of which you are now ashamed?
+  The end of those things is death. But now that you have been set free from sin and have become slaves of
+  God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but
+  the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
+Often believers have times when we stumble and speak and act in the flesh, as we are being sancified, but we
+confess sin and repent:
+
+  Romans 8:1-7 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
+  Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the
+  law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for
+  sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in
+  us, who walk not according to the flesh but according to the Spirit. For those who live according to the
+  flesh set their minds on the things of the flesh, but those who live according to the Spirit set their minds
+  on the things of the Spirit. To set the mind on the flesh is death, but to set the mind on the Spirit is
+  life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to God's
+  law; indeed, it cannot. (ESV)
+
+  Romans 7:14-25 - For we know that the law is spiritual, but I am of the flesh, sold under sin. I do not
+  understand my own actions. For I do not do what I want, but I do the very thing I hate. Now if I do what I
+  do not want, I agree with the law, that it is good. So now it is no longer I who do it, but sin that dwells
+  within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what
+  is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want
+  is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells
+  within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in
+  the law of God, in my inner being, but I see in my members another law waging war against the law of my mind
+  and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver
+  me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law
+  of God with my mind, but with my flesh I serve the law of sin. (ESV)
+
+  I John 1:6-10 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice
+  the truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the
+  truth is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us
+  from all unrighteousness. If we say we have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+Example with Simon. Jesus prayed that Simon's faith would not fail, despite knowing Simon would act in the
+flesh and Him, but Jesus asked Simon to strengthen His brothers when he 'turned' (came to his senses, began
+walking in the spirit/light/truth) again:
+
+  Luke 22:31-32 - Simon, Simon, behold, Satan demanded to have you, that he might sift you like wheat, but I
+  have prayed for you that your faith may not fail. And when you have turned again, strengthen your brothers.
+  (ESV)
+
 Sinning believers will still experience tribulation. Believers who are unrepentant from sin are probably not
 true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the
 literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put
@@ -59219,7 +59293,7 @@ Date: 2025-02-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-10 Mon 15:05
+Created: 2025-02-10 Mon 15:54
 
 Validate
 
