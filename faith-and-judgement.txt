@@ -417,7 +417,8 @@ This right is not for everyone, but only for those who receive Jesus Christ, who
 
   John 17:17 - Sanctify them in the truth; your word is truth. (ESV)
 
-I also think there's a difference between entering and inheriting the Kingdom of God - I mean, I myself am trying
+I also think there's a difference between entering and inheriting the Kingdom of God or perhaps the measure of
+that inheritance is dependant on our embracing sanctification and then Jesus glorifying Himself in us. I am trying
 to understand these things. I also believe in the imputed righteousness which guarantees entry into God's Kingdom,
 and that is by being found in Christ. Being found in Christ qualifies entrance. So if we confess that Jesus is the
 Christ, the Son of God, God abides in us and us in God. I confess Jesus is the Christ, the Son of God and Jesus is
@@ -4100,10 +4101,17 @@ We must be children of the promise:
   circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of the heart, by the
   Spirit, not by the letter. His praise is not from man but from God. (ESV)
 
-The promise is to be an heir of the world:
+The promise is to be a c-heir of the world. Believers may become co-heirs with Christ:
 
   Romans 4:13 - For the promise to Abraham and his offspring that he would be heir of the world did not come
   through the law but through the righteousness of faith. (ESV)
+
+For believers, the promise is having a share in the inheritance but the entire inheritance belongs to Jesus, not
+us. Also it only goes to those who are glorified with Him through suffering:
+
+  Colossians 1:11-12 - May you be strengthened with all power, according to his glorious might, for all endurance
+  and patience with joy, giving thanks to the Father, who has qualified you to share in the inheritance of the
+  saints in light. (ESV)
 
 We trust/believe in the one true God who raised Jesus Christ our Lord from the dead. We have peace with God
 through trusting faith:
@@ -47645,11 +47653,47 @@ We should also become obedient to Him - we must have faith in Jesus.
 
 One of the blessings is that we are counted as righteous before God, because we have faith in Jesus, loving Jesus.
 
-Another promise is that we would be an heir of the world. We belong to the Messiah. In the Messiah, God can make
-promises such as this to His chosen people:
+Another promise is that we would be a co-heir of the world - our Lord Jesus Christ Himself inheriting everything.
+We belong to the Messiah. In the Messiah, God can make promises such as this to His chosen people:
 
   Romans 4:13 - For the promise to Abraham and his offspring that he would be heir of the world did not come
   through the law but through the righteousness of faith. (ESV)
+
+The measure of that inheritance is dependant on our embracing sanctification:
+
+  Acts 20:25-32 - And now, behold, I know that none of you among whom I have gone about proclaiming the kingdom
+  will see my face again. Therefore I testify to you this day that I am innocent of the blood of all of you, for I
+  did not shrink from declaring to you the whole counsel of God. Pay careful attention to yourselves and to all
+  the flock, in which the Holy Spirit has made you overseers, to care for the church of God, which he obtained
+  with his own blood. I know that after my departure fierce wolves will come in among you, not sparing the flock ;
+  and from among your own selves will arise men speaking twisted things, to draw away the disciples after them.
+  Therefore be alert, remembering that for three years I did not cease night or day to admonish everyone with
+  tears. And now I commend you to God and to the word of his grace, which is able to build you up and to give you
+  the inheritance among all those who are sanctified. (ESV)
+
+It's having a share in the inheritance but the entire inheritance belongs to Jesus, not us. Also it only goes to
+those who are glorified with Him through suffering:
+
+  Colossians 1:11-12 - May you be strengthened with all power, according to his glorious might, for all endurance
+  and patience with joy, giving thanks to the Father, who has qualified you to share in the inheritance of the
+  saints in light. (ESV)
+
+  Romans 8:16-18 - The Spirit himself bears witness with our spirit that we are children of God, and if children,
+  then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be
+  glorified with him. For I consider that the sufferings of this present time are not worth comparing with the
+  glory that is to be revealed to us. (ESV)
+
+  I Peter 1:3-7 - Blessed be the God and Father of our Lord Jesus Christ! According to his great mercy, he has
+  caused us to be born again to a living hope through the resurrection of Jesus Christ from the dead, to an
+  inheritance that is imperishable, undefiled, and unfading, kept in heaven for you, who by God's power are being
+  guarded through faith for a salvation ready to be revealed in the last time. In this you rejoice, though now for
+  a little while, if necessary, you have been grieved by various trials, so that the tested genuineness of your
+  faith—more precious than gold that perishes though it is tested by fire—may be found to result in praise and
+  glory and honor at the revelation of Jesus Christ. (ESV)
+
+  Colossians 3:23-25 - Whatever you do, work heartily, as for the Lord and not for men, knowing that from the Lord
+  you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid
+  back for the wrong he has done, and there is no partiality. (ESV)
 
 Another promise is that in Christ (in union with Christ), the blessing of Abraham might come to the Gentiles so
 that we together Jew, and Gentile, might receive the promised Spirit (God's Spirit) through faith:
@@ -59852,7 +59896,7 @@ Date: 2025-02-11 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-11 Tue 19:11
+Created: 2025-02-11 Tue 22:56
 
 Validate
 
