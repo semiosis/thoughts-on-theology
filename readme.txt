@@ -442,6 +442,104 @@ we must obey God, obey Jesus.
 
   Acts 5:29 - But Peter and the apostles answered, We must obey God rather than men. (ESV)
 
+We need the Spirit of Christ to be in us. God gives the spirit to those who obey Him, obey Jesus.
+
+As children needing adoption we were enslaved by the elementary principles of the world, fearful people, without
+God (Ephesians 2:11-13), and then we came to know God / be known by God and we then face a battle with the flesh.
+Having our mind on the flesh is not a spiritual mindedness, and succumbs to fear, for example, like when Peter
+denied Jesus, or succumbs to lies for example, i.e. the flesh doesn't agree with the Truth about God. But we set
+our minds on the spirit, being spiritually minded and we are able to fulfill the requirement of the law as we do
+so. In fact, if we start calling on God as our Father, then we have an obligation to think and act like children
+of God, and God will chastise us.
+
+  John 1:12 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, (ESV)
+
+  Hebrews 12:4-8 - In your struggle against sin you have not yet resisted to the point of shedding your blood. And
+  have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of
+  the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son
+  whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is
+  there whom his father does not discipline? If you are left without discipline, in which all have participated,
+  then you are illegitimate children and not sons. (ESV)
+
+  I Peter 1:14-19 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
+  who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
+  holy. And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves
+  with fear throughout the time of your exile, knowing that you were ransomed from the futile ways inherited from
+  your forefathers, not with perishable things such as silver or gold, but with the precious blood of Christ, like
+  that of a lamb without blemish or spot. (ESV)
+
+  Ephesians 2:11-13 - Therefore remember that at one time you Gentiles in the flesh, called the uncircumcision by
+  what is called the circumcision, which is made in the flesh by hands— remember that you were at that time
+  separated from Christ, alienated from the commonwealth of Israel and strangers to the covenants of promise,
+  having no hope and without God in the world. But now in Christ Jesus you who once were far off have been brought
+  near by the blood of Christ. (ESV)
+
+  Galatians 3:22-9 - But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus
+  Christ might be given to those who believe. (ESV)
+
+  Galatians 4:1-9 - I mean that the heir, as long as he is a child, is no different from a slave, though he is the
+  owner of everything, but he is under guardians and managers until the date set by his father. In the same way we
+  also, when we were children, were enslaved to the elementary principles of the world. But when the fullness of
+  time had come, God sent forth his Son, born of woman, born under the law, to redeem those who were under the
+  law, so that we might receive adoption as sons. And because you are sons, God has sent the Spirit of his Son
+  into our hearts, crying, Abba! Father! So you are no longer a slave, but a son, and if a son, then an heir
+  through God. Formerly, when you did not know God, you were enslaved to those that by nature are not gods. But
+  now that you have come to know God, or rather to be known by God, how can you turn back again to the weak and
+  worthless elementary principles of the world, whose slaves you want to be once more? (ESV)
+
+  Romans 8:1-17 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
+  Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the law,
+  weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he
+  condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who
+  walk not according to the flesh but according to the Spirit. For those who live according to the flesh set their
+  minds on the things of the flesh, but those who live according to the Spirit set their minds on the things of
+  the Spirit. To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the
+  mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. Those
+  who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact the
+  Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. But if Christ
+  is in you, although the body is dead because of sin, the Spirit is life because of righteousness. If the Spirit
+  of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also give
+  life to your mortal bodies through his Spirit who dwells in you. So then, brothers, we are debtors, not to the
+  flesh, to live according to the flesh. For if you live according to the flesh you will die, but if by the Spirit
+  you put to death the deeds of the body, you will live. For all who are led by the Spirit of God are sons of God.
+  For you did not receive the spirit of slavery to fall back into fear, but you have received the Spirit of
+  adoption as sons, by whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that we are
+  children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with
+  him in order that we may also be glorified with him. (ESV)
+
+We must be people who love with agape love in order to say we know God, and essentially, this love comes from God.
+We know the love God has for us and we love one another:
+
+  John 10:14-16 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
+  the Father; and I lay down my life for the sheep. And I have other sheep that are not of this fold. I must bring
+  them also, and they will listen to my voice. So there will be one flock, one shepherd. (ESV)
+
+  John 10:27-28 - My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they
+  will never perish, and no one will snatch them out of my hand. (ESV)
+
+We come to know God, the love God has for us, practicing righteousness, loving our family in Christ, putting sin
+to death:
+
+  Titus 1:16 - They profess to know God, but they deny him by their works. They are detestable, disobedient, unfit
+  for any good work. (ESV)
+
+  I John 4:8-10 - Anyone who does not love does not know God, because God is love. In this the love of God was
+  made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is
+  love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
+  (ESV)
+
+  I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
+  immorality; that each one of you know how to control his own body in holiness and honor, not in the passion of
+  lust like the Gentiles who do not know God; that no one transgress and wrong his brother in this matter, because
+  the Lord is an avenger in all these things, as we told you beforehand and solemnly warned you. For God has not
+  called us for impurity, but in holiness. Therefore whoever disregards this, disregards not man but God, who
+  gives his Holy Spirit to you. (ESV)
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -2670,6 +2768,10 @@ It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' comm
 pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if you have faith in Him,
 believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -4326,6 +4428,10 @@ Faith presses on to walk the same way Jesus walked - even to spend the rest of t
 to know Jesus and the power of His resurrection, becoming like Him in His death (i.e. being faithful to God,
 stopping sin, exercising righteousness, becoming a scapegoat, even to death like the Apostles, sharing in His
 sufferings, living has He lived) and His resurrection:
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -5994,6 +6100,10 @@ Christ Jesus we are saved from condemnation.
 
 We must continue in our faith. We must continue to believe Jesus and trust in Jesus:
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -6268,6 +6378,10 @@ Faith presses on, faithful to Jesus, walking in the manner which Jesus walked - 
 on earth being obedient to Jesus to know Jesus and the power of His resurrection, becoming like Him in His death
 (i.e. being faithful to God, stopping sin, exercising righteousness, becoming a scapegoat, even to death like the
 Apostles, sharing in His sufferings, living has He lived) and His resurrection:
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -8763,6 +8877,10 @@ not be "under the law" and to be "not guilty".
 Following Jesus starts with believing in Him and believing He is the Son of God, and Anointed one, the Messiah,
 and following Jesus continues in getting to know Him through obedience to Him:
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -9950,6 +10068,10 @@ We aim for perfection / to be made complete / full restoration:
 Paul presses on to try to live like Christ, and his rationale is that Jesus made him (Paul) his own (i.e. Jesus
 loved him), and Paul loves Jesus back, so he wants to be obedient out of love for Jesus (I'm convinced that's the
 motivation). He wants to be with Jesus.
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -15388,6 +15510,10 @@ Faith presses on, faithful to Jesus, walking in the manner which Jesus walked - 
 on earth being obedient to Jesus to know Jesus and the power of His resurrection, becoming like Him in His death
 (i.e. being faithful to God, stopping sin, exercising righteousness, becoming a scapegoat, even to death like the
 Apostles, sharing in His sufferings, living has He lived) and His resurrection:
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -24103,6 +24229,10 @@ It's to walk in the Spirit, to abide in Jesus' Spirit, to be obeying Jesus' comm
 pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit if you have faith in Him,
 believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -24375,6 +24505,10 @@ which binds everything together in perfect harmony. (ESV)
 • I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
 as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
 holy, for I am holy. (ESV)
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -29899,6 +30033,112 @@ we must obey God, obey Jesus.
 
   Acts 5:29 - But Peter and the apostles answered, We must obey God rather than men. (ESV)
 
+We need the Spirit of Christ to be in us. God gives the spirit to those who obey Him, obey Jesus.
+
+As children needing adoption we were enslaved by the elementary principles of the world, fearful people, without
+God (Ephesians 2:11-13), and then we came to know God / be known by God and we then face a battle with the flesh.
+Having our mind on the flesh is not a spiritual mindedness, and succumbs to fear, for example, like when Peter
+denied Jesus, or succumbs to lies for example, i.e. the flesh doesn't agree with the Truth about God. But we set
+our minds on the spirit, being spiritually minded and we are able to fulfill the requirement of the law as we do
+so. In fact, if we start calling on God as our Father, then we have an obligation to think and act like children
+of God, and God will chastise us.
+
+  John 1:12 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, (ESV)
+
+  Hebrews 12:4-8 - In your struggle against sin you have not yet resisted to the point of shedding your blood. And
+  have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of
+  the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son
+  whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is
+  there whom his father does not discipline? If you are left without discipline, in which all have participated,
+  then you are illegitimate children and not sons. (ESV)
+
+  I Peter 1:14-19 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
+  who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
+  holy. And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves
+  with fear throughout the time of your exile, knowing that you were ransomed from the futile ways inherited from
+  your forefathers, not with perishable things such as silver or gold, but with the precious blood of Christ, like
+  that of a lamb without blemish or spot. (ESV)
+
+  Ephesians 2:11-13 - Therefore remember that at one time you Gentiles in the flesh, called the uncircumcision by
+  what is called the circumcision, which is made in the flesh by hands— remember that you were at that time
+  separated from Christ, alienated from the commonwealth of Israel and strangers to the covenants of promise,
+  having no hope and without God in the world. But now in Christ Jesus you who once were far off have been brought
+  near by the blood of Christ. (ESV)
+
+  Galatians 3:22-9 - But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus
+  Christ might be given to those who believe. (ESV)
+
+  Galatians 4:1-9 - I mean that the heir, as long as he is a child, is no different from a slave, though he is the
+  owner of everything, but he is under guardians and managers until the date set by his father. In the same way we
+  also, when we were children, were enslaved to the elementary principles of the world. But when the fullness of
+  time had come, God sent forth his Son, born of woman, born under the law, to redeem those who were under the
+  law, so that we might receive adoption as sons. And because you are sons, God has sent the Spirit of his Son
+  into our hearts, crying, Abba! Father! So you are no longer a slave, but a son, and if a son, then an heir
+  through God. Formerly, when you did not know God, you were enslaved to those that by nature are not gods. But
+  now that you have come to know God, or rather to be known by God, how can you turn back again to the weak and
+  worthless elementary principles of the world, whose slaves you want to be once more? (ESV)
+
+  Romans 8:1-17 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
+  Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the law,
+  weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he
+  condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who
+  walk not according to the flesh but according to the Spirit. For those who live according to the flesh set their
+  minds on the things of the flesh, but those who live according to the Spirit set their minds on the things of
+  the Spirit. To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the
+  mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. Those
+  who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact the
+  Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. But if Christ
+  is in you, although the body is dead because of sin, the Spirit is life because of righteousness. If the Spirit
+  of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also give
+  life to your mortal bodies through his Spirit who dwells in you. So then, brothers, we are debtors, not to the
+  flesh, to live according to the flesh. For if you live according to the flesh you will die, but if by the Spirit
+  you put to death the deeds of the body, you will live. For all who are led by the Spirit of God are sons of God.
+  For you did not receive the spirit of slavery to fall back into fear, but you have received the Spirit of
+  adoption as sons, by whom we cry, Abba! Father! The Spirit himself bears witness with our spirit that we are
+  children of God, and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with
+  him in order that we may also be glorified with him. (ESV)
+
+We must be people who love with agape love in order to say we know God, and essentially, this love comes from God.
+We know the love God has for us and we love one another:
+
+  John 10:14-16 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
+  the Father; and I lay down my life for the sheep. And I have other sheep that are not of this fold. I must bring
+  them also, and they will listen to my voice. So there will be one flock, one shepherd. (ESV)
+
+  John 10:27-28 - My sheep hear my voice, and I know them, and they follow me. I give them eternal life, and they
+  will never perish, and no one will snatch them out of my hand. (ESV)
+
+We come to know God, the love God has for us, practicing righteousness, loving our family in Christ, putting sin
+to death:
+
+  Titus 1:16 - They profess to know God, but they deny him by their works. They are detestable, disobedient, unfit
+  for any good work. (ESV)
+
+  I John 4:8-10 - Anyone who does not love does not know God, because God is love. In this the love of God was
+  made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is
+  love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
+  (ESV)
+
+  I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
+  immorality; that each one of you know how to control his own body in holiness and honor, not in the passion of
+  lust like the Gentiles who do not know God; that no one transgress and wrong his brother in this matter, because
+  the Lord is an avenger in all these things, as we told you beforehand and solemnly warned you. For God has not
+  called us for impurity, but in holiness. Therefore whoever disregards this, disregards not man but God, who
+  gives his Holy Spirit to you. (ESV)
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
+  Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
+  which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
+  the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
+  possible I may attain the resurrection from the dead. Not that I have already obtained this or am already
+  perfect, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider
+  that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies
+  ahead, (ESV)
+
 It's very annoying that my ability to help other people, for example, or to work, or to be married, say has been
 frustrated. The enemy has been making it extremely difficult to live in any other way than a chaste monk. However,
 where the Spirit of Christ is there is freedom, freedom to obey God.
@@ -33756,6 +33996,10 @@ which binds everything together in perfect harmony. (ESV)
 • I Peter 1:14-16 - As obedient children, do not be conformed to the passions of your former ignorance, but
 as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
 holy, for I am holy. (ESV)
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -40388,6 +40632,10 @@ near to us:
 
 Having an obedience that is based on trust in Jesus, we come into doing the will of God:
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -44997,6 +45245,10 @@ becoming like Him in His death. Believe God's testimony concerning His Son. Know
 
 Know Jesus experientially:
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -45514,6 +45766,10 @@ I believe that the freedom we have in Christ is for serving Jesus, and we have a
 54.24.3. The upward call of God in Christ Jesus
 
   Romans 12:11 - Do not be slothful in zeal, be fervent in spirit, serve the Lord. (ESV)
+
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -55201,6 +55457,10 @@ which binds everything together in perfect harmony. (ESV)
 as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be
 holy, for I am holy. (ESV)
 
+So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
+gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
+and help us to grow in knowledge of Him, as we obey Him:
+
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
   the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means
@@ -59419,11 +59679,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-10 Mon 00:00
+Date: 2025-02-11 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-10 Mon 17:06
+Created: 2025-02-11 Tue 13:12
 
 Validate
 
