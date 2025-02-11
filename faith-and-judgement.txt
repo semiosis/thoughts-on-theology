@@ -4820,7 +4820,144 @@ But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant
   for the man (H120 'adam) to be alone (H905 bad); I will make (H6213 `asah) him a helper (H5828 `ezer) suitable
   (H5048 neged) for him.”
 
-3.10. The importance of loving one another
+3.10. Come to love God, loving Jesus and keeping Jesus' word, be known by God, be brought to God and come to know God
+
+  John 14:23 - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we
+  will come to him and make our home with him. (ESV)
+
+  John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
+  came not of my own accord, but he sent me. (ESV)
+
+  Galatians 4:8-9 - Formerly, when you did not know God, you were enslaved to those that by nature are not gods.
+  But now that you have come to know God, or rather to be known by God, how can you turn back again to the weak
+  and worthless elementary principles of the world, whose slaves you want to be once more? (ESV)
+
+  I John 4:8 - Anyone who does not love does not know God, because God is love. (ESV)
+
+  John 8:19 - They said to him therefore, Where is your Father? Jesus answered, You know neither me nor my Father.
+  If you knew me, you would know my Father also. (ESV)
+
+3.10.1. The freedom of knowledge of the truth involves serving and obeying God and putting sin to death
+
+  John 8:31-36 - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my
+  disciples, and you will know the truth, and the truth will set you free. They answered him, We are offspring of
+  Abraham and have never been enslaved to anyone. How is it that you say, You will become free? Jesus answered
+  them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the
+  house forever; the son remains forever. So if the Son sets you free, you will be free indeed. (ESV)
+
+  Romans 6:17-23 - But thanks be to God, that you who were once slaves of sin have become obedient from the heart
+  to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves
+  of righteousness. I am speaking in human terms, because of your natural limitations. For just as you once
+  presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your
+  members as slaves to righteousness leading to sanctification. When you were slaves of sin, you were free in
+  regard to righteousness. But what fruit were you getting at that time from the things of which you are now
+  ashamed? The end of those things is death. But now that you have been set free from sin and have become slaves
+  of God, the fruit you get leads to sanctification and its end, eternal life. For the wages of sin is death, but
+  the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
+3.11. Follow Jesus to be brought to God, arrive at the knowledge of the Truth and don't go on sinning
+
+We must be sound in the faith. We must seek to bear our load. We should be doing the will of God. We must be
+obedient to Jesus.
+
+We should pray for all people that they come to the knowledge of the Truth.
+
+  I Timothy 2:1-4 - First of all, then, I urge that supplications, prayers, intercessions, and thanksgivings be
+  made for all people, for kings and all who are in high positions, that we may lead a peaceful and quiet life,
+  godly and dignified in every way. This is good, and it is pleasing in the sight of God our Savior, who desires
+  all people to be saved and to come to the knowledge of the truth. (ESV)
+
+We should pursue:
+
+• practicing righteousness
+• holiness, putting sin to death
+• loving our neighbour
+
+  II Timothy 2:20-26 - Now in a great house there are not only vessels of gold and silver but also of wood and
+  clay, some for honorable use, some for dishonorable. Therefore, if anyone cleanses himself from what is
+  dishonorable, he will be a vessel for honorable use, set apart as holy, useful to the master of the house, ready
+  for every good work. So flee youthful passions and pursue righteousness, faith, love, and peace, along with
+  those who call on the Lord from a pure heart. Have nothing to do with foolish, ignorant controversies; you know
+  that they breed quarrels. And the Lord's servant must not be quarrelsome but kind to everyone, able to teach,
+  patiently enduring evil, correcting his opponents with gentleness. God may perhaps grant them repentance leading
+  to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do
+  his will. (ESV)
+
+We should continue in what we have learned and firmly believed:
+
+  II Timothy 3:1-17 - But understand this, that in the last days there will come times of difficulty. For people
+  will be lovers of self, lovers of money, proud, arrogant, abusive, disobedient to their parents, ungrateful,
+  unholy, heartless, unappeasable, slanderous, without self-control, brutal, not loving good, treacherous,
+  reckless, swollen with conceit, lovers of pleasure rather than lovers of God, having the appearance of
+  godliness, but denying its power. Avoid such people. For among them are those who creep into households and
+  capture weak women, burdened with sins and led astray by various passions, always learning and never able to
+  arrive at a knowledge of the truth. Just as Jannes and Jambres opposed Moses, so these men also oppose the
+  truth, men corrupted in mind and disqualified regarding the faith. But they will not get very far, for their
+  folly will be plain to all, as was that of those two men. You, however, have followed my teaching, my conduct,
+  my aim in life, my faith, my patience, my love, my steadfastness, my persecutions and sufferings that happened
+  to me at Antioch, at Iconium, and at Lystra—which persecutions I endured; yet from them all the Lord rescued me.
+  Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, while evil people and impostors
+  will go on from bad to worse, deceiving and being deceived. But as for you, continue in what you have learned
+  and have firmly believed, knowing from whom you learned it and how from childhood you have been acquainted with
+  the sacred writings, which are able to make you wise for salvation through faith in Christ Jesus. All Scripture
+  is breathed out by God and profitable for teaching, for reproof, for correction, and for training in
+  righteousness, that the man of God may be competent, equipped for every good work. (ESV)
+
+  II Timothy 4:1-4 - I charge you in the presence of God and of Christ Jesus, who is to judge the living and the
+  dead, and by his appearing and his kingdom: preach the word; be ready in season and out of season; reprove,
+  rebuke, and exhort, with complete patience and teaching. For the time is coming when people will not endure
+  sound teaching, but having itching ears they will accumulate for themselves teachers to suit their own passions,
+  and will turn away from listening to the truth and wander off into myths. (ESV)
+
+  I Timothy 6:3-5 - If anyone teaches a different doctrine and does not agree with the sound words of our Lord
+  Jesus Christ and the teaching that accords with godliness, he is puffed up with conceit and understands nothing.
+  He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
+  slander, evil suspicions, and constant friction among people who are depraved in mind and deprived of the truth,
+  imagining that godliness is a means of gain. (ESV)
+
+  Philippians 2:12-16 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but
+  much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you,
+  both to will and to work for his good pleasure. Do all things without grumbling or questioning, that you may be
+  blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among
+  whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be
+  proud that I did not run in vain or labor in vain. (ESV)
+
+  Titus 1:1-16 - Paul, a servant of God and an apostle of Jesus Christ, for the sake of the faith of God's elect
+  and their knowledge of the truth, which accords with godliness, in hope of eternal life, which God, who never
+  lies, promised before the ages began and at the proper time manifested in his word through the preaching with
+  which I have been entrusted by the command of God our Savior; To Titus, my true child in a common faith: Grace
+  and peace from God the Father and Christ Jesus our Savior. This is why I left you in Crete, so that you might
+  put what remained into order, and appoint elders in every town as I directed you— if anyone is above reproach,
+  the husband of one wife, and his children are believers and not open to the charge of debauchery or
+  insubordination. For an overseer, as God's steward, must be above reproach. He must not be arrogant or
+  quick-tempered or a drunkard or violent or greedy for gain, but hospitable, a lover of good, self-controlled,
+  upright, holy, and disciplined. He must hold firm to the trustworthy word as taught, so that he may be able to
+  give instruction in sound doctrine and also to rebuke those who contradict it. For there are many who are
+  insubordinate, empty talkers and deceivers, especially those of the circumcision party. They must be silenced,
+  since they are upsetting whole families by teaching for shameful gain what they ought not to teach. One of the
+  Cretans, a prophet of their own, said, Cretans are always liars, evil beasts, lazy gluttons. This testimony is
+  true. Therefore rebuke them sharply, that they may be sound in the faith, not devoting themselves to Jewish
+  myths and the commands of people who turn away from the truth. To the pure, all things are pure, but to the
+  defiled and unbelieving, nothing is pure; but both their minds and their consciences are defiled. They profess
+  to know God, but they deny him by their works. They are detestable, disobedient, unfit for any good work. (ESV)
+
+  I John 4:8 - Anyone who does not love does not know God, because God is love. (ESV)
+
+We should not be an adversary, but we should obey the gospel of Jesus and endeavour to put sin to death and to
+practice righteousness and to love our family in Christ, while holding faith in Jesus:
+
+  Hebrews 10:23-31 - Let us hold fast the confession of our hope without wavering, for he who promised is
+  faithful. And let us consider how to stir up one another to love and good works, not neglecting to meet
+  together, as is the habit of some, but encouraging one another, and all the more as you see the Day drawing
+  near. For if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a
+  sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume the adversaries.
+  Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much
+  worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the
+  blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? For we know him who
+  said, Vengeance is mine; I will repay. And again, The Lord will judge his people. It is a fearful thing to fall
+  into the hands of the living God. (ESV)
+
+3.12. The importance of loving one another
 
 Believing Jesus, having the love of God within us, loving Father God, and loving one another who are children of
 God, all should be true together:
@@ -4899,7 +5036,7 @@ In order to know God we must love one another in the way that God has loved us:
   Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one
   another, God abides in us and his love is perfected in us. (ESV)
 
-3.11. Receiving the Holy Spirit
+3.13. Receiving the Holy Spirit
 
 So we must receive the Holy Spirit.
 
@@ -5022,7 +5159,7 @@ Simon had believed and been baptized but he needed to repent so that his heart w
   Lord that, if possible, the intent of your heart may be forgiven you. For I see that you are in the gall of
   bitterness and in the bond of iniquity. (ESV)
 
-3.11.1. Water baptism as an appeal to God
+3.13.1. Water baptism as an appeal to God
 
 Water baptism is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
@@ -5032,7 +5169,7 @@ sacrament maybe is not strictly required to be saved (as far as I understand).
   I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
   an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
-3.11.2. We need are sealed with the Holy Spirit through accepting the truth of the good news of Jesus and God's
+3.13.2. We need are sealed with the Holy Spirit through accepting the truth of the good news of Jesus and God's
 Living Word works in us to save us
 
 youtube.com: How Do I Know If the Holy Spirit Is in Me?
@@ -5087,7 +5224,7 @@ God:
   Romans 1:16 - For I am not ashamed of the gospel, for it is the power of God for salvation to everyone who
   believes, to the Jew first and also to the Greek. (ESV)
 
-3.11.3. We need to be born-again and we want to be filled with and baptised by the Holy Spirit
+3.13.3. We need to be born-again and we want to be filled with and baptised by the Holy Spirit
 
 It's natural to water baptize a person after they believe:
 
@@ -5133,7 +5270,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
   Spirit, he cannot enter the kingdom of God. (ESV)
 
-3.11.4. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
+3.13.4. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
 
   John 14:16-21 - And I will ask the Father, and he will give you another Helper, to be with you forever, even the
   Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he
@@ -5143,7 +5280,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
   (ESV)
 
-3.12. Our will should be for God's will to be done, and to will to do God's will
+3.14. Our will should be for God's will to be done, and to will to do God's will
 
 We may ask God for a willing spirit:
 
@@ -5411,7 +5548,7 @@ Like Jesus, we should do the will of God:
   Hebrews 10:7 - Then I said, Behold, I have come to do your will, O God, as it is written of me in the scroll of
   the book. (ESV)
 
-3.12.1. Being filled with the Holy Spirit
+3.14.1. Being filled with the Holy Spirit
 
 • Being a servant of God is a likely precursor to being filled with the Holy Spirit
 • Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those
@@ -5452,7 +5589,7 @@ up diligently in your hearts, and His sufferings were before your eyes.
 Thus a profound and rich peace was given to all, and an insatiable desire of doing good. An abundant outpouring
 also of the Holy Spirit fell upon all;
 
-3.13. In God's mercy, we come to obedient faith and come into Christ Jesus
+3.15. In God's mercy, we come to obedient faith and come into Christ Jesus
 
 "At one time disobedient…" means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
@@ -5469,7 +5606,7 @@ Mercy is so that we can be forgiven and change our ways:
 Song
 King of Kings {Lyric Video} - Hillsong Worship - YouTube
 
-3.13.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
+3.15.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
 
 We trust that our sin is covered by Jesus Christ's blood, as we abide in Him through belief and obedience:
 
@@ -5536,7 +5673,7 @@ The eternal redemption is in Christ Jesus:
   Hebrews 5:9-10 - And being made perfect, he became the source of eternal salvation to all who obey him, being
   designated by God a high priest after the order of Melchizedek. (ESV)
 
-3.14. Obedience is absolutely within our ability
+3.16. Obedience is absolutely within our ability
 
 God's commandments are not too difficult to follow.
 
@@ -5652,7 +5789,7 @@ salvation to all those who obey Him:
   John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
   sin of the world! (ESV)
 
-3.14.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
+3.16.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
 forever
 
 We should be led into the knowledge of the Truth:
@@ -5907,7 +6044,7 @@ have been forgiven, and repenting from sin:
   ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus
   Christ. (KJV)
 
-3.14.2. We are saved by grace through faith in Jesus Christ
+3.16.2. We are saved by grace through faith in Jesus Christ
 
 It's God's grace that enables us to be saved through faith. While we are saved exercising obedient, trusting,
 believing faith, Paul says it was actually God's doing:
@@ -6176,7 +6313,7 @@ A child of God makes a practice of practicing righteousness and does not make a 
 • I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil:
 whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
-3.14.3. We become obedient to Jesus
+3.16.3. We become obedient to Jesus
 
 The righteous try to be obedient. They make mistakes sometimes, they mess up sometimes but they return to God with
 the fear of God (they repent):
@@ -6231,7 +6368,7 @@ of righteousness to God. We should be practicing righteousness, practicing love 
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
   those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
-3.14.4. There's some bonuses to suffering for Christ's sake and for endurance
+3.16.4. There's some bonuses to suffering for Christ's sake and for endurance
 
 If we keep His commandments, keep His works we will reign with Him:
 
@@ -6246,7 +6383,7 @@ If we keep His commandments, keep His works we will reign with Him:
 
 But suffering for Christ's sake should be for giving glory to Jesus:
 
-3.14.5. Eternal life and salvation is a gift received through faith and obedience to God
+3.16.5. Eternal life and salvation is a gift received through faith and obedience to God
 
 We put our hope on Him to be our High Priest and Advocate, we obey Him as He saves us.
 
@@ -6576,7 +6713,7 @@ to pass over, withdraw, depart
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-3.14.6. Faith in the blood of Jesus
+3.16.6. Faith in the blood of Jesus
 
 Pastors fail us, but Jesus Christ doesn't fail us. That's why Jesus should be ultimately our only Teacher. Jesus
 is our only sure foundation.
@@ -6673,7 +6810,7 @@ other translations, although I think we have to be careful.
 |   sins            in   the     forbearance  -      of God
 |   N-GNP           Prep Art-DFS N-DFS       Art-GMS N-GMS
 
-3.15. Treasuring anything else more than God is sin
+3.17. Treasuring anything else more than God is sin
 
 Quote by Tim Keller
 Know what the Bible says: Sin is craving something more than God. Sin is making something more important than God.
@@ -6693,7 +6830,7 @@ youtube.com: Love Jesus More Than You Love Anything
   Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
   Christ (ESV)
 
-3.15.1. Eschatology
+3.17.1. Eschatology
 
 I really appreciated Allie's video here
 youtube.com: Eschatology, End Times and What's to Come | Ep 134
@@ -6707,7 +6844,7 @@ Before the second coming of our Lord Jesus Christ there is the appearance of the
   son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he
   takes his seat in the temple of God, proclaiming himself to be God. (ESV)
 
-3.15.2. How we should act how we're instructed to act while awaiting the Lord's return
+3.17.2. How we should act how we're instructed to act while awaiting the Lord's return
 
 Sermon
 youtube.com: Live with the End in View
@@ -6937,7 +7074,7 @@ Also, this is interesting:
 
 youtube.com: Strive to let everything bodily die within you, and you will rise before the general resurrection
 
-3.15.3. As Christians, we've got to repent of evil deeds and keep Jesus' works - keep imitating Christ, even in
+3.17.3. As Christians, we've got to repent of evil deeds and keep Jesus' works - keep imitating Christ, even in
 holiness
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
@@ -6974,7 +7111,7 @@ We must keep Jesus' teachings to the end:
   when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give
   him the morning star. He who has an ear, let him hear what the Spirit says to the churches. (ESV)
 
-3.15.4. We absolutely cling to Jesus as well
+3.17.4. We absolutely cling to Jesus as well
 
   I Corinthians 7:25-31 - Now concerning the betrothed, I have no command from the Lord, but I give my judgment as
   one who by the Lord's mercy is trustworthy. I think that in view of the present distress it is good for a person
@@ -6992,7 +7129,7 @@ We must keep Jesus' teachings to the end:
   anastasis) from the dead neither marry nor are given in marriage, for they cannot die anymore, because they are
   equal to angels and are sons of God, being sons of the resurrection.
 
-3.16. Disobedience towards God is sin. Treasuring anything else more than God is sin
+3.18. Disobedience towards God is sin. Treasuring anything else more than God is sin
 
 Sermon
 God is very happy about obedience, and listening to His word. Disobedience is sin, and disobedience is rejecting
@@ -7024,7 +7161,7 @@ God's commandments through Jesus is within the Law of God:
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law. (ESV)
 
-3.17. God makes us born-again, so we can love Him, obediently
+3.19. God makes us born-again, so we can love Him, obediently
 
   John 3:7 - Do not marvel that I said to you, You must be born again. (ESV)
 
@@ -7407,7 +7544,7 @@ straight and narrow to me:
   become of the ungodly and the sinner? Therefore let those who suffer according to God's will entrust their souls
   to a faithful Creator while doing good. (ESV)
 
-3.17.1. The Christian life is both gift and duty
+3.19.1. The Christian life is both gift and duty
 
 Fighting sin is both a gift from God and a duty we act.
 
@@ -7519,7 +7656,7 @@ It seems like we're saved (delivered) from (among other things):
   Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his
   grace we might become heirs according to the hope of eternal life. (ESV)
 
-3.17.2. God working in us
+3.19.2. God working in us
 
 God loved us first. We must accept that:
 
@@ -7619,7 +7756,7 @@ without partiality.
 
 Also I conclude that obeying Jesus Christ is having faith in Him.
 
-3.17.3. God acts for those who wait for Him
+3.19.3. God acts for those who wait for Him
 
 God wants to be our strength. AMEN!!
 
@@ -7744,7 +7881,7 @@ youtube.com: Everlasting God
   Psalms 82:3-4 - Give justice to the weak and the fatherless; maintain the right of the afflicted and the
   destitute. Rescue the weak and the needy; deliver them from the hand of the wicked. (ESV)
 
-3.17.4. The free gift is God - God is the Gospel
+3.19.4. The free gift is God - God is the Gospel
 
 We get out of the way everything that is an obstacle to enjoying God when we are forgiven. AMEN:
 
@@ -7753,7 +7890,7 @@ We get out of the way everything that is an obstacle to enjoying God when we are
 
   Colossians 1:14 - in whom we have redemption, the forgiveness of sins. (ESV)
 
-3.17.5. God the justifier of the one who has faith in Jesus - the righteousness of God apart from the law is
+3.19.5. God the justifier of the one who has faith in Jesus - the righteousness of God apart from the law is
 received by faith
 
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
@@ -7764,7 +7901,7 @@ received by faith
   over former sins. It was to show his righteousness at the present time, so that he might be just and the
   justifier of the one who has faith in Jesus. (ESV)
 
-3.17.6. The point of justification - we rejoice in the hope of the glory of God, and we are transformed
+3.19.6. The point of justification - we rejoice in the hope of the glory of God, and we are transformed
 
 Sermon
 John Piper: God is the Gospel - YouTube @time: 40 min 42 sec
@@ -7786,7 +7923,7 @@ Not only are we able to behold the glory of God, but we are transformed!
   II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
   into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
-3.17.7. Why do we want to live righteously? To honour Christ
+3.19.7. Why do we want to live righteously? To honour Christ
 
 We want to honour/exalt/magnify Christ in our lives, to trust Him, honour Him, believe His promises, and even
 faithfully wait/hold to those promises, and even want others to see the light of the gospel of the glory of Christ
@@ -7809,7 +7946,7 @@ And have communion with God:
   Revelation of John 3:4 - Yet you have still a few names in Sardis, people who have not soiled their garments,
   and they will walk with me in white, for they are worthy. (ESV)
 
-3.18. Saved not by my own works done outside of Him but by His work
+3.20. Saved not by my own works done outside of Him but by His work
 
 Yes, I believe that Jesus Christ has paid the price in full for me to be saved, and that is surely what I am
 leaning on. The price has been paid in full for me to be saved.
@@ -8029,7 +8166,7 @@ Listening to Jesus, we are already obeying the will of God, who commanded us to 
 
 God does work in us when we put our trust in Him, when we trust and obey His Word.
 
-3.18.1. Under the right conditions, I don't see a problem with 'working' for God
+3.20.1. Under the right conditions, I don't see a problem with 'working' for God
 
 The motivation has to be right. We do work for God to honour God, and as a response to Him loving us first, and as
 a response of love for Him forgiving us first, and giving us the gift of eternal life.
@@ -8186,7 +8323,7 @@ The faith Paul talks about is faith towards God. The faith towards God believes 
 Song
 Hillsong+Delirious? - History Maker
 
-3.19. Eternal security for those who follow Jesus
+3.21. Eternal security for those who follow Jesus
 
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube @time: 25 min 13 sec
@@ -8250,7 +8387,7 @@ And following Jesus' commandments we will love one another:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.20. Some indicators to know for sure you are saved
+3.22. Some indicators to know for sure you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube @time: 12
@@ -8405,7 +8542,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is
   tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. (ESV)
 
-3.20.1. By the Spirit Jesus has given us
+3.22.1. By the Spirit Jesus has given us
 
   II Corinthians 1:22 - and who has also put his seal on us and given us his Spirit in our hearts as a guarantee.
   (ESV)
@@ -8420,7 +8557,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   power of God, who saved us and called us to a holy calling, not because of our works but because of his own
   purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
 
-3.21. Indicators that we are of the truth
+3.23. Indicators that we are of the truth
 
 A strong indicator that we are of the truth is that against every condemnation, we know God is greater than our
 heart and knows everything
@@ -59683,7 +59820,7 @@ Date: 2025-02-11 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-11 Tue 13:12
+Created: 2025-02-11 Tue 18:43
 
 Validate
 
