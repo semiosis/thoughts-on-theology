@@ -4101,10 +4101,14 @@ We must be children of the promise:
   circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of the heart, by the
   Spirit, not by the letter. His praise is not from man but from God. (ESV)
 
-The promise is to be a c-heir of the world. Believers may become co-heirs with Christ:
+The promise given to Abraham and to his offspring, Christ, is to be an heir of the world. Believers may become
+co-heirs with Christ as they are found in Christ, provided they suffer with Him:
 
   Romans 4:13 - For the promise to Abraham and his offspring that he would be heir of the world did not come
   through the law but through the righteousness of faith. (ESV)
+
+  Romans 8:17 - and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him
+  in order that we may also be glorified with him. (ESV)􀀈􀫕
 
 For believers, the promise is having a share in the inheritance but the entire inheritance belongs to Jesus, not
 us. Also it only goes to those who are glorified with Him through suffering:
@@ -59896,7 +59900,7 @@ Date: 2025-02-11 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-11 Tue 22:56
+Created: 2025-02-11 Tue 23:09
 
 Validate
 
