@@ -537,8 +537,10 @@ to death:
   gives his Holy Spirit to you. (ESV)
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -2769,8 +2771,10 @@ pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit
 believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -4430,8 +4434,10 @@ stopping sin, exercising righteousness, becoming a scapegoat, even to death like
 sufferings, living has He lived) and His resurrection:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -6238,8 +6244,10 @@ Christ Jesus we are saved from condemnation.
 We must continue in our faith. We must continue to believe Jesus and trust in Jesus:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -6517,8 +6525,10 @@ on earth being obedient to Jesus to know Jesus and the power of His resurrection
 Apostles, sharing in His sufferings, living has He lived) and His resurrection:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -9015,8 +9025,10 @@ Following Jesus starts with believing in Him and believing He is the Son of God,
 and following Jesus continues in getting to know Him through obedience to Him:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -10207,8 +10219,10 @@ loved him), and Paul loves Jesus back, so he wants to be obedient out of love fo
 motivation). He wants to be with Jesus.
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -15649,8 +15663,10 @@ on earth being obedient to Jesus to know Jesus and the power of His resurrection
 Apostles, sharing in His sufferings, living has He lived) and His resurrection:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -24367,8 +24383,10 @@ pattern of life that He lived to be found in Him. You can abide in Jesus' Spirit
 believing in Him, believing, trusting and obeying Him, knowing Him, and being found in Him!
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -24644,8 +24662,10 @@ as he who called you is holy, you also be holy in all your conduct, since it is 
 holy, for I am holy. (ESV)
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -30265,8 +30285,10 @@ to death:
   gives his Holy Spirit to you. (ESV)
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -34135,8 +34157,10 @@ as he who called you is holy, you also be holy in all your conduct, since it is 
 holy, for I am holy. (ESV)
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -40770,8 +40794,10 @@ near to us:
 Having an obedience that is based on trust in Jesus, we come into doing the will of God:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -45383,8 +45409,10 @@ becoming like Him in His death. Believe God's testimony concerning His Son. Know
 Know Jesus experientially:
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -45905,8 +45933,10 @@ I believe that the freedom we have in Christ is for serving Jesus, and we have a
   Romans 12:11 - Do not be slothful in zeal, be fervent in spirit, serve the Lord. (ESV)
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -55595,8 +55625,10 @@ as he who called you is holy, you also be holy in all your conduct, since it is 
 holy, for I am holy. (ESV)
 
 So by faith we believe we are children of God, and believing on the name of Jesus Christ, the Son of God, God
-gives us the right and the commandment to be sanctified in the Truth. God continues to heal, sanctify, deliver us
-and help us to grow in knowledge of Him, as we obey Him:
+gives us the right and the commandment to be sanctified in the Truth. An analogy I like is that that by believing
+on Jesus' name as Son of God and Christ, we are allowed to be placed into God's ambulance and brought to God. In
+other words, we continue in faith and obedience, as slaves of God to be cleaned up as we come to the knowledge of
+the Truth. God continues to heal, sanctify, deliver us and help us to grow in knowledge of Him, as we obey Him:
 
   Philippians 3:9-13 - and be found in him, not having a righteousness of my own that comes from the law, but that
   which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and
@@ -59820,7 +59852,7 @@ Date: 2025-02-11 Tue 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-11 Tue 18:43
+Created: 2025-02-11 Tue 19:11
 
 Validate
 
