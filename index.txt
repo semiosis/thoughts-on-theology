@@ -2366,6 +2366,12 @@ We end up thinking in a similar fashion to Jesus:
   I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
   Christ. (ESV)
 
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
+
   Philippians 2:5-7 - Have this mind among yourselves, which is yours in Christ Jesus, who, though he was in the
   form of God, did not count equality with God a thing to be grasped, but made himself nothing, taking the form of
   a servant, being born in the likeness of men. (ESV)
@@ -3046,8 +3052,30 @@ youtube.com: Counterfeit Gods - Tim Keller
   I Corinthians 2:12 - Now we have received not the spirit of the world, but the Spirit who is from God, that we
   might understand the things freely given us by God. (ESV)
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
 Where loving your family in Christ is absolutely mandatory, the same level of committment to "do good" is not
 given to those who are in opposition to God:
@@ -8105,8 +8133,30 @@ who is the image of God:
 
 We want to obey God, and we will be transformed in this life:
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
 And have communion with God:
 
@@ -13986,8 +14036,30 @@ you. (ESV)
   Romans 8:27 - And he who searches hearts knows what is the mind of the Spirit, because the Spirit intercedes for
   the saints according to the will of God. (ESV)
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
   I Corinthians 1:1 - Paul, called by the will of God to be an apostle of Christ Jesus, and our brother Sosthenes,
   (ESV)
@@ -30140,6 +30212,11 @@ X alone” doctrines. For instance, we could teach:
 As the psalmist states, the sum of God’s word is truth. However, when we make passages fight against each other,
 we are saying only some of God’s word is truth.
 
+My way of thinking of this is: If the Word of God said you can be saved by it, it's true, you can be. But we're
+supposed to continue in faith, love, obedience. God is able to save a person with X alone, but that doesn't mean
+we should focus on minimums. Our trust should be on God's Word. We want to be found in Christ. Father God is the
+one to put a person in or out of Christ.
+
 20.3.1. Jesus is noticeably present with us as we believe and affirm and obey the Truth
 
 Sermon
@@ -39272,8 +39349,30 @@ I think being born of God might in some way mean being born of the will of God:
 
 40.3.8. We must be able to discern the will of God, and want to do it
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
   Matthew 6:10 - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
 
@@ -40943,8 +41042,30 @@ love) has truly been perfected. Having Jesus' teachings in us clearly should res
   Hebrews 12:2 - looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him
   endured the cross, despising the shame, and is seated at the right hand of the throne of God. (ESV)
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
 45.8.2. Spirit
 
@@ -44918,8 +45039,30 @@ youtube.com: Counterfeit Gods - Tim Keller
   I Corinthians 2:12 - Now we have received not the spirit of the world, but the Spirit who is from God, that we
   might understand the things freely given us by God. (ESV)
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
 Where loving your family in Christ is absolutely mandatory, the same level of committment to "do good" is not
 given to those who are in opposition to God:
@@ -54230,8 +54373,30 @@ youtube.com: Counterfeit Gods - Tim Keller
   I Corinthians 2:12 - Now we have received not the spirit of the world, but the Spirit who is from God, that we
   might understand the things freely given us by God. (ESV)
 
-  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
-  you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+There's a lot in the Bible to explain what is the revealed will of God. Continuing on in discerning the will of
+God we should have a renewed mind. We should obey Jesus:
+
+youtube.com: How Do We Know the Will of God? | John Piper Clip {@desiringGod}
+
+The Bible does not tell you which person to marry, or whether to marry. The Bible does not tell you which car to
+drive, or buy, rent. The Bible doesn't tell you whether to buy a home or not which home to buy. [The] Bible
+doesn't tell you which brand of orange juice to drink. There are 10,000 decisions you must make that are not
+explicitly addressed in the Bible so what do you do? If you want to obey the will of command my answer is you must
+have a renewed mind. That's what the text says.
+
+Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by testing
+you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+We end up thinking in a similar fashion to Jesus:
+
+  I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have the mind of
+  Christ. (ESV)
+
+Doing the will of God is what it means to be led by the Spirit. So you have to do the will of God, being a servant
+of Christ under the law of Christ, to have the blessing of not being condemned by the law of Moses:
+
+  Psalms 143:10 - Teach me to do your will, for you are my God! Let your good Spirit lead me on level ground!
+  (ESV)
 
   Luke 11:43 - Woe to you Pharisees! For you love (agapate) the best seat in the synagogues and greetings in the
   marketplaces. (ESV)
@@ -60091,11 +60256,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-13 Thu 00:00
+Date: 2025-02-14 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-13 Thu 09:48
+Created: 2025-02-14 Fri 20:27
 
 Validate
 
