@@ -20577,7 +20577,31 @@ it will be a curse to us."
   faithless, heartless, ruthless. Though they know God's decree that those who practice such things deserve to
   die, they not only do them but give approval to those who practice them. (ESV)
 
-7.7.4. Murder
+7.7.4. Witchcraft / Sorcery
+
+  Deuteronomy 18:10 - There shall not be found among you anyone who burns his son or his daughter as an offering,
+  anyone who practices divination or tells fortunes or interprets omens, or a sorcerer (ESV)
+
+Witchcraft is satanic and the lying signs and wonders it produces are not done with Jesus' power:
+
+  Jeremiah 27:9-10 - So do not listen to your prophets, your diviners, your dreamers, your fortune-tellers, or
+  your sorcerers, who are saying to you, You shall not serve the king of Babylon. For it is a lie that they are
+  prophesying to you, with the result that you will be removed far from your land, and I will drive you out, and
+  you will perish. (ESV)
+
+  Malachi 3:5 - Then I will draw near to you for judgment. I will be a swift witness against the sorcerers,
+  against the adulterers, against those who swear falsely, against those who oppress the hired worker in his
+  wages, the widow and the fatherless, against those who thrust aside the sojourner, and do not fear me, says the
+  LORD of hosts. (ESV)
+
+  Revelation of John 21:8 - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually
+  immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
+  which is the second death. (ESV)
+
+  Revelation of John 22:15 - Outside are the dogs and sorcerers and the sexually immoral and murderers and
+  idolaters, and everyone who loves and practices falsehood. (ESV)
+
+7.7.5. Murder
 
   I John 3:15 - Everyone who hates his brother is a murderer, and you know that no murderer has eternal life
   abiding in him. (ESV)
@@ -20588,12 +20612,12 @@ it will be a curse to us."
   Revelation of John 22:15 - Outside are the dogs and sorcerers and the sexually immoral and murderers and
   idolaters, and everyone who loves and practices falsehood. (ESV)
 
-7.7.5. Theft
+7.7.6. Theft
 
   Revelation of John 9:21 - nor did they repent of their murders or their sorceries or their sexual immorality or
   their thefts. (ESV)
 
-7.7.6. Rejecting the word of the LORD
+7.7.7. Rejecting the word of the LORD
 
   Isaiah 30:9-13 - For they are a rebellious people, lying children, children unwilling to hear the instruction of
   the LORD; who say to the seers, Do not see, and to the prophets, Do not prophesy to us what is right; speak to
@@ -20605,7 +20629,7 @@ it will be a curse to us."
   1 Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.7.7. Presumption and going beyond the Scripture
+7.7.8. Presumption and going beyond the Scripture
 
   I Corinthians 4:6 - I have applied all these things to myself and Apollos for your benefit, brothers, that you
   may learn by us not to go beyond what is written, that none of you may be puffed up in favor of one against
@@ -20624,7 +20648,7 @@ it will be a curse to us."
   I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.7.8. Wandering / backsliding from God
+7.7.9. Wandering / backsliding from God
 
   Jeremiah 14:7 - Though our iniquities testify against us, act, O LORD, for your name's sake; for our
   backslidings are many; we have sinned against you. (ESV)
@@ -20633,19 +20657,19 @@ it will be a curse to us."
   restrained their feet; therefore the LORD does not accept them; now he will remember their iniquity and punish
   their sins. (ESV)
 
-7.7.9. Prophesying lies
+7.7.10. Prophesying lies
 
   Jeremiah 14:14 - And the LORD said to me: The prophets are prophesying lies in my name. I did not send them, nor
   did I command them or speak to them. They are prophesying to you a lying vision, worthless divination, and the
   deceit of their own minds. (ESV)
 
-7.7.10. Ungodliness
+7.7.11. Ungodliness
 
   Isaiah 32:6 - For the fool speaks folly, and his heart is busy with iniquity, to practice ungodliness, to utter
   error concerning the LORD, to leave the craving of the hungry unsatisfied, and to deprive the thirsty of drink.
   (ESV)
 
-7.7.11. Pride, debauchery, greed
+7.7.12. Pride, debauchery, greed
 
   Ezekiel 16:49-58 - Behold, this was the guilt of your sister Sodom: she and her daughters had pride, excess of
   food, and prosperous ease, but did not aid the poor and needy. They were haughty and did an abomination before
@@ -20663,7 +20687,7 @@ it will be a curse to us."
   and for the daughters of the Philistines, those all around who despise you. You bear the penalty of your
   lewdness and your abominations, declares the LORD. (ESV)
 
-7.7.12. Pride in self and lack of humility towards God
+7.7.13. Pride in self and lack of humility towards God
 
 youtube.com: The Great Sin by C. S. Lewis Doodle {BBC Talk 16, Mere Christianity, Bk. 3, Chapter 8}.
 
@@ -20770,7 +20794,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Peter 5:6-7 - Humble yourselves, therefore, under the mighty hand of God so that at the proper time he may
   exalt you, casting all your anxieties on him, because he cares for you. (ESV)
 
-7.7.13. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
+7.7.14. Discouraging the righteous, encouraging the wicked, even to misguide them to harm
 
   Ezekiel 13:22 - Because you have disheartened the righteous falsely, although I have not grieved him, and you
   have encouraged the wicked, that he should not turn from his evil way to save his life, (ESV)
@@ -20778,7 +20802,7 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   Isaiah 31:2 - And yet he is wise and brings disaster; he does not call back his words, but will arise against
   the house of the evildoers and against the helpers of those who work iniquity. (ESV)
 
-7.7.14. Dishonesty
+7.7.15. Dishonesty
 
   Isaiah 59:4-8 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak
   lies, they conceive mischief and give birth to iniquity. They hatch adders' eggs; they weave the spider's web;
@@ -20789,13 +20813,13 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   and there is no justice in their paths; they have made their roads crooked; no one who treads on them knows
   peace. (ESV)
 
-7.7.15. Lies and adultery
+7.7.16. Lies and adultery
 
   Jeremiah 23:14 - But in the prophets of Jerusalem I have seen a horrible thing: they commit adultery and walk in
   lies; they strengthen the hands of evildoers, so that no one turns from his evil; all of them have become like
   Sodom to me, and its inhabitants like Gomorrah. (ESV)
 
-7.7.16. Iniquity
+7.7.17. Iniquity
 
   II Samuel 7:14-15 - I will be to him a father, and he shall be to me a son. When he commits iniquity, I will
   discipline him with the rod of men, with the stripes of the sons of men, but my steadfast love will not depart
@@ -20804,24 +20828,24 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   Psalms 53:1 - The fool says in his heart, There is no God. They are corrupt, doing abominable iniquity; there is
   none who does good. (ESV)
 
-7.7.17. Profaning what is holy
+7.7.18. Profaning what is holy
 
   Leviticus 19:8 - and everyone who eats it shall bear his iniquity, because he has profaned what is holy to the
   LORD, and that person shall be cut off from his people. (ESV)
 
-7.7.18. Blasphemy
+7.7.19. Blasphemy
 
   I Samuel 3:13 - And I declare to him that I am about to punish his house forever, for the iniquity that he knew,
   because his sons were blaspheming God, and he did not restrain them. (ESV)
 
-7.7.19. Lawlessness is sin - unresponsive and disobedient to God
+7.7.20. Lawlessness is sin - unresponsive and disobedient to God
 
   I John 3:4 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
 
   Isaiah 53:6 - All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid
   on him the iniquity of us all. (ESV)
 
-7.7.20. Rebellion against God is sin
+7.7.21. Rebellion against God is sin
 
   Deuteronomy 9:7 - Remember and do not forget how you provoked the LORD your God to wrath in the wilderness. From
   the day you came out of the land of Egypt until you came to this place, you have been rebellious against the
@@ -20838,12 +20862,12 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   I Samuel 15:23 - For rebellion is as the sin of divination, and presumption is as iniquity and idolatry. Because
   you have rejected the word of the LORD, he has also rejected you from being king. (ESV)
 
-7.7.21. Not caring for the innocent
+7.7.22. Not caring for the innocent
 
   Isaiah 59:7 - Their feet run to evil, and they are swift to shed innocent blood; their thoughts are thoughts of
   iniquity; desolation and destruction are in their highways. (ESV)
 
-7.7.22. Doing evil deeds is sin
+7.7.23. Doing evil deeds is sin
 
   Colossians 1:21 - And you, who once were alienated and hostile in mind, doing evil deeds, (ESV)
 
@@ -20861,17 +20885,17 @@ Anxiety flows from pride. If we don't trust God we will be anxious about the fut
   stable and steadfast, not shifting from the hope of the gospel that you heard, which has been proclaimed in all
   creation under heaven, and of which I, Paul, became a minister. (ESV)
 
-7.7.23. unjust gain
+7.7.24. unjust gain
 
   Isaiah 57:17 - Because of the iniquity of his unjust gain I was angry, I struck him; I hid my face and was
   angry, but he went on backsliding in the way of his own heart. (ESV)
 
-7.7.24. dishonesty
+7.7.25. dishonesty
 
   Isaiah 59:4 - No one enters suit justly; no one goes to law honestly; they rely on empty pleas, they speak lies,
   they conceive mischief and give birth to iniquity. (ESV)
 
-7.7.25. idolatry
+7.7.26. idolatry
 
   Jeremiah 16:18 - But first I will doubly repay their iniquity and their sin, because they have polluted my land
   with the carcasses of their detestable idols, and have filled my inheritance with their abominations. (ESV)
@@ -20889,7 +20913,7 @@ But we should worship God and be sanctified:
 
   Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
 
-7.7.26. sexual immorality
+7.7.27. sexual immorality
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
@@ -20899,7 +20923,7 @@ But we should worship God and be sanctified:
   immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
   which is the second death. (ESV)
 
-7.7.27. carnal, fleshly things, greed and self-indulgence
+7.7.28. carnal, fleshly things, greed and self-indulgence
 
   James 5:5 - You have lived on the earth in luxury and in self-indulgence. You have fattened your hearts in a day
   of slaughter. (ESV)
@@ -20908,7 +20932,7 @@ But we should worship God and be sanctified:
   plate, but inside they are full of greed and self-indulgence. You blind Pharisee! First clean the inside of the
   cup and the plate, that the outside also may be clean. (ESV)
 
-7.7.28. unnatural desire
+7.7.29. unnatural desire
 
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
@@ -20925,7 +20949,7 @@ Defiling passion defiles:
   Jude 1:7 - just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality
   and pursued unnatural desire, serve as an example by undergoing a punishment of eternal fire. (ESV)
 
-7.7.29. Rape is very, very bad
+7.7.30. Rape is very, very bad
 
   Deuteronomy 22:23-29 - If there is a betrothed virgin, and a man meets her in the city and lies with her, then
   you shall bring them both out to the gate of that city, and you shall stone them to death with stones, the young
@@ -20939,7 +20963,7 @@ Defiling passion defiles:
   father of the young woman fifty shekels of silver, and she shall be his wife, because he has violated her. He
   may not divorce her all his days. (ESV)
 
-7.7.30. Being habitually drunk is sinful
+7.7.31. Being habitually drunk is sinful
 
   I Corinthians 6:9-10 - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be
   deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
@@ -20955,7 +20979,7 @@ then alcohol could be sin, but it may not be.
 
 youtube.com: CAN CHRISTIANS DRINK/SMOKE?! {The Harsh Truth…}
 
-7.7.31. Abortion
+7.7.32. Abortion
 
 Abortion specifically has been condemned as a grave sin since the beginnings of the Church.
 
@@ -20977,7 +21001,7 @@ entire crowd erupted into loud cheers. But then a lone student in the crowd who 
 called out "Jesus is Lord". Now, instinctively and without pause Kamala mocked him telling him he was at the
 "wrong rally".
 
-7.7.32. More sins condemned by the early Church
+7.7.33. More sins condemned by the early Church
 
   Didache Chapter 3 - Other Sins Forbidden. My child, flee from every evil thing, and from every likeness of it.
   Be not prone to anger, for anger leads to murder. Be neither jealous, nor quarrelsome, nor of hot temper, for
@@ -60260,7 +60284,7 @@ Date: 2025-02-14 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-14 Fri 20:27
+Created: 2025-02-14 Fri 21:51
 
 Validate
 
