@@ -59040,6 +59040,22 @@ believers, doers, imitators of Him:
   brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
   loves God must also love his brother. (ESV)
 
+76.2.1. Commendation from God
+
+  Proverbs 12:8 - A man is commended according to his good sense, but one of twisted mind is despised. (ESV)
+
+  Hebrews 11:1-2 - Now faith is the assurance of things hoped for, the conviction of things not seen. For by it
+  the people of old received their commendation. (ESV)
+
+  II Corinthians 10:18 - For it is not the one who commends himself who is approved, but the one whom the Lord
+  commends. (ESV)
+
+  I Corinthians 4:3-5 - But with me it is a very small thing that I should be judged by you or by any human court.
+  In fact, I do not even judge myself. I am not aware of anything against myself, but I am not thereby acquitted.
+  It is the Lord who judges me. Therefore do not pronounce judgment before the time, before the Lord comes, who
+  will bring to light the things now hidden in darkness and will disclose the purposes of the heart. Then each one
+  will receive his commendation from God. (ESV)
+
 76.3. Hades and Hell - eternal fire
 
   Ephesians 4:8-10 - Therefore it says, When he ascended on high he led a host of captives, and he gave gifts to
@@ -60284,7 +60300,7 @@ Date: 2025-02-14 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-14 Fri 21:51
+Created: 2025-02-14 Fri 22:20
 
 Validate
 
