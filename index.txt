@@ -1083,6 +1083,68 @@ who has faith in Jesus, and that's the righteousness of Jesus. However, God is t
 this righteousness, and I maintain the hope that God will justify me or has already justified me as I continue in
 obedience. I think this is the right way to think about it.
 
+Receiving Jesus, we have the 'right', the 'authority' to become children of God, even by receiving Him through the
+knowledge of His name (onoma):
+
+  John 1:12 - As many as however received Him He gave to them authority children of God to be to those believing
+  in the name of Him (Interlinear)
+
+OK, so we have the right to call God our Father if believe on Jesus' name. So we should definitely renounce
+ungoliness, and live holy lives:
+
+  I Peter 1:14-19 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
+  who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
+  holy. And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves
+  with fear throughout the time of your exile, knowing that you were ransomed from the futile ways inherited from
+  your forefathers, not with perishable things such as silver or gold, but with the precious blood of Christ, like
+  that of a lamb without blemish or spot. (ESV)
+
+Our salvation looks like being cleaned up by His spirit, behaving in a way now reflecting that we have knowledge
+of God (i.e. godliness), and not worldliness, treasuring God and one another, and letting go of treasuring/valuing
+worldly things, with hope for eternal life:
+
+  Titus 2:11-13 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
+  ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
+  waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, (ESV)
+
+God's grace trains/has taught us to renounce ungodliness, and renounce worldly passions and then live discreetly
+and righteously and piously in this present age - to repent from sin and practice godly behaviour in the present
+world, which is full of wickedness as we are in the end times.
+
+Titus 2:11
+Has appeared for the grace - of God bringing salvation to all men
+
+Titus 2:12
+instructing us that having denied - ungodliness and - worldly passions discreetly and righteously and piously we
+should live in the present age
+
+Is repentance from sin necessary for salvation? Yes. We renounce the sinful habits and God cleans us up as we obey
+Him by faith. The liberty that God provides is not being a slave/servant of sin/corruption. God's grace trains us
+/ has taught us to renounce sin, and to live holy lives with holy behaviour in this present age:
+
+  II Peter 2:14-20 - Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: an
+  heart they have exercised with covetous practices; cursed children: Which have forsaken the right way, and are
+  gone astray, following the way of Balaam the son of Bosor, who loved the wages of unrighteousness; But was
+  rebuked for his iniquity: the dumb ass speaking with man’s voice forbad the madness of the prophet. These are
+  wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.
+  For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much
+  wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they
+  themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.
+  For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus
+  Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.
+  (KJV)
+
+If a person is unrepentant from sin then it is better that their body is destroyed so their spirit may be saved.
+In the case of the thief on the cross, his body was destroyed. If he stayed around, he probably would have
+renounced ungodliness and pursued holiness:
+
+  I Corinthians 5:1-5 - It is actually reported that there is sexual immorality among you, and of a kind that is
+  not tolerated even among pagans, for a man has his father's wife. And you are arrogant! Ought you not rather to
+  mourn? Let him who has done this be removed from among you. For though absent in body, I am present in spirit;
+  and as if present, I have already pronounced judgment on the one who did such a thing. When you are assembled in
+  the name of the Lord Jesus and my spirit is present, with the power of our Lord Jesus, you are to deliver this
+  man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
+
 We should disobey sin, and present ourselves to God as those alive from the dead, and our members as instruments
 of righteousness to God. We should be practicing righteousness, practicing love and holiness and truth:
 
@@ -2449,6 +2511,74 @@ worldly things, with hope for eternal life:
   ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
   waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, (ESV)
 
+God's grace trains/has taught us to renounce ungodliness, and renounce worldly passions and then live discreetly
+and righteously and piously in this present age - to repent from sin and practice godly behaviour in the present
+world, which is full of wickedness as we are in the end times.
+
+Titus 2:11
+Has appeared for the grace - of God bringing salvation to all men
+
+Titus 2:12
+instructing us that having denied - ungodliness and - worldly passions discreetly and righteously and piously we
+should live in the present age
+
+|  2014         1063 3588    5485   3588    2316
+|  Epephanē     gar  hē      charis tou     Theou
+|  Ἐπεφάνη      γὰρ  ἡ       χάρις  τοῦ     Θεοῦ  ,
+|  Has appeared for  the     grace   -      of God
+|  V-AIP-3S     Conj Art-NFS N-NFS  Art-GMS N-GMS
+| 
+|  4992               3956    444
+|  sōtērios           pasin   anthrōpois
+|  σωτήριος           πᾶσιν   ἀνθρώποις  ,
+|   bringing salvation to all  men
+|   Adj-NFS            Adj-DMP N-DMP
+
+|  3811        1473     2443   720           3588    763         2532 3588
+|  paideuousa  hēmas    hina   arnēsamenoi   tēn     asebeian    kai  tas
+|  παιδεύουσα  ἡμᾶς     ἵνα  , ἀρνησάμενοι   τὴν     ἀσέβειαν    καὶ  τὰς
+|  instructing us       that   having denied  -      ungodliness and   -
+|  V-PPA-NFS   PPro-A1P Conj   V-APM-NMP     Art-AFS N-AFS       Conj Art-AFP
+| 
+|  2886     1939         4996       2532 1346        2532 2153
+|  kosmikas epithymias   sōphronōs  kai  dikaiōs     kai  eusebōs
+|  κοσμικὰς ἐπιθυμίας  , σωφρόνως   καὶ  δικαίως     καὶ  εὐσεβῶς
+|   worldly  passions     discreetly and  righteously and  piously
+|   Adj-AFP  N-AFP        Adv        Conj Adv         Conj Adv
+|  
+|   2198           1722 3588    3568    165
+|   zēsōmen        en   tō      nyn     aiōni
+|   ζήσωμεν        ἐν   τῷ      νῦν     αἰῶνι  ,
+|   we should live in   the     present age
+|   V-ASA-1P       Prep Art-DMS Adv     N-DMS
+
+Is repentance from sin necessary for salvation? Yes. We renounce the sinful habits and God cleans us up as we obey
+Him by faith. The liberty that God provides is not being a slave/servant of sin/corruption. God's grace trains us
+/ has taught us to renounce sin, and to live holy lives with holy behaviour in this present age:
+
+  II Peter 2:14-20 - Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: an
+  heart they have exercised with covetous practices; cursed children: Which have forsaken the right way, and are
+  gone astray, following the way of Balaam the son of Bosor, who loved the wages of unrighteousness; But was
+  rebuked for his iniquity: the dumb ass speaking with man’s voice forbad the madness of the prophet. These are
+  wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.
+  For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much
+  wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they
+  themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.
+  For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus
+  Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.
+  (KJV)
+
+If a person is unrepentant from sin then it is better that their body is destroyed so their spirit may be saved.
+In the case of the thief on the cross, his body was destroyed. If he stayed around, he probably would have
+renounced ungodliness and pursued holiness:
+
+  I Corinthians 5:1-5 - It is actually reported that there is sexual immorality among you, and of a kind that is
+  not tolerated even among pagans, for a man has his father's wife. And you are arrogant! Ought you not rather to
+  mourn? Let him who has done this be removed from among you. For though absent in body, I am present in spirit;
+  and as if present, I have already pronounced judgment on the one who did such a thing. When you are assembled in
+  the name of the Lord Jesus and my spirit is present, with the power of our Lord Jesus, you are to deliver this
+  man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
+
   Romans 13:10-11 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. Besides this
   you know the time, that the hour has come for you to wake from sleep. For salvation is nearer to us now than
   when we first believed. (ESV)
@@ -3135,6 +3265,9 @@ preached:
 Lord of Eternity - Fernando Ortega (Live)
 Lord of Eternity; Blessed is the man; Who walks in Your favor; Who loves all Your words; And hides them like
 treasure; In the darkest place; Of his desperate heart, They are a light; A strong, sure light.
+
+  Psalms 84:11 - For the LORD God is a sun and shield; the LORD bestows favor and honor. No good thing does he
+  withhold from those who walk uprightly. (ESV)
 
 Those who will to agape love God must also will to love his brother or they are not loving God:
 
@@ -6137,6 +6270,16 @@ and I think it should be true belief that's in the heart:
   Romans 10:9 - because, if you confess with your mouth that Jesus is Lord and believe in your heart that God
   raised him from the dead, you will be saved. (ESV)
 
+youtube.com: Questions & Answers | Bishop Mari Emmanuel | ? {@SacredScripts} @time: 19 min 12 sec
+Let's assume this for a moment, the ultimate these leaders could have done to humanity [is] change a bad person
+into a good person. Let's say they brought some good values and morals and ethics and principles of life, the
+ultimate they could have done a favor to the human race was one thing: change a bad person into a good person. The
+love of my life Jesus Christ of Nazareth did not come to change a bad person into a good person, He came to change
+a dead person into a living one. In this there is no comparison. It is only Jesus Christ of Nazareth as a human
+being on the face of this Earth, He is the only human who dared to claim this statement and this truth. He said,
+"He who hears My word and believeth in My word, even if he dies he shall live. But he who takes My body and drinks
+My blood will live in me, forever. I am the life and the resurrection.
+
 We should definitely confess Jesus to others:
 
   Luke 12:8-9 - And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge
@@ -7038,6 +7181,14 @@ Before the second coming of our Lord Jesus Christ there is the appearance of the
   way. For that day will not come, unless the rebellion comes first, and the man of lawlessness is revealed, the
   son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he
   takes his seat in the temple of God, proclaiming himself to be God. (ESV)
+
+This is also interesting:
+
+youtube.com: The End of the Catholic Church Mar Mari Emmanuel {@MarMariEmmanuelChannel} @time: 20 min 29 sec
+This is the end of times, not the end of the world, the end of times. And every end of time is a 2,000 year cycle,
+from Adam to the great flood of Noah, 2,000 year cycle, from the time of Abraham to the Lord Jesus, 2000 year
+cycle, and from the Lord Jesus till now, we've gone into 2,000 and a bit year cycle. We are living end of times.
+What happen in every cycle of end of time, something great happens on a global level.
 
 3.17.2. How we should act how we're instructed to act while awaiting the Lord's return
 
@@ -8677,7 +8828,35 @@ All the thief could do was look to Jesus and cry out for mercy but thankfully th
   punishment that they deserved, he asked Jesus to remember him in His kingdom, and had the fear of God in his
   heart which would have caused him to not turn from God.
 
-This was all that was required of him for salvation and the same is true for us.
+Is repentance from sin necessary for salvation? It generally is necessary. We renounce the sinful habits and God
+cleans us up as we obey Him by faith. The liberty that God provides is not being a slave/servant of
+sin/corruption. God's grace trains us to renounce sin, not to
+
+  II Peter 2:14-20 - Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: an
+  heart they have exercised with covetous practices; cursed children: Which have forsaken the right way, and are
+  gone astray, following the way of Balaam the son of Bosor, who loved the wages of unrighteousness; But was
+  rebuked for his iniquity: the dumb ass speaking with man’s voice forbad the madness of the prophet. These are
+  wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.
+  For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much
+  wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they
+  themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.
+  For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus
+  Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.
+  (KJV)
+
+If a person is unrepentant from sin then it is better that their body is destroyed so their spirit may be saved.
+In the case of the thief on the cross, his body was destroyed. If he stayed around, he probably would have
+renounced ungodliness and pursued holiness:
+
+  I Corinthians 5:1-5 - It is actually reported that there is sexual immorality among you, and of a kind that is
+  not tolerated even among pagans, for a man has his father's wife. And you are arrogant! Ought you not rather to
+  mourn? Let him who has done this be removed from among you. For though absent in body, I am present in spirit;
+  and as if present, I have already pronounced judgment on the one who did such a thing. When you are assembled in
+  the name of the Lord Jesus and my spirit is present, with the power of our Lord Jesus, you are to deliver this
+  man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
+
+This was all that was required of him for salvation and the same is true for us (in terms of minimums) but we
+should continue in faith, love and obedience:
 
   The thief didn't get to go learn the bible, or get baptised or begin to follow Jesus in the way that he lived,
   but that is not to say that those things are not important because they are. Those are things that God has
@@ -14921,8 +15100,13 @@ against slip-ups.
   Proverbs 16:32 - Whoever is slow to anger is better than the mighty, and he who rules his spirit than he who
   takes a city. (ESV)
 
-Follow God's statutes until the end. It's very blessed to do so. Allow God to change our heart and take our idols
-away from us and teach us to love Him and others as we take our thoughts captive to be obedient to Jesus:
+Follow God's statutes until the end. It's very blessed to do so.:
+
+  Psalms 84:11 - For the LORD God is a sun and shield; the LORD bestows favor and honor. No good thing does he
+  withhold from those who walk uprightly. (ESV)
+
+Allow God to change our heart and take our idols away from us and teach us to love Him and others as we take our
+thoughts captive to be obedient to Jesus:
 
 Encouragement
 youtube.com: Psalm 119:33 follow Gods statutes until the end.
@@ -20934,9 +21118,34 @@ But we should worship God and be sanctified:
 
 7.7.29. unnatural desire
 
+  II Peter 2:14-20 - Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: an
+  heart they have exercised with covetous practices; cursed children: Which have forsaken the right way, and are
+  gone astray, following the way of Balaam the son of Bosor, who loved the wages of unrighteousness; But was
+  rebuked for his iniquity: the dumb ass speaking with man’s voice forbad the madness of the prophet. These are
+  wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.
+  For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much
+  wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they
+  themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.
+  For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus
+  Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.
+  (KJV)
+
+  II Peter 2:14-20 - They have eyes full of adultery, insatiable for sin. They entice unsteady souls. They have
+  hearts trained in greed. Accursed children! Forsaking the right way, they have gone astray. They have followed
+  the way of Balaam, the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a
+  speechless donkey spoke with human voice and restrained the prophet's madness. These are waterless springs and
+  mists driven by a storm. For them the gloom of utter darkness has been reserved. For, speaking loud boasts of
+  folly, they entice by sensual passions of the flesh those who are barely escaping from those who live in error.
+  They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to
+  that he is enslaved. For if, after they have escaped the defilements of the world through the knowledge of our
+  Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for
+  them than the first. (ESV)
+
   I Corinthians 10:8-9 - We must not indulge in sexual immorality as some of them did, and twenty-three thousand
   fell in a single day. We must not put Christ to the test, as some of them did and were destroyed by serpents,
   (ESV)
+
+Paul talks about the 'flesh' mainly as ungodliness.
 
   Colossians 2:23 - These have indeed an appearance of wisdom in promoting self-made religion and asceticism and
   severity to the body, but they are of no value in stopping the indulgence of the flesh. (ESV)
@@ -20978,6 +21187,110 @@ someone just warned you it's contaminated it may kill you - that sin. So drinkin
 then alcohol could be sin, but it may not be.
 
 youtube.com: CAN CHRISTIANS DRINK/SMOKE?! {The Harsh Truth…}
+
+youtube.com: 'Nothing Is to Be Rejected' - Including Pot? {@desiringGod}
+
+In what ways would you qualify Paul's "nothing is to be rejected" because that is really the issue. The issue is
+not "what can I give thanks for". Paul teaches that we should give thanks for everything.
+
+Ephesians 5:20 - giving thanks always and for everything to God the Father in the name of our Lord Jesus Christ,
+(ESV)
+
+But that does not mean give moral approval to everything. It means, rather, that we recognize that in the
+providence of God, He makes everything serve his wise and loving purposes, even some very painful and even sinful
+things. So, I don't think the key question is: what should we thank God for? When Paul said in
+
+I Timothy 4:4 - For everything created by God is good, and nothing is to be rejected if it is received with
+thanksgiving, (ESV)
+
+He's saying that's why everything exists, namely to reveal the goodness of God and to awaken in the human soul
+thanksgiving. In other words, we should only use creation, all of it, the way it was designed to be used, namely
+with thanksgiving.
+
+What does Paul mean when he says nothing in creation is to be rejected? and I think he means nothing is to be
+rejected because it is ritually unclean. According to Mark 7:19 Jesus declared all foods clean,. so they're all
+lawful, not to be rejected. None of the Old Testament dietary laws applies anymore. They were a temporary way for
+Israel to set itself off from the nations. The church doesn't aim to set itself off from the nations in that way
+anymore with food laws. Nothing is ritually unclean for the Christian in that sense. It's lawful, it's all lawful.
+None is to be rejected as ritually off limits. Which also means that the false teachers in first Timothy before uh
+who were forbidding marriage and requiring abstinence from foods were falling back into the old legal way rather
+than walking in the freedom of Christ.
+
+I mean, pot may be fine medicinally or recreationally if it's not harming people:
+
+youtube.com: 'Nothing Is to Be Rejected' - Including Pot? {@desiringGod} @time: 5 min 50 sec
+
+And I think there are at least three principles that Paul mentions as to what do we do with nature, the goodness
+of nature? One principle is love.
+
+I Corinthians 10:23-24 - All things are lawful, but not all things are helpful. All things are lawful, but not all
+things build up. Let no one seek his own good, but the good of his neighbor. (ESV)
+
+So we do not simply say I'm free and all foods are clean and that's that I eat what I want. No, that's not the way
+a Christian talks. We ask, will it be helpful? Will it be profitable? Will other people benefit from my enjoyment
+of this use of this, doing of this, that's the principle of love.
+
+And then in 1 Corinthians 6:12 he brings out two other principles, I think. He says, "all things are lawful for
+me"
+
+• same beginning, but he continues
+
+differently - but not all things are helpful, all things are lawful for me, but I will not be dominated,
+controlled, taken over, enslaved by anything, even good things.
+
+Here the principle looks the same as First Corinthians 10, but it's not quite. Instead of saying, seek the good of
+your neighbor in what you eat, he says, "I will not be dominated or enslaved by anything".
+
+You might say this is the principle of self-love, a proper self-love. Be watchful not to be addicted, be watchful
+not to be damaged. I think those would be the two principles. Is it is it tending toward my slavery, that making
+me a slave - I'm out of control here, I'm utterly dependent on this thing, and is it hurting me is it doing me
+damage as my master? So three principles at least, put limits on the statement "nothing is to be rejected". One,
+love. Will it help or hurt others? Two, addiction. Will I be enslaved? Is it enslaving me? Three, damage to my
+body or soul, will it dominate me hurtfully?
+
+But maybe the clearest way to show Jameson's friends that they don't really mean it when they say that since
+everything is that God made is good, absolutely nothing's to be rejected, they don't mean that because they know
+good and well that there are mushrooms that will kill you if you eat them, there are some people with such severe
+peanut allergies they would die if they eat a peanut. They won't even let you have peanuts on the airplane when
+these people are on board.
+
+They don't serve peanuts they know this, these friends know this, they make distinctions themselves. So the
+question is, whether cannabis is helpful to others when we use. It is it addicting to my mind, is it hurtful to
+the mind or to the soul? Those the key questions.
+
+Also, this was helpful:
+
+youtube.com: CANNABIS AND CHRISTIANITY {@FatherSpyridonROCOR}
+In fact sobriety of the mind is one of the key essential components of the spiritual life and the [church] fathers
+warn us against everything that will distract us from this pursuit of sobriety of mind. Cannabis reduces our
+ability to develop and maintain sobriety of mind, sobriety which is a spiritual sobriety and the [church] fathers
+do identify this as one of the main impediments to spiritual change to just to perception of truth when our mind
+is filled with fantasy and imaginings then to identify truth the revealed truth of god becomes impossible. Now
+some argue that cannabis opens us up to the spiritual insights that they believe they are capable of or even dare
+I say visions. Some people will claim particularly in these shamanistic cults to have visions under the influence
+of cannabis, marijuana. Saint John Cassian warns us that to attempt to open the noetic eyes through drugs is
+sorcery. It is sorcery. God has dimmed the noetic sight to protect us. It is for our benefit. There are great
+ascetics those who have progressed in the spiritual life for whom these visions are revealed but for the majority
+of us it is hugely dangerous to do anything to artificially open noetic sight. It leaves us spiritually
+vulnerable.
+
+https://youtu.be/Yx02e3wENdo?t=443
+Imagination is a beautiful gift from the Good God. It's a good gift from the Good God. All of us, we imagine.
+Through our imagination, we can go to heaven, we can go anywhere we want to go with imagination, there is no
+limit. God imagines. Since he created us in His image, whatever he is and has He has placed in this human being.
+This imagination, when it gets tarnished it will affect your subconscious mind. It will shape, mold and form your
+subconscious mind. And guess what? Before you know it, since you have no control over the subconscious mind, the
+moment it is shaped and affected, the subconscious mind will send it to the conscience the rational mind. When it
+gets to your rational mind you're gone.
+
+youtube.com: Questions & Answers | Bishop Mari Emmanuel | ? {@SacredScripts} @time: 9 min 4 sec
+If you want to listen to a song, listen to a song that has the name of Jesus Christ in it,. to cleanse your way of
+thinking, to purify your imagination, because when the name of Jesus enters through the door of imagination it
+purifies your imagination. Guess what? Imagination is the way for you ending up worshiping God or Satan. Did you
+know this? It is the imagination that will take me later on onto faith and then worshiping God. But if the
+imagination is not pure, I will bo robbed and go to the dark side. Satan will take over. So we need to purify this
+imagination. How do we do it? Only God can. I need to be clinging to the word of the Lord. Listen to songs,. make
+them songs that are about the Lord, praising God. Something that is pure.
 
 7.7.32. Abortion
 
@@ -38489,6 +38802,9 @@ fulfilled in us who walk according to the spirit.
 
 Indeed, doing the law is a blessed way to live so long as you are compliant.
 
+  Psalms 84:11 - For the LORD God is a sun and shield; the LORD bestows favor and honor. No good thing does he
+  withhold from those who walk uprightly. (ESV)
+
 We need Jesus as our Master, not the Law as our master. That's what I think it means to be "under grace", not
 "under Law".
 
@@ -41899,6 +42215,39 @@ then by testing we will be able to discern the will of God:
 
   Matthew 19:4 - He answered, Have you not read that he who created them from the beginning made them male and
   female, (ESV)
+
+Man and woman, husband and wife are a single unit called Adam:
+
+|       1254              3117           120     8034        853
+|  s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
+|  ס    הבראם׃            ביום           אדם     שמם         את־
+|   -   they were created in the day     man     them         -
+|  Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
+| 
+|  7121                            853           1288
+|  way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
+|  ויקרא                           אתם           ויברך
+|   and called                      them          and He blessed
+|   Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
+|  
+|   1254                 5347          2145
+|   bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
+|   בראם                 ונקבה         זכר
+|   He created them      and female    male
+|   V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+
+youtube.com: The BEST Explanation of the Trinity You Will EVER Hear | @shamounian {@ChristOverAll-1} @time: 3 min
+24 sec
+But in creation, God said, “Let us make  Adam in Our image, after Our likeness.” But then it says Adam is them.
+“Let them have dominion over the world.” I’m summing up the passage. So here, He says, “I create  Adam—this
+Adam—in My image.” But then He says, “This Adam is them.” And Genesis 1:27 tells us  that Adam is male and female.
+The male and the female together are the one Adam. And in Genesis 5:2, it says: “In the day He created them, male
+and  female… He called them and named them Adam.” So, the male is called Adam. The female, his wife, is called
+Adam. And then in Genesis 2:24, it says: “For this reason, a man shall leave his  father and mother and cling to
+his wife,   and the two shall become one flesh.” Now here’s the problem. Eve, the female, has her own flesh body.
+She’s a distinct physical being. The male Adam, her husband,  has his own physical body. He’s a distinct physical
+being. But it says the two are one. So here, you can have two distinct physical  beings, physical persons, still
+being one. How much more God, who’s  not limited the way we are? Yep.
 
 49.2. In God's own likeness
 
@@ -46356,6 +46705,71 @@ I believe following Jesus includes exercising personal righteousness/holiness.
 
 I believe that God's grace extends to all who put their faith in Jesus and have Jesus' righteousness imputed onto
 them, the righteousness of faith in Jesus Christ God's Son who has paid through his blood the price for our sin.
+Imputed righteousness is not a license to sin, and we should seek to have this righteousness by being found by God
+to have faith in Jesus. It's God who commends and grants this righteousness, so we should sincerely trust God's
+words through Jesus, obeying Jesus Christ by faith.
+
+Receiving Jesus, we have the 'right', the 'authority' to become children of God, even by receiving Him through the
+knowledge of His name (onoma):
+
+  John 1:12 - As many as however received Him He gave to them authority children of God to be to those believing
+  in the name of Him (Interlinear)
+
+OK, so we have the right to call God our Father if believe on Jesus' name. So we should definitely renounce
+ungoliness, and live holy lives:
+
+  I Peter 1:14-19 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
+  who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am
+  holy. And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves
+  with fear throughout the time of your exile, knowing that you were ransomed from the futile ways inherited from
+  your forefathers, not with perishable things such as silver or gold, but with the precious blood of Christ, like
+  that of a lamb without blemish or spot. (ESV)
+
+Our salvation looks like being cleaned up by His spirit, behaving in a way now reflecting that we have knowledge
+of God (i.e. godliness), and not worldliness, treasuring God and one another, and letting go of treasuring/valuing
+worldly things, with hope for eternal life:
+
+  Titus 2:11-13 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
+  ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
+  waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, (ESV)
+
+God's grace trains/has taught us to renounce ungodliness, and renounce worldly passions and then live discreetly
+and righteously and piously in this present age - to repent from sin and practice godly behaviour in the present
+world, which is full of wickedness as we are in the end times.
+
+Titus 2:11
+Has appeared for the grace - of God bringing salvation to all men
+
+Titus 2:12
+instructing us that having denied - ungodliness and - worldly passions discreetly and righteously and piously we
+should live in the present age
+
+Is repentance from sin necessary for salvation? Yes. We renounce the sinful habits and God cleans us up as we obey
+Him by faith. The liberty that God provides is not being a slave/servant of sin/corruption. God's grace trains us
+/ has taught us to renounce sin, and to live holy lives with holy behaviour in this present age:
+
+  II Peter 2:14-20 - Having eyes full of adultery, and that cannot cease from sin; beguiling unstable souls: an
+  heart they have exercised with covetous practices; cursed children: Which have forsaken the right way, and are
+  gone astray, following the way of Balaam the son of Bosor, who loved the wages of unrighteousness; But was
+  rebuked for his iniquity: the dumb ass speaking with man’s voice forbad the madness of the prophet. These are
+  wells without water, clouds that are carried with a tempest; to whom the mist of darkness is reserved for ever.
+  For when they speak great swelling words of vanity, they allure through the lusts of the flesh, through much
+  wantonness, those that were clean escaped from them who live in error. While they promise them liberty, they
+  themselves are the servants of corruption: for of whom a man is overcome, of the same is he brought in bondage.
+  For if after they have escaped the pollutions of the world through the knowledge of the Lord and Saviour Jesus
+  Christ, they are again entangled therein, and overcome, the latter end is worse with them than the beginning.
+  (KJV)
+
+If a person is unrepentant from sin then it is better that their body is destroyed so their spirit may be saved.
+In the case of the thief on the cross, his body was destroyed. If he stayed around, he probably would have
+renounced ungodliness and pursued holiness:
+
+  I Corinthians 5:1-5 - It is actually reported that there is sexual immorality among you, and of a kind that is
+  not tolerated even among pagans, for a man has his father's wife. And you are arrogant! Ought you not rather to
+  mourn? Let him who has done this be removed from among you. For though absent in body, I am present in spirit;
+  and as if present, I have already pronounced judgment on the one who did such a thing. When you are assembled in
+  the name of the Lord Jesus and my spirit is present, with the power of our Lord Jesus, you are to deliver this
+  man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. (ESV)
 
 I affirm more of a Methodist theology regarding imparted righteousness. We cooperate with God rather than resist
 sanctification.
@@ -60296,11 +60710,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-14 Fri 00:00
+Date: 2025-02-17 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-14 Fri 22:20
+Created: 2025-02-17 Mon 10:06
 
 Validate
 
