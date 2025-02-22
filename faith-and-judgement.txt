@@ -1014,6 +1014,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -6413,6 +6424,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -7174,6 +7196,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -11070,6 +11103,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -13166,6 +13210,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -13417,6 +13472,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -13857,6 +13923,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -14413,6 +14490,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -15515,6 +15603,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -16473,6 +16572,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -19275,6 +19385,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -25043,6 +25164,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -26198,6 +26330,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -27607,6 +27750,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
   John 8:51 - Truly, truly, I say to you, if anyone keeps (G5083 téreó) my word, he will never see death. (ESV)
 
 5083. téreó
@@ -27847,6 +28001,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -39939,6 +40104,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
 
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
 
@@ -42326,6 +42502,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -48469,6 +48656,17 @@ But we must not believe in vain. We must continue trusting Jesus. We must believ
 2722. katechó
 Usage: (a) I hold fast, bind, arrest, (b) I take possession of, lay hold of, (c) I hold back, detain, restrain,
 (d) I hold a ship, keep its head.
+
+By faith we must continue obeying God, forsaking sin, that we may share in Christ:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Of first importance is that we are believing in the correct Jesus. We must be teachable / correctable by Jesus
 (accepting as true His words and his deeds):
@@ -61025,7 +61223,7 @@ Date: 2025-02-22 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-22 Sat 18:34
+Created: 2025-02-22 Sat 21:14
 
 Validate
 
