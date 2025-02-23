@@ -56,8 +56,6 @@ We must accept that Jesus is the Christ, the Son of God, to not be condemned:
   Jesus said to them, When you have lifted up the Son of Man, then you will know that I am he, and that I do
   nothing on my own authority, but speak just as the Father taught me. (ESV)
 
-If we are elected, then we must continue to be at least faithful to Jesus that we will be saved:
-
   II Timothy 2:10-13 - Therefore I endure everything for the sake of the elect, that they also may obtain the
   salvation that is in Christ Jesus with eternal glory. The saying is trustworthy, for: If we have died with him,
   we will also live with him; if we endure, we will also reign with him; if we deny him, he also will deny us; if
@@ -54222,8 +54220,6 @@ To make election sure, and to not fail, one must practice personal righteousness
 One thing is for sure. The elect do not have hard hearts. So I'd say if a person's heart is not totally hard, then
 soften it.
 
-If we are elected, then we must continue to be at least faithful to Jesus that we will be saved:
-
   II Timothy 2:10-13 - Therefore I endure everything for the sake of the elect, that they also may obtain the
   salvation that is in Christ Jesus with eternal glory. The saying is trustworthy, for: If we have died with him,
   we will also live with him; if we endure, we will also reign with him; if we deny him, he also will deny us; if
@@ -61357,7 +61353,7 @@ Date: 2025-02-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-23 Sun 16:16
+Created: 2025-02-23 Sun 16:42
 
 Validate
 
