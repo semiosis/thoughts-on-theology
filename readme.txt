@@ -42,8 +42,26 @@ Receiving Jesus:
   Luke 9:48 - and said to them, Whoever receives this child in my name receives me, and whoever receives me
   receives him who sent me. For he who is least among you all is the one who is great. (ESV)
 
-  John 1:12 - But to all who did receive him, who believed in his name, he gave the right to become children of
-  God, (ESV)
+We must accept that Jesus is the Christ, the Son of God, to not be condemned:
+
+  John 8:23-24 - He said to them, You are from below; I am from above. You are of this world; I am not of this
+  world. I told you that you would die in your sins, for unless you believe that I am he you will die in your
+  sins. (ESV)
+
+  John 4:25-26 - The woman said to him, I know that Messiah is coming (he who is called Christ). When he comes, he
+  will tell us all things. Jesus said to her, I who speak to you am he. (ESV)
+
+  John 8:26-28 - I have much to say about you and much to judge, but he who sent me is true, and I declare to the
+  world what I have heard from him. They did not understand that he had been speaking to them about the Father. So
+  Jesus said to them, When you have lifted up the Son of Man, then you will know that I am he, and that I do
+  nothing on my own authority, but speak just as the Father taught me. (ESV)
+
+If we are elected, then we must continue to be at least faithful to Jesus that we will be saved:
+
+  II Timothy 2:10-13 - Therefore I endure everything for the sake of the elect, that they also may obtain the
+  salvation that is in Christ Jesus with eternal glory. The saying is trustworthy, for: If we have died with him,
+  we will also live with him; if we endure, we will also reign with him; if we deny him, he also will deny us; if
+  we are faithless, he remains faithful— for he cannot deny himself. (ESV)
 
 This is a short preview of where I'm at with my theology. I don't claim to know everything or to have perfect
 theology:
@@ -1115,6 +1133,13 @@ that we may be found in Christ because those in Christ are not condemned. So whe
 
   I Corinthians 11:32 - But when we are judged by the Lord, we are disciplined so that we may not be condemned
   along with the world. (ESV)
+
+If we are trusting in Jesus we are not condemned. I guess then our trust may falter in various ways even resulting
+in disobedience and Jesus may judge us and discipline us to correct us. So long as we are trusting in Jesus we are
+still found in Christ. So we don't want our faith in Jesus to fail:
+
+  John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because
+  he has not believed in the name of the only Son of God. (ESV)
 
 Our salvation looks like being cleaned up by His spirit, behaving in a way now reflecting that we have knowledge
 of God (i.e. godliness), and not worldliness, treasuring God and one another, and letting go of treasuring/valuing
@@ -28430,6 +28455,42 @@ drives home His point that we must continue to obey Christ:
   and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience
   is complete. (ESV)
 
+Believing that Jesus is the Christ, the Son of God, we have forgiveness of sins and the right to become
+children of God, who practice righteousness, put a stop to sin, love their family in Christ, call God their
+Father, conformed to the image of Jesus. Jesus advocates for us as we are conformed to Christ's image:
+
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become
+  children of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of
+  God. (ESV)
+
+We will be disciplined in this process of being transformed into Jesus' image, so that we may not be condemned
+along with the world:
+
+  I Corinthians 11:29-32 - For anyone who eats and drinks without discerning the body eats and drinks judgment
+  on himself. That is why many of you are weak and ill, and some have died. But if we judged ourselves truly,
+  we would not be judged. But when we are judged by the Lord, we are disciplined so that we may not be
+  condemned along with the world. (ESV)
+
+We set our minds on the things of the spirit and this helps us to please God with our actions:
+
+  Romans 8:3-10 - For God has done what the law, weakened by the flesh, could not do. By sending his own Son
+  in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous
+  requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the
+  Spirit. For those who live according to the flesh set their minds on the things of the flesh, but those who
+  live according to the Spirit set their minds on the things of the Spirit. To set the mind on the flesh is
+  death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile
+  to God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please
+  God. You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you.
+  Anyone who does not have the Spirit of Christ does not belong to him. But if Christ is in you, although the
+  body is dead because of sin, the Spirit is life because of righteousness. (ESV)
+
+Having believed in Jesus, we must put a stop to sin and love our family in Christ, being conformed to His
+image.
+
+  Romans 8:12-14 - So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if
+  you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body,
+  you will live. For all who are led by the Spirit of God are sons of God. (ESV)
+
 Hebrews describes faith as the hope and conviction we need to draw near to God because we need to believe that
 He exists and that He rewards those who seek him.
 
@@ -31410,6 +31471,34 @@ no matter how depraved:
   Daniel 7:25 - He shall speak words against the Most High, and shall wear out the saints of the Most High, and
   shall think to change the times and the law; and they shall be given into his hand for a time, times, and half a
   time. (ESV)
+
+I'm still being ghosted by employers - they go silent on me.
+
+  Ephesians 5:5-10 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
+  covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
+  with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
+  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
+  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
+  pleasing to the Lord. (ESV)
+
+Ah well, even though I'm receiving persecution as a Christian, I still have confidence because I'm walking in the
+light. Even though the devil attacks me quite often, and pressures me into situations which are extremely
+difficult to get through on my own, this should be building up eternal glory. I'm also using the opportunity to do
+battle with the enemy and be sanctified in God's Truth.
+
+  I John 4:15-21 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have
+  come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God,
+  and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
+  judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out
+  fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he
+  first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
+  brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
+  loves God must also love his brother. (ESV)
+
+  II Corinthians 4:16-18 - So we do not lose heart. Though our outer nature is wasting away, our inner nature is
+  being renewed day by day. For this slight momentary affliction is preparing for us an eternal weight of glory
+  beyond all comparison, as we look not to the things that are seen but to the things that are unseen. For the
+  things that are seen are transient, but the things that are unseen are eternal. (ESV)
 
 It's very unbiblical and is a heinous lie that in pleading guilty that the person is surely admitting blame for
 all accusations made against them, especially when I was not allowed barely any input leading right up to the
@@ -54095,6 +54184,13 @@ To make election sure, and to not fail, one must practice personal righteousness
 One thing is for sure. The elect do not have hard hearts. So I'd say if a person's heart is not totally hard, then
 soften it.
 
+If we are elected, then we must continue to be at least faithful to Jesus that we will be saved:
+
+  II Timothy 2:10-13 - Therefore I endure everything for the sake of the elect, that they also may obtain the
+  salvation that is in Christ Jesus with eternal glory. The saying is trustworthy, for: If we have died with him,
+  we will also live with him; if we endure, we will also reign with him; if we deny him, he also will deny us; if
+  we are faithless, he remains faithful— for he cannot deny himself. (ESV)
+
 youtube.com: God Is Our Savior from What? 1 Timothy 1:1-2, Part 2 @time: 2 min 3 sec
 He does everything he does as an apostle to help people (who turn out to be God's elect) obtain salvation.
 
@@ -61219,11 +61315,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-22 Sat 00:00
+Date: 2025-02-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-22 Sat 21:14
+Created: 2025-02-23 Sun 15:11
 
 Validate
 
