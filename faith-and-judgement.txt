@@ -641,10 +641,44 @@ God:
   the sea and all that is in them. In past generations he allowed all the nations to walk in their own ways. (ESV)
 
 We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to
-serve/obey and be taught by Christ. In my view it's all obedience to the truth and essentially means accepting the
-gospel and letting it work in your life through faith/obedience. The gospel being inclusive of all the sayings
-which Jesus spoke during His ministry recorded in the books of Matthew, Mark, Luke and John and the deeds which He
-carried out, including making atonement for sin:
+serve/obey and be taught by Christ. This is still obedience to God's Word, and obedience to God's Law - as Jesus
+is the Word and the fulfillment of God's Law.
+
+By faith we obey Christ first and foremost to be justified and to arrive at the knowledge of Christ and of God:
+
+  II Corinthians 10:5 - We destroy arguments and every lofty opinion raised against the knowledge of God, and take
+  every thought captive to obey Christ, (ESV)
+
+  John 8:19 - They said to him therefore, Where is your Father? Jesus answered, You know neither me nor my Father.
+  If you knew me, you would know my Father also. (ESV)
+
+  Galatians 5:1-7 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I
+  testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed
+  from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by
+  faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor
+  uncircumcision counts for anything, but only faith working through love. You were running well. Who hindered you
+  from obeying the truth? (ESV)
+
+Obey the Truth means obey Jesus:
+
+  John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
+  through me. (ESV)
+
+  Romans 2:6-8 - He will render to each one according to his works: to those who by patience in well-doing seek
+  for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not
+  obey the truth, but obey unrighteousness, there will be wrath and fury. (ESV)
+
+  I Peter 1:22-25 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love
+  one another earnestly from a pure heart, since you have been born again, not of perishable seed but of
+  imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the
+  flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this
+  word is the good news that was preached to you. (ESV)
+
+In my view it's all obedience to the truth and essentially means accepting the gospel and letting it work in your
+life through faith/obedience to Jesus. The gospel being inclusive of all the sayings which Jesus spoke during His
+ministry recorded in the books of Matthew, Mark, Luke and John and the deeds which He carried out, including
+making atonement for sin:
 
   Luke 4:18-19 - The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor.
   He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those
@@ -49670,6 +49704,242 @@ Covenant in order to even be able to fulfill the requirement of the law.
   likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of
   the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
 
+The object of our obedience to God as Christians is to Jesus Christ Himself (He's the fulfillment of the law!) -
+so this isn't lawlessness, it's just by faith obeying God to by faith obey Jesus.
+
+Through faith in Jesus, and obedience to Jesus we can have faith in Father God:
+
+  I Peter 1:20-22 - He was foreknown before the foundation of the world but was made manifest in the last times
+  for your sake, who through him are believers in God, who raised him from the dead and gave him glory, so that
+  your faith and hope are in God. Having purified your souls by your obedience to the truth for a sincere
+  brotherly love, love one another earnestly from a pure heart, (ESV)
+
+Jesus commanded us to have faith in God and to have faith in Him, so when we obey the law (commandment of Christ)
+we are having faith in Him and in God. We must trust in God:
+
+  Mark 11:22 - And Jesus answered them, Have faith in God.
+
+  John 14:1 - “Do not let your heart be troubled; believe in God, believe also in Me.
+
+Pisteuo means to trust. Trust in God, trust also in God's Son Jesus:
+
+  Romans 4:5 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted as
+  righteousness, (ESV)
+
+The New Covenant is in Jesus' blood. We have faith in His blood (His passion, this death). When we take communion
+/ eucharist we also do it with faith in His blood:
+
+  I Corinthians 11:25 - In the same way also he took the cup, after supper, saying, This cup is the new covenant
+  in my blood. Do this, as often as you drink it, in remembrance of me. (ESV)
+
+  Romans 3:25-31 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his
+  righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus.
+  Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No, but by the law of
+  faith. For we hold that one is justified by faith apart from works of the law. Or is God the God of Jews only?
+  Is he not the God of Gentiles also? Yes, of Gentiles also, since God is one. He will justify the circumcised by
+  faith and the uncircumcised through faith. Do we then overthrow the law by this faith? By no means! On the
+  contrary, we uphold the law. (ESV)
+
+I consider myself to be in the New Covenant, not the old, but I still believe that Jesus has set us free from the
+set of ordinances (it's no longer our Master) that we might meet the requirement of the law by faith, so that does
+mean keeping the commandments of God, or at least being able to, but it's God-empowered keeping of the
+commandments - even the 10 commandments. If we're truly trusting Jesus as we are seeking to obey Him by faith then
+the law can't condemn us. The Lord is the Spirit and if we are led by Him the law can't condemn us. e.g. I was
+trying to be faithful to Jesus and do no harm to my neighbour, bear my neighbour's burdens or show them Christ's
+love so the law can't condemn me for my actions.
+
+  Galatians 5:18 - But if you are led by the Spirit, you are not under the law. (ESV)
+
+  II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
+  into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
+
+  I Timothy 1:8-14 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
+  is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy
+  and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who
+  practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
+  accordance with the glorious gospel of the blessed God with which I have been entrusted. I thank him who has
+  given me strength, Christ Jesus our Lord, because he judged me faithful, appointing me to his service, though
+  formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy because I had acted
+  ignorantly in unbelief, and the grace of our Lord overflowed for me with the faith and love that are in Christ
+  Jesus. (ESV)
+
+If we're following Jesus then Jesus is our Master, not the Law, and acceptable by God:
+
+  Matthew 12:5-6 - Or have you not read in the Law how on the Sabbath the priests in the temple profane the
+  Sabbath and are guiltless? I tell you, something greater than the temple is here. (ESV)
+
+  Romans 14:18 - Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
+
+I think what Hebrews says is that the old and new covenants exist alongside each other or overlap for a while but
+the old covenant is obsolete / deprecated.
+
+  Hebrews 8:13 - In speaking of a new covenant, he makes the first one obsolete. And what is becoming obsolete and
+  growing old is ready to vanish away. (ESV)
+
+A person can be in one covenant or the other but not both at the same time:
+
+  Galatians 5:2-4 - Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to
+  you. I testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are
+  severed from Christ, you who would be justified by the law; you have fallen away from grace. (ESV)
+
+The new covenant has already arrived:
+
+  II Corinthians 3:14-17 - But their minds were hardened. For to this day, when they read the old covenant, that
+  same veil remains unlifted, because only through Christ is it taken away. Yes, to this day whenever Moses is
+  read a veil lies over their hearts. But when one turns to the Lord, the veil is removed. Now the Lord is the
+  Spirit, and where the Spirit of the Lord is, there is freedom. (ESV)
+
+Paul is not outside the law of God, but he is under the law of Christ (under the commandment of Christ, Christ's
+commandments which are inside the law/commandment of God):
+
+  I Corinthians 9:20-21 - To the Jews I became as a Jew, in order to win Jews. To those under the law I became as
+  one under the law (though not being myself under the law) that I might win those under the law. To those outside
+  the law I became as one outside the law (not being outside the law of God but under the law of Christ) that I
+  might win those outside the law. (ESV)
+
+But a distinction is made between commandments delivered by Moses and commandments delivered by Christ:
+
+  Galatians 3:24 - So then, the law was our guardian until Christ came, in order that we might be justified by
+  faith. (ESV)
+
+  John 1:17 - For the law was given through Moses; grace and truth came through Jesus Christ. (ESV)
+
+  Acts 7:37 - This is the Moses who said to the Israelites, God will raise up for you a prophet like me from your
+  brothers. (ESV)
+
+  Deuteronomy 18:15-19 - The LORD your God will raise up for you a prophet like me from among you, from your
+  brothers—it is to him you shall listen— just as you desired of the LORD your God at Horeb on the day of the
+  assembly, when you said, Let me not hear again the voice of the LORD my God or see this great fire any more,
+  lest I die. And the LORD said to me, They are right in what they have spoken. I will raise up for them a prophet
+  like you from among their brothers. And I will put my words in his mouth, and he shall speak to them all that I
+  command him. And whoever will not listen to my words that he shall speak in my name, I myself will require it of
+  him. (ESV)
+
+So by faith we obey Jesus first and foremost. Sure, by faith we may be odedient to the 10 commandments also but
+faith in Jesus comes first because He's our Master.
+
+  I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. (ESV)
+
+  John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
+  darkness, but will have the light of life. (ESV)
+
+  Psalms 56:13 - For you have delivered my soul from death, yes, my feet from falling, that I may walk before God
+  in the light of life. (ESV)
+
+This shows the apostles are already ministers of the new covenant:
+
+  II Corinthians 3:5-6 - Not that we are sufficient in ourselves to claim anything as coming from us, but our
+  sufficiency is from God, who has made us competent to be ministers of a new covenant, not of the letter but of
+  the Spirit. For the letter kills, but the Spirit gives life. (ESV)
+
+  I Corinthians 11:24-32 - and when he had given thanks, he broke it, and said, This is my body which is for you.
+  Do this in remembrance of me. In the same way also he took the cup, after supper, saying, This cup is the new
+  covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this
+  bread and drink the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or
+  drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. Let
+  a person examine himself, then, and so eat of the bread and drink of the cup. For anyone who eats and drinks
+  without discerning the body eats and drinks judgment on himself. That is why many of you are weak and ill, and
+  some have died. But if we judged ourselves truly, we would not be judged. But when we are judged by the Lord, we
+  are disciplined so that we may not be condemned along with the world. (ESV)
+
+So the law is written on the minds and hearts:
+
+  Hebrews 10:12-23 - But when Christ had offered for all time a single sacrifice for sins, he sat down at the
+  right hand of God, waiting from that time until his enemies should be made a footstool for his feet. For by a
+  single offering he has perfected for all time those who are being sanctified. And the Holy Spirit also bears
+  witness to us; for after saying, This is the covenant that I will make with them after those days, declares the
+  Lord: I will put my laws on their hearts, and write them on their minds, then he adds, I will remember their
+  sins and their lawless deeds no more. Where there is forgiveness of these, there is no longer any offering for
+  sin. Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus, by the new
+  and living way that he opened for us through the curtain, that is, through his flesh, and since we have a great
+  priest over the house of God, let us draw near with a true heart in full assurance of faith, with our hearts
+  sprinkled clean from an evil conscience and our bodies washed with pure water. Let us hold fast the confession
+  of our hope without wavering, for he who promised is faithful. (ESV)
+
+It's possible to follow the ordinances, to be zealous for the law while having faith in Jesus - a Jewish Christian
+would do this:
+
+  Acts 21:23-25 - Do therefore what we tell you. We have four men who are under a vow; take these men and purify
+  yourself along with them and pay their expenses, so that they may shave their heads. Thus all will know that
+  there is nothing in what they have been told about you, but that you yourself also live in observance of the
+  law. But as for the Gentiles who have believed, we have sent a letter with our judgment that they should abstain
+  from what has been sacrificed to idols, and from blood, and from what has been strangled, and from sexual
+  immorality. (ESV)
+
+But Jew and Gentile are united by faith in Jesus:
+
+  Ephesians 2:11-18 - Wherefore remember, that ye being in time past Gentiles in the flesh, who are called
+  Uncircumcision by that which is called the Circumcision in the flesh made by hands; That at that time ye were
+  without Christ, being aliens from the commonwealth of Israel, and strangers from the covenants of promise,
+  having no hope, and without God in the world: But now in Christ Jesus ye who sometimes were far off are made
+  nigh by the blood of Christ. For he is our peace, who hath made both one, and hath broken down the middle wall
+  of partition between us; Having abolished in his flesh the enmity, even the law of commandments contained in
+  ordinances; for to make in himself of twain one new man, so making peace; And that he might reconcile both unto
+  God in one body by the cross, having slain the enmity thereby: And came and preached peace to you which were
+  afar off, and to them that were nigh. For through him we both have access by one Spirit unto the Father. (KJV)
+
+By faith we obey Christ first and foremost to be justified and to arrive at the knowledge of Christ and of God:
+
+  II Corinthians 10:5 - We destroy arguments and every lofty opinion raised against the knowledge of God, and take
+  every thought captive to obey Christ, (ESV)
+
+  John 8:19 - They said to him therefore, Where is your Father? Jesus answered, You know neither me nor my Father.
+  If you knew me, you would know my Father also. (ESV)
+
+  Galatians 5:1-7 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I
+  testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed
+  from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by
+  faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor
+  uncircumcision counts for anything, but only faith working through love. You were running well. Who hindered you
+  from obeying the truth? (ESV)
+
+  Galatians 4:22-31 - For it is written that Abraham had two sons, one by a slave woman and one by a free woman.
+  But the son of the slave was born according to the flesh, while the son of the free woman was born through
+  promise. Now this may be interpreted allegorically: these women are two covenants. One is from Mount Sinai,
+  bearing children for slavery; she is Hagar. Now Hagar is Mount Sinai in Arabia; she corresponds to the present
+  Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our mother. For
+  it is written, Rejoice, O barren one who does not bear; break forth and cry aloud, you who are not in labor! For
+  the children of the desolate one will be more than those of the one who has a husband. Now you, brothers, like
+  Isaac, are children of promise. But just as at that time he who was born according to the flesh persecuted him
+  who was born according to the Spirit, so also it is now. But what does the Scripture say? Cast out the slave
+  woman and her son, for the son of the slave woman shall not inherit with the son of the free woman. So,
+  brothers, we are not children of the slave but of the free woman. (ESV)
+
+Circumcision of the flesh does not matter because salvation by faith is available for both the circumcised
+(justification by faith with works of faith like Abraham's), and the uncircumcised (justification by faith alone):
+
+  Romans 4:9-12 - Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith
+  was counted to Abraham as righteousness. How then was it counted to him? Was it before or after he had been
+  circumcised? It was not after, but before he was circumcised. He received the sign of circumcision as a seal of
+  the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father
+  of all who believe (G4100 pisteuo) without being circumcised, so that righteousness would be counted to them as
+  well, and to make him the father of the circumcised who are not merely circumcised but who also walk in the
+  footsteps of the faith that our father Abraham had before he was circumcised.
+
+The true circumcised are the ones who obey the precepts of the law, and if they walk in the footsteps of faith
+which Abraham had before he was circumcised, then that is a valid mode of justification. I think there is a
+timelessness about it, but God's the justifer:
+
+  Romans 2:25-29 - For circumcision indeed is of value if you obey the law, but if you break the law, your
+  circumcision becomes uncircumcision. So, if a man who is uncircumcised keeps the precepts of the law, will not
+  his uncircumcision be regarded as circumcision? Then he who is physically uncircumcised but keeps the law will
+  condemn you who have the written code and circumcision but break the law. For no one is a Jew who is merely one
+  outwardly, nor is circumcision outward and physical. But a Jew is one inwardly, and circumcision is a matter of
+  the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
+
+We must share the faith of Abraham to receive the grace:
+
+  Romans 4:13-17 - For the promise to Abraham and his offspring that he would be heir of the world did not come
+  through the law but through the righteousness of faith. For if it is the adherents of the law who are to be the
+  heirs, faith is null and the promise is void. For the law brings wrath, but where there is no law there is no
+  transgression. That is why it depends on faith, in order that the promise may rest on grace and be guaranteed to
+  all his offspring—not only to the adherent of the law but also to the one who shares the faith of Abraham, who
+  is the father of us all, as it is written, I have made you the father of many nations—in the presence of the God
+  in whom he believed, who gives life to the dead and calls into existence the things that do not exist.
+
 The first covenant had fault, but the New Covenant has no fault:
 
   Hebrews 8:6-9 - But as it is, Christ has obtained a ministry that is as much more excellent than the old as the
@@ -61448,7 +61718,7 @@ Date: 2025-02-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-24 Mon 06:13
+Created: 2025-02-24 Mon 10:42
 
 Validate
 
