@@ -49575,6 +49575,101 @@ Jesus is our Great High High Priest:
 
 55.5. New covenant
 
+Paul makes reference to the old covenant with the phrase "tablets of stone."
+
+  II Corinthians 3:3-8 - And you show that you are a letter from Christ delivered by us, written not with ink but
+  with the Spirit of the living God, not on tablets of stone but on tablets of human hearts. Such is the
+  confidence that we have through Christ toward God. Not that we are sufficient in ourselves to claim anything as
+  coming from us, but our sufficiency is from God, who has made us competent to be ministers of a new covenant,
+  not of the letter but of the Spirit. For the letter kills, but the Spirit gives life. Now if the ministry of
+  death, carved in letters on stone, came with such glory that the Israelites could not gaze at Moses' face
+  because of its glory, which was being brought to an end, will not the ministry of the Spirit have even more
+  glory? (ESV)
+
+  I Corinthians 11:25 - In the same way also he took the cup, after supper, saying, This cup is the new covenant
+  in my blood. Do this, as often as you drink it, in remembrance of me. (ESV)
+
+  Hebrews 8:8-10 - For he finds fault with them when he says: Behold, the days are coming, declares the Lord, when
+  I will establish a new covenant with the house of Israel and with the house of Judah, not like the covenant that
+  I made with their fathers on the day when I took them by the hand to bring them out of the land of Egypt. For
+  they did not continue in my covenant, and so I showed no concern for them, declares the Lord. For this is the
+  covenant that I will make with the house of Israel after those days, declares the Lord: I will put my laws into
+  their minds, and write them on their hearts, and I will be their God, and they shall be my people. (ESV)
+
+  Hebrews 8:11-13 - And they shall not teach, each one his neighbor and each one his brother, saying, Know the
+  Lord, for they shall all know me, from the least of them to the greatest. For I will be merciful toward their
+  iniquities, and I will remember their sins no more. In speaking of a new covenant, he makes the first one
+  obsolete. And what is becoming obsolete and growing old is ready to vanish away. (ESV)
+
+  Hebrews 9:14-15 - how much more will the blood of Christ, who through the eternal Spirit offered himself without
+  blemish to God, purify our conscience from dead works to serve the living God. Therefore he is the mediator of a
+  new covenant, so that those who are called may receive the promised eternal inheritance, since a death has
+  occurred that redeems them from the transgressions committed under the first covenant. (ESV)
+
+We're back to the 10 commandments but to keep them in the way Jesus taught us to keep them, Serving one Master,
+one God, the One true God, Father God, through serving Jesus who He sent, not harbouring hate, covetousness in our
+hearts especially for our family in Christ, not being deceitful but speaking the truth to our neighbour, etc.
+
+Disbelief causes disobedience. Disbelief caused the Israelites to not walk in obedience:
+
+  Hebrews 3:16-19 - For who were those who heard and yet rebelled? Was it not all those who left Egypt led by
+  Moses? And with whom was he provoked for forty years? Was it not with those who sinned, whose bodies fell in the
+  wilderness? And to whom did he swear that they would not enter his rest, but to those who were disobedient? So
+  we see that they were unable to enter because of unbelief. (ESV)
+
+  I Timothy 1:13 - though formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy
+  because I had acted ignorantly in unbelief, (ESV)
+
+It was unbelief which led to these people's sin of idolatry and covetousness which prevented them from entering
+into God's rest:
+
+  Hebrews 3:7-15 - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as
+  in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my
+  works for forty years. Therefore I was provoked with that generation, and said, They always go astray in their
+  heart; they have not known my ways. As I swore in my wrath, They shall not enter my rest. Take care, brothers,
+  lest there be in any of you an evil, unbelieving heart, leading you to fall away from the living God. But exhort
+  one another every day, as long as it is called today, that none of you may be hardened by the deceitfulness of
+  sin. For we share in Christ, if indeed we hold our original confidence firm to the end. As it is said, Today, if
+  you hear his voice, do not harden your hearts as in the rebellion. (ESV)
+
+  Hebrews 3:16-19 - For who were those who heard and yet rebelled? Was it not all those who left Egypt led by
+  Moses? And with whom was he provoked for forty years? Was it not with those who sinned, whose bodies fell in the
+  wilderness? And to whom did he swear that they would not enter his rest, but to those who were disobedient? So
+  we see that they were unable to enter because of unbelief. (ESV)
+
+  Hebrews 4:7-11 - again he appoints a certain day, Today, saying through David so long afterward, in the words
+  already quoted, Today, if you hear his voice, do not harden your hearts. For if Joshua had given them rest, God
+  would not have spoken of another day later on. So then, there remains a Sabbath rest for the people of God, for
+  whoever has entered God's rest has also rested from his works as God did from his. Let us therefore strive to
+  enter that rest, so that no one may fall by the same sort of disobedience. (ESV)
+
+It was idolatry that was the disobedience which prevented these from entering into God's rest:
+
+  I Corinthians 10:1-14 - I want you to know, brothers, that our fathers were all under the cloud, and all passed
+  through the sea, and all were baptized into Moses in the cloud and in the sea, and all ate the same spiritual
+  food, and all drank the same spiritual drink. For they drank from the spiritual Rock that followed them, and the
+  Rock was Christ. Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be
+  idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We
+  must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We
+  must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of
+  them did and were destroyed by the Destroyer. Now these things happened to them as an example, but they were
+  written down for our instruction, on whom the end of the ages has come. Therefore let anyone who thinks that he
+  stands take heed lest he fall. No temptation has overtaken you that is not common to man. God is faithful, and
+  he will not let you be tempted beyond your ability, but with the temptation he will also provide the way of
+  escape, that you may be able to endure it. Therefore, my beloved, flee from idolatry. (ESV)
+
+  John 14:15-17 - If you love me, you will keep my commandments. And I will ask the Father, and he will give you
+  another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it
+  neither sees him nor knows him. You know him, for he dwells with you and will be in you. (ESV)
+
+Jesus gives us His spirit so we can keep actually God's commandments. So we need to be partakers of the New
+Covenant in order to even be able to fulfill the requirement of the law.
+
+  Romans 8:3-4 - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the
+  likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of
+  the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
 The first covenant had fault, but the New Covenant has no fault:
 
   Hebrews 8:6-9 - But as it is, Christ has obtained a ministry that is as much more excellent than the old as the
@@ -61349,11 +61444,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-23 Sun 00:00
+Date: 2025-02-24 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-23 Sun 16:42
+Created: 2025-02-24 Mon 06:13
 
 Validate
 
