@@ -2842,6 +2842,44 @@ one another:
 
   I John 4:15 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
 
+I've met someone who confessed to me that Jesus is the Son of God. However, last I saw them they continued on in a
+Hindu religion, serving a false god who is not Jesus. Due to all the warnings against idolatry, etc. I'd say that
+one person's confession at one point doesn't guarantee that they are still in the faith the next moment. So I
+think that either God will discipline such disobedience that they will be saved from the wrath of God, or they
+will be unrepentant and condemned along with the world.
+
+  Matthew 6:24 - No one can serve two masters, for either he will hate the one and love the other, or he will be
+  devoted to the one and despise the other. You cannot serve God and money. (ESV)
+
+  Hebrews 3:7-14 - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as
+  in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my
+  works for forty years. Therefore I was provoked with that generation, and said, They always go astray in their
+  heart; they have not known my ways. As I swore in my wrath, They shall not enter my rest. Take care, brothers,
+  lest there be in any of you an evil, unbelieving heart, leading you to fall away from the living God. But exhort
+  one another every day, as long as it is called today, that none of you may be hardened by the deceitfulness of
+  sin. For we share in Christ, if indeed we hold our original confidence firm to the end. (ESV)
+
+  I Corinthians 10:5-14 - Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be
+  idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We
+  must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We
+  must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of
+  them did and were destroyed by the Destroyer. Now these things happened to them as an example, but they were
+  written down for our instruction, on whom the end of the ages has come. Therefore let anyone who thinks that he
+  stands take heed lest he fall. No temptation has overtaken you that is not common to man. God is faithful, and
+  he will not let you be tempted beyond your ability, but with the temptation he will also provide the way of
+  escape, that you may be able to endure it. Therefore, my beloved, flee from idolatry. (ESV)
+
+  I Corinthians 11:28-32 - Let a person examine himself, then, and so eat of the bread and drink of the cup. For
+  anyone who eats and drinks without discerning the body eats and drinks judgment on himself. That is why many of
+  you are weak and ill, and some have died. But if we judged ourselves truly, we would not be judged. But when we
+  are judged by the Lord, we are disciplined so that we may not be condemned along with the world. (ESV)
+
+  I Corinthians 10:20-22 - No, I imply that what pagans sacrifice they offer to demons and not to God. I do not
+  want you to be participants with demons. You cannot drink the cup of the Lord and the cup of demons. You cannot
+  partake of the table of the Lord and the table of demons. Shall we provoke the Lord to jealousy? Are we stronger
+  than he? (ESV)
+
 Someone who has just put their faith in Jesus for the first time and is believing that Jesus is the Christ is a
 newborn Christian:
 
@@ -61319,7 +61357,7 @@ Date: 2025-02-23 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-23 Sun 15:11
+Created: 2025-02-23 Sun 16:16
 
 Validate
 
