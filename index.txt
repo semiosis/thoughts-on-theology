@@ -172,9 +172,9 @@ theology:
 |  
 |   This is obvious when we see the commandment to not work on the Sabbath. But
 |   obedience neither strictly means mean working nor does it strictly mean not
-|   working. But rather doign the will of God.
+|   working. But rather doing the will of God.
 |  
-|       *Luke 6:9* - And Jesus said to them, I ask you, is it lawful on the
+|       Luke 6:9 - And Jesus said to them, I ask you, is it lawful on the
 |       Sabbath to do good or to do harm, to save life or to destroy it? (ESV)
 |  
 100: Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
@@ -186,15 +186,15 @@ theology:
 106: of trust while submitting to His righteousness, not trying to establish our
 107: own righteousness.
 108:
-109:     *John 14:1* - Let not your hearts be troubled. Believe (trust) in God;
+109:     John 14:1 - Let not your hearts be troubled. Believe (trust) in God;
 110:     believe (trust) also in me. (ESV)
 111:
-112:     *I John 3:23* - And this is his commandment, that we believe in the name
+112:     I John 3:23 - And this is his commandment, that we believe in the name
 113:     of his Son Jesus Christ and love one another, just as he has commanded
 114:     us. (ESV)
 115:
-116:    *John 15:10* - If you keep my commandments, you will abide in my love,
-117:    just as I have kept my Father's commandments and abide in his love. (ESV)
+116:     John 15:10 - If you keep my commandments, you will abide in my love,
+117:     just as I have kept my Father's commandments and abide in his love. (ESV)
 118:
 119: We're supposed to have joy in our obedience to God, as we obey Christ.
 120:
@@ -50055,6 +50055,10 @@ the old covenant is obsolete / deprecated.
   Hebrews 8:13 - In speaking of a new covenant, he makes the first one obsolete. And what is becoming obsolete and
   growing old is ready to vanish away. (ESV)
 
+deprecated (a software term but seems surprisingly relevant)
+While deprecated software is no longer supported, it may continue to work. In some cases, however, deprecated
+software may stop working entirely if, for example, it is incompatible with an updated operating system.
+
 A person can be in one covenant or the other but not both at the same time:
 
   Galatians 5:2-4 - Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to
@@ -62083,7 +62087,7 @@ Date: 2025-02-27 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-27 Thu 12:18
+Created: 2025-02-27 Thu 12:44
 
 Validate
 
