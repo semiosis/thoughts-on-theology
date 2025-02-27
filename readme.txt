@@ -49975,15 +49975,72 @@ It was idolatry that was the disobedience which prevented these from entering in
   another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it
   neither sees him nor knows him. You know him, for he dwells with you and will be in you. (ESV)
 
-Jesus gives us His spirit so we can keep actually God's commandments. So we need to be partakers of the New
-Covenant in order to even be able to fulfill the requirement of the law.
+Jesus says we should take His yoke and learn from Him and we will find rest for our souls. This is what we should
+do:
 
-  Romans 8:3-4 - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the
+  Matthew 11:28-30 - Come to me, all who labor and are heavy laden, and I will give you rest. Take my yoke upon
+  you, and learn from me, for I am gentle and lowly in heart, and you will find rest for your souls. For my yoke
+  is easy, and my burden is light. (ESV)
+
+  John 10:26-27 - but you do not believe because you are not part of my flock. My sheep hear my voice, and I know
+  them, and they follow me. (ESV)
+
+Justin Martyr says, "Wherefore those who follow Him, and know Him, having faith in Him as their proof, shall rest
+in Him.":
+
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}
+And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His Son,
+came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself resurrection from
+the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He, therefore, is Himself
+both the faith and the proof of Himself and of all things. Wherefore those who follow Him, and know Him, having
+faith in Him as their proof, shall rest in Him. But since the adversary does not cease to resist many, and uses
+many and divers arts to ensnare them, that he may seduce the faithful from their faith, and that he may prevent
+the faithless from believing, it seems to me necessary that we also, being armed with the invulnerable doctrines
+of the faith, do battle against him in behalf of the weak.
+
+Having faith in Jesus, obeying Jesus, Jesus gives us His spirit so we can keep actually God's commandments. We
+keep Jesus' commandments, He gives us His Spirit, and this helps us to keep the requirement of the law. Holding
+our faith in Him, we endeavour to fulfill the law (commandment) of Christ, and this keeps the requirement of the
+law:
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
+  Galatians 6:2 - Bear one another's burdens, and so fulfill the law of Christ. (ESV)
+
+  Romans 13:8 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. (ESV)
+
+  Romans 13:10 - Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+James says, we should do this in mercy:
+
+  James 2:8-13 - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as
+  yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as
+  transgressors. For whoever keeps the whole law but fails in one point has become accountable for all of it. For
+  he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you
+  have become a transgressor of the law. So speak and so act as those who are to be judged under the law of
+  liberty. For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. (ESV)
+
+So we need to be partakers of the New Covenant in order to even be able to fulfill the requirement of the law, and
+please God.
+
+  Romans 8:3-8 - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the
   likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of
-  the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+  the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. For those who
+  live according to the flesh set their minds on the things of the flesh, but those who live according to the
+  Spirit set their minds on the things of the Spirit. To set the mind on the flesh is death, but to set the mind
+  on the Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit
+  to God's law; indeed, it cannot. Those who are in the flesh cannot please God. (ESV)
+
+  Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
+  that he exists and that he rewards those who seek him. (ESV)
 
 The object of our obedience to God as Christians is to Jesus Christ Himself (He's the fulfillment of the law!) -
 so this isn't lawlessness, it's just by faith obeying God to by faith obey Jesus.
+
+  Hebrews 5:8-9 - Although he was a son, he learned obedience through what he suffered. And being made perfect, he
+  became the source of eternal salvation to all who obey him, (ESV)
 
 Through faith in Jesus, and obedience to Jesus we can have faith in Father God:
 
@@ -62087,7 +62144,7 @@ Date: 2025-02-27 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-27 Thu 12:44
+Created: 2025-02-27 Thu 13:23
 
 Validate
 
