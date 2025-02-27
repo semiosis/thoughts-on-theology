@@ -10882,6 +10882,9 @@ On <2022-07-03 Sun> I recorded a vision on my old blog which I had that day or t
 in the morning of 3 July 2022. It's not backed up on the internet archive. But this was its URL:
 https://mullikine.github.io/posts/dream-sacred-heart-of-jesus/ I've still got the git repo offline.
 
+Read
+mullikine.github.io: Vision: Sacred heart of Jesus, Technology and God's Army // Bodacious Blog
+
 Description
 A most red swallowtail flag, red on top, blue as the bottom half stripe I think, rolled around a pole, with white
 on the flag too I think.
@@ -10935,23 +10938,32 @@ Pope Francis, uses Twitter to announce the audience - NZ Herald
 Last month the Vatican put out another article:
 
 vatican.va en.html: Antiqua et nova. Note AI and Our Relationship with God
-104. Technology offers remarkable tools to oversee and develop the world’s resources. However, in some cases,
-humanity is increasingly ceding control of these resources to machines. Within some circles of scientists and
-futurists, there is optimism about the potential of artificial general intelligence (AGI), a hypothetical form of
-AI that would match or surpass human intelligence and bring about unimaginable advancements. Some even speculate
-that AGI could achieve superhuman capabilities. At the same time, as society drifts away from a connection with
-the transcendent, some are tempted to turn to AI in search of meaning or fulfillment—longings that can only be
-truly satisfied in communion with God.[194]
- 1. However, the presumption of substituting God for an artifact of human making is idolatry, a practice Scripture
-explicitly warns against (e.g., Ex. 20:4; Ex. 32:1-5; Ex. 34:17). Moreover, AI may prove even more seductive
-than traditional idols for, unlike idols that “have mouths but do not speak; eyes, but do not see; ears, but
-do not hear” (Ps. 115:5-6), AI can “speak,” or at least gives the illusion of doing so (cf. Rev. 13:15). Yet,
-it is vital to remember that AI is but a pale reflection of humanity—it is crafted by human minds, trained on
-human-generated material, responsive to human input, and sustained through human labor. AI cannot possess many
-of the capabilities specific to human life, and it is also fallible. By turning to AI as a perceived “Other”
-greater than itself, with which to share existence and responsibilities, humanity risks creating a substitute
-for God. However, it is not AI that is ultimately deified and worshipped, but humanity itself—which, in this
-way, becomes enslaved to its own work.[195]
+
+|  104. Technology offers remarkable tools to oversee and develop the world’s
+|  resources. However, in some cases, humanity is increasingly ceding control of
+|  these resources to machines. Within some circles of scientists and futurists,
+|  there is optimism about the potential of artificial general intelligence
+|  (AGI), a hypothetical form of AI that would match or surpass human
+|  intelligence and bring about unimaginable advancements. Some even speculate
+|  that AGI could achieve superhuman capabilities. At the same time, as society
+|  drifts away from a connection with the transcendent, some are tempted to turn
+|  to AI in search of meaning or fulfillment—longings that can only be truly
+|   satisfied in communion with God.[194]
+|  
+|   105. However, the presumption of substituting God for an artifact of human
+|   making is idolatry, a practice Scripture explicitly warns against (e.g., Ex.
+|   20:4; Ex. 32:1-5; Ex. 34:17). Moreover, AI may prove even more seductive than
+|   traditional idols for, unlike idols that “have mouths but do not speak; eyes,
+|   but do not see; ears, but do not hear” (Ps. 115:5-6), AI can “speak,” or at
+|   least gives the illusion of doing so (cf. Rev. 13:15). Yet, it is vital to
+|   remember that AI is but a pale reflection of humanity—it is crafted by human
+|   minds, trained on human-generated material, responsive to human input, and
+|   sustained through human labor. AI cannot possess many of the capabilities
+|   specific to human life, and it is also fallible. By turning to AI as a
+|   perceived “Other” greater than itself, with which to share existence and
+|   responsibilities, humanity risks creating a substitute for God. However, it
+|   is not AI that is ultimately deified and worshipped, but humanity
+|   itself—which, in this way, becomes enslaved to its own work.[195]
 
 Now consider these verses here:
 
@@ -10980,40 +10992,68 @@ wicked. I'm using a strong word because I feel strongly about this.
 If you're going to have ChatGPT write your first draft and you're going to tweak it then you better say to your
 people, ChatGPT, Artificial Intelligence has composed the word of God for you this morning.
 
+Read
 vatican.va 5F20000702.html: Angelus, 2 July 2000 | John Paul II
 
-JOHN PAUL II - ANGELUS - Sunday 2 July 2000
+|  JOHN PAUL II - ANGELUS - Sunday 2 July 2000
+| 
+|  Dear Brothers and Sisters!
+| 
+|  1. Last Friday we celebrated the Solemnity of the Sacred Heart of Jesus,
+|  that Heart which began to beat 2,000 years ago in the womb of Mary Most
+|  Holy and brought the fire of God's love into the world.
+| 
+|  The Heart of Jesus contains a message for everyone; it also speaks to
+|   today's world. In a society where technology and informatics are developing
+|   at a growing rate, where people are caught up in thousands of often
+|   conflicting interests, they risk losing their centre, the centre of their
+|   very selves. By showing us his Heart, Jesus reminds us first of all that it
+|   is there, deep within himself, that each person's destiny is decided, his
+|   death or life in the definitive sense. He himself gives us life in
+|   abundance, which allows our hearts, sometimes hardened by indifference and
+|   selfishness, to be opened to a higher form of life.
+|  
+|   The Heart of the crucified and risen Christ is the inexhaustible source of
+|   grace from which every individual can always draw love, truth and mercy,
+|   especially during this special year of the Great Jubilee.
+|  
+|   2. The Blood of Christ has redeemed us. This is the truth which we
+|   proclaimed just yesterday, at the beginning of July, the month
+|   traditionally dedicated to the Precious Blood of Christ, at the Jubilee of
+|   the Sanguis Christi Union.
+|  
+|   How much blood has been unjustly shed in the world! How much violence, how
+|   much contempt for human life!
+|  
+|   This humanity, often wounded by hatred and violence, more than ever needs
+|   to experience the efficacy of Christ's redeeming Blood. That Blood, which
+|   was not shed in vain, contains all the power of God's love and is the
+|   pledge of hope, redemption and reconciliation. But in order to draw from
+|   this source, we must turn to the Cross of Christ and fix our gaze on the
+|   Son of God, on his pierced Heart, on that Blood poured out.
 
-Dear Brothers and Sisters!
+Before someone brings this up this verse, I will mention it. If someone stole a child's meal and then sold it to
+me, I don't think that this has made it pure to me. Likewise, if someone steals someone's creative work and
+redistributes it, rehashing and redistributing it doesn't make it pure:
 
- 1. Last Friday we celebrated the Solemnity of the Sacred Heart of Jesus,
+  Titus 1:12-16 - One of the Cretans, a prophet of their own, said, Cretans are always liars, evil beasts, lazy
+  gluttons. This testimony is true. Therefore rebuke them sharply, that they may be sound in the faith, not
+  devoting themselves to Jewish myths and the commands of people who turn away from the truth. To the pure, all
+  things are pure, but to the defiled and unbelieving, nothing is pure; but both their minds and their consciences
+  are defiled. They profess to know God, but they deny him by their works. They are detestable, disobedient, unfit
+  for any good work. (ESV)
 
-that Heart which began to beat 2,000 years ago in the womb of Mary Most Holy and brought the fire of God's love
-into the world.
+  I Timothy 4:1-5 - Now the Spirit expressly says that in later times some will depart from the faith by devoting
+  themselves to deceitful spirits and teachings of demons, through the insincerity of liars whose consciences are
+  seared, who forbid marriage and require abstinence from foods that God created to be received with thanksgiving
+  by those who believe and know the truth. For everything created by God is good, and nothing is to be rejected if
+  it is received with thanksgiving, for it is made holy by the word of God and prayer. (ESV)
 
-The Heart of Jesus contains a message for everyone; it also speaks to today's world. In a society where technology
-and informatics are developing at a growing rate, where people are caught up in thousands of often conflicting
-interests, they risk losing their centre, the centre of their very selves. By showing us his Heart, Jesus reminds
-us first of all that it is there, deep within himself, that each person's destiny is decided, his death or life in
-the definitive sense. He himself gives us life in abundance, which allows our hearts, sometimes hardened by
-indifference and selfishness, to be opened to a higher form of life.
-
-The Heart of the crucified and risen Christ is the inexhaustible source of grace from which every individual can
-always draw love, truth and mercy, especially during this special year of the Great Jubilee.
-
- 1. The Blood of Christ has redeemed us. This is the truth which we
-
-proclaimed just yesterday, at the beginning of July, the month traditionally dedicated to the Precious Blood of
-Christ, at the Jubilee of the Sanguis Christi Union.
-
-How much blood has been unjustly shed in the world! How much violence, how much contempt for human life!
-
-This humanity, often wounded by hatred and violence, more than ever needs to experience the efficacy of Christ's
-redeeming Blood. That Blood, which was not shed in vain, contains all the power of God's love and is the pledge of
-hope, redemption and reconciliation. But in order to draw from this source, we must turn to the Cross of Christ
-and fix our gaze on the Son of God, on his pierced Heart, on that Blood poured out.
-
-I personally think that holiness involves boycotting generative AI altogether. Read: ./abominations.html
+I personally think that holiness involves boycotting generative AI altogether unless it's guaranteed that the
+system has been built with the consent of all people who's work has contributed to the data which was used to
+train the AI. Even then, the research that has gone into building these systems is comparable to researching with
+stolen corpses from a graveyard before going legit and using corpses voluntarily donated. Read:
+https://github.com/semiosis/thoughts-on-theology/blob/master/abominations.org
 
   Acts 16:16-18 - As we were going to the place of prayer, we were met by a slave girl who had a spirit of
   divination and brought her owners much gain by fortune-telling. She followed Paul and us, crying out, These men
@@ -11054,6 +11094,7 @@ Well, God is certainly greater than anything, having been able to give me a visi
 every prophesy to Jesus. Test the spirits. Be like a Berean.
 
 Read
+mullikine.github.io: Vision: Sacred heart of Jesus, Technology and God's Army // Bodacious Blog
 
 4.6.2. Make friends with charity while money hasn't yet failed
 
@@ -62385,7 +62426,7 @@ Date: 2025-02-27 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-27 Thu 17:43
+Created: 2025-02-27 Thu 18:12
 
 Validate
 
