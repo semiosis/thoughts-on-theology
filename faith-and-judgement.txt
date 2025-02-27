@@ -10990,7 +10990,30 @@ wicked. I'm using a strong word because I feel strongly about this.
 …
 
 If you're going to have ChatGPT write your first draft and you're going to tweak it then you better say to your
-people, ChatGPT, Artificial Intelligence has composed the word of God for you this morning.
+people, "ChatGPT, Artificial Intelligence has composed the word of God for you this morning."
+
+The idea of GPT generating sermons to me is abomination.
+
+When John Piper here doesn't condemn using GPT to give 'inspiration' for writing sermons, I would condemn that
+practice, and the reason why I would condemn that practice would be similar to the reason why you wouldn't ask
+satan (who can recall bits of the word of God) to provide inspiration for a sermon.
+
+An example: Lets say God wants you to preach a sermon on repentance today because there is someone who needs to
+hear a particular message, but you don't take time to listen to God, and instead you listen to the divination of
+an AI:
+
+  Acts 5:3 - But Peter said, Ananias, why has Satan filled your heart to lie to the Holy Spirit and to keep back
+  for yourself part of the proceeds of the land? (ESV)
+
+Now you instead preach a sermon on grace but not on repentance as God wanted you to preach on. So God's will isn't
+carried out. That's the issue. God has to be our only Teacher. Is turning left or right inherently wrong? Not
+unless God wanted you to turn one way or the other:
+
+  Isaiah 30:20-21 - And though the Lord give you the bread of adversity and the water of affliction, yet your
+  Teacher will not hide himself anymore, but your eyes shall see your Teacher. And your ears shall hear a word
+  behind you, saying, This is the way, walk in it, when you turn to the right or when you turn to the left.
+
+That's why AI should not be used as inspiration for sermons.
 
 Read
 vatican.va 5F20000702.html: Angelus, 2 July 2000 | John Paul II
@@ -62426,7 +62449,7 @@ Date: 2025-02-27 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-27 Thu 18:12
+Created: 2025-02-27 Thu 18:45
 
 Validate
 
