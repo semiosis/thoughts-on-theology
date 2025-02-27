@@ -4332,8 +4332,10 @@ Baptism saves as an appeal for a good conscience through the resurrection of Jes
   raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
 
 Listen
-
 youtube.com: Why Does the Bible Say Baptism Saves Us? {@desiringGod}
+
+  Romans 14:22 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to
+  pass judgment on himself for what he approves. (ESV)
 
 I'm not Roman Catholic, but I think we individually have a faith between ourself and God and we try to maintain a
 good conscience with God in this:
@@ -4341,8 +4343,62 @@ good conscience with God in this:
 The issues with church and state seem to go both ways
 youtube.com: Proposed Law Seeks to Breach the Seal of Confession {Priest Reacts} {@FatherDavidMichael}
 
-  Romans 14:22 - The faith that you have, keep between yourself and God. Blessed is the one who has no reason to
-  pass judgment on himself for what he approves. (ESV)
+I'm staying out of the politics, but I think this prayer in the Cabinet meeting on <2025-02-26 Wed> is great. And
+I pray that God blesses this prayer in Jesus Christ's name:
+
+Read
+whitehouse.gov: Remarks by President Trump Before Cabinet Meeting - The White House
+
+dailycitizen.focusonthefamily.com: First White House Cabinet Meeting Opens in Prayer - Daily Citizen
+But Secretary Turner’s prayer wasn’t just constitutional, but also eloquent, elegant, personal and practical. May
+the Lord be merciful and answer such prayers.
+
+youtube.com: President Trump Hosts First Cabinet Meeting, Feb. 26, 2025 {@WhiteHouse} @time: 2 min 52 sec
+
+This man's prayer is really great. Amen. Thank you Mr President, let's pray, "Father, we thank you for this
+awesome privilege, Father, to be in your presence.
+
+God, thank you that you've allowed us to see this day.
+
+The Bible says that your mercies are new every morning and, Father God, we give you the glory and the honor.
+
+Lamentations 3:22-23 - The steadfast love of the LORD never ceases; his mercies never come to an end; they are new
+every morning; great is your faithfulness. (ESV)
+
+Thank you God for president Trump, Father, for appointing us, Father God.
+
+Romans 13:1-7 - Let every person be subject to the governing authorities. For there is no authority except from
+God, and those that exist have been instituted by God. Therefore whoever resists the authorities resists what God
+has appointed, and those who resist will incur judgment. For rulers are not a terror to good conduct, but to bad.
+Would you have no fear of the one who is in authority? Then do what is good, and you will receive his approval,
+for he is God's servant for your good. But if you do wrong, be afraid, for he does not bear the sword in vain. For
+he is the servant of God, an avenger who carries out God's wrath on the wrongdoer. Therefore one must be in
+subjection, not only to avoid God's wrath but also for the sake of conscience. For the same reason you also pay
+taxes, for the authorities are ministers of God, attending to this very thing. Pay to all what is owed to them:
+taxes to whom taxes are owed, revenue to whom revenue is owed, respect to whom respect is owed, honor to whom
+honor is owed. (ESV)
+
+Thank you for anointing us to do this job, Father.
+
+We pray you'll give the president, the vice president, wisdom, Father God, as they lead.
+
+Father God, I pray for of our colleagues that are here around the table and in this room.
+
+Lord God we pray that we would lead with a righteous clarity.
+
+Father God, as we serve the people of this country in every prospective agency, every job that we have, Father we
+would humble ourselves before you and we would lead in the manner that you've called us to lead and to serve.
+
+Father the Bible says that blessed is the nation whose God is the LORD.
+
+Psalms 33:12 - Blessed is the nation whose God is the LORD, the people whom he has chosen as his heritage! (ESV)
+
+Well, father we today honor you and in your rightful place, Father, thank you for giving us this opportunity to
+restore faith in this country and be a blessing to the people of America.
+
+And, Lord God, today in our meeting we pray that you will be glorified in our conversation in Jesus name. Amen."
+
+Amen.
 
 On <2025-01-13 Mon> Monday, I woke up to a voice which said, "What is your faith in?"
 
@@ -10980,17 +11036,22 @@ Now consider these verses here:
   Matthew 6:24 - No one can serve two masters, for either he will hate the one and love the other, or he will be
   devoted to the one and despise the other. You cannot serve God and money. (ESV)
 
-An excerpt from John Piper on His's take:
+An excerpt from John Piper on his take:
 
 youtube.com: Should I Use AI to Help Me Write Sermons? {@desiringGod}
 
-… If I had read that to you yeah as my own it would have been wicked. This is what I want the folks to hear -
-wicked. I'm using a strong word because I feel strongly about this.
+… If I had read that to you as my own it would have been wicked. This is what I want the folks to hear - wicked.
+I'm using a strong word because I feel strongly about this.
 
 …
 
 If you're going to have ChatGPT write your first draft and you're going to tweak it then you better say to your
 people, "ChatGPT, Artificial Intelligence has composed the word of God for you this morning."
+
+Everything is coming into subjection, but some things might yet be in rebellion.
+
+  Hebrews 2:8 - putting everything in subjection under his feet. Now in putting everything in subjection to him,
+  he left nothing outside his control. At present, we do not yet see everything in subjection to him. (ESV)
 
 The idea of GPT generating sermons to me is abomination.
 
@@ -44942,22 +45003,23 @@ bigger problems than getting married.
   I Corinthians 7:38 - So then he who marries his betrothed does well, and he who refrains from marriage will do
   even better. (ESV)
 
+youtube.com: No, God doesn't "allow it" {@leemalaulau} @time: 1 min 38 sec
+May that not be true of us today. If it steals, kills or destroys, it's not from your good father. He only brings
+life. Here's the thing, in order for love to be real it has to be free and unconditional. That's why free will
+exists. God didn't create robots. He created humans with the ability to choose. Why? Because love without choice
+isn't love at all. Love that is forced is what we would call tyranny or rape. Love that has to be bought is what
+we would call prostitution. And love that has to be earned is now no longer a free gift to receive, it's now a
+wage that I must work for. And none of these are agape. Agape love, however, God's love is free and unconditional.
+And for love to be real it must be freely given with no strings attached. But freedom means risk. It means the
+freedom to make bad choices, to reject love or to walk away all together. And God in his love does not control us,
+he invites us. Unfluence has to be invited, not imposed, and he gives us the freedom to choose him or to not
+choose him because anything less wouldn't be love at all.
+
 Very sadly, after I made the marriage proposal in 2022 the devil really came at me to:
 
 • Make me think I had to work for salvation after being born-again
 • Make me think I need to "pay" to marry her - which is like a spirit of prostitution or trafficking - the devil
 would happily attempt to turn marriage into an economy - the devil is like a pimp
-• youtube.com: No, God doesn't "allow it" {@leemalaulau} @time: 1 min 38 sec
-">May that not be true of us today. If it steals, kills or destroys, it's not from your good father. He only
-brings life. Here's the thing, in order for love to be real it has to be free and unconditional. That's why free
-will exists. God didn't create robots. He created humans with the ability to choose. Why? Because love without
-choice isn't love at all. Love that is forced is what we would call tyranny or rape. Love that has to be bought is
-what we would call prostitution. And love that has to be earned is now no longer a free gift to receive, it's now
-a wage that I must work for. And none of these are agape. Agape love, however, God's love is free and
-unconditional. And for love to be real it must be freely given with no strings attached. But freedom means risk.
-It means the freedom to make bad choices, to reject love or to walk away all together. And God in his love does
-not control us, he invites us. Unfluence has to be invited, not imposed, and he gives us the freedom to choose him
-or to not choose him because anything less wouldn't be love at all.
 
 In my view what has happened is John 10:10:
 
@@ -62530,7 +62592,7 @@ Date: 2025-02-27 Thu 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-27 Thu 20:01
+Created: 2025-02-27 Thu 23:42
 
 Validate
 
