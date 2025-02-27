@@ -10923,6 +10923,24 @@ God can speak to us directly without internet, even through His Spirit, even in 
 youtube.com: Christ is Enough - Hillsong Worship | LYRIC VIDEO
 Christ is enough for me. Everything I need is in You.
 
+Now consider sermon-writing. If you were to short-circuit the process of writing a sermon by consulting an AI
+instead of listening to the Holy Spirit, (i.e. while not walking by the Spirit and while not keeping a good
+conscience with God and while not walking in His ways and while not with a sincere devotion to Christ and while
+not following Jesus (who is the Spirit) in your heart obedient to His commandments (God can see your heart), while
+not endeavouring to please God and not man), and you decide to short-change the Holy Spirit as Ananias did and
+just use an AI to come up with the sermon, or automate the process, then that would be abomination. This is what
+I'm talking about. That's the type of behaviour which would not be being led by the Holy Spirit. Rather, it would
+be allowing ones' thoughts to be led astray.
+
+  I Corinthians 2:12 - Now we have received not the spirit of the world, but the Spirit who is from God, that we
+  might understand the things freely given us by God. (ESV)
+
+  I John 2:27 - But the anointing that you received from him abides in you, and you have no need that anyone
+  should teach you. But as his anointing teaches you about everything—and is true and is no lie, just as it has
+  taught you—abide in him. (ESV)
+
+Jesus is Jehovah, the Son of God. Jesus is Lord.
+
 Watch
 youtube.com: !!MARK OF THE BEAST WARNING!! in Vatican AI Document - Fr. Mark Goring, CC {@FrMarkGoring}
 
@@ -62588,11 +62606,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-02-27 Thu 00:00
+Date: 2025-02-28 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-02-27 Thu 23:42
+Created: 2025-02-28 Fri 12:37
 
 Validate
 
