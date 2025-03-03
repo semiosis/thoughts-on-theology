@@ -185,51 +185,51 @@ theology:
 |       to live self-controlled, upright, and godly lives in the present age,
 |       waiting for our blessed hope, the appearing of the glory of our great God
 |       and Savior Jesus Christ, who gave himself for us to redeem us from all
-100:     lawlessness and to purify for himself a people for his own possession who
-101:     are zealous for good works. Declare these things; exhort and rebuke with
-102:     all authority. Let no one disregard you. (ESV)
-103:
-104:     II Corinthians 10:5 - We destroy arguments and every lofty opinion raised
-105:     against the knowledge of God, and take every thought captive to obey
-106:     Christ, (ESV)
-107:
-108: Obedience is in the heart, along with belief in the Truth and understanding of
-109: the gospel.
-110:
-111: Obedience to God, doing the will of God, can exist without work - a
-112: willingness of the spirit.
-113:
-114: This is obvious when we see the commandment to not work on the Sabbath. But
-115: obedience neither strictly means mean working nor does it strictly mean not
-116: working. But rather doing the will of God.
-117:
-118:     Luke 6:9 - And Jesus said to them, I ask you, is it lawful on the
-119:     Sabbath to do good or to do harm, to save life or to destroy it? (ESV)
-120:
-121: Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
-122: also be followed by faith where it's a matter of seeking praise from God and
-123: not from men.
-124:
-125: Our faith should be modelled on Abraham's faith.
-126: By faith Abraham obeyed God out of trust. By faith Christians obey Christ out
-127: of trust while submitting to His righteousness, not trying to establish our
-128: own righteousness.
-129:
-130:     John 14:1 - Let not your hearts be troubled. Believe (trust) in God;
-131:     believe (trust) also in me. (ESV)
-132:
-133:     I John 3:23 - And this is his commandment, that we believe in the name
-134:     of his Son Jesus Christ and love one another, just as he has commanded
-135:     us. (ESV)
-136:
-137:     John 15:10 - If you keep my commandments, you will abide in my love,
-138:     just as I have kept my Father's commandments and abide in his love. (ESV)
-139:
-140: We're supposed to have joy in our obedience to God, as we obey Christ.
-141:
-142: We're supposed to go from agapeing darkness to agapeing God's light, and into
-143: walking in the light, walking in God's will, and we're supported by God's
-144: Spirit as we are doing this.
+|        lawlessness and to purify for himself a people for his own possession who
+|        are zealous for good works. Declare these things; exhort and rebuke with
+|        all authority. Let no one disregard you. (ESV)
+|   
+|        II Corinthians 10:5 - We destroy arguments and every lofty opinion raised
+|        against the knowledge of God, and take every thought captive to obey
+|        Christ, (ESV)
+|   
+|    Obedience is in the heart, along with belief in the Truth and understanding of
+|    the gospel.
+|   
+|    Obedience to God, doing the will of God, can exist without work - a
+|    willingness of the spirit.
+|   
+|    This is obvious when we see the commandment to not work on the Sabbath. But
+|    obedience neither strictly means mean working nor does it strictly mean not
+|    working. But rather doing the will of God.
+|   
+|        Luke 6:9 - And Jesus said to them, I ask you, is it lawful on the
+|        Sabbath to do good or to do harm, to save life or to destroy it? (ESV)
+|   
+|    Jesus said, "The spirit is indeed willing but the flesh is weak." The law can
+|    also be followed by faith where it's a matter of seeking praise from God and
+|    not from men.
+|   
+|    Our faith should be modelled on Abraham's faith.
+|    By faith Abraham obeyed God out of trust. By faith Christians obey Christ out
+|    of trust while submitting to His righteousness, not trying to establish our
+|    own righteousness.
+|   
+|        John 14:1 - Let not your hearts be troubled. Believe (trust) in God;
+|        believe (trust) also in me. (ESV)
+|   
+|        I John 3:23 - And this is his commandment, that we believe in the name
+|        of his Son Jesus Christ and love one another, just as he has commanded
+|        us. (ESV)
+|   
+|        John 15:10 - If you keep my commandments, you will abide in my love,
+|        just as I have kept my Father's commandments and abide in his love. (ESV)
+|   
+|    We're supposed to have joy in our obedience to God, as we obey Christ.
+|   
+|    We're supposed to go from agapeing darkness to agapeing God's light, and into
+|    walking in the light, walking in God's will, and we're supported by God's
+|    Spirit as we are doing this.
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are
 found in Christ Jesus:
@@ -30397,18 +30397,18 @@ sin to hate the devil. It's a sin not to hate the devil. To be passive and indif
 |   Now just get a full deliverance.
 |   Release yourself from everything.
 |   Once the anointing is here
-100: you can get rid of everything
-101: and it's much more difficult
-102: to do it when the anointing lifts.
-103: That's right,
-104: don't bother about other people.
-105: Don't hold onto your dignity,
-106: it'll come back in a few moments.
-107: That's right. Thank You, Lord.
-108: Thank You, Father.
-109: Thank You, Lord Jesus.
-110: Praise Your holy name.
-111: Praise Your name, Lord.
+|    you can get rid of everything
+|    and it's much more difficult
+|    to do it when the anointing lifts.
+|    That's right,
+|    don't bother about other people.
+|    Don't hold onto your dignity,
+|    it'll come back in a few moments.
+|    That's right. Thank You, Lord.
+|    Thank You, Father.
+|    Thank You, Lord Jesus.
+|    Praise Your holy name.
+|    Praise Your name, Lord.
 
 18.11. Deliverance/exorcism
 
