@@ -177,8 +177,8 @@ theology:
 |       the sins of many, will appear a second time, not to deal with sin but to
 |       save those who are eagerly waiting for him. (ESV)
 |  
-|   As we hope for His glory renounce ungodliness and defend with authority and
-|   hyprocrisy that this grace is for us to be purified:
+|   As we hope for His glory we renounce ungodliness and defend with authority and
+|   without hyprocrisy that this grace is for us to be purified:
 |  
 |       Titus 2:11-15 - For the grace of God has appeared, bringing salvation for
 |       all people, training us to renounce ungodliness and worldly passions, and
@@ -63422,7 +63422,7 @@ Date: 2025-03-03 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-03 Mon 21:08
+Created: 2025-03-03 Mon 21:37
 
 Validate
 
