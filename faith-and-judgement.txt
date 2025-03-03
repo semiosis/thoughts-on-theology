@@ -28417,8 +28417,9 @@ number one.
 
 Since there is a soul purifying obedience to the truth, you can love each other.
 
-Even the demons believe God is one and they shudder. The faithful believe God and love God (a totally different
-response). Love is obedience to God, and includes accepting and having faith in the one who God sent, Jesus.
+We're called not merely to believe certain facts about God, but to trust God, and love God and serve God. Even the
+demons believe God is one and they shudder. The faithful believe God and love God (a totally different response).
+Love is obedience to God, and includes accepting and having faith in the one who God sent, Jesus.
 
   James 2:19 - You believe that God is one; you do well. Even the demons believe—and shudder!
 
@@ -28436,11 +28437,15 @@ must be true together, even to have a sound definition of what love is:
   I John 5:2-3 - By this we know that we love the children of God, when we love God and obey his commandments. For
   this is the love of God, that we keep his commandments. And his commandments are not burdensome.
 
-The command to believe is a command to obedience, the obedience of faith. The command to obedience is not to the
-law but to have faith in Jesus. While the law of God revives the soul while we are actually meditating on it and
-doing it, the law doesn't save to perfection - it doesn't purify the heart. The obedience we have in the heart
-which saves is trust in Jesus Christ Himself where we become trusting, believing and obedient to Jesus, and as we
-hold fast to His gospel, Jesus brings us to God. God purifies our heart as we hold faith in Jesus:
+The command to believe is a command to obedience, the obedience of faith. The command to obedience is to Jesus
+Christ who has fulfilled the law. It's still obedience to law but Jesus is our Master, not the old written code,
+so it's obedience to Jesus primarily. In other words, it's law-abiding obedience, but you can't obey the law and
+disobey Jesus at the same time. We're under the commandment of Christ.
+
+While the law of God revives the soul while we are actually meditating on it and doing it, the law doesn't save to
+perfection - it doesn't purify the heart. The obedience we have in the heart which saves is trust in Jesus Christ
+Himself where we become trusting, believing and obedient to Jesus, and as we hold fast to His gospel, Jesus brings
+us to God. God purifies our heart as we hold faith in Jesus:
 
   Hebrews 7:19 - (for the law made nothing perfect); but on the other hand, a better hope is introduced, through
   which we draw near to God. (ESV)
@@ -63351,7 +63356,7 @@ Date: 2025-03-03 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-03 Mon 17:59
+Created: 2025-03-03 Mon 18:19
 
 Validate
 
