@@ -5279,6 +5279,12 @@ Christ to receive the grace of God:
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
 
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
+
   James 2:22 - You see that faith (G4102 pistis) was working with (4903. sunergeó) his works (G2041 ergon), and as
   a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
 
@@ -7350,16 +7356,18 @@ righteousness which leads to salvation:
   through the appearing of our Savior Christ Jesus, who abolished death and brought life and immortality to light
   through the gospel, (ESV)
 
-I believe that becoming the righteousness of God is cooperative in that we allow Jesus to wash us, and work in us,
-and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking in faith, and
-behaving as one of God's children is how we receive and walk into the kingdom which is given to us and that
-walking (living, katergazomai) in a childlike faith in Jesus is how we have the righteousness that is by faith.
-Living by faith is walking in faith, is following Jesus. I really wish there was not a chapter break between these
-two verses because it's revealing to to read them side by side:
+I really wish there was not a chapter break between these two verses because it's revealing to to read them side
+by side:
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
 
   James 2:22 - You see that faith (G4102 pistis) was working with (4903. sunergeó) his works (G2041 ergon), and as
   a result of the works (G2041 ergon), faith (G4102 pistis) was perfected (G5048 teleioo);
@@ -15473,20 +15481,30 @@ God's will to receive it.
   Revelation of John 22:3 - No longer will there be anything accursed, but the throne of God and of the Lamb will
   be in it, and his servants will worship him. (ESV)
 
-I believe that becoming the righteousness of God is initially instantaneous when we believe but going forward it
-also is cooperative as we live, submitting to the righteousness of God (Jesus' righteousness) and then being found
-in Jesus, letting Jesus wash us, and work in us, transform us, and that a childlike trust in Jesus (a believing
-and obedient trust), following Jesus, walking in faith, and behaving as one of God's children, following Jesus our
-Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike
-faith in Jesus is how we have the righteousness that is by faith. I believe we have righteousness because we are
-found in Him, and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be
-found in Jesus and that's how we have righteousness from Him, because we are found in Him and are being perfected
-and sanctified like a branch getting healthier because it's connected to Jesus. It does not mean we are able to
-displace Him as the head of the body because we don't have righteousness apart from Him (as far as I understand):
+I believe that becoming the righteousness of God is cooperative when we begin trusting God through trusting Jesus
+and as we continue walking by faith, submitting to the righteousness of God (Jesus' righteousness), being found in
+Jesus and continuing to be found in Jesus, trusting in Him and not denying Him, letting Jesus wash us, and work in
+us and we working out our own salvation, transform us and purify us as we cleanse ourselves while trusting in Him,
+and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking in faith, and
+behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the
+kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that
+is by faith.
+
+I believe we have righteousness because we are found in Him, and He is our High Priest and or Lord and King, and
+Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have righteousness from Him,
+because we are found in Him and are being perfected and sanctified like a branch getting healthier because it's
+connected to Jesus. It does not mean we are able to displace Him as the head of the body because we don't have
+righteousness apart from Him (as far as I understand):
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
 
 We must live for the will of God:
 
@@ -25679,6 +25697,12 @@ righteousness apart from Him (as far as I understand):
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
 
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
+
 The Holy Spirit goes to those who obey God, and causes the person to walk in God's precepts - stopping lying,
 stealing, coveting, idolizing, cheating, etc.
 
@@ -26977,20 +27001,30 @@ If we keep His commandments, keep His works we will reign with Him:
   Revelation of John 2:26 - The one who conquers and who keeps my works until the end, to him I will give
   authority over the nations, (ESV)
 
-I believe that becoming the righteousness of God is initially instantaneous when we believe but going forward it
-also is cooperative as we live, submitting to the righteousness of God (Jesus' righteousness) and then being found
-in Jesus, letting Jesus wash us, and work in us, transform us, and that a childlike trust in Jesus (a believing
-and obedient trust), following Jesus, walking in faith, and behaving as one of God's children, following Jesus our
-Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike
-faith in Jesus is how we have the righteousness that is by faith. I believe we have righteousness because we are
-found in Him, and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be
-found in Jesus and that's how we have righteousness from Him, because we are found in Him and are being perfected
-and sanctified like a branch getting healthier because it's connected to Jesus. It does not mean we are able to
-displace Him as the head of the body because we don't have righteousness apart from Him (as far as I understand):
+I believe that becoming the righteousness of God is cooperative when we begin trusting God through trusting Jesus
+and as we continue walking by faith, submitting to the righteousness of God (Jesus' righteousness), being found in
+Jesus and continuing to be found in Jesus, trusting in Him and not denying Him, letting Jesus wash us, and work in
+us and we working out our own salvation, transform us and purify us as we cleanse ourselves while trusting in Him,
+and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking in faith, and
+behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the
+kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that
+is by faith.
+
+I believe we have righteousness because we are found in Him, and He is our High Priest and or Lord and King, and
+Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have righteousness from Him,
+because we are found in Him and are being perfected and sanctified like a branch getting healthier because it's
+connected to Jesus. It does not mean we are able to displace Him as the head of the body because we don't have
+righteousness apart from Him (as far as I understand):
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
 
 Jesus carried His cross, bore our shame, bore our sin that we might become the righteousness of God; that we might
 bear others' shame, and pass forward love and forgiveness:
@@ -38208,20 +38242,30 @@ Faith involves obedience. It's repentance from sin to the aligning of the heart 
 
 33.2. The faith itself may be a gift, but certainly is cooperative
 
-I believe that becoming the righteousness of God is initially instantaneous when we believe but going forward it
-also is cooperative as we live, submitting to the righteousness of God (Jesus' righteousness) and then being found
-in Jesus, letting Jesus wash us, and work in us, transform us, and that a childlike trust in Jesus (a believing
-and obedient trust), following Jesus, walking in faith, and behaving as one of God's children, following Jesus our
-Lord and Saviour is how we receive and walk into the kingdom which is given to us and that walking in a childlike
-faith in Jesus is how we have the righteousness that is by faith. I believe we have righteousness because we are
-found in Him, and He is our High Priest and or Lord and King, and Saviour. Living by faith is a lifestyle to be
-found in Jesus and that's how we have righteousness from Him, because we are found in Him and are being perfected
-and sanctified like a branch getting healthier because it's connected to Jesus. It does not mean we are able to
-displace Him as the head of the body because we don't have righteousness apart from Him (as far as I understand):
+I believe that becoming the righteousness of God is cooperative when we begin trusting God through trusting Jesus
+and as we continue walking by faith, submitting to the righteousness of God (Jesus' righteousness), being found in
+Jesus and continuing to be found in Jesus, trusting in Him and not denying Him, letting Jesus wash us, and work in
+us and we working out our own salvation, transform us and purify us as we cleanse ourselves while trusting in Him,
+and that a childlike trust in Jesus (a believing and obedient trust), following Jesus, walking in faith, and
+behaving as one of God's children, following Jesus our Lord and Saviour is how we receive and walk into the
+kingdom which is given to us and that walking in a childlike faith in Jesus is how we have the righteousness that
+is by faith.
+
+I believe we have righteousness because we are found in Him, and He is our High Priest and or Lord and King, and
+Saviour. Living by faith is a lifestyle to be found in Jesus and that's how we have righteousness from Him,
+because we are found in Him and are being perfected and sanctified like a branch getting healthier because it's
+connected to Jesus. It does not mean we are able to displace Him as the head of the body because we don't have
+righteousness apart from Him (as far as I understand):
 
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
 
 God and Abram (Abraham) had a real relationship first.
 
@@ -45036,6 +45080,12 @@ provides, and we cooperate with God by working, etc.
   II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
   righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
   (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
 
 But if God doesn't want you to get a job at a particular time, you wont get a job, etc. and that goes for other
 things such as relationships.
@@ -60973,8 +61023,24 @@ But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant
 
 72.8. The spiritual attack I have received in recent times
 
+If see the disturbing visions etc. and spiritual attacks as indications that I am not fully sancified, rather than
+simply blaming the enemy attacking me all the time, even though the attack surely may or does come from the enemy
+then:
+
+• I have a hope of being fully sanctified
+• II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every
+defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+• Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion
+at the day of Jesus Christ. (ESV)
+• as demoralizing as it is to be attacked so continually, I see its part in the greater picture of working out
+my salvation
+• I can be less focused on the enemy's distractions, and more focused on the truth, God's Word, Scripture and
+Jesus
+• Be thankful to God for His work in me
+• I can be kinder to people knowing that this isn't all about me
+
 My spiritual experiences are not all bad, but it has been very bad at times, and really good at times too. I'm "in
-the Spirit" now and I am engaged in spiritual warfare.
+the Spirit" now and I am engaged in spiritual warfare and I'm very tired.
 
 It makes sense that I've been receiving spiritual attack because I'm at war with satan's kingdom after being born
 of the Spirit:
@@ -63356,7 +63422,7 @@ Date: 2025-03-03 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-03 Mon 18:19
+Created: 2025-03-03 Mon 21:08
 
 Validate
 
