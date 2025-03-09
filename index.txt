@@ -3946,6 +3946,52 @@ We must live in the spirit the way God does, not for human passions, but for the
   Ephesians 2:8-9 - For by grace you have been saved through faith. And this is not your own doing; it is the gift
   of God, not a result of works, so that no one may boast. (ESV)
 
+youtube.com: Matthew 4:12-25: The Hidden Truth About God's Heavenly Kingdom | Jason Camacho
+{@AboveReproachMinistry}
+
+Why does Jesus's ministry begin by the sea, and why does he first call fishermen to follow him, and why does his
+ministry resemble the stories of certain Biblical characters? You're about to see how Jesus's Ministry is framed
+up as a new Exodus and a new creation at the same time. And you're also about to see how Jesus is presented as
+both a new Moses and a new Joshua.
+
+…
+
+Jesus is the light of God coming into the darkness and the condition of our dark world to bring the light of God
+and the life of God. He's initiating a new creation. At the same time, though, there's water language, there's the
+Gentiles, there's the darkness present, and I'm going to show you how Jesus is also bringing about a new exodus as
+the greater Moses.
+
+So for those dwelling in the region and shadow of death on them a light has dawned and Jesus is that light as
+John's gospel tells us.
+
+youtube.com: Matthew 4:12-25: The Hidden Truth About God's Heavenly Kingdom | Jason Camacho
+{@AboveReproachMinistry} @time: 2 min 39 sec
+
+So let's just go to Isaiah chapter 9 real quick. This is what Matthew is quoting from.
+
+Isaiah 9:1-2 - But there will be no gloom for her who was in anguish. In the former time he brought into contempt
+the land of Zebulun and the land of Naphtali, but in the latter time he has made glorious the way of the sea, the
+land beyond the Jordan, Galilee of the nations. The people who walked in darkness have seen a great light; those
+who dwelt in a land of deep darkness, on them has light shined. (ESV)
+
+youtube.com: Matthew 4:12-25: The Hidden Truth About God's Heavenly Kingdom | Jason Camacho
+{@AboveReproachMinistry} @time: 2 min 39 sec
+Jesus's ministry is, number one, the light of God descending upon His people in darkness, just like the light of
+God at creation shines into the darkness to bring life. Number two: the ministry of Jesus is framed up as the
+salvation of God coming down to rescue his people who are in death and oppression like Israel in the Exodus story.
+So this is not only a new creation story, this is a new Exodus story. Which both of those are actually connected.
+So Jesus here is the light of God shining into the darkness of the world to bring God's New Creation to bring new
+life, and Jesus at the same time is the salvation of God coming down to rescue people who are in a new kind of
+Egypt, which is the death and the consequence of sin. They're in oppression, they're enslaved, they need rescue.
+So there's a new Exodus and a new creation that's in its formation and it looks like the kingdom of God coming.
+And how does that kingdom of God come into the world to bring the light and the life of God? Well it looks like
+verse 17. From that time Jesus began to preach saying repent (change your mind) for the Kingdom of Heaven is at
+hand or here. And with this preaching and kingdom comes the light and the life that you need as you're in the
+shadow of death and darkness. So there's this new King and His heavenly kingdom is bringing the light and
+salvation of God that Humanity needs. You know, just like at the Exodus God heard the cries of his people in
+oppression and visited them in their affliction. Well now Jesus is the answer of God to humanity's cry in their
+affliction and in their, you know, slavery to sin.
+
 My thoughts (an analogy)
 
 If someone was living in Egypt and was given daily food on the basis that they would bow to an idol once every
@@ -4759,6 +4805,9 @@ In my view it doesn't seem as though the Roman Catholic church are not Christian
 very little about Roman Catholicism. Their doctrine is different from the Reformists, but they are judged by the
 doctrine they affirm, and by Jesus Christ's words.
 
+  Matthew 12:36-37 - I tell you, on the day of judgment people will give account for every careless word they
+  speak, for by your words you will be justified, and by your words you will be condemned. (ESV)
+
 Watch
 youtube.com: DEBATE Catholic Truth vs NeedGodnet {Part 2 - Catholic Debate } {@CatholicTruthOfficial}
 
@@ -5083,7 +5132,7 @@ co-heirs with Christ as they are found in Christ, provided they suffer with Him:
   through the law but through the righteousness of faith. (ESV)
 
   Romans 8:17 - and if children, then heirs—heirs of God and fellow heirs with Christ, provided we suffer with him
-  in order that we may also be glorified with him. (ESV)􀀈􀫕
+  in order that we may also be glorified with him. (ESV)
 
 For believers, the promise is having a share in the inheritance but the entire inheritance belongs to Jesus, not
 us. Also it only goes to those who are glorified with Him through suffering:
@@ -7625,6 +7674,14 @@ That's confirmed here:
   I John 3:5-6 - You know that he appeared to take away sins, and in him there is no sin. No one who abides in him
   keeps on sinning; no one who keeps on sinning has either seen him or known him.
 
+Repent, be sanctified, love God and your neighbour, believe and obey Jesus and you will live:
+
+  Luke 10:25-28 - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to
+  inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall
+  love the Lord your God with all your heart and with all your soul and with all your strength and with all your
+  mind, and your neighbor as yourself. And he said to him, You have answered correctly; do this, and you will
+  live. (ESV)
+
 We must turn away from our idols to not receive the wrath of God:
 
   I Thessalonians 1:9-10 - For they themselves report concerning us the kind of reception we had among you, and
@@ -7719,7 +7776,7 @@ love) has truly been perfected. Having Jesus' teachings in us clearly should res
   theos) has truly been perfected (G5048 teleioo). By this we know (G1097 ginosko) that we are in Him: whoever
   says he abides in him ought to walk in the same way in which he walked. (ESV)
 
-Repent, be sanctified, love God and your neighbour, believe and obey Jesus:
+Repent, be sanctified, love God and your neighbour, believe and obey Jesus and you will live:
 
   Luke 10:25-28 - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to
   inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall
@@ -7956,11 +8013,16 @@ What happen in every cycle of end of time, something great happens on a global l
 
 We're getting pretty close, I think:
 
-#+BEGIN[QUOTE] Matthew 24:12-16 - And because lawlessness will be increased, the love of many will grow cold. But
-the one who endures to the end will be saved. And this gospel of the kingdom will be proclaimed throughout the
-whole world as a testimony to all nations, and then the end will come. So when you see the abomination of
-desolation spoken of by the prophet Daniel, standing in the holy place (let the reader understand), then let those
-who are in Judea flee to the mountains. (ESV) #+END[plan]
+  Matthew 24:12-16 - And because lawlessness will be increased, the love of many will grow cold. But the one who
+  endures to the end will be saved. And this gospel of the kingdom will be proclaimed throughout the whole world
+  as a testimony to all nations, and then the end will come. So when you see the abomination of desolation spoken
+  of by the prophet Daniel, standing in the holy place (let the reader understand), then let those who are in
+  Judea flee to the mountains. (ESV)
+
+youtube.com: MOMENT OF GREAT GLOBAL UNCERTAINTY {@WatchmanRiver} @time: 6 min 8 sec
+I remember when I was very young these old pastors used to say, "When you get to a point where the Middle East is
+the top of the news every single day, start looking up because that will most likely be the season of the harpazō,
+of the rapture. And I'm telling you it's every day. Isn't it?
 
 3.17.2. Satan's plan exposed, explained, extinguished
 
@@ -8009,31 +8071,27 @@ place and you by faith trust him.
 
 youtube.com: THE DEADLIEST FORM OF FAKE NEWS–Satan's Plan to Use False Religions to Deceive Humanity {@DTBM}
 @time: 20 min 40 sec
-
 What do all the early church, the Catholic Church, the Reformation Church, the Evangelical and the charismatic,
 what do they all have in common? The Bible. Now look at this. This much of Roman Catholicism is absolutely true.
-This much of the Reformation Church was based in the Bible. This much of the Evangelical Church, and this much of
+This much of the Reformation Church was based in the Bible. This much of the evangelical Church, and this much of
 the charismatic church, and this much of the early church. But all of the iterations that followed have the part
 that's not in the Bible. What's Romanism? The damnable doctrine of works, that you can earn your way. What about
-the Reformation Church? What we call theological drift which basically is this:
-
-• verse of the Bible, verse of the Bible conclusion from that verse.
-• verse of the Bible, verse of the Bible, conclusion from that verse.
-
-Now these conclusions are directly anchored to the Scripture. Watch this: Conclusion from two conclusions is
-theological drift. This doctrine is no longer tied to the Scripture. It may be true but it's not Scriptural. It's
-logical, and that's what we come up with in the Reformation Church. That's where we get such things as dual
-predestination. They said that God predestines some people to hell and some to heaven. Have you ever heard that
-doctrine? That is that is very clearly a part of the Reformation Church. Is that in the Bible do you find that
-here? No. But you find it logically here. And then what did the what did the evangelical church do? They got into
-the problem of traditions over the word. What's one of the clearest ones? We call it Invitationalism. That is a
-real blight. Invitationalism is that if you raise your hand or pray a prayer you're saved. No matter whether God
-does anything to you or not, if you did that, you're saved. Now the Bible says whoever calls the name of the Lord
-shall be saved, but what it says is when God saves you Acts 26:18, you get a new heart and a new spirit. But
-invitationalism, which started, basically in about 1830 was if you had a a good very powerful preacher and he told
-people to come to the front and they did, they thought that by them coming to the front or praying or doing
-something they got saved, and that's where the church gradually got diluted. And then of course the charismatic
-renewal church has so much truth in it but their excesses and experience has taken over the word.
+the Reformation Church? What we call theological drift which basically is this: Verse of the Bible, verse of the
+Bible, conclusion from that verse… verse of the Bible, verse of the Bible, conclusion from that verse. Now these
+conclusions are directly anchored to the Scripture. Watch this… Conclusion from two conclusions is theological
+drift, this doctrine is no longer tied to the Scripture. It may be true, but it's not Scriptural. It's logical,
+and that's what we come up with in the Reformation Church. That's where we get such things as dual predestination.
+They said that God predestines some people to hell and some to heaven. Have you ever heard that doctrine? That is
+very clearly a part of the Reformation Church. Is that in the Bible? Do you find that here? No. But you find it
+logically here. And then what did did the evangelical church do? They got into the problem of traditions over the
+Word. What's one of the clearest ones? We call it invitationalism. That is a real blight. Invitationalism is that
+if you raise your hand or pray a prayer you're saved. No matter whether God does anything to you or not, if you
+did that, you're saved. Now the Bible says whoever calls the name of the Lord shall be saved, but what it says is
+when God saves you Acts 26:18, you get a new heart and a new spirit. But invitationalism, which started, basically
+in about 1830 was if you had a a good very powerful preacher and he told people to come to the front and they did,
+they thought that by them coming to the front or praying or doing something they got saved, and that's where the
+church gradually got diluted. And then of course the charismatic renewal church has so much truth in it but their
+excesses and experience has taken over the word.
 
 Satan's plan exposed:
 
@@ -11138,6 +11196,9 @@ ourselves do our duty.
 
   Ecclesiastes 12:13 - The end of the matter; all has been heard. Fear God and keep his commandments, for this is
   the whole duty of man. (ESV)
+
+  Micah 6:8 - He has told you, O man, what is good; and what does the LORD require of you but to do justice, and
+  to love kindness, and to walk humbly with your God? (ESV)
 
   Matthew 8:8-10 - But the centurion replied, Lord, I am not worthy to have you come under my roof, but only say
   the word, and my servant will be healed. For I too am a man under authority, with soldiers under me. And I say
@@ -52194,6 +52255,12 @@ distinction between of God or of Heaven. It's the same thing, I think:
 Condition: Those who are poor in spirit
 Promise: They will inherit the kingdom of Heaven
 
+youtube.com: Why The Kingdom of Heaven Is Only For THESE People In Matthew 5:1-10 | Jason Camacho
+{@AboveReproachMinistry}
+The Kingdom of Heaven belongs to those who spiritually are desperate for God to satisfy the longing of their soul.
+It's to have an impoverished spirit. It's to be humbly aware and recognize that that deficiency and to bring that
+to God.
+
 55.11.2. The kingdom of God goes to those who are poor in the world
 
 God has mercy on people who are poor by worldly standards to reveal to them the Kingdom of God, and God works
@@ -61101,6 +61168,9 @@ My God is the God who instituted marriage between man and woman.
   is the whole duty of man. For God will bring every deed into judgment, with every secret thing, whether good or
   evil. (ESV)
 
+  Micah 6:8 - He has told you, O man, what is good; and what does the LORD require of you but to do justice, and
+  to love kindness, and to walk humbly with your God? (ESV)
+
 72.7.2. Humility
 
 Being born-again, I actually had a lot to learn about humility, and service.
@@ -61697,6 +61767,13 @@ Quote from CH Spurgeon
 "Peace is joy resting, and joy is peace dancing"
 
 Sigh…. For the record, as of <2024-06-13 Thu>, it still feels as though I'm being hit by witchcraft.
+
+youtube.com: SYMPTOMS OF WITCHCRAFT {FIGHT BACK}!!?? {@Justice7-}
+First things first, let me just say this video is to educate people on the things that are happening in the
+spiritual world. If you do not believe in the spiritual aspects of this life, if you are still deceived by this
+flesh, by the carnal things, the logic, the societal standards and norms that have been presented to all of us,
+this video is not for you. But if you are somebody who has experienced warfare and you have gone through anything
+I have or similar which is fighting off witchcraft then please stay tuned to the end of this video.
 
 The spirit spouse stuff has continued. It's only been a problem since the end of 2022, and I think its objective
 is to make me feel disqualified, but I know it's just demons/witchcraft/defilement and I'm resisting it to my best
@@ -63527,11 +63604,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-03-03 Mon 00:00
+Date: 2025-03-09 Sun 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-03 Mon 22:46
+Created: 2025-03-09 Sun 16:03
 
 Validate
 
