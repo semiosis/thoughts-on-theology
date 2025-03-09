@@ -7999,9 +7999,8 @@ itself. We want faith working through love. Working faith is what we want:
   uncircumcision counts for anything, but only faith working through love. You were running well. Who hindered you
   from obeying the truth? (ESV)
 
-  [[https://www.biblegateway.com/passage/?search=Romans%2010%3A5&version=ESV][Romans 10:5]] - Moses for writes -
-  [of] the righteousness that [is] of the law that The having done these things man will live by them
-  (Interlinear)
+  Romans 10:5 - Moses for writes - [of] the righteousness that [is] of the law that The having done these things
+  man will live by them (Interlinear)
 
 |  3475   1063 1125     3754 3588     1343          3588      1537
 |  Mōusēs gar  graphei  hoti tēn      dikaiosynēn   tēn       ek
@@ -9981,6 +9980,35 @@ And following Jesus' commandments we will love one another:
   another. (ESV)
 
 3.22. Assurance of salvation
+
+For full assurance, do all the will of God for you.
+
+The will of God:
+
+• Arrive at maturity and fully assured in all the will of God
+• We must look at what all of the will of God is for us and endeavour to be mature and fully assured with
+all of it
+• Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always
+struggling on your behalf in his prayers, that you may stand mature and fully assured in all the
+will of God. (ESV)
+• Be transformed by the renewal of your mind
+• Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by
+testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+• We must take every thought captive to be obedient to Christ
+• II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of
+God, and take every thought captive to obey Christ, being ready to punish every disobedience, when
+your obedience is complete. (ESV)
+• We want our mind to be the mind of Christ
+• I Corinthians 2:16 - For who has understood the mind of the Lord so as to instruct him? But we have
+the mind of Christ. (ESV)
+• Be a servant of Christ
+• Ephesians 6:6 - not by the way of eye-service, as people-pleasers, but as servants of Christ, doing the
+will of God from the heart, (ESV)
+• Give thanks in all circumstances
+• I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for
+you. (ESV)
+
+  Mark 3:35 - Whoever does the will of God, he is my brother and sister and mother. (ESV)
 
 We must receive Jesus, come to Jesus and believe His words, and endeavour to keep His commandments, loving one
 another in Christ
@@ -63922,7 +63950,7 @@ Date: 2025-03-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-10 Mon 10:33
+Created: 2025-03-10 Mon 10:48
 
 Validate
 
