@@ -9980,7 +9980,53 @@ And following Jesus' commandments we will love one another:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.22. Some indicators to know for sure you are saved
+3.22. Assurance of salvation
+
+We must receive Jesus, come to Jesus and believe His words, and endeavour to keep His commandments, loving one
+another in Christ
+
+  John 5:39-47 - You search the Scriptures because you think that in them you have eternal life; and it is they
+  that bear witness about me, yet you refuse to come to me that you may have life. I do not receive glory from
+  people. But I know that you do not have the love of God within you. I have come in my Father's name, and you do
+  not receive me. If another comes in his own name, you will receive him. How can you believe, when you receive
+  glory from one another and do not seek the glory that comes from the only God? Do not think that I will accuse
+  you to the Father. There is one who accuses you: Moses, on whom you have set your hope. If you believed Moses,
+  you would believe me; for he wrote of me. But if you do not believe his writings, how will you believe my words?
+  (ESV)
+
+  John 6:35-41 - Jesus said to them, I am the bread of life; whoever comes to me shall not hunger, and whoever
+  believes in me shall never thirst. But I said to you that you have seen me and yet do not believe. All that the
+  Father gives me will come to me, and whoever comes to me I will never cast out. For I have come down from
+  heaven, not to do my own will but the will of him who sent me. And this is the will of him who sent me, that I
+  should lose nothing of all that he has given me, but raise it up on the last day. For this is the will of my
+  Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up
+  on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven.
+  (ESV)
+
+• Everyone who believes that Jesus is the Christ has been born of God
+• everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of
+God, when we love God and obey his commandments
+
+  I John 5:1-6 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are
+  not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has
+  overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the
+  Son of God? This is he who came by water and blood—Jesus Christ; not by the water only but by the water and the
+  blood. And the Spirit is the one who testifies, because the Spirit is the truth. (ESV)
+
+The Apostle John delivers I John 5 to his audience (and to us) that we can have assurance of eternal life.
+Receiving Jesus, accepting the gospel and keeping God's commandments given through Jesus certainly should give us
+assurance of our salvation. God's testimony is greater. We must believe the Gospel.
+
+  I John 5:9-13 - If we receive the testimony of men, the testimony of God is greater, for this is the testimony
+  of God that he has borne concerning his Son. Whoever believes in the Son of God has the testimony in himself.
+  Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has
+  borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son.
+  Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to
+  you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+3.23. Some indicators to know for sure you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube @time: 12
@@ -10163,7 +10209,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is
   tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. (ESV)
 
-3.22.1. By the Spirit Jesus has given us
+3.23.1. By the Spirit Jesus has given us
 
   II Corinthians 1:22 - and who has also put his seal on us and given us his Spirit in our hearts as a guarantee.
   (ESV)
@@ -10178,7 +10224,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   power of God, who saved us and called us to a holy calling, not because of our works but because of his own
   purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
 
-3.23. Indicators that we are of the truth
+3.24. Indicators that we are of the truth
 
 A strong indicator that we are of the truth is that against every condemnation, we know God is greater than our
 heart and knows everything
@@ -63876,7 +63922,7 @@ Date: 2025-03-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-10 Mon 10:12
+Created: 2025-03-10 Mon 10:33
 
 Validate
 
