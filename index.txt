@@ -742,9 +742,13 @@ God:
   good news, that you should turn from these vain things to a living God, who made the heaven and the earth and
   the sea and all that is in them. In past generations he allowed all the nations to walk in their own ways. (ESV)
 
-We obey the truth. We believe the gospel and obey the truth. We live according to the truth. We are saved to
-serve/obey and be taught by Christ. This is still obedience to God's Word, and obedience to God's Law - as Jesus
-is the Word and the fulfillment of God's Law.
+We obey the truth. We believe the gospel and obey the truth.
+
+  Galatians 5:6-7 - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only
+  faith working through love. You were running well. Who hindered you from obeying the truth? (ESV)
+
+We live according to the truth. We are saved to serve/obey and be taught by Christ. This is still obedience to
+God's Word, and obedience to God's Law - as Jesus is the Word and the fulfillment of God's Law.
 
 By faith we obey Christ first and foremost to be justified and to arrive at the knowledge of Christ and of God -
 we obey Jesus to arrive at knowing God:
@@ -7968,6 +7972,134 @@ other translations, although I think we have to be careful.
 |   ἁμαρτημάτων   — ἐν   τῇ      ἀνοχῇ       τοῦ     Θεοῦ  ;
 |   sins            in   the     forbearance  -      of God
 |   N-GNP           Prep Art-DFS N-DFS       Art-GMS N-GMS
+
+3.16.7. Being saved by faith in Jesus' blood
+
+This is faith-based righteousness.
+
+God's Righteousness is received through faith in Jesus.
+
+  Romans 10:1-5 - Brothers, my heart's desire and prayer to God for them is that they may be saved. I bear them
+  witness that they have a zeal for God, but not according to knowledge. For, being ignorant of the righteousness
+  that comes from God, and seeking to establish their own, they did not submit to God's righteousness. For Christ
+  is the end of the law for righteousness to everyone who believes. For Moses writes about the righteousness that
+  is based on the law, that the person who does the commandments (G4160 poiēsas, having done) (G846 auta, these
+  things) shall live by them. (ESV)
+
+The righteousness that is by law requires keeping the entire law.
+
+The problem is being required to keep the whole law to be justified by it. There is no problem with obedience
+itself. We want faith working through love. Working faith is what we want:
+
+  Galatians 5:1-7 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I
+  testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed
+  from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by
+  faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor
+  uncircumcision counts for anything, but only faith working through love. You were running well. Who hindered you
+  from obeying the truth? (ESV)
+
+  [[https://www.biblegateway.com/passage/?search=Romans%2010%3A5&version=ESV][Romans 10:5]] - Moses for writes -
+  [of] the righteousness that [is] of the law that The having done these things man will live by them
+  (Interlinear)
+
+|  3475   1063 1125     3754 3588     1343          3588      1537
+|  Mōusēs gar  graphei  hoti tēn      dikaiosynēn   tēn       ek
+|  Μωϋσῆς γὰρ  γράφει   ὅτι  τὴν      δικαιοσύνην   τὴν       ἐκ
+|  Moses  for  writes    -   [of] the righteousness that [is] of
+|  N-NMS  Conj V-PIA-3S Conj Art-AFS  N-AFS         Art-AFS   Prep
+| 
+|  3588    3551    3754  3588    4160        846          444
+|  tou     nomou   hoti  Ho      poiēsas     auta         anthrōpos
+|  ‹τοῦ›   νόμου , [ὅτι] Ὁ       ποιήσας     [αὐτὰ]       ἄνθρωπος  ,
+|   the     law     that  The     having done these things man
+|   Art-GMS N-GMS   Conj  Art-NMS V-APA-NMS   PPro-AN3P    N-NMS
+|  
+|   2198      1722 846
+|   zēsetai   en   autē
+|   ζήσεται   ἐν   αὐτῇ  .
+|   will live by   them
+|   V-FIM-3S  Prep PPro-DF3S
+
+Paul links actively believing (trusting) in Jesus Himself to trusting in His blood:
+
+  Romans 10:6-13 - But the righteousness based on faith says, Do not say in your heart, Who will ascend into
+  heaven? (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from
+  the dead). But what does it say? The word is near you, in your mouth and in your heart (that is, the word of
+  faith that we proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart
+  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
+  the mouth one confesses and is saved. For the Scripture says, Everyone who believes (G4100 pisteuōn, believing)
+  in him will not be put to shame. For there is no distinction between Jew and Greek; the same Lord is Lord of
+  all, bestowing his riches on all who call on him. For everyone who calls on the name of the Lord will be saved.
+  (ESV)
+
+• We are justified freely by His grace through the redemption that is in Christ Jesus (Romans 3:24).
+• God set Christ Jesus forth as propitiation through faith in His blood
+• Trusting in Jesus's blood has no conflict with trusting in Jesus' finished works
+• We should have faith in Jesus' blood (His finished works) to receive propitiation. The Jesus we believe
+in, trust in, is the one who died for our sins and rose again from the dead for our justification
+• This doesn't prevent God from justifying anyone who trusts in the Lord Jesus Christ as He is just
+and the justifier of the one who has faith in Jesus
+
+The redemption is received through faith in Jesus' blood (in His atoning passing and death on a tree):
+
+  Romans 3:20-28 - For by works of the law no human being will be justified in his sight, since through the law
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
+  Law and the Prophets bear witness to it — the righteousness of God through faith in Jesus Christ for all who
+  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
+  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
+  by his blood, to be received by faith [through (G2435 dia) faith (G4102 pisteōs) in His (G846 autou) blood (G129
+  haimati)]. This was to show God's righteousness, because in his divine forbearance he had passed over former
+  sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the
+  one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of law? By a law of
+  works? No, but by the law of faith. For we hold that one is justified by faith apart from works of the law.
+  (ESV)
+
+  Romans 3:25 - whom set forth as - God a propitiation through (G2435 dia) faith (G4102 pisteōs) in His (G846
+  autou) blood (G129 haimati) for a showing forth of the righteousness of Him because of the forbearance (G3929
+  parasin, overlooking, passing over) of the having taken place beforehand sins in the forbearance (G463 anoché,
+  patience, tolerance) - of God (Interlinear)
+
+|  3739       4388         3588    2316  2435           1223
+|  hon        proetheto    ho      Theos hilastērion    dia
+|  ὃν         προέθετο     ὁ       Θεὸς  ἱλαστήριον  ,  διὰ
+|  whom       set forth as  -      God   a propitiation through
+|  RelPro-AMS V-AIM-3S     Art-NMS N-NMS N-ANS          Prep
+| 
+|  3588    4102    1722 3588    846       129       1519
+|  tēs     pisteōs en   tō      autou     haimati   eis
+|  [τῆς]   πίστεως ἐν   τῷ      αὐτοῦ     αἵματι  , εἰς
+|    -      faith   in    -      His       blood     for
+|   Art-GFS N-GFS   Prep Art-DNS PPro-GM3S N-DNS     Prep
+|  
+|   1732            3588    1343          846       1223
+|   endeixin        tēs     dikaiosynēs   autou     dia
+|   ἔνδειξιν        τῆς     δικαιοσύνης   αὐτοῦ  ,  διὰ
+|   a showing forth of the  righteousness of Him    because of
+|   N-AFS           Art-GFS N-GFS         PPro-GM3S Prep
+|  
+|   3588    3929        3588    4266
+|   tēn     paresin     tōn     progegonotōn
+|   τὴν     πάρεσιν     τῶν     προγεγονότων
+|   the     forbearance of the  having taken place beforehand
+|   Art-AFS N-AFS       Art-GNP V-RPA-GNP
+|  
+|   265            1722 3588    463         3588    2316
+|   hamartēmatōn   en   tē      anochē      tou     Theou
+|   ἁμαρτημάτων  — ἐν   τῇ      ἀνοχῇ       τοῦ     Θεοῦ  ;
+|   sins           in   the     forbearance  -      of God
+|   N-GNP          Prep Art-DFS N-DFS       Art-GMS N-GMS
+
+3.16.8. Encouragement from the Bible
+
+  Psalms 16:8 - I have set the LORD always before me; because he is at my right hand, I shall not be shaken. (ESV)
+
+  John 14:27 - Peace I leave with you; my peace I give to you. Not as the world gives do I give to you. Let not
+  your hearts be troubled, neither let them be afraid. (ESV)
+
+  Psalms 34:17-19 - When the righteous cry for help, the LORD hears and delivers them out of all their troubles.
+  The LORD is near to the brokenhearted and saves the crushed in spirit. Many are the afflictions of the
+  righteous, but the LORD delivers him out of them all. (ESV)
 
 3.17. Treasuring anything else more than God is sin
 
@@ -23790,7 +23922,72 @@ It was inevitable. The Scripture had to be fulfilled:
   Acts 1:16 - Brothers, the Scripture had to be fulfilled, which the Holy Spirit spoke beforehand by the mouth of
   David concerning Judas, who became a guide to those who arrested Jesus. (ESV)
 
-11.9.3. Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the
+11.9.3. Saying obeying God's commandments are exclusively works is false
+
+For example, to obey a commandment to not work is not works.
+
+  Deuteronomy 16:8 - For six days you shall eat unleavened bread, and on the seventh day there shall be a solemn
+  assembly to the LORD your God. You shall do no work on it. (ESV)
+
+To obey a commandment to trust in Jesus is not works.
+
+  John 14:1 - Let not your hearts be troubled. Believe in God; believe also in me. (ESV)
+
+  Hebrews 5:9 - And being made perfect, he became the source of eternal salvation to all who obey him, (ESV)
+
+Also, to obey a commandment to not covet idols is not works.
+
+  I Corinthians 10:9-11 - We must not put Christ to the test, as some of them did and were destroyed by serpents,
+  nor grumble, as some of them did and were destroyed by the Destroyer. Now these things happened to them as an
+  example, but they were written down for our instruction, on whom the end of the ages has come. (ESV)
+
+  II Corinthians 6:16-18 - What agreement has the temple of God with idols? For we are the temple of the living
+  God; as God said, I will make my dwelling among them and walk among them, and I will be their God, and they
+  shall be my people. Therefore go out from their midst, and be separate from them, says the Lord, and touch no
+  unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and daughters to
+  me, says the Lord Almighty. (ESV)
+
+God said that if you stop idolising then the Almighty will become precious to you. You will treasure God, agape
+love God.
+
+  Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
+  Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift
+  up your face to God. (ESV)
+
+Those who do not agape love God do not agape love God and God doesn't know them. Agape love is a treasuring love
+which treasures Jesus and His teachings, God's words and treasures their family in Christ.
+
+  Matthew 7:23-24 - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.
+  Everyone then who hears these words of mine and does them will be like a wise man who built his house on the
+  rock. (ESV)
+
+  I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
+  I John 4:20 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
+  brother whom he has seen cannot love God whom he has not seen. (ESV)
+
+  I John 5:1-5 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are
+  not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has
+  overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the
+  Son of God? (ESV)
+
+  I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. (ESV)
+
+The problem is being required to keep the whole law to be justified by it. There is no problem with obedience
+itself. We want faith working through love. Working faith is what we want:
+
+  Galatians 5:1-7 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I
+  testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed
+  from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by
+  faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor
+  uncircumcision counts for anything, but only faith working through love. You were running well. Who hindered you
+  from obeying the truth? (ESV)
+
+11.9.4. Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the
 Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
   Job 22:24-26 - if you lay gold in the dust, and gold of Ophir among the stones of the torrent bed, then the
@@ -23952,7 +24149,7 @@ contrary to faith in Jesus:
   Galatians 2:21 - I do not nullify the grace of God, for if justification were through the law, then Christ died
   for no purpose. (ESV)
 
-11.9.4. Didache
+11.9.5. Didache
 
 The Didache's estimated range of dating is 50-120 A.D, according to earlychristianwritings.com.
 
@@ -23967,7 +24164,7 @@ That being said, I think God does justify through faith, and I believe faith wor
 called faith if the work is done in faith. I also think God likely saves through works because it may be their way
 of demonstrating faith to Jesus.
 
-11.9.5. Our point of reference
+11.9.6. Our point of reference
 
 We are sanctified by the Spirit and faith in the truth (taking God's words as True and using them to combat lies):
 
@@ -24093,7 +24290,7 @@ Adhering strictly to the Mosaic law is not needed to be justified by God if we b
   make the promise void. For if the inheritance comes by the law, it no longer comes by promise; but God gave it
   to Abraham by a promise.
 
-11.9.6. Purity of heart
+11.9.7. Purity of heart
 
 The Mosaic law is not really in the same category as the 10 commandments, I believe. The 10 commandments if obeyed
 in truth from the heart would result in a clean heart, I think. So it serves to describe what a pure heart looks
@@ -24110,7 +24307,7 @@ Even belief must be in the heart:
   Romans 10:10- For with the heart one believes and is justified, and with the mouth one confesses and is saved.
   (ESV)
 
-11.9.7. We should align our hearts and minds to God's precepts, not submit to worldly precepts which are fictions
+11.9.8. We should align our hearts and minds to God's precepts, not submit to worldly precepts which are fictions
 
 Sermon
 + youtube.com: Unstained from the World: The Battle for Purity - Tim Conway @time: 30 min 28 sec
@@ -24129,7 +24326,7 @@ Sermon
   James 1:27 - Religion that is pure and undefiled before God, the Father, is this: to visit orphans and widows in
   their affliction, and to keep oneself unstained from the world. (ESV)
 
-11.9.8. We must cleanse ourself of defilement if we want God to use us more, and if we want to see with faith and
+11.9.9. We must cleanse ourself of defilement if we want God to use us more, and if we want to see with faith and
 hear God more clearly
 
   II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
@@ -24184,7 +24381,7 @@ hope:
   purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
   lawlessness. (ESV)
 
-11.9.9. Impurity lies the heart
+11.9.10. Impurity lies the heart
 
   Luke 11:41 - But give as alms those things that are within, and behold, everything is clean for you. (ESV)
 
@@ -24211,7 +24408,7 @@ thinking too:
   you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not
   about what is in the heart.
 
-11.9.10. Purifying the heart and the soul
+11.9.11. Purifying the heart and the soul
 
 Having faith in Jesus and obeying God, we are given the Holy Spirit. As we hold faith in Jesus, the Holy Spirit
 cleanses our hearts by faith. As we obey Jesus, going against the resistance, our souls are being cleansed.
@@ -24323,7 +24520,7 @@ Do what Jesus says and receive eternal life - obey Jesus:
   from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. For
   the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
 
-11.9.11. Being a slave to righteousness is possible without adhering to the Mosaic law, by being led by Jesus'
+11.9.12. Being a slave to righteousness is possible without adhering to the Mosaic law, by being led by Jesus'
 Spirit
 
   1 Corinthians 1:30-31 - He is the source of your life in Christ Jesus, whom God made our wisdom and our
@@ -24400,7 +24597,7 @@ We must live in the spirit the way God does, not for human passions, but for the
   heirs—heirs of God and fellow heirs with Christ, provided we suffer with him in order that we may also be
   glorified with him. (ESV)
 
-11.9.12. We must have attention to Jesus Christ our Lord
+11.9.13. We must have attention to Jesus Christ our Lord
 
 We are saved from our sins, and from our evil practices.
 
@@ -24421,7 +24618,7 @@ youtube.com: Holiness Demanded - Charles Spurgeon Sermon
 Sermon
 youtube.com: Eternal Security - Charles Spurgeon Sermon
 
-11.9.13. Make the tree good and the fruit good
+11.9.14. Make the tree good and the fruit good
 
 We must simultaneously make the tree good (abide in Jesus) and make the fruit good (be sanctified and glorify God
 and Jesus in our hearts, minds, bodies and actions).
@@ -24444,7 +24641,7 @@ I still think the 10 commandments are special, and following them in truth is re
   requirements: that you abstain from what has been sacrificed to idols, and from blood, and from what has been
   strangled, and from sexual immorality. If you keep yourselves from these, you will do well. Farewell.
 
-11.9.14. Judgement
+11.9.15. Judgement
 
 I certainly affirm that Jesus will return to save those waiting for Him, and I currently am waiting for His
 return:
@@ -63604,11 +63801,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-03-09 Sun 00:00
+Date: 2025-03-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-09 Sun 16:03
+Created: 2025-03-10 Mon 09:43
 
 Validate
 
