@@ -8035,9 +8035,11 @@ Paul links actively believing (trusting) in Jesus Himself to trusting in His blo
 
 • We are justified freely by His grace through the redemption that is in Christ Jesus (Romans 3:24).
 • God set Christ Jesus forth as propitiation through faith in His blood
-• Trusting in Jesus's blood has no conflict with trusting in Jesus' finished works
-• We should have faith in Jesus' blood (His finished works) to receive propitiation. The Jesus we believe
-in, trust in, is the one who died for our sins and rose again from the dead for our justification
+• Trusting in Jesus Himself has no conflict with trusting in Jesus' blood (His finished works of His
+passion, death and resurrection)
+• We should have faith in Jesus' blood (His finished works of His passion, death and resurrection) to
+receive propitiation. The Jesus we believe in, trust in, is the one who died for our sins and rose again
+from the dead for our justification
 • This doesn't prevent God from justifying anyone who trusts in the Lord Jesus Christ as He is just
 and the justifier of the one who has faith in Jesus
 
@@ -8263,6 +8265,48 @@ Satan's plan extinguished:
 
 3.17.3. The arrival of the kingdom of God
 
+I believe the more precise translation is that these things happen rapidly. Now while they may soon take place -
+I'm not saying they are not happening already - the more accurate reading of this passage, I believe, is that the
+events take place rapidly:
+
+Revelation 1:1
+[The] revelation of Jesus Christ which gave Him- God to show to the bond-servants of Him what things it behooves
+to take place in quickness (G5034 quickness) And He signified [it] having sent through the angel of Him to the
+servant of Him John (Interlinear)
+
+|  602              2424     5547       3739       1325     846
+|  Apokalypsis      Iēsou    Christou   hēn        edōken   autō
+|  Ἀποκάλυψις       Ἰησοῦ    Χριστοῦ  , ἣν         ἔδωκεν   αὐτῷ
+|  [The] revelation of Jesus Christ     which      gave     Him
+|  N-NFS            N-GMS    N-GMS      RelPro-AFS V-AIA-3S PPro-DM3S
+| 
+|  3588    2316    1166    3588    1401          846       3739
+|  ho      Theos   deixai  tois    doulois       autou     ha
+|  ὁ       Θεός  , δεῖξαι  τοῖς    δούλοις       αὐτοῦ     ἃ
+|    -      God     to show to the  bond-servants of Him    what things
+|   Art-NMS N-NMS   V-ANA   Art-DMP N-DMP         PPro-GM3S RelPro-ANP
+|  
+|   1163        1096          1722 5034      2532 4591
+|   dei         genesthai     en   tachei    kai  esēmanen
+|   δεῖ         γενέσθαι      ἐν   τάχει  .  καὶ  ἐσήμανεν  ,
+|   it behooves to take place in   quickness And  He signified [it]
+|   V-PIA-3S    V-ANM         Prep N-DNS     Conj V-AIA-3S
+|  
+|   649         1223    3588    32      846       3588     1401
+|   aposteilas  dia     tou     angelou autou     tō       doulō
+|   ἀποστείλας  διὰ     τοῦ     ἀγγέλου αὐτοῦ  ,  τῷ       δούλῳ
+|   having sent through the     angel   of Him    to the   servant
+|   V-APA-NMS   Prep    Art-GMS N-GMS   PPro-GM3S Art-DMS  N-DMS
+|  
+|   846       2491
+|   autou     Iōannē
+|   αὐτοῦ  ,  Ἰωάννῃ  ,
+|   of Him    John
+|   PPro-GM3S N-DMS
+
+Watch
+youtube.com: THE ONLY TRUE MAP OF THE FUTURE–GOD GAVE IT {@DTBM}
+
 I've felt many of these signs since getting born-again. Notice the conflict in the Middle-East and my troubles
 I've faced:
 
@@ -8340,6 +8384,11 @@ Endurance is important:
   truth listens to my voice. (ESV)
 
 3.17.4. How we should act how we're instructed to act while awaiting the Lord's return
+
+Be self-controlled and sober-minded and keep loving one another earnestly:
+
+  I Peter 4:7-8 - The end of all things is at hand; therefore be self-controlled and sober-minded for the sake of
+  your prayers. Above all, keep loving one another earnestly, since love covers a multitude of sins. (ESV)
 
 Sermon
 youtube.com: Live with the End in View
@@ -8524,6 +8573,15 @@ thousand years as one day:
   deluged with water and perished. But by the same word the heavens and earth that now exist are stored up for
   fire, being kept until the day of judgment and destruction of the ungodly. But do not overlook this one fact,
   beloved, that with the Lord one day is as a thousand years, and a thousand years as one day. (ESV)
+
+I believe the more precise translation is that these things happen rapidly. Now while they may soon take place -
+I'm not saying they are not happening already - the more accurate reading of this passage, I believe, is that the
+events take place rapidly:
+
+Revelation 1:1
+[The] revelation of Jesus Christ which gave Him- God to show to the bond-servants of Him what things it behooves
+to take place in quickness (G5034 quickness) And He signified [it] having sent through the angel of Him to the
+servant of Him John (Interlinear)
 
 Those are my current eschatological thoughts, but I am no expert.
 
@@ -15917,7 +15975,8 @@ We must worship and serve God through Christ:
   you will receive the inheritance as your reward. You are serving the Lord Christ. For the wrongdoer will be paid
   back for the wrong he has done, and there is no partiality. (ESV)
 
-We must serve God by serving Christ who is the fulfillment of the law of God to have the light of life:
+We must serve God by serving Christ who is the fulfillment of the law and prophets of God to have the light of
+life:
 
   II Timothy 1:3 - I thank God whom I serve, as did my ancestors, with a clear conscience, as I remember you
   constantly in my prayers night and day. (ESV)
@@ -15925,8 +15984,20 @@ We must serve God by serving Christ who is the fulfillment of the law of God to 
   Romans 14:17-18 - For the kingdom of God is not a matter of eating and drinking but of righteousness and peace
   and joy in the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. (ESV)
 
+Having our old self crucified with Jesus, the body of sin might be brought to nothing so we would no longer be
+enslaved to sin:
+
   Romans 6:6 - We know that our old self was crucified with him in order that the body of sin might be brought to
   nothing, so that we would no longer be enslaved to sin. (ESV)
+
+Jesus having fulfilled the law, we are called to meet the requirement of the law ourselves:
+
+  Galatians 5:14-16 - For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if
+  you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the
+  Spirit, and you will not gratify the desires of the flesh. (ESV)
+
+I take it to mean what Paul calls the "body of sin" and the "flesh" are the same thing. We are called to serve God
+through Christ:
 
   Romans 7:25-8:1 - Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my
   mind, but with my flesh I serve the law of sin. There is therefore now no condemnation for those who are in
@@ -63805,7 +63876,7 @@ Date: 2025-03-10 Mon 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-10 Mon 09:43
+Created: 2025-03-10 Mon 10:12
 
 Validate
 
