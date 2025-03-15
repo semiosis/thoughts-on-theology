@@ -30944,8 +30944,26 @@ Faith in God is ultimately all you need, like Jesus.
 
 18.10.3. Christians can be afflicted by demons
 
+Ever since I began trying to be corrected by obedience to the Truth (for a sincere love of the brethren, trying to
+remain faithful and obedient to Jesus, etc.) after I was born-again of the Spirit, I have come under some very
+extreme satanic oppression.
+
+I mean, I get spiritual attacked in various ways. Directly against my body, mind, soul or through other people.
+
+This morning <2025-03-15 Sat> once again I woke up to a variety of things attacking me:
+
+• I had just been dreaming some demonic dreams, along with feeling like I'm being groped and sexually touched,
+etc. - absolutely disgusting stuff.
+• and then lying in bed, on the verge of trying to get back to sleep I'd be hit with intrusive
+"visions/pictures".
+
+But as I lay there, I began focusing on the lyrics to a couple of songs. I made a concerted effort to focus on
+singing in my thoughts the lyrics to "", for example, and not effortlessly either. I could sing it without
+thinking about it, but I was trying to keep it in my mind and really meditate on the lyrics as I was singing it.
+And the demonic harassment subsided mostly.
+
 This is a demon of harassment. I've also seemed to be afflicted with a demon of harassment (harassing dreams) and
-potentially others quite often during the last 2 years as I've become vocal about my testimony of Jesus and trying
+potentially others quite often during the last 3 years as I've become vocal about my testimony of Jesus and trying
 to follow Jesus. But I'll be getting some deliverance tonight. I command all unclean spirits to come out of me,
 stay away from me, to leave me and never return or enter me again in Jesus Christ's name:
 
@@ -64525,7 +64543,7 @@ Date: 2025-03-15 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-15 Sat 12:44
+Created: 2025-03-15 Sat 13:03
 
 Validate
 
