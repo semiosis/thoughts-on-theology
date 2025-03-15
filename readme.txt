@@ -4325,7 +4325,7 @@ Was it the same age which Paul was in that we are in, or is it a different one? 
 that, I think the main takeaway from this passage is that we should forsake idols, and abide in Christ's
 teachings, remaining faithful to Jesus in word and deed. I know I have felt tested on giving up idols and it has
 felt like the end of an age, and we're to remain faithful to Jesus so not join ourselves to people following
-false-gods. I think Paul surely refers to the end of all ages:
+false-gods. I think Paul surely refers to the end of all ages, at least from his perspective:
 
   Matthew 28:19-20 - Go therefore and make disciples of all nations, baptizing them in the name of the Father and
   of the Son and of the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with
@@ -4366,6 +4366,28 @@ false-gods. I think Paul surely refers to the end of all ages:
   whether you eat or drink, or whatever you do, do all to the glory of God. Give no offense to Jews or to Greeks
   or to the church of God, just as I try to please everyone in everything I do, not seeking my own advantage, but
   that of many, that they may be saved. (ESV)
+
+youtube.com: How Much of Christianity Remains a Secret? {@desiringGod}
+Paul says in the coming ages - that's a lot of Ages, right like they're all coming and they last forever - in the
+coming ages God will show the immeasurable riches of his grace in kindness to us in Christ Jesus. In other words
+since the riches of God's grace are infinite since he's God Paul calls them immeasurable. You can't measure them.
+You never can get to the end of measuring them, and since we are finite and cannot contain all the infinite riches
+of God's grace it appears that this is why we will have ages upon ages upon ages of being shown them - eternal
+life.
+
+So we build our life on the Eternal Rock (the Rock of Ages) Jehovah and we have eternal life throughout the ages:
+
+  Isaiah 26:4 - Trust ye in Jehovah for ever, For in Jah Jehovah is a rock of ages, (YLT)
+
+  Isaiah 26:4 - Trust in the LORD forever, because GOD the LORD is the Rock eternal. (engbsb2020eb)
+
+God knows how many ages there are:
+
+  Matthew 24:36 - `And concerning that day and the hour no one hath known–not even the messengers of the
+  heavens–except my Father only; (YLT)
+
+  John 3:8 - The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or
+  where it goes. So it is with everyone who is born of the Spirit. (ESV)
 
 |  Our Father in Heaven,
 | 
@@ -4857,83 +4879,7 @@ II Corinthians 5:17 (Interlinear)
   behalf of Christ, be reconciled to God. For our sake he made him to be sin who knew no sin, so that in him we
   might become the righteousness of God. (ESV)
 
-3.1.2. Forgiveness through love, through obedience to Jesus
-
-|  Clement of Rome (Latin: Clemens Romanus;
-|  Ancient Greek: Κλήμης Ῥώμης, romanized: Klēmēs
-|  Rōmēs; died c. 100 AD), also known as Pope
-|  Clement I, was the Bishop of Rome in the late
-|  first century AD.
-| 
-|  He is considered to be the first of the
-|  Apostolic Fathers of the Church, and a leading
-|  member of the Church in Rome in the late 1st
-|   century.
-|  
-|   Little is known about Clement's life.
-|  
-|   Tertullian claimed that Clement was ordained
-|   by Saint Peter.
-|  
-|   Early church lists place him as the second or
-|   third bishop of Rome.
-|  
-|   Eusebius, in his book Church History mentioned
-|   Clement as the third bishop of Rome and as the
-|   "co-laborer" of Paul.
-|  
-|   In Against Heresies, Irenaeus described
-|   Clement as the successor to Anacletus, who was
-|   the third bishop of Rome, and as a personal
-|   acquaintance of the Apostles.
-
-  Philippians 4:3 - Yes, I ask you also, true companion, help these women, who have labored side by side with me
-  in the gospel together with Clement and the rest of my fellow workers, whose names are in the book of life.
-  (ESV)
-
-1Clem 50:4
-Blessed were we, dearly beloved, if we should be doing the commandments of God in concord of love, to the end that
-our sins may through love be forgiven us.
-
-1Clem 50:1
-Ye see, dearly beloved, how great and marvelous a thing is love, and there is no declaring its perfection.
-
-1Clem 50:2
-Who is sufficient to be found therein, save those to whom God shall vouchsafe it? Let us therefore entreat and ask
-of His mercy, that we may be found blameless in love, standing apart from the factiousness of men. All the
-generations from Adam unto this day have passed away: but they that by God's grace were perfected in love dwell in
-the abode of the pious; and they shall be made manifest in the visitation of the Kingdom of God.
-
-1Clem 50:3
-For it is written; Enter into the closet for a very little while until Mine anger and Mine wrath shall pass away,
-and I will remember a good day and will raise you from your tombs.
-
-1Clem 50:4
-Blessed were we, dearly beloved, if we should be doing the commandments of God in concord of love, to the end that
-our sins may through love be forgiven us.
-
-1Clem 50:5
-For it is written; Blessed are they whose iniquities are forgiven, and whose sins are covered. Blessed is the man
-to whom the Lord shall impute no sin, neither is guile in his mouth.
-
-In Jesus Christ we have redemption, the forgiveness of sins, and are transferred into the Kingdom of Jesus Christ:
-
-  Colossians 1:13-14 - He has delivered us from the domain of darkness and transferred us to the kingdom of his
-  beloved Son, in whom we have redemption, the forgiveness of sins. (ESV)
-
-As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
-obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
-
-  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
-  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
-  Jesus his Son cleanses us from all sin. (ESV)
-
-We are sanctified in the Spirit for obedience to Jesus Christ, and for sprinkling with His blood:
-
-  I Peter 1:2 - according to the foreknowledge of God the Father, in the sanctification of the Spirit, for
-  obedience to Jesus Christ and for sprinkling with his blood: May grace and peace be multiplied to you. (ESV)
-
-3.1.3. Repentance after being born of the Spirit
+3.1.2. Repentance after being born of the Spirit
 
 As I have repented to be corrected by the Word of God, agreeing with it and endeavoring to obey the Gospel of
 Jesus Christ, it feels as though I have been rejecting lots and lots of heresies, and rejecting lots and lots of
@@ -5406,7 +5352,7 @@ was made to Abraham and to Christ. Now we must be found in Christ. Amen:
   to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one,
   And to your offspring, who is Christ. (ESV)
 
-3.1.4. Becoming born-again of the Spirit may be receiving the inheritance
+3.1.3. Becoming born-again of the Spirit may be receiving the inheritance
 
 Then there may be some nuance between receiving the Holy Spirit who is the guarantee of our inheritance, and being
 born of the Spirit which may be [part of] our inheritance.
@@ -5429,7 +5375,7 @@ In trusting in Jesus Christ, we may receive the Holy Spirit:
   John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. (ESV)
 
-3.1.5. The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in
+3.1.4. The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in
 Jesus
 
   John 4:10 - Jesus answered her, If you knew the gift of God, and who it is that is saying to you, Give me a
@@ -5438,7 +5384,7 @@ Jesus
   John 4:14 - but whoever drinks of the water that I will give him will never be thirsty forever. The water that I
   will give him will become in him a spring of water welling up to eternal life. (ESV)
 
-3.1.6. Jesus being glorified means we can receive the Holy Spirit through faith
+3.1.5. Jesus being glorified means we can receive the Holy Spirit through faith
 
   John 13:31-32 - Therefore, when he was gone out, Jesus said, Now is the Son of man glorified, and God is
   glorified in him. If God be glorified in him, God shall also glorify him in himself, and shall straightway
@@ -5449,7 +5395,7 @@ Jesus
   Acts 2:4 - And they were all filled with the Holy Spirit and began to speak in other tongues as the Spirit gave
   them utterance. (ESV)
 
-3.1.7. When we are born of the Spirit, we receive a regenerated spirit-man. This is part of the inheritance, I think
+3.1.6. When we are born of the Spirit, we receive a regenerated spirit-man. This is part of the inheritance, I think
 
 Being born of the Spirit / spiritually regenerated I think is a different event to receiving the Holy Spirit which
 typically happens beforehand, particularly for Gentile Christians when we give our heart to the Lord Jesus:
@@ -5473,7 +5419,7 @@ typically happens beforehand, particularly for Gentile Christians when we give o
   believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we
   acquire possession of it, to the praise of his glory. (ESV)
 
-3.1.8. Any spiritual experience should be in the character of the Holy Spirit
+3.1.7. Any spiritual experience should be in the character of the Holy Spirit
 
 youtube.com: How to Preach with Supernatural Power @time: 8 min 16 sec
 He does not mean that something spiritual is religious or mystical or other-worldly. That's what most people think
@@ -5494,7 +5440,7 @@ youtube.com: C. S. Lewis 2024 - Characteristics of the Holy Spirit's personality
   Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact
   the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
 
-3.1.9. My testimony of being born-again of the Spirit
+3.1.8. My testimony of being born-again of the Spirit
 
 Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's
 not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used
@@ -5924,9 +5870,37 @@ false-prophet:
 
 3.4.3. Jesus created disciples of Himself
 
-We must turn to obedience to Jesus and loving with Christ's love to come to know Him. We ought to love as Christ
-loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did and
-we practice personal righteousness while having His imputed righteousness, as he is our Master.
+Jesus gave us understanding so that we may know God:
+
+  I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know him
+  who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
+
+We must turn to obedience to Jesus and abiding in Christ's love to come to know God, and abiding in Christ's love
+doesn't only mean abiding in the love He had for us, but it means keeping Jesus' commandments, and Jesus' commands
+us to love one-another as He did.
+
+We practice agape love to people, especially to God and our family in Christ to know God and be known by God:
+
+  I John 4:8 - Anyone who does not love does not know God, because God is love. (ESV)
+
+  I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
+And we must forgive one another in Christ:
+
+  Colossians 3:12-13 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+  meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving each
+  other; as the Lord has forgiven you, so you also must forgive. (ESV)
+
+We ought to*/*must love as Christ loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and
+then we ought to love as He did and we practice personal righteousness while having His imputed righteousness, as
+he is our Master.
+
+  II John 1:6-9 - And this is love, that we walk according to his commandments; this is the commandment, just as
+  you have heard from the beginning, so that you should walk in it. For many deceivers have gone out into the
+  world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the
+  antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward.
+  Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in
+  the teaching has both the Father and the Son. (ESV)
 
 We are forgiven to do the will of God. We are saved to obey God better. God puts us into Christ. We obey to wash
 others, and for ourselves to be sanctified, like a branch becoming healthier in the tree:
@@ -5958,12 +5932,84 @@ We serve God by serving Christ:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.4.4. Everyone who is actively and actually believing that Jesus is the Christ has been born of God
+3.4.4. Forgiveness through love, through obedience to Jesus
+
+|  Clement of Rome (Latin: Clemens Romanus;
+|  Ancient Greek: Κλήμης Ῥώμης, romanized: Klēmēs
+|  Rōmēs; died c. 100 AD), also known as Pope
+|  Clement I, was the Bishop of Rome in the late
+|  first century AD.
+| 
+|  He is considered to be the first of the
+|  Apostolic Fathers of the Church, and a leading
+|  member of the Church in Rome in the late 1st
+|   century.
+|  
+|   Little is known about Clement's life.
+|  
+|   Tertullian claimed that Clement was ordained
+|   by Saint Peter.
+|  
+|   Early church lists place him as the second or
+|   third bishop of Rome.
+|  
+|   Eusebius, in his book Church History mentioned
+|   Clement as the third bishop of Rome and as the
+|   "co-laborer" of Paul.
+|  
+|   In Against Heresies, Irenaeus described
+|   Clement as the successor to Anacletus, who was
+|   the third bishop of Rome, and as a personal
+|   acquaintance of the Apostles.
+
+  Philippians 4:3 - Yes, I ask you also, true companion, help these women, who have labored side by side with me
+  in the gospel together with Clement and the rest of my fellow workers, whose names are in the book of life.
+  (ESV)
+
+1Clem 50:1
+Ye see, dearly beloved, how great and marvelous a thing is love, and there is no declaring its perfection.
+
+1Clem 50:2
+Who is sufficient to be found therein, save those to whom God shall vouchsafe it? Let us therefore entreat and ask
+of His mercy, that we may be found blameless in love, standing apart from the factiousness of men. All the
+generations from Adam unto this day have passed away: but they that by God's grace were perfected in love dwell in
+the abode of the pious; and they shall be made manifest in the visitation of the Kingdom of God.
+
+1Clem 50:3
+For it is written; Enter into the closet for a very little while until Mine anger and Mine wrath shall pass away,
+and I will remember a good day and will raise you from your tombs.
+
+1Clem 50:4
+Blessed were we, dearly beloved, if we should be doing the commandments of God in concord of love, to the end that
+our sins may through love be forgiven us.
+
+1Clem 50:5
+For it is written; Blessed are they whose iniquities are forgiven, and whose sins are covered. Blessed is the man
+to whom the Lord shall impute no sin, neither is guile in his mouth.
+
+In Jesus Christ we have redemption, the forgiveness of sins, and are transferred into the Kingdom of Jesus Christ:
+
+  Colossians 1:13-14 - He has delivered us from the domain of darkness and transferred us to the kingdom of his
+  beloved Son, in whom we have redemption, the forgiveness of sins. (ESV)
+
+As we walk in the light, as He is in the light, that is in the Truth, walking in, believing, professing and
+obeying Jesus Christ in Truth, the blood of Jesus Christ cleanses us from all sin:
+
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
+
+We are sanctified in the Spirit for obedience to Jesus Christ, and for sprinkling with His blood:
+
+  I Peter 1:2 - according to the foreknowledge of God the Father, in the sanctification of the Spirit, for
+  obedience to Jesus Christ and for sprinkling with his blood: May grace and peace be multiplied to you. (ESV)
+
+3.4.5. Everyone who is actively and actually believing that Jesus is the Christ has been born of God
 
   I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. (ESV)
 
-3.4.5. Whoever loves with Christ's love has been born of God and knows God
+3.4.6. Whoever loves with Christ's love has been born of God and knows God
 
 Christ's love, agape love, is a treasuring love that doesn't want other people to die - it treasures them. Jesus
 agape loved and treasured Father God:
@@ -16187,6 +16233,15 @@ talking about being a "slave to righteousness" or a "slave to God".
   I Corinthians 7:22 - For he who was called in the Lord as a slave is a freedman of the Lord. Likewise he who was
   free when called is a slave of Christ. (ESV)
 
+The Bible condemns the slave trade:
+
+  I Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
+  is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy
+  and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who
+  practice homosexuality, enslavers (G405 andrapodistés, man-stealers, kidnappers, slave-traders, enslavers),
+  liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the
+  blessed God with which I have been entrusted. (ESV)
+
 God gives us the new heart when we seek to have that new heart.
 
 To be saved we need to have an obedient heart to God.
@@ -23679,7 +23734,16 @@ imagination is not pure, I will bo robbed and go to the dark side. Satan will ta
 imagination. How do we do it? Only God can. I need to be clinging to the word of the Lord. Listen to songs,. make
 them songs that are about the Lord, praising God. Something that is pure.
 
-7.7.32. Abortion
+7.7.32. Slavery
+
+  I Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
+  is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy
+  and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who
+  practice homosexuality, enslavers (G405 andrapodistés, man-stealers, kidnappers, slave-traders, enslavers),
+  liars, perjurers, and whatever else is contrary to sound doctrine, in accordance with the glorious gospel of the
+  blessed God with which I have been entrusted. (ESV)
+
+7.7.33. Abortion
 
 Abortion specifically has been condemned as a grave sin since the beginnings of the Church.
 
@@ -23701,7 +23765,7 @@ entire crowd erupted into loud cheers. But then a lone student in the crowd who 
 called out "Jesus is Lord". Now, instinctively and without pause Kamala mocked him telling him he was at the
 "wrong rally".
 
-7.7.33. More sins condemned by the early Church
+7.7.34. More sins condemned by the early Church
 
   Didache Chapter 3 - Other Sins Forbidden. My child, flee from every evil thing, and from every likeness of it.
   Be not prone to anger, for anger leads to murder. Be neither jealous, nor quarrelsome, nor of hot temper, for
@@ -59154,23 +59218,6 @@ believe I have a righteousness that is not in me - it's outside of me, it's Jesu
 situation I'm able to continue doing battle against sin and against the devil while Jesus is advocating for me,
 his blood is sanctifying me and Jesus is preparing me to stand before Father God.
 
-Journal: <2025-03-15 Sat>
-I'm sick and tired of being left undelivered from this defiling spiritual prison which I have been put in,
-prevented from working and marrying and continually harassed by demons, seeing sides to people I love which I wish
-I could have totally erased from my memory forever. I am begging You God to make this evil end today. I feel as
-though there are still demons which are keeping track of the amount of money I have and accusing me and slandering
-me when I'm trying to obey Jesus to the best of my ability. What I have been put through has been a living
-nightmare. The events surrounding me being born-again of the Spirit are pure abomination. There's things I have
-seen and experienced that are unspeakably dark and scar my memory. I wish that God would make me born-again again
-whilst erasing my memories and ensure the types of things I have been through would never recur in this life or
-the next. I feel like my redemption is the most compromised botched-job redemption in the history of mankind. It's
-a living and enduring hell on earth which I've been going though. But I know the Christians in Syria, for example,
-are probably suffering a lot more. But it's no consolation to me to be allowed to go on living in this world. I'd
-definitely rather not be here.
-
-  Psalms 109:21 - But you, O GOD my Lord, deal on my behalf for your name's sake; because your steadfast love is
-  good, deliver me! (ESV)
-
 69.3.2. Personal holiness righteousness - Godliness
 
 Cast off the works of darkness and put on the armor of light:
@@ -61645,9 +61692,9 @@ in my court situation but the influence of unclean spirits:
   accuser hand you over to the judge, and the judge to the guard, and you be put in prison. Truly, I say to you,
   you will never get out until you have paid the last penny. (ESV)
 
-We must turn to obedience to Jesus and loving with Christ's love to come to know Him. We ought to love as Christ
-loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He did and
-we practice personal righteousness while having His imputed righteousness, as he is our Master.
+We must turn to obedience to Jesus and loving with Christ's love to come to know Him. We ought to*/*must love as
+Christ loved us, as He is our Lord and Teacher, but Jesus WASHED (past-tense) us and then we ought to love as He
+did and we practice personal righteousness while having His imputed righteousness, as he is our Master.
 
 We are forgiven to do the will of God. We are saved to obey God better. God puts us into Christ. We obey to wash
 others, and for ourselves to be sanctified, like a branch becoming healthier in the tree:
@@ -64663,7 +64710,7 @@ Date: 2025-03-15 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-15 Sat 15:02
+Created: 2025-03-15 Sat 16:32
 
 Validate
 
