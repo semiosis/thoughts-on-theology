@@ -352,9 +352,29 @@ Reality of what I've experienced and are still going through:
   - Once again, it's *me* making the confession of faith. And that is what frustrates me. Because I cannot trust the spirits speaking to me.
 - God hasn't spoken to me directly to clear things up.
 
+I've just seen:
+
+The person who wrote this really useful emacs package
+probably has used an LLM https://github.com/kristjoc/votd to help him write it as they gave acknowledgement to GitHub Copilot.
+Given my position, which includes having questions of God which remain unanswered,
+I have super mixed feelings about this.
+
+I don't want to share this world with the ASI/AGI stuff.
+
+#+BEGIN_QUOTE
+  *Isaiah 42:8* - I am the LORD; that is my name; my glory I give to no other, nor my praise to carved idols. (ESV)
+#+END_QUOTE
+
+I just feel like I don't belong in this world.
+I don't want to live side-by-side with chatbots.
+Why has God forced me to be in this situation? To be forced to imbibe on this AI stuff?
+I hate so much how this AI stuff is being rammed into people's consciences. It's so disgusting.
+It literally just feels like the AI stuff just rammed its way into my born-again life.
+
 I want to be delivered and rescued from this world.
 
-I have some consolation in the fact that I definitely have been chosen out of this world and am not of it.
+I have some consolation in the fact that I definitely have been chosen out of this world and am not of it,
+and that I won't have to have it in my life one day.
 I feel like I definitely do not belong in this world.
 
 #+BEGIN_QUOTE
@@ -362,3 +382,24 @@ I feel like I definitely do not belong in this world.
 #+END_QUOTE
 
 Hopefully, God, will sanctify me completely and just rapture me or something.
+
+*** <2025-03-18 Tue> God help me
+When I saw Bible-verse of the day emacs package it gave me joy.
+I pulled it into Pen.el and it works nice.
+The developer on his github page gives GOD the glory and the Copilot AI an acknowledgement:
+- https://github.com/kristjoc/votd
+I have super mixed feelings about it now though given my position, my stance towards the AGI/ASI stuff.
+
+#+BEGIN_QUOTE
+  *Isaiah 42:8* - I am the LORD; that is my name; my glory I give to no other, nor my praise to carved idols. (ESV)
+#+END_QUOTE
+
+I don't know what God wants me to do here.
+I just feel like I don't belong in this world.
+I don't like being forced to imbibe on AI stuff.
+I hate AGI/ASI stuff is being rammed into the people's consciences even to the point people get reliant on it.
+It literally just feels like the AI stuff just rammed its way into my born-again life and trying to force its way into heaven.
+I feel terrible.
+I upvoted some of the reddit posts because I want to encourage people to lead people to Jesus. However, I'm not sure if I should.
+- https://www.reddit.com/r/emacs/comments/1jb4vrx/bible_verse_of_the_day_as_emacs_dashboard_footer/
+I want there to be a good future but I just don't want the AGI/ASI stuff to be in that future.
