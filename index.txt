@@ -5915,10 +5915,21 @@ actually to live in some kind of delusion:
   association with idols, eat food as really offered to an idol, and their conscience, being weak, is defiled.
   (ESV)
 
-It's true that there are such heavenly beings, but we're not supposed to worship them:
+It's true that there are such 'heavenly' beings, but we're not supposed to worship them:
 
   Psalms 82:6-8 - I said, You are gods, sons of the Most High, all of you; nevertheless, like men you shall die,
   and fall like any prince. Arise, O God, judge the earth; for you shall inherit all the nations! (ESV)
+
+The idols are demons - forces of evil in heavenly places:
+
+  I Corinthians 10:20 - No, I imply that what pagans sacrifice they offer to demons and not to God. I do not want
+  you to be participants with demons. (ESV)
+
+  Ephesians 6:12 - For we do not wrestle against flesh and blood, but against the rulers, against the authorities,
+  against the cosmic powers over this present darkness, against the spiritual forces of evil in the heavenly
+  places. (ESV)
+
+Neither should we worship angels, good or evil:
 
   Colossians 2:18 - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail
   about visions, puffed up without reason by his sensuous mind, (ESV)
@@ -65290,7 +65301,7 @@ Date: 2025-03-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-21 Fri 15:10
+Created: 2025-03-21 Fri 23:51
 
 Validate
 
