@@ -1876,6 +1876,14 @@ Instead we focus on following Jesus first and foremost:
   to pass judgment on himself for what he approves. But whoever has doubts is condemned if he eats, because the
   eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
 
+The Law is not against the teachings of Jesus Christ and His Apostles, but we are obedient to Jesus first and
+foremost:
+
+  I Corinthians 14:31-34 - For you can all prophesy one by one, so that all may learn and all be encouraged, and
+  the spirits of prophets are subject to prophets. For God is not a God of confusion but of peace. As in all the
+  churches of the saints, the women should keep silent in the churches. For they are not permitted to speak, but
+  should be in submission, as the Law also says. (ESV)
+
 And we are perfected through obedience to the Truth (Jesus) and faith in Jesus as His Spirit sanctifies us:
 
   I Peter 1:22-25 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love
@@ -4482,15 +4490,18 @@ was made to Christ. Now we must be found in Christ. Amen:
 It's a very big mystery to me that I was born-again of the Spirit on the first day of Nisan, and had a meeting
 with the Holy Spirit (apparently) at the tail end of Nisan. Well, whatever it was that happened to me happened.
 
-Interestingly, the dates also line up very closely with Ramadan, but it was actually Nisan, which was a Saturday
-(Shabbat) that I was born-again:
+Interestingly, the 2 April also line up very closely with Ramadan but not quite. Ramadan started in the evening of
+1 April 2022, but it was actually the first day of Nisan, which was a Saturday (Shabbat) that I was born-again:
 
 lmc.edu a-coincidence-that-happens-only-about-every-33-years.htm: In 2022 Passover, Ramadan, and Easter all fall
 in April, a coincidence that happens only about every 33 years
 
 |  In 2022 Passover, Ramadan, and Easter all fall
 |  in April, a coincidence that happens only
-|  about every 33 years.
+|  about every 33 years. The JW believe that Jesus died on 1 April.
+|  And I've seen other people's estimations that the date was 3 April.
+|  2 April was also daylight savings. It's a big mystery to me.
+|  A bunch of other stuff happened that year, and the year that followed. I made a marriage proposal on the after feast day of the transfiguration, for example.
 
 vercalendario.info compare-5782.html: Jewish Calendar 5782
 
@@ -4882,8 +4893,52 @@ that no one may fall by the same sort of disobedience. (ESV)
 
 3.1.1. New creation (kainē ktisis) - All things new
 
-By a sovereign act of God we are born-again of the Spirit. For me, from my perspective, it felt as though all my
-relationships were reset after 2 April 2022. As we are reconciled to God, all things become new.
+By a sovereign act of God we are born-again of the Spirit.
+
+Commenting on Sam Shamoun's video on the spirtiual circumcision, which is highly relevant
+
+I've been watching your videos recently, and they have been very helpful in sharpening my theology.
+
+Would you mind if I share my testimony of being born-again of the Spirit. I though I would because you mentioned
+the new creation moment at the time of baptism, which is the only thing in this video I do not agree is strictly
+always the case.
+
+My experience particularly after being born-again of the spirit certainly felt like being baptised into Jesus'
+death. All things have become new now. I wanted to share this part of my testimony with you because it shows that
+while a person is sealed with the Holy Spirit when they first trust in Christ, they may be born-of the Spirit
+(whatever happened to me) when God does it. And that makes sense because Jesus says:
+
+  John 3:8 - The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or
+  where it goes. So it is with everyone who is born of the Spirit. (ESV)
+
+I was baptised in 2005 (pretty confident it was, it may have been 2004) into the names Father, Son and Holy Spirit
+in Vanuatu by some nice people at a little church called Family Worship Center in Port Vila. But I began really
+seeking the Lord Jesus in 2021, and sought to repent from sin, and keep the 10 commandments from the heart because
+I lost confidence in my work and in the world and wanted to seek God authentically to give God a go. I'd seen too
+much hypocrisy with regards to people not loving one another or speaking the truth and being so disillusioned with
+all the hypocrisy, I earnestly endeavoured to seek God by trying to keep His commandments. I think God was putting
+faith in my heart and opening my eyes. Really, I was just trying to have real faith in God and be serious about
+His word and obey Him etc. This is totally in line with what Stephen says in Acts 7:51 - we have to not be
+resistant in our heart to God:
+
+  Acts 7:51 - You stiff-necked people, uncircumcised in heart and ears, you always resist the Holy Spirit. As your
+  fathers did, so do you. (ESV)
+
+  Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
+  obey him. (ESV)
+
+I was born-again of the Spirit on the first day of Nisan on 2 April 2022. During the day in the afternoon I took a
+nap on my bed and woke up to observing my regenerated spirit man. It looked like a body made of blue
+light/electricity/fire with a dark bit around the bottom right of my rib cage. I'm unsure if that relates to
+Adam's rib taken or to the spear in Jesus' side. Anyway, in this state I called out to Jesus to save me because I
+didn't know what was going on, then I returned to observing the world through my physical body. To this day, I
+feel this spirit/fire/light energising my body/soul, so it's like being born-again with a second body literally.
+
+It feels like the whole universe reproduced like a meiosis, and the Bible has really come alive etc. God put the
+fear of Him in me so I would not turn from Him.
+
+For me, from my perspective, it felt as though all my relationships were reset after 2 April 2022. As we are
+reconciled to God, all things become new.
 
 II Corinthians 5:17 (Interlinear)
 
@@ -5037,15 +5092,15 @@ Question: I have friends that are like Roman Catholic, Orthodox, like all differ
 Jesus establish one church and like what are your thoughts on that?
 
 Bryce's answer: I have Catholic friends that are going to heaven. I have Orthodox friends that are going to
-Heaven, Baptist friends that are going to heaven. I'm non-denominational I also have Catholic friends that are not
-going to heaven.I have Orthodox friends that aren't going to heaven. It's not about which way the tree blows in
-the wind, it's if it bears fruit or not. Okay? So what is the fruit? A lot of these denominations have secondary
-issues that they disagree on and that's why they're denominations, but is it a Bible believing church? Do they
-preach that Jesus Christ is Lord, that He lived a sinless life, he was born of a virgin, he died on the cross and
-resurrected on the third day? I think there's crucial things that are very crucial to the doctrine of Christianity
-that we say, man if this church is missing one of these things, that's a no-o for me. But if this church I maybe
-some secondary issues that don't matter about salvation but man do they really preach the core principles that are
-true.
+Heaven, Baptist friends that are going to heaven. I'm non-denominational. I also have Catholic friends that are
+not going to heaven.I have Orthodox friends that aren't going to heaven. It's not about which way the tree blows
+in the wind, it's if it bears fruit or not. Okay? So what is the fruit? A lot of these denominations have
+secondary issues that they disagree on and that's why they're denominations, but is it a Bible believing church?
+Do they preach that Jesus Christ is Lord, that He lived a sinless life, he was born of a virgin, he died on the
+cross and resurrected on the third day? I think there's crucial things that are very crucial to the doctrine of
+Christianity that we say, man if this church is missing one of these things, that's a no-o for me. But if this
+church I maybe some secondary issues that don't matter about salvation but man do they really preach the core
+principles that are true.
 
 So sometimes people believe different things about secondary issues, whatever. But if the core beliefs of
 Christianity (Triune God, Jesus Christ is both man, 100% man 100% God, He live a sinless life, died on the cross,
@@ -6519,7 +6574,109 @@ In order to know God we must love one another in the way that God has loved us:
   Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one
   another, God abides in us and his love is perfected in us. (ESV)
 
-3.13. Receiving the Holy Spirit
+3.13. The gospel, baptism and faith alone and receiving the Holy Spirit
+
+If Jesus we can be saved in a certain way, then we can be saved by it, but we are meant to continue in faith and
+obedience. I convinced that baptism saves.
+
+3.13.1. The gospel
+
+  I Corinthians 15:1-4 - Now I would remind you, brothers, of the gospel I preached to you, which you received, in
+  which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you
+  believed in vain. For I delivered to you as of first importance what I also received: that Christ died for our
+  sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance
+  with the Scriptures, (ESV)
+
+3.13.2. Scriptures supporting faith without / before baptism, for example
+
+  Acts 13:38-39 - Let it be known to you therefore, brothers, that through this man forgiveness of sins is
+  proclaimed to you, and by him everyone who believes is freed from everything from which you could not be freed
+  by the law of Moses. (ESV)
+
+  Acts 15:7-11 - And after there had been much debate, Peter stood up and said to them, Brothers, you know that in
+  the early days God made a choice among you, that by my mouth the Gentiles should hear the word of the gospel and
+  believe. And God, who knows the heart, bore witness to them, by giving them the Holy Spirit just as he did to
+  us, and he made no distinction between us and them, having cleansed their hearts by faith. Now, therefore, why
+  are you putting God to the test by placing a yoke on the neck of the disciples that neither our fathers nor we
+  have been able to bear? But we believe that we will be saved through the grace of the Lord Jesus, just as they
+  will. (ESV)
+
+  Acts 16:30-34 - Then he brought them out and said, Sirs, what must I do to be saved? And they said, Believe in
+  the Lord Jesus, and you will be saved, you and your household. And they spoke the word of the Lord to him and to
+  all who were in his house. And he took them the same hour of the night and washed their wounds; and he was
+  baptized at once, he and all his family. Then he brought them up into his house and set food before them. And he
+  rejoiced along with his entire household that he had believed in God. (ESV)
+
+3.13.3. Keep in mind, this is the same Peter referred to
+
+Received the Holy Spirit without water baptism by faith alone, but continued in obedience:
+
+  Acts 10:42-45 - And he commanded us to preach to the people and to testify that he is the one appointed by God
+  to be judge of the living and the dead. To him all the prophets bear witness that everyone who believes in him
+  receives forgiveness of sins through his name. While Peter was still saying these things, the Holy Spirit fell
+  on all who heard the word. And the believers from among the circumcised who had come with Peter were amazed,
+  because the gift of the Holy Spirit was poured out even on the Gentiles. (ESV)
+
+  Acts 10:46-48 - For they were hearing them speaking in tongues and extolling God. Then Peter declared, Can
+  anyone withhold water for baptizing these people, who have received the Holy Spirit just as we have? And he
+  commanded them to be baptized in the name of Jesus Christ. Then they asked him to remain for some days. (ESV)
+
+By repentance and obedience, baptised and after that receive the Holy Spirit:
+
+  Acts 2:38 - And Peter said to them, Repent and be baptized every one of you in the name of Jesus Christ for the
+  forgiveness of your sins, and you will receive the gift of the Holy Spirit. (ESV)
+
+Be baptised and wash away your sins calling on his name:
+
+  Acts 22:16-18 - And now why do you wait? Rise and be baptized and wash away your sins, calling on his name. When
+  I had returned to Jerusalem and was praying in the temple, I fell into a trance and saw him saying to me, Make
+  haste and get out of Jerusalem quickly, because they will not accept your testimony about me. (ESV)
+
+Baptism saves:
+
+  I Peter 3:21-22 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but
+  as an appeal to God for a good conscience, through the resurrection of Jesus Christ, who has gone into heaven
+  and is at the right hand of God, with angels, authorities, and powers having been subjected to him. (ESV)
+
+I believe that baptism also refers to being baptised into Jesus' death, spiritually, not merely the water baptism
+ritual.
+
+newadvent.org: CHURCH FATHERS: The First Apology {St. Justin Martyr}
+I will also relate the manner in which we dedicated ourselves to God when we had been made new through Christ;
+lest, if we omit this, we seem to be unfair in the explanation we are making. As many as are persuaded and believe
+that what we teach and say is true, and undertake to be able to live accordingly, are instructed to pray and to
+entreat God with fasting, for the remission of their sins that are past, we praying and fasting with them. Then
+they are brought by us where there is water, and are regenerated in the same manner in which we were ourselves
+regenerated. For, in the name of God, the Father and Lord of the universe, and of our Saviour Jesus Christ, and of
+the Holy Spirit, they then receive the washing with water. For Christ also said, "Unless you be born again, you
+shall not enter into the kingdom of heaven." John 3:5 Now, that it is impossible for those who have once been born
+to enter into their mothers' wombs, is manifest to all. And how those who have sinned and repent shall escape
+their sins, is declared by Esaias the prophet, as I wrote above; he thus speaks: "Wash you, make you clean; put
+away the evil of your doings from your souls; learn to do well; judge the fatherless, and plead for the widow: and
+come and let us reason together, says the Lord. And though your sins be as scarlet, I will make them white like
+wool; and though they be as crimson, I will make them white as snow. But if you refuse and rebel, the sword shall
+devour you: for the mouth of the Lord has spoken it." Isaiah 1:16-20
+
+God also instructs us to turn away from doing evil, and do good. We are commanded to continue in faith and
+obedience. If we refuse and rebel, the sword shall devour you, God says.
+
+3.13.4. Received the Holy Spirit with the laying of hands
+
+  Acts 8:5-17 - Philip went down to the city of Samaria and proclaimed to them the Christ. And the crowds with one
+  accord paid attention to what was being said by Philip when they heard him and saw the signs that he did. For
+  unclean spirits came out of many who were possessed, crying with a loud voice, and many who were paralyzed or
+  lame were healed. So there was much joy in that city. But there was a man named Simon, who had previously
+  practiced magic in the city and amazed the people of Samaria, saying that he himself was somebody great. They
+  all paid attention to him, from the least to the greatest, saying, This man is the power of God that is called
+  Great. And they paid attention to him because for a long time he had amazed them with his magic. But when they
+  believed Philip as he preached good news about the kingdom of God and the name of Jesus Christ, they were
+  baptized, both men and women. Even Simon himself believed, and after being baptized he continued with Philip.
+  And seeing signs and great miracles performed, he was amazed. Now when the apostles at Jerusalem heard that
+  Samaria had received the word of God, they sent to them Peter and John, who came down and prayed for them that
+  they might receive the Holy Spirit, for he had not yet fallen on any of them, but they had only been baptized in
+  the name of the Lord Jesus. Then they laid their hands on them and they received the Holy Spirit. (ESV)
+
+3.14. Receiving the Holy Spirit
 
 So we must receive the Holy Spirit.
 
@@ -6642,7 +6799,7 @@ Simon had believed and been baptized but he needed to repent so that his heart w
   Lord that, if possible, the intent of your heart may be forgiven you. For I see that you are in the gall of
   bitterness and in the bond of iniquity. (ESV)
 
-3.13.1. Water baptism as an appeal to God
+3.14.1. Water baptism as an appeal to God
 
 Water baptism is an appeal to God for a good conscience, through the resurrection of Jesus Christ.
 
@@ -6652,7 +6809,7 @@ sacrament maybe is not strictly required to be saved (as far as I understand).
   I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
   an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
-3.13.2. We need are sealed with the Holy Spirit through accepting the truth of the good news of Jesus and God's
+3.14.2. We need are sealed with the Holy Spirit through accepting the truth of the good news of Jesus and God's
 Living Word works in us to save us
 
 youtube.com: How Do I Know If the Holy Spirit Is in Me?
@@ -6708,7 +6865,7 @@ God:
   Romans 1:16 - For I am not ashamed of the gospel, for it is the power of God for salvation to everyone who
   believes, to the Jew first and also to the Greek. (ESV)
 
-3.13.3. We need to be born-again and we want to be filled with and baptised by the Holy Spirit
+3.14.3. We need to be born-again and we want to be filled with and baptised by the Holy Spirit
 
 It's natural to water baptize a person after they believe:
 
@@ -6754,7 +6911,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the
   Spirit, he cannot enter the kingdom of God. (ESV)
 
-3.13.4. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
+3.14.4. The Holy Spirit may teach us even before He is in us, by helping us as He dwells with us
 
   John 14:16-21 - And I will ask the Father, and he will give you another Helper, to be with you forever, even the
   Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he
@@ -6764,7 +6921,7 @@ And begin born-again of the Spirit and receiving the Holy Spirit helps us to obe
   who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him.
   (ESV)
 
-3.14. Our will should be for God's will to be done, and to will to do God's will
+3.15. Our will should be for God's will to be done, and to will to do God's will
 
 We may ask God for a willing spirit:
 
@@ -6918,8 +7075,8 @@ have Jesus as our righteousness, and sanctification and redemption:
 Song
 youtube.com: Be Thou My Vision - Audrey Assad
 
-Believing in your heart is an initial act of obedience before continuing in the teaching of Christ. If we believe
-in Him we have obeyed Him, but belief doesn't end there:
+Believing in your heart is an initial act of obedience to Christ and to Christ's Law before continuing in the
+teaching of Christ. If we believe in Him we have obeyed Him, but belief doesn't end there:
 
   John 14:1 - “Do not let your heart be troubled; believe (G4100 pisteuo) in God, believe (G4100 pisteuo) also in
   Me. (NASB)
@@ -7036,7 +7193,7 @@ Like Jesus, we should do the will of God:
   Hebrews 10:7 - Then I said, Behold, I have come to do your will, O God, as it is written of me in the scroll of
   the book. (ESV)
 
-3.14.1. Being filled with the Holy Spirit
+3.15.1. Being filled with the Holy Spirit
 
 • Being a servant of God is a likely precursor to being filled with the Holy Spirit
 • Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those
@@ -7077,7 +7234,7 @@ up diligently in your hearts, and His sufferings were before your eyes.
 Thus a profound and rich peace was given to all, and an insatiable desire of doing good. An abundant outpouring
 also of the Holy Spirit fell upon all;
 
-3.15. In God's mercy, we come to obedient faith and come into Christ Jesus
+3.16. In God's mercy, we come to obedient faith and come into Christ Jesus
 
 "At one time disobedient…" means we are brought to obedience. Therefore, God's mercy is that we become obedient:
 
@@ -7094,7 +7251,7 @@ Mercy is so that we can be forgiven and change our ways:
 Song
 King of Kings {Lyric Video} - Hillsong Worship - YouTube
 
-3.15.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
+3.16.1. In Christ Jesus, the blood of Jesus cleanses us from all sin
 
 We trust that our sin is covered by Jesus Christ's blood, as we abide in Him through belief and obedience:
 
@@ -7186,7 +7343,7 @@ The eternal redemption is in Christ Jesus:
   Hebrews 5:9-10 - And being made perfect, he became the source of eternal salvation to all who obey him, being
   designated by God a high priest after the order of Melchizedek. (ESV)
 
-3.16. Obedience is absolutely within our ability
+3.17. Obedience is absolutely within our ability
 
 God's commandments are not too difficult to follow.
 
@@ -7302,7 +7459,7 @@ salvation to all those who obey Him:
   John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
   sin of the world! (ESV)
 
-3.16.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
+3.17.1. Observing Jesus, continuing to believe in Him and believe His words and abide in His word, we will live
 forever
 
 We should be led into the knowledge of the Truth:
@@ -7588,7 +7745,7 @@ have been forgiven, and repenting from sin:
   ungodly men, turning the grace of our God into lasciviousness, and denying the only Lord God, and our Lord Jesus
   Christ. (KJV)
 
-3.16.2. We are saved by grace through faith in Jesus Christ
+3.17.2. We are saved by grace through faith in Jesus Christ
 
 It's God's grace that enables us to be saved through faith. While we are saved exercising obedient, trusting,
 believing faith, Paul says it was actually God's doing:
@@ -7882,7 +8039,7 @@ A child of God makes a practice of practicing righteousness and does not make a 
 • I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil:
 whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
-3.16.3. We become obedient to Jesus
+3.17.3. We become obedient to Jesus
 
 The righteous try to be obedient. They make mistakes sometimes, they mess up sometimes but they return to God with
 the fear of God (they repent):
@@ -7937,7 +8094,7 @@ of righteousness to God. We should be practicing righteousness, practicing love 
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
   those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
-3.16.4. There's some bonuses to suffering for Christ's sake and for endurance
+3.17.4. There's some bonuses to suffering for Christ's sake and for endurance
 
 Not all Christian suffering is the same:
 
@@ -7963,7 +8120,7 @@ If we keep His commandments, keep His works we will reign with Him:
 
 But suffering for Christ's sake should be for giving glory to Jesus:
 
-3.16.5. Eternal life and salvation is a gift received through faith and obedience to God
+3.17.5. Eternal life and salvation is a gift received through faith and obedience to God
 
 We put our hope on Him to be our High Priest and Advocate, we obey Him as He saves us.
 
@@ -8324,7 +8481,7 @@ to pass over, withdraw, depart
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-3.16.6. Faith in the blood of Jesus
+3.17.6. Faith in the blood of Jesus
 
 Pastors fail us, but Jesus Christ doesn't fail us. That's why Jesus should be ultimately our only Teacher. Jesus
 is our only sure foundation.
@@ -8446,7 +8603,7 @@ other translations, although I think we have to be careful.
 |   sins            in   the     forbearance  -      of God
 |   N-GNP           Prep Art-DFS N-DFS       Art-GMS N-GMS
 
-3.16.7. Being saved by faith in Jesus' blood
+3.17.7. Being saved by faith in Jesus' blood
 
 This is faith-based righteousness.
 
@@ -8564,7 +8721,7 @@ The redemption is received through faith in Jesus' blood (in His atoning passing
 |   sins           in   the     forbearance  -      of God
 |   N-GNP          Prep Art-DFS N-DFS       Art-GMS N-GMS
 
-3.16.8. Encouragement from the Bible
+3.17.8. Encouragement from the Bible
 
   Psalms 16:8 - I have set the LORD always before me; because he is at my right hand, I shall not be shaken. (ESV)
 
@@ -8575,7 +8732,7 @@ The redemption is received through faith in Jesus' blood (in His atoning passing
   The LORD is near to the brokenhearted and saves the crushed in spirit. Many are the afflictions of the
   righteous, but the LORD delivers him out of them all. (ESV)
 
-3.17. Treasuring anything else more than God is sin
+3.18. Treasuring anything else more than God is sin
 
 Quote by Tim Keller
 Know what the Bible says: Sin is craving something more than God. Sin is making something more important than God.
@@ -8595,7 +8752,7 @@ youtube.com: Love Jesus More Than You Love Anything
   Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
   Christ (ESV)
 
-3.17.1. Eschatology
+3.18.1. Eschatology
 
 I really appreciated Allie's video here
 youtube.com: Eschatology, End Times and What's to Come | Ep 134
@@ -8630,7 +8787,7 @@ I remember when I was very young these old pastors used to say, "When you get to
 the top of the news every single day, start looking up because that will most likely be the season of the harpazō,
 of the rapture. And I'm telling you it's every day. Isn't it?
 
-3.17.2. Satan's plan exposed, explained, extinguished
+3.18.2. Satan's plan exposed, explained, extinguished
 
   II Corinthians 11:2-4 - I feel a divine jealousy for you, for I betrothed you to one husband, to present you as
   a pure virgin to Christ. But I am afraid that as the serpent deceived Eve by his cunning, your thoughts will be
@@ -8735,7 +8892,7 @@ Satan's plan extinguished:
   words of God are fulfilled. And the woman that you saw is the great city that has dominion over the kings of the
   earth. (ESV)
 
-3.17.3. The arrival of the kingdom of God
+3.18.3. The arrival of the kingdom of God
 
 I believe the more precise translation is that these things happen rapidly. Now while they may soon take place -
 I'm not saying they are not happening already - the more accurate reading of this passage, I believe, is that the
@@ -8855,7 +9012,7 @@ Endurance is important:
   born and for this purpose I have come into the world — to bear witness to the truth. Everyone who is of the
   truth listens to my voice. (ESV)
 
-3.17.4. How we should act how we're instructed to act while awaiting the Lord's return
+3.18.4. How we should act how we're instructed to act while awaiting the Lord's return
 
 Be self-controlled and sober-minded and keep loving one another earnestly:
 
@@ -9103,7 +9260,7 @@ Also, this is interesting:
 
 youtube.com: Strive to let everything bodily die within you, and you will rise before the general resurrection
 
-3.17.5. As Christians, we've got to repent of evil deeds and keep Jesus' works - keep imitating Christ, even in
+3.18.5. As Christians, we've got to repent of evil deeds and keep Jesus' works - keep imitating Christ, even in
 holiness
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
@@ -9140,7 +9297,7 @@ We must keep Jesus' teachings to the end:
   when earthen pots are broken in pieces, even as I myself have received authority from my Father. And I will give
   him the morning star. He who has an ear, let him hear what the Spirit says to the churches. (ESV)
 
-3.17.6. We absolutely cling to Jesus as well
+3.18.6. We absolutely cling to Jesus as well
 
   I Corinthians 7:25-31 - Now concerning the betrothed, I have no command from the Lord, but I give my judgment as
   one who by the Lord's mercy is trustworthy. I think that in view of the present distress it is good for a person
@@ -9158,7 +9315,7 @@ We must keep Jesus' teachings to the end:
   anastasis) from the dead neither marry nor are given in marriage, for they cannot die anymore, because they are
   equal to angels and are sons of God, being sons of the resurrection.
 
-3.18. Disobedience towards God is sin. Treasuring anything else more than God is sin
+3.19. Disobedience towards God is sin. Treasuring anything else more than God is sin
 
 Sermon
 God is very happy about obedience, and listening to His word. Disobedience is sin, and disobedience is rejecting
@@ -9190,7 +9347,7 @@ God's commandments through Jesus is within the Law of God:
   I Corinthians 9:21 - To those outside the law I became as one outside the law (not being outside the law of God
   but under the law of Christ) that I might win those outside the law. (ESV)
 
-3.19. God makes us born-again, so we can love Him, obediently
+3.20. God makes us born-again, so we can love Him, obediently
 
   John 3:7 - Do not marvel that I said to you, You must be born again. (ESV)
 
@@ -9573,7 +9730,7 @@ straight and narrow to me:
   become of the ungodly and the sinner? Therefore let those who suffer according to God's will entrust their souls
   to a faithful Creator while doing good. (ESV)
 
-3.19.1. The Christian life is both gift and duty
+3.20.1. The Christian life is both gift and duty
 
 Fighting sin is both a gift from God and a duty we act.
 
@@ -9685,7 +9842,7 @@ It seems like we're saved (delivered) from (among other things):
   Spirit, whom he poured out on us richly through Jesus Christ our Savior, so that being justified by his
   grace we might become heirs according to the hope of eternal life. (ESV)
 
-3.19.2. God working in us
+3.20.2. God working in us
 
 God loved us first. We must accept that:
 
@@ -9785,7 +9942,7 @@ without partiality.
 
 Also I conclude that obeying Jesus Christ is having faith in Him.
 
-3.19.3. God acts for those who wait for Him
+3.20.3. God acts for those who wait for Him
 
 God wants to be our strength. AMEN!!
 
@@ -9910,7 +10067,7 @@ youtube.com: Everlasting God
   Psalms 82:3-4 - Give justice to the weak and the fatherless; maintain the right of the afflicted and the
   destitute. Rescue the weak and the needy; deliver them from the hand of the wicked. (ESV)
 
-3.19.4. The free gift is God - God is the Gospel
+3.20.4. The free gift is God - God is the Gospel
 
 We get out of the way everything that is an obstacle to enjoying God when we are forgiven. AMEN:
 
@@ -9919,7 +10076,7 @@ We get out of the way everything that is an obstacle to enjoying God when we are
 
   Colossians 1:14 - in whom we have redemption, the forgiveness of sins. (ESV)
 
-3.19.5. God the justifier of the one who has faith in Jesus - the righteousness of God apart from the law is
+3.20.5. God the justifier of the one who has faith in Jesus - the righteousness of God apart from the law is
 received by faith
 
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
@@ -9930,7 +10087,7 @@ received by faith
   over former sins. It was to show his righteousness at the present time, so that he might be just and the
   justifier of the one who has faith in Jesus. (ESV)
 
-3.19.6. The point of justification - we rejoice in the hope of the glory of God, and we are transformed
+3.20.6. The point of justification - we rejoice in the hope of the glory of God, and we are transformed
 
 Sermon
 John Piper: God is the Gospel - YouTube @time: 40 min 42 sec
@@ -9966,7 +10123,7 @@ Not only are we able to behold the glory of God, but we are transformed!
   II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
   into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
 
-3.19.7. Why do we want to live righteously? To honour Christ
+3.20.7. Why do we want to live righteously? To honour Christ
 
 We want to honour/exalt/magnify Christ in our lives, to trust Him, honour Him, believe His promises, and even
 faithfully wait/hold to those promises, and even want others to see the light of the gospel of the glory of Christ
@@ -10011,7 +10168,7 @@ And have communion with God:
   Revelation of John 3:4 - Yet you have still a few names in Sardis, people who have not soiled their garments,
   and they will walk with me in white, for they are worthy. (ESV)
 
-3.20. Saved not by my own works done outside of Him but by His work
+3.21. Saved not by my own works done outside of Him but by His work
 
 Yes, I believe that Jesus Christ has paid the price in full for me to be saved, and that is surely what I am
 leaning on. The price has been paid in full for me to be saved.
@@ -10231,7 +10388,7 @@ Listening to Jesus, we are already obeying the will of God, who commanded us to 
 
 God does work in us when we put our trust in Him, when we trust and obey His Word.
 
-3.20.1. Under the right conditions, I don't see a problem with 'working' for God
+3.21.1. Under the right conditions, I don't see a problem with 'working' for God
 
 The motivation has to be right. We do work for God to honour God, and as a response to Him loving us first, and as
 a response of love for Him forgiving us first, and giving us the gift of eternal life.
@@ -10388,7 +10545,7 @@ The faith Paul talks about is faith towards God. The faith towards God believes 
 Song
 Hillsong+Delirious? - History Maker
 
-3.21. Eternal security for those who follow Jesus
+3.22. Eternal security for those who follow Jesus
 
 Sermon
 Eternal Security - Charles Spurgeon Sermon - YouTube @time: 25 min 13 sec
@@ -10452,7 +10609,7 @@ And following Jesus' commandments we will love one another:
   are to love one another. By this all people will know that you are my disciples, if you have love for one
   another. (ESV)
 
-3.22. Assurance of salvation
+3.23. Assurance of salvation
 
 For full assurance, do all the will of God for you.
 
@@ -10527,7 +10684,7 @@ assurance of our salvation. God's testimony is greater. We must believe the Gosp
   Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to
   you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
 
-3.23. Some indicators to know for sure you are saved
+3.24. Some indicators to know for sure you are saved
 
 Talk
 This is how you can know for SURE that you are saved | Assurance of Salvation | Kaci Nicole - YouTube @time: 12
@@ -10710,7 +10867,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is
   tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. (ESV)
 
-3.23.1. By the Spirit Jesus has given us
+3.24.1. By the Spirit Jesus has given us
 
   II Corinthians 1:22 - and who has also put his seal on us and given us his Spirit in our hearts as a guarantee.
   (ESV)
@@ -10725,7 +10882,7 @@ youtube.com: Paul Washer - Ongoing Sin @time: 2 min 16 sec
   power of God, who saved us and called us to a holy calling, not because of our works but because of his own
   purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
 
-3.24. Indicators that we are of the truth
+3.25. Indicators that we are of the truth
 
 A strong indicator that we are of the truth is that against every condemnation, we know God is greater than our
 heart and knows everything
@@ -34904,9 +35061,13 @@ Immanuel (which means, God with us). (ESV)
 • Refutation: John 8:58 - Jesus said to them, Truly, truly, I say to you, before Abraham was, I am. (ESV)
 • Refutation: Exodus 3:14 - God said to Moses, I AM WHO I AM. And he said, Say this to the people of
 Israel, I AM has sent me to you. (ESV)
-• Lie 7: "You have to be baptised in order to be saved"
+• Lie 7: "You 'have' to be baptised in order to be saved"
 • Refutation: Acts 16:30-31 - Then he brought them out and said, Sirs, what must I do to be saved? And they
 said, Believe in the Lord Jesus, and you will be saved, you and your household. (ESV)
+• But I believe indeed baptism does save, but supposed to be coupled with believing in Jesus, calling
+on His name and turning away from our sins.
+• If we resist the Holy Spirit with disbelief/disobedience, then the baptism may not save, but I'm not
+the judge on that.
 • Lie 8: "We are in control of our own destiny"
 • Refutation: Job 14:5 - Since his days are determined, and the number of his months is with you, and you
 have appointed his limits that he cannot pass, (ESV)
@@ -42702,7 +42863,30 @@ We don't want to be children of the devil:
   from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he
   speaks out of his own character, for he is a liar and the father of lies. (ESV)
 
-40.2.8. Forgive everyone
+  I John 3:8-10 - Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+
+40.2.8. Forgive those in Christ
+
+  Matthew 18:35 - So also my heavenly Father will do to every one of you, if you do not forgive your brother from
+  your heart. (ESV)
+
+  Luke 17:3-4 - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and
+  if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive
+  him. (ESV)
+
+  Genesis 50:16-17 - So they sent a message to Joseph, saying, Your father gave this command before he died, Say
+  to Joseph, Please forgive the transgression of your brothers and their sin, because they did evil to you. And
+  now, please forgive the transgression of the servants of the God of your father. Joseph wept when they spoke to
+  him. (ESV)
+
+Believers and unbelievers are not brothers/family:
+
+  Acts 14:2 - But the unbelieving Jews stirred up the Gentiles and poisoned their minds against the brothers.
+  (ESV)
 
 I believe we need to be serving Christ to be led by the Spirit, and that means forgiving everyone is important.
 Jesus commanded us to love one another as He loved us.
@@ -65102,11 +65286,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-03-17 Mon 00:00
+Date: 2025-03-21 Fri 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-17 Mon 21:26
+Created: 2025-03-21 Fri 15:10
 
 Validate
 
