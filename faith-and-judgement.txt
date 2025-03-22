@@ -8492,7 +8492,138 @@ to pass over, withdraw, depart
   He has an unhealthy craving for controversy and for quarrels about words, which produce envy, dissension,
   slander, evil suspicions, (ESV)
 
-3.17.6. Faith in the blood of Jesus
+3.17.6. Propitiation
+
+  Hebrews 2:14-15 - Since therefore the children share in flesh and blood, he himself likewise partook of the same
+  things, that through death he might destroy the one who has the power of death, that is, the devil, and deliver
+  all those who through fear of death were subject to lifelong slavery. (ESV)
+
+youtube.com: Freed from Unforgiven Sin {@desiringGod} @time: 17 min 29 sec
+There is only one lethal weapon in the artillery of Satan. If you've ever thought about this, listen carefully.
+There's only one lethal, deadly, final, destructive weapon in the artillery of Satan. You know what it is? Your
+sin. Nobody goes to hell because of being harassed by the devil. Nobody goes to hell because of being possessed by
+the devil. Nobody goes to hell because of being oppressed by the devil. Nobody goes to hell because of seeing
+green apparitions on their ceiling at night and hearing weird noises under the bed, which are real. Nobody goes to
+hell because of that. People go to hell for one reason: unforgiven sin. That's all. Satan has one way to get you
+to hell, keep you from a savior and get you to sinning, that's all. And if you're covered by the blood of Jesus,
+if you're clothed with the righteousness of Jesus Christ, you can look him right in the face and say, "Be gone,
+Satan." Or if he rages against you such as to put you in jail or to make you sick or to kill you, you can smile
+back at him and say: I'm free from the fear of this thing. Your power's gone. That's my answer. The reason verse
+17 says that he had to be made like us to propitiate sins by his dying, and the reason verse 14 says he had to be
+made like us to destroy the one who has the power of death, the reason both of those are true is because in
+covering sin he takes the power of Satan against us. He (satan) can't destroy us. Only sin destroys, and when your
+sin is covered Satan has nothing that he can hold against you. The accuser, he's an accuser, right? The accuser
+has no brief in court. His hands are empty, there's no evidence. He can stand there in front of the judge, and
+say, "I hate them, they're evil, they committed fornication once upon a time. They lied yesterday. They
+masturbated this week. They looked at they looked at evil stuff. They made fun of Billy Graham." And his hands are
+empty and God on the bench says, "I know all that. I know all that. But, look, in their hand is a documents called
+the New Covenant. It's been signed by the blood of my Son. And in it is a commitment to propitiate all their sins
+if they would trust him, and I'm the one who decides whether I'm angry or not and I'm not angry."
+
+youtube.com: Freed from Unforgiven Sin {@desiringGod} @time: 11 min 20 sec
+
+Let's go to verse 17 and ask, why did Jesus have to become human in order to be a High Priest to make propitiation
+for sins? Why did he need to be human to be a High Priest? Why couldn't he be a high priest as God the Son?
+Divine, indestructible, not incarnate. Why could not he be our High Priest? Today he's interceding as a High
+Priest for us in heaven. Here's the reason: it's given four times in the book of Hebrews. The offering that the
+high priest Jesus offers for us is himself. Had he brought any other offering, we would not be saved. The blood of
+bulls and goats, chapter 9, cannot take away sin. Only one blood shedding can take away sin, the divine Son of
+God, incarnate in Jesus Christ. So when it says he had to become like us in order to do the High Priestly work of
+propitiating sins, it's because this High Priest is going to offer no other sacrifice than the High Priest.
+
+He lays Himself… All the old high priests, remember what they did in the Old Testament? They had bulls, and they
+had goats, and they had doves, and they'd go into the holy of holies, and they'd take blood and spill it on the
+altar, cover the sins of the people for a year, perhaps on the day of atonement, and they had to do it for their
+own sins too. And here comes Jesus, and He has in his mind, "I'm going to do a High Priestly work one time and
+it's over."
+
+No more Temple sacrifices when I'm done, because the blood I'm taking is not the blood of a bull, the blood of a
+goat, the blood of a lamb, the blood of a dove, it's 'My' blood, infinitely valuable blood, and I'm going to pour
+it out one time, or another image would be, "I'm going to go in there, and I'm going to lie down and I'm going to
+die." I'm going to do that, I'm going to finish this whole system of sacrificial offerings, once for all by laying
+down My life that I might propitiate sins.
+
+So the aim of His death is to make propitiation for the sins of his people, verse 17, and the aim of His death is
+to destroy or nullify the power of the devil and his power over death in verse
+
+ 1. Christ strips the devil of his power
+
+in death by propitiating sins.
+
+youtube.com: Freed from Unforgiven Sin {@desiringGod} @time: 22 min 49 sec
+
+So I just want to leave a promise with you, that not only has God covered your sins if you are trusting in Jesus,
+so that you can be free from the fear of dying, subconsciously and consciously, but also He has pledged himself to
+come and help you.
+
+I've said this numerous times before and I'll close by saying it again, "Right now, today's grace is sufficient
+for today, and if you're scared right now that in a year, two or five or 10 or 50, you won't have grace to die
+well, that's okay. Sufficient under the day is the evil thereof and the steadfast love of the Lord never ceases
+his mercies are what every morning? New. It's going to be there folks. This promise is going to come true for you
+in Christ, it's going to come true for you, that when the hour comes and the pain is excruciating or the loved one
+is being taken from you he'll come with a special mercy for that hour.
+
+  Galatians 3:13-14 - Christ redeemed us from the curse of the law by becoming a curse for us—for it is written,
+  Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the
+  Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+In Jesus Christ there is no condemnation. Every drop of the wrath of God does not fall on God's elect.
+
+  Romans 8:1 - There is therefore now no condemnation for those who are in Christ Jesus. (ESV)
+
+In Jesus Christ there is no condemnation.
+
+I agree with this.
+
+I think that when it comes to substitutionary atonement, trusting Jesus' commandments in no way impedes or comes
+into conflict with faith in Jesus' blood:
+
+  Titus 1:7-9 - For an overseer, as God's steward, must be above reproach. He must not be arrogant or
+  quick-tempered or a drunkard or violent or greedy for gain, but hospitable, a lover of good, self-controlled,
+  upright, holy, and disciplined. He must hold firm to the trustworthy word as taught, so that he may be able to
+  give instruction in sound doctrine and also to rebuke those who contradict it. (ESV)
+
+|  rebuke
+|      An expression of sharp disapproval or
+|      criticism.
+|      "he hadn't meant it as a rebuke, but Neil
+|      flinched"
+
+So I just rebuke those people who say that trusting in Jesus' commandments is trusting in one's own works (and not
+trusting in Jesus) because to trust Jesus to do His commandments is completely in the Truth and doing so has
+nothing against trusting in His works accomplished in passion, death and resurrection and to think that trusting
+and obeying Jesus' words and commandments is trusting in one's own works rather than Jesus' works I think is a
+satanic deception:
+
+  Hebrews 5:9-10 - And being made perfect, he became the source of eternal salvation to all who obey him, being
+  designated by God a high priest after the order of Melchizedek. (ESV)
+
+  John 12:48 - The one who rejects me and does not receive my words has a judge; the word that I have spoken will
+  judge him on the last day. (ESV)
+
+  II Corinthians 5:21 - For our sake he made him to be sin who knew no sin, so that in him we might become the
+  righteousness of God. (ESV)
+
+Legalism and religious man-made doctrine can be dangerous:
+
+Rather than try to tell God who He should justify or condemn, we should simply focus on Jesus, work out our own
+salvation with fear and trembling (fear of God), focus on Jesus' commandments, try to keep Jesus' commandments and
+works, and maintain a good conscience with God, we should try to be producing Christ's selfless love out of a pure
+heart, purified by faith in Him and in His blood, and out of a sincere faith and good conscience, and when we are
+weak, fall short etc, we just go to the throne of grace to ask for mercy.
+
+  Hebrews 4:9-16 - So then, there remains a Sabbath rest for the people of God, for whoever has entered God's rest
+  has also rested from his works as God did from his. Let us therefore strive to enter that rest, so that no one
+  may fall by the same sort of disobedience. For the word of God is living and active, sharper than any two-edged
+  sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and
+  intentions of the heart. And no creature is hidden from his sight, but all are naked and exposed to the eyes of
+  him to whom we must give account. Since then we have a great high priest who has passed through the heavens,
+  Jesus, the Son of God, let us hold fast our confession. For we do not have a high priest who is unable to
+  sympathize with our weaknesses, but one who in every respect has been tempted as we are, yet without sin. Let us
+  then with confidence draw near to the throne of grace, that we may receive mercy and find grace to help in time
+  of need. (ESV)
+
+3.17.7. Faith in the blood of Jesus
 
 Pastors fail us, but Jesus Christ doesn't fail us. That's why Jesus should be ultimately our only Teacher. Jesus
 is our only sure foundation.
@@ -8614,7 +8745,7 @@ other translations, although I think we have to be careful.
 |   sins            in   the     forbearance  -      of God
 |   N-GNP           Prep Art-DFS N-DFS       Art-GMS N-GMS
 
-3.17.7. Being saved by faith in Jesus' blood
+3.17.8. Being saved by faith in Jesus' blood
 
 This is faith-based righteousness.
 
@@ -8732,7 +8863,7 @@ The redemption is received through faith in Jesus' blood (in His atoning passing
 |   sins           in   the     forbearance  -      of God
 |   N-GNP          Prep Art-DFS N-DFS       Art-GMS N-GMS
 
-3.17.8. Encouragement from the Bible
+3.17.9. Encouragement from the Bible
 
   Psalms 16:8 - I have set the LORD always before me; because he is at my right hand, I shall not be shaken. (ESV)
 
@@ -10372,6 +10503,16 @@ one another that isn't a work.
   law. (ESV)
 
 We're saved to live like this.
+
+Could receiving "one such child in Jesus Christ's name" be regarded as a work that is trusting in oneself apart
+from Christ? No, because trusting Jesus is obeying Jesus and obeying Jesus is trusting Jesus. Trusting and obeying
+Jesus are not mutually exclusive:
+
+  Mark 9:37 - Whoever receives one such child in my name receives me, and whoever receives me, receives not me but
+  him who sent me. (ESV)
+
+  John 13:20 - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me
+  receives the one who sent me. (ESV)
 
 I personally believe that we cooperate with God for "salvation". i.e. reception is obedience is working with God.
 I.e. faith and obedience are not mutually exclusive, but "obedience" shouldn't be misconstrued with
@@ -24008,6 +24149,9 @@ these people are on board.
 They don't serve peanuts they know this, these friends know this, they make distinctions themselves. So the
 question is, whether cannabis is helpful to others when we use. It is it addicting to my mind, is it hurtful to
 the mind or to the soul? Those the key questions.
+
+Smoking and doing drugs, weed, etc. is all of the flesh. Absolutely. Fast and pray to feed our spirit.
+youtube.com: Signs You Are Under HEAVY Spiritual Attack {@MarcTheMessengerLive}
 
 Also, this was helpful:
 
@@ -65297,11 +65441,11 @@ We still need to believe to avoid condemnation:
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2025-03-21 Fri 00:00
+Date: 2025-03-22 Sat 00:00
 
 Author: Shane Mulligan
 
-Created: 2025-03-21 Fri 23:51
+Created: 2025-03-22 Sat 20:21
 
 Validate
 
