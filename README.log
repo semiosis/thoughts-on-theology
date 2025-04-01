@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  1 APR 2025 09:45
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  1 APR 2025 15:53
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -472,7 +472,7 @@ Overfull \hbox (90.1621pt too wide) in paragraph at lines 1674--1688
 
 [32] [33] [34] [35] [36] [37] [38] [39]
 
-LaTeX Warning: Hyper reference `sec:org4dace64' on page 40 undefined on input l
+LaTeX Warning: Hyper reference `sec:org10bafb0' on page 40 undefined on input l
 ine 2030.
 
 [40] [41] [42]
@@ -3397,7 +3397,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [552]
 
-LaTeX Warning: Reference `sec:orgc6c1c40' on page 553 undefined on input line 2
+LaTeX Warning: Reference `sec:orgffc2ebb' on page 553 undefined on input line 2
 8425.
 
 [553] [554] [555] [556] [557]
@@ -5117,7 +5117,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [987] [988] [989] [990]
 
-LaTeX Warning: Reference `sec:orgc6c1c40' on page 991 undefined on input line 5
+LaTeX Warning: Reference `sec:orgffc2ebb' on page 991 undefined on input line 5
 0609.
 
 [991] [992]
@@ -5335,7 +5335,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 53641--53660
 
 [1047] [1048] [1049]
 
-LaTeX Warning: Hyper reference `sec:orgf5d35d0' on page 1050 undefined on input
+LaTeX Warning: Hyper reference `sec:org5da3365' on page 1050 undefined on input
  line 53791.
 
 
@@ -5774,7 +5774,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 62902--62903
 
 [1219] [1220] [1221] [1222]
 
-LaTeX Warning: Hyper reference `sec:orgf5d35d0' on page 1223 undefined on input
+LaTeX Warning: Hyper reference `sec:org5da3365' on page 1223 undefined on input
  line 63049.
 
 [1223] [1224]
