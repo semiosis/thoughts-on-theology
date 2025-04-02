@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  2 APR 2025 23:08
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  2 APR 2025 23:29
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -397,9 +397,18 @@ Package hyperref Warning: Rerun to get /PageLabels entry.
 * \@reversemarginfalse
 * (1in=72.27pt=25.4mm, 1cm=28.453pt)
 
-[1
+LaTeX Font Info:    Try loading font information for U+msa on input line 28.
+(/usr/share/texlive/texmf-dist/tex/latex/amsfonts/umsa.fd
+File: umsa.fd 2013/01/14 v3.01 AMS symbols A
+)
+LaTeX Font Info:    Try loading font information for U+msb on input line 28.
 
-] [2] [3] [4] [5]
+(/usr/share/texlive/texmf-dist/tex/latex/amsfonts/umsb.fd
+File: umsb.fd 2013/01/14 v3.01 AMS symbols B
+) [1
+
+] [2] [3] [4]
+[5]
 Overfull \hbox (7.14656pt too wide) in paragraph at lines 291--295
 []\TU/lmr/m/n/10.95 Purify my heart.
  []
@@ -461,19 +470,9 @@ Overfull \hbox (90.1621pt too wide) in paragraph at lines 1678--1692
 []
  []
 
-[32] [33] [34] [35] [36] [37] [38]
-LaTeX Font Info:    Try loading font information for U+msa on input line 1995.
+[32] [33] [34] [35] [36] [37] [38] [39]
 
-(/usr/share/texlive/texmf-dist/tex/latex/amsfonts/umsa.fd
-File: umsa.fd 2013/01/14 v3.01 AMS symbols A
-)
-LaTeX Font Info:    Try loading font information for U+msb on input line 1995.
-
-(/usr/share/texlive/texmf-dist/tex/latex/amsfonts/umsb.fd
-File: umsb.fd 2013/01/14 v3.01 AMS symbols B
-) [39]
-
-LaTeX Warning: Hyper reference `sec:org858dd16' on page 40 undefined on input l
+LaTeX Warning: Hyper reference `sec:org447def1' on page 40 undefined on input l
 ine 2034.
 
 [40] [41] [42]
@@ -513,8 +512,13 @@ Underfull \hbox (badness 2065) in paragraph at lines 2182--2182
  []
 
 
-Underfull \hbox (badness 2293) in paragraph at lines 2187--2187
-[][]\TU/lmr/bx/n/10.95 Galatians 3:14[] \TU/lmr/m/n/10.95 - so that in
+Underfull \hbox (badness 1642) in paragraph at lines 2187--2187
+[][]\TU/lmr/bx/n/10.95 Galatians 3:22-27[] \TU/lmr/m/n/10.95 - But the
+ []
+
+
+Underfull \hbox (badness 1400) in paragraph at lines 2187--2187
+\TU/lmr/m/n/10.95 Scripture imprisoned everything
  []
 
 
@@ -538,7 +542,7 @@ Underfull \hbox (badness 1796) in paragraph at lines 2204--2204
  []
 
 [43]
-Overfull \vbox (5541.80226pt too high) has occurred while \output is active []
+Overfull \vbox (5705.00233pt too high) has occurred while \output is active []
 
 
 [44]
@@ -3412,7 +3416,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [553]
 
-LaTeX Warning: Reference `sec:orga81bea1' on page 554 undefined on input line 2
+LaTeX Warning: Reference `sec:org05d4697' on page 554 undefined on input line 2
 8514.
 
 [554] [555] [556] [557] [558]
@@ -5132,7 +5136,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [988] [989] [990] [991]
 
-LaTeX Warning: Reference `sec:orga81bea1' on page 992 undefined on input line 5
+LaTeX Warning: Reference `sec:org05d4697' on page 992 undefined on input line 5
 0720.
 
 [992] [993]
@@ -5350,7 +5354,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 53752--53771
 
 [1048] [1049] [1050]
 
-LaTeX Warning: Hyper reference `sec:org5945a95' on page 1051 undefined on input
+LaTeX Warning: Hyper reference `sec:org4c35af9' on page 1051 undefined on input
  line 53902.
 
 
@@ -5789,7 +5793,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 63013--63014
 
 [1220] [1221] [1222] [1223]
 
-LaTeX Warning: Hyper reference `sec:org5945a95' on page 1224 undefined on input
+LaTeX Warning: Hyper reference `sec:org4c35af9' on page 1224 undefined on input
  line 63160.
 
 [1224] [1225]
@@ -6138,11 +6142,11 @@ LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 63895.
  ) 
 Here is how much of TeX's memory you used:
- 11255 strings out of 494868
- 159114 string characters out of 6175714
- 297335 words of memory out of 5000000
- 15091 multiletter control sequences out of 15000+600000
- 10411 words of font info for 54 fonts, out of 8000000 for 9000
+ 11261 strings out of 494868
+ 159290 string characters out of 6175714
+ 300409 words of memory out of 5000000
+ 15093 multiletter control sequences out of 15000+600000
+ 10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
  28i,9n,45p,6363b,1372s stack positions out of 5000i,500n,10000p,200000b,80000s
 
