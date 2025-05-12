@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  12 MAY 2025 14:53
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  12 MAY 2025 15:08
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -318,7 +318,7 @@ Package: geometry 2018/04/16 v5.8 Page Geometry
 File: se-ascii-print.def 2016/05/16 v1.11 stringenc: Printable ASCII characters
 
 )
-No file README.aux.
+(.//README.aux)
 \openout1 = `README.aux'.
 
 LaTeX Font Info:    Checking defaults for OML/cmm/m/it on input line 25.
@@ -339,7 +339,7 @@ LaTeX Font Info:    Checking defaults for PD1/pdf/m/n on input line 25.
 LaTeX Font Info:    ... okay on input line 25.
 LaTeX Font Info:    Checking defaults for PU/pdf/m/n on input line 25.
 LaTeX Font Info:    ... okay on input line 25.
-(/usr/share/texlive/texmf-dist/tex/latex/ucs/ucsencs.def
+ (/usr/share/texlive/texmf-dist/tex/latex/ucs/ucsencs.def
 File: ucsencs.def 2011/01/21 Fixes to fontencodings LGR, T3
 )
 \AtBeginShipoutBox=\box39
@@ -356,12 +356,11 @@ Package: gettitlestring 2016/05/16 v1.5 Cleanup title references (HO)
 LaTeX Info: Redefining \ref on input line 25.
 LaTeX Info: Redefining \pageref on input line 25.
 LaTeX Info: Redefining \nameref on input line 25.
+
+(.//README.out) (.//README.out)
 \@outlinefile=\write3
 \openout3 = `README.out'.
 
-
-
-Package hyperref Warning: Rerun to get /PageLabels entry.
 
 *geometry* driver: auto-detecting
 *geometry* detected driver: xetex
@@ -490,12 +489,7 @@ Overfull \hbox (90.1621pt too wide) in paragraph at lines 2058--2072
 []
  []
 
-[39] [40] [41] [42] [43] [44] [45] [46]
-
-LaTeX Warning: Hyper reference `sec:org414f585' on page 47 undefined on input l
-ine 2430.
-
-[47] [48] [49] [50]
+[39] [40] [41] [42] [43] [44] [45] [46] [47] [48] [49] [50]
 Underfull \hbox (badness 2521) in paragraph at lines 2573--2573
 \TU/lmr/m/n/10.95 Him obeying Jesus’ command-
  []
@@ -3700,12 +3694,7 @@ Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
- [599]
-
-LaTeX Warning: Reference `sec:org068cd5f' on page 600 undefined on input line 3
-0790.
-
-[600] [601] [602] [603] [604]
+ [599] [600] [601] [602] [603] [604]
 Missing character: There is no π in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no σ in font [lmroman10-regular]:mapping=tex-text;!
@@ -3721,7 +3710,8 @@ Missing character: There is no τ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
- [605] [606]
+
+[605] [606]
 Overfull \hbox (56.84987pt too wide) in paragraph at lines 31117--31118
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][][][] [] [][][] [] [][][][][][]
 [][][][][][][] [] [][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][
@@ -5441,12 +5431,7 @@ Missing character: There is no τ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
- [1042] [1043] [1044] [1045]
-
-LaTeX Warning: Reference `sec:org068cd5f' on page 1046 undefined on input line 
-53262.
-
-[1046] [1047]
+ [1042] [1043] [1044] [1045] [1046] [1047]
 Missing character: There is no ὥ in font [lmmono10-regular]:!
 Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
@@ -5506,7 +5491,8 @@ Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
 Missing character: There is no ά in font [lmmono10-regular]:!
- [1048] [1049] [1050] [1051] [1052]
+ [1048] [1049] [1050]
+[1051] [1052]
 Missing character: There is no ἀ in font [lmmono10-regular]:!
 Missing character: There is no π in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
@@ -5660,11 +5646,6 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 56339--56358
  []
 
 [1103] [1104] [1105]
-
-LaTeX Warning: Hyper reference `sec:orgd608a15' on page 1106 undefined on input
- line 56489.
-
-
 Overfull \hbox (3.92244pt too wide) in paragraph at lines 56498--56500
 []\TU/lmr/m/n/10.95 I think the resurrection of Jesus does
  []
@@ -6098,12 +6079,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 65690--65691
 []
  []
 
-[1276] [1277] [1278] [1279]
-
-LaTeX Warning: Hyper reference `sec:orgd608a15' on page 1280 undefined on input
- line 65839.
-
-[1280] [1281] [1282]
+[1276] [1277] [1278] [1279] [1280] [1281] [1282]
 Overfull \hbox (11.86232pt too wide) in paragraph at lines 65935--65947
 []\TU/lmr/m/n/10.95 God is love.
  []
@@ -6429,30 +6405,17 @@ Package atveryend Info: Empty hook `AfterLastShipout' on input line 66574.
 Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 66574.
 Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 66574
 .
-
-
-Package rerunfilecheck Warning: File `README.out' has changed.
-(rerunfilecheck)                Rerun to get outlines right
-(rerunfilecheck)                or use package `bookmark'.
-
-Package rerunfilecheck Info: Checksums for `README.out':
-(rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  6D8A5C9CD8A92FEF8119359F7BEA37A6.
-
-LaTeX Warning: There were undefined references.
-
-
-LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
-
+Package rerunfilecheck Info: File `README.out' has not changed.
+(rerunfilecheck)             Checksum: 6D8A5C9CD8A92FEF8119359F7BEA37A6.
 Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 66574.
  ) 
 Here is how much of TeX's memory you used:
- 11264 strings out of 494868
- 159338 string characters out of 6175714
- 263409 words of memory out of 5000000
- 15096 multiletter control sequences out of 15000+600000
+ 11481 strings out of 494868
+ 162688 string characters out of 6175714
+ 554921 words of memory out of 5000000
+ 15307 multiletter control sequences out of 15000+600000
  10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6363b,1375s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,567s stack positions out of 5000i,500n,10000p,200000b,80000s
 
 Output written on ./README.pdf (1294 pages).
