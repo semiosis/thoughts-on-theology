@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  4 JUN 2025 16:18
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  4 JUN 2025 16:28
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -501,7 +501,7 @@ Overfull \hbox (15.69484pt too wide) in paragraph at lines 2213--2231
 
 [43] [44] [45] [46] [47] [48] [49] [50]
 
-LaTeX Warning: Hyper reference `sec:org44f6f96' on page 51 undefined on input l
+LaTeX Warning: Hyper reference `sec:org4ad7a8e' on page 51 undefined on input l
 ine 2595.
 
 [51] [52] [53] [54]
@@ -4017,7 +4017,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [636]
 
-LaTeX Warning: Reference `sec:org8b70ba0' on page 637 undefined on input line 3
+LaTeX Warning: Reference `sec:orgfdf49bb' on page 637 undefined on input line 3
 2381.
 
 [637] [638] [639] [640] [641]
@@ -5763,7 +5763,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1082] [1083] [1084] [1085]
 
-LaTeX Warning: Reference `sec:org8b70ba0' on page 1086 undefined on input line 
+LaTeX Warning: Reference `sec:orgfdf49bb' on page 1086 undefined on input line 
 54997.
 
 [1086] [1087]
@@ -5981,7 +5981,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 58076--58095
 
 [1143] [1144] [1145]
 
-LaTeX Warning: Hyper reference `sec:org342ca4e' on page 1146 undefined on input
+LaTeX Warning: Hyper reference `sec:org4f79fce' on page 1146 undefined on input
  line 58225.
 
 
@@ -6421,7 +6421,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 67557--67558
 
 [1319] [1320] [1321] [1322]
 
-LaTeX Warning: Hyper reference `sec:org342ca4e' on page 1323 undefined on input
+LaTeX Warning: Hyper reference `sec:org4f79fce' on page 1323 undefined on input
  line 67716.
 
 [1323] [1324] [1325] [1326]
