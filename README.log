@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  6 JUN 2025 14:01
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  6 JUN 2025 14:55
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -511,7 +511,7 @@ Overfull \hbox (15.69484pt too wide) in paragraph at lines 2251--2269
 
 [44] [45] [46] [47] [48] [49] [50] [51]
 
-LaTeX Warning: Hyper reference `sec:org6e85b55' on page 52 undefined on input l
+LaTeX Warning: Hyper reference `sec:org33c32b8' on page 52 undefined on input l
 ine 2637.
 
 [52] [53] [54]
@@ -4026,7 +4026,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [637]
 
-LaTeX Warning: Reference `sec:orgf7a5f97' on page 638 undefined on input line 3
+LaTeX Warning: Reference `sec:org48592a6' on page 638 undefined on input line 3
 2519.
 
 [638] [639] [640] [641] [642]
@@ -5788,7 +5788,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1084] [1085] [1086] [1087]
 
-LaTeX Warning: Reference `sec:orgf7a5f97' on page 1088 undefined on input line 
+LaTeX Warning: Reference `sec:org48592a6' on page 1088 undefined on input line 
 55176.
 
 [1088] [1089]
@@ -6006,7 +6006,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 58255--58274
 
 [1145] [1146] [1147]
 
-LaTeX Warning: Hyper reference `sec:org3d0a9cf' on page 1148 undefined on input
+LaTeX Warning: Hyper reference `sec:org201d63f' on page 1148 undefined on input
  line 58404.
 
 
@@ -6446,7 +6446,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 67736--67737
 
 [1321] [1322] [1323] [1324]
 
-LaTeX Warning: Hyper reference `sec:org3d0a9cf' on page 1325 undefined on input
+LaTeX Warning: Hyper reference `sec:org201d63f' on page 1325 undefined on input
  line 67895.
 
 [1325] [1326] [1327] [1328]
