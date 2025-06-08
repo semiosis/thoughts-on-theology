@@ -4,12 +4,12 @@ class TOC {
   /**
    * @param {[HTMLHeadingElement]} headingSet
    * */
-  static parse(headingSet) {
+  static parse(hset) {
     const tocData = []
     let curLevel = 0
     let previousTOCitem = undefined
 
-    headingSet.forEach(heading => {
+    hset.forEach(heading => {
       const hLevel = heading.outerHTML.match(/<h([\d]).*>/)[1]
       const titleText = heading.innerText
 
