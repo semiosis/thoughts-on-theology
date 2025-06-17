@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  17 JUN 2025 17:19
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  17 JUN 2025 17:37
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -526,7 +526,7 @@ Overfull \hbox (83.49358pt too wide) in paragraph at lines 2412--2413
 
 [48] [49] [50] [51] [52] [53] [54] [55]
 
-LaTeX Warning: Hyper reference `sec:orgaf968ab' on page 56 undefined on input l
+LaTeX Warning: Hyper reference `sec:org07d0262' on page 56 undefined on input l
 ine 2779.
 
 [56] [57] [58] [59]
@@ -4059,7 +4059,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [657]
 
-LaTeX Warning: Reference `sec:org040c62d' on page 658 undefined on input line 3
+LaTeX Warning: Reference `sec:org8f3333d' on page 658 undefined on input line 3
 3232.
 
 [658] [659]
@@ -5859,7 +5859,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1113] [1114] [1115] [1116]
 
-LaTeX Warning: Reference `sec:org040c62d' on page 1117 undefined on input line 
+LaTeX Warning: Reference `sec:org8f3333d' on page 1117 undefined on input line 
 56159.
 
 [1117] [1118]
@@ -6077,7 +6077,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 59238--59257
 
 [1174] [1175] [1176]
 
-LaTeX Warning: Hyper reference `sec:orgca8db64' on page 1177 undefined on input
+LaTeX Warning: Hyper reference `sec:org2b34c24' on page 1177 undefined on input
  line 59387.
 
 
@@ -6517,7 +6517,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 68895--68896
 
 [1354] [1355] [1356] [1357] [1358]
 
-LaTeX Warning: Hyper reference `sec:orgca8db64' on page 1359 undefined on input
+LaTeX Warning: Hyper reference `sec:org2b34c24' on page 1359 undefined on input
  line 69054.
 
 [1359] [1360] [1361]
