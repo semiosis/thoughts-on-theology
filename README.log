@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  21 JUN 2025 10:12
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  21 JUN 2025 10:41
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -531,7 +531,7 @@ Overfull \hbox (83.49358pt too wide) in paragraph at lines 2471--2472
 
 [49] [50] [51] [52] [53] [54] [55] [56] [57]
 
-LaTeX Warning: Hyper reference `sec:org5d0a2f0' on page 58 undefined on input l
+LaTeX Warning: Hyper reference `sec:orgb609ae5' on page 58 undefined on input l
 ine 2846.
 
 [58] [59] [60] [61]
@@ -4076,7 +4076,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [669]
 
-LaTeX Warning: Reference `sec:orgda93702' on page 670 undefined on input line 3
+LaTeX Warning: Reference `sec:org6fa345f' on page 670 undefined on input line 3
 3757.
 
 [670] [671]
@@ -5876,7 +5876,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1126] [1127] [1128] [1129]
 
-LaTeX Warning: Reference `sec:orgda93702' on page 1130 undefined on input line 
+LaTeX Warning: Reference `sec:org6fa345f' on page 1130 undefined on input line 
 56768.
 
 [1130] [1131]
@@ -6094,7 +6094,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 59847--59866
 
 [1187] [1188] [1189]
 
-LaTeX Warning: Hyper reference `sec:org7233281' on page 1190 undefined on input
+LaTeX Warning: Hyper reference `sec:orgf868835' on page 1190 undefined on input
  line 59996.
 
 
@@ -6539,7 +6539,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 69598--69599
 
 [1370] [1371] [1372] [1373]
 
-LaTeX Warning: Hyper reference `sec:org7233281' on page 1374 undefined on input
+LaTeX Warning: Hyper reference `sec:orgf868835' on page 1374 undefined on input
  line 69757.
 
 [1374] [1375] [1376] [1377]
