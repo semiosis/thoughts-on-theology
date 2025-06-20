@@ -9,8 +9,17 @@ class TOC {
     let curLevel = 0
     let previousTOCitem = undefined
 
+    // https://developer.mozilla.org/en-US/docs/Web/JavaScript/Reference/Global_Objects/Array/forEach
+    // The forEach() method of Array instances executes a provided function once for each array element.
+    // array1.forEach((element) => console.log(element));
+
     hset.forEach(heading => {
+      // The outerHTML attribute of the Element DOM interface gets the serialized HTML fragment describing the element including its descendants.
+
+      // [1] is the second element of match. It captures the capture group in the regex
       const hLevel = heading.outerHTML.match(/<h([\d]).*>/)[1]
+      // The innerText property of the HTMLElement interface represents the rendered text content of a node and its descendants.
+      // As a getter, it approximates the text the user would get if they highlighted the contents of the element with the cursor and then copied it to the clipboard. As a setter this will replace the element's children with the given value, converting any line breaks into <br> elements.
       const titleText = heading.innerText
 
       console.log(hLevel + " " + titleText)
