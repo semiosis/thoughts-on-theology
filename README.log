@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  28 JUN 2025 21:18
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  28 JUN 2025 21:50
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -702,7 +702,7 @@ Overfull \hbox (83.49358pt too wide) in paragraph at lines 2688--2689
 
 [54] [55] [56] [57] [58] [59] [60] [61]
 
-LaTeX Warning: Hyper reference `sec:org284e1e1' on page 62 undefined on input l
+LaTeX Warning: Hyper reference `sec:orgd498c23' on page 62 undefined on input l
 ine 3076.
 
 [62] [63] [64] [65]
@@ -4280,7 +4280,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [685]
 
-LaTeX Warning: Reference `sec:org31eff1c' on page 686 undefined on input line 3
+LaTeX Warning: Reference `sec:org4614c3f' on page 686 undefined on input line 3
 4748.
 
 [686] [687]
@@ -6194,7 +6194,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1152] [1153] [1154] [1155]
 
-LaTeX Warning: Reference `sec:org31eff1c' on page 1156 undefined on input line 
+LaTeX Warning: Reference `sec:org4614c3f' on page 1156 undefined on input line 
 58249.
 
 [1156] [1157]
@@ -6412,7 +6412,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 61328--61347
 
 [1213] [1214] [1215]
 
-LaTeX Warning: Hyper reference `sec:org75ea078' on page 1216 undefined on input
+LaTeX Warning: Hyper reference `sec:org37e72e2' on page 1216 undefined on input
  line 61478.
 
 
@@ -6866,7 +6866,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 71118--71119
 
 [1398] [1399] [1400] [1401]
 
-LaTeX Warning: Hyper reference `sec:org75ea078' on page 1402 undefined on input
+LaTeX Warning: Hyper reference `sec:org37e72e2' on page 1402 undefined on input
  line 71277.
 
 [1402] [1403] [1404] [1405]
