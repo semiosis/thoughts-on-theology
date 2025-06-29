@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  29 JUN 2025 18:21
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  29 JUN 2025 18:42
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -702,7 +702,7 @@ Overfull \hbox (83.49358pt too wide) in paragraph at lines 2738--2739
 
 [55] [56] [57] [58] [59] [60] [61] [62]
 
-LaTeX Warning: Hyper reference `sec:org36d175a' on page 63 undefined on input l
+LaTeX Warning: Hyper reference `sec:org91a2b02' on page 63 undefined on input l
 ine 3126.
 
 [63] [64] [65] [66]
@@ -2852,22 +2852,22 @@ Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֹ in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
-
+ [310]
 Overfull \hbox (12.44635pt too wide) in paragraph at lines 15676--15683
 []\TU/lmr/m/n/10.95 You came as a man;
  []
 
-[310] [311] [312] [313] [314] [315] [316] [317]
+[311] [312] [313] [314] [315] [316] [317]
 Overfull \hbox (83.5848pt too wide) in paragraph at lines 16028--16044
 []
  []
 
-
+[318]
 Overfull \hbox (271.22697pt too wide) in paragraph at lines 16077--16081
 []
  []
 
-[318] [319] [320] [321]
+[319] [320] [321]
 Overfull \hbox (98.66147pt too wide) in paragraph at lines 16256--16257
 []\TU/lmr/m/n/10.95 I believe strongly that I am \TU/lmr/bx/n/10.95 currently \
 TU/lmr/m/n/10.95 going through this and I have been going through this discipli
@@ -4284,7 +4284,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [686]
 
-LaTeX Warning: Reference `sec:orgdd8dd6e' on page 687 undefined on input line 3
+LaTeX Warning: Reference `sec:org2ac003a' on page 687 undefined on input line 3
 4818.
 
 [687] [688]
@@ -6199,7 +6199,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1153] [1154] [1155] [1156]
 
-LaTeX Warning: Reference `sec:orgdd8dd6e' on page 1157 undefined on input line 
+LaTeX Warning: Reference `sec:org2ac003a' on page 1157 undefined on input line 
 58313.
 
 [1157] [1158]
@@ -6417,7 +6417,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 61392--61411
 
 [1214] [1215] [1216]
 
-LaTeX Warning: Hyper reference `sec:org29fa95e' on page 1217 undefined on input
+LaTeX Warning: Hyper reference `sec:org4f8c1ad' on page 1217 undefined on input
  line 61542.
 
 
@@ -6870,7 +6870,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 71184--71185
 
 [1399] [1400] [1401] [1402]
 
-LaTeX Warning: Hyper reference `sec:org29fa95e' on page 1403 undefined on input
+LaTeX Warning: Hyper reference `sec:org4f8c1ad' on page 1403 undefined on input
  line 71343.
 
 [1403] [1404] [1405] [1406]
