@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  2 JUL 2025 18:22
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  2 JUL 2025 19:25
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -702,7 +702,7 @@ Overfull \hbox (83.49358pt too wide) in paragraph at lines 2827--2828
 
 [57] [58] [59] [60] [61] [62] [63] [64]
 
-LaTeX Warning: Hyper reference `sec:orgbdc5feb' on page 65 undefined on input l
+LaTeX Warning: Hyper reference `sec:org28073b4' on page 65 undefined on input l
 ine 3215.
 
 [65] [66] [67] [68]
@@ -4280,7 +4280,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [693]
 
-LaTeX Warning: Reference `sec:org4964366' on page 694 undefined on input line 3
+LaTeX Warning: Reference `sec:org8ca4d86' on page 694 undefined on input line 3
 5078.
 
 [694] [695]
@@ -6194,7 +6194,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1161] [1162] [1163] [1164]
 
-LaTeX Warning: Reference `sec:org4964366' on page 1165 undefined on input line 
+LaTeX Warning: Reference `sec:org8ca4d86' on page 1165 undefined on input line 
 58620.
 
 [1165] [1166]
@@ -6412,7 +6412,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 61699--61718
 
 [1222] [1223] [1224]
 
-LaTeX Warning: Hyper reference `sec:org74aa01c' on page 1225 undefined on input
+LaTeX Warning: Hyper reference `sec:org4664756' on page 1225 undefined on input
  line 61849.
 
 
@@ -6865,7 +6865,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 71491--71492
 
 [1407] [1408] [1409] [1410]
 
-LaTeX Warning: Hyper reference `sec:org74aa01c' on page 1411 undefined on input
+LaTeX Warning: Hyper reference `sec:org4664756' on page 1411 undefined on input
  line 71650.
 
 [1411] [1412] [1413] [1414]
