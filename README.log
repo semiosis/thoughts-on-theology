@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  7 SEP 2025 09:55
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  7 SEP 2025 13:16
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -750,7 +750,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 4800--4808
 
 [104] [105] [106]
 
-LaTeX Warning: Hyper reference `sec:orgbea45b9' on page 107 undefined on input 
+LaTeX Warning: Hyper reference `sec:org71df442' on page 107 undefined on input 
 line 5194.
 
 [107] [108] [109]
@@ -1601,7 +1601,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 9691--9694
 
 [204]
 
-LaTeX Warning: Hyper reference `sec:org3d60651' on page 205 undefined on input 
+LaTeX Warning: Hyper reference `sec:org9e63e15' on page 205 undefined on input 
 line 9758.
 
 [205]
@@ -4694,7 +4694,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [774]
 
-LaTeX Warning: Reference `sec:org9640630' on page 775 undefined on input line 3
+LaTeX Warning: Reference `sec:org2bc6406' on page 775 undefined on input line 3
 8841.
 
 [775] [776]
@@ -6617,7 +6617,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1274] [1275] [1276]
 
-LaTeX Warning: Reference `sec:org9640630' on page 1277 undefined on input line 
+LaTeX Warning: Reference `sec:org2bc6406' on page 1277 undefined on input line 
 63523.
 
 [1277] [1278]
@@ -6834,7 +6834,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 66800--66819
 
 [1340] [1341] [1342]
 
-LaTeX Warning: Hyper reference `sec:org2c26232' on page 1343 undefined on input
+LaTeX Warning: Hyper reference `sec:orga4c24e5' on page 1343 undefined on input
  line 66969.
 
 
@@ -7753,7 +7753,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 77130--77131
 
 [1535] [1536] [1537] [1538]
 
-LaTeX Warning: Hyper reference `sec:org2c26232' on page 1539 undefined on input
+LaTeX Warning: Hyper reference `sec:orga4c24e5' on page 1539 undefined on input
  line 77289.
 
 [1539] [1540] [1541] [1542]
@@ -8103,30 +8103,31 @@ Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
-
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 78934--78934
+ [1572]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 78952--78952
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
-[1572]
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 78934--78934
+
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 78952--78952
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
 
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 78947--78947
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 78965--78965
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 78976.
-[1573] [1574]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 78976.
+[1573]
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 78994.
+ [1574]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 78994.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 78976.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 78976
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 78994.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 78994
 .
 
 
@@ -8143,7 +8144,7 @@ LaTeX Warning: There were undefined references.
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 78976.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 78994.
  ) 
 Here is how much of TeX's memory you used:
  11304 strings out of 494868
