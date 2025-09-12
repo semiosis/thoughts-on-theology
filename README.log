@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  12 SEP 2025 09:06
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  12 SEP 2025 16:02
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -756,7 +756,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 5048--5056
 
 [109] [110] [111]
 
-LaTeX Warning: Hyper reference `sec:orgff15803' on page 112 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgd193d16' on page 112 undefined on input 
 line 5442.
 
 [112] [113] [114] [115]
@@ -1607,7 +1607,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 9939--9942
 
 [210]
 
-LaTeX Warning: Hyper reference `sec:org60f8025' on page 211 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgbcf1b90' on page 211 undefined on input 
 line 10006.
 
 [211]
@@ -4701,7 +4701,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [781]
 
-LaTeX Warning: Reference `sec:orgf24eebf' on page 782 undefined on input line 3
+LaTeX Warning: Reference `sec:org88a5df2' on page 782 undefined on input line 3
 9145.
 
 [782] [783]
@@ -6632,7 +6632,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1292] [1293] [1294]
 
-LaTeX Warning: Reference `sec:orgf24eebf' on page 1295 undefined on input line 
+LaTeX Warning: Reference `sec:org88a5df2' on page 1295 undefined on input line 
 64947.
 
 [1295] [1296]
@@ -6849,7 +6849,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 68224--68243
 
 [1358] [1359] [1360]
 
-LaTeX Warning: Hyper reference `sec:org3d92051' on page 1361 undefined on input
+LaTeX Warning: Hyper reference `sec:orgf684484' on page 1361 undefined on input
  line 68393.
 
 
@@ -7770,7 +7770,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 78560--78561
 
 [1554] [1555] [1556] [1557]
 
-LaTeX Warning: Hyper reference `sec:org3d92051' on page 1558 undefined on input
+LaTeX Warning: Hyper reference `sec:orgf684484' on page 1558 undefined on input
  line 78719.
 
 [1558] [1559] [1560]
@@ -8116,7 +8116,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 80197--80204
 
 [1589]
 
-LaTeX Warning: Hyper reference `sec:orgc15a6c7' on page 1590 undefined on input
+LaTeX Warning: Hyper reference `sec:org0473391' on page 1590 undefined on input
  line 80260.
 
 
@@ -8125,37 +8125,46 @@ Overfull \hbox (66.9846pt too wide) in paragraph at lines 80315--80317
  []
 
 [1590]
+Overfull \hbox (129.65149pt too wide) in paragraph at lines 80332--80352
+[]
+ []
+
+
+Overfull \hbox (310.52348pt too wide) in paragraph at lines 80353--80369
+[]
+ []
+
+[1591]
 Missing character: There is no 细 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 罗 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
- [1591]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 80401--80401
+
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 80443--80443
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 80401--80401
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 80443--80443
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
-
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 80414--80414
+[1592]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 80456--80456
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-[1592]
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 80443.
- [1593]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 80443.
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 80485.
+[1593]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 80485.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 80443.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 80443
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 80485.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 80485
 .
 
 
@@ -8165,22 +8174,22 @@ Package rerunfilecheck Warning: File `README.out' has changed.
 
 Package rerunfilecheck Info: Checksums for `README.out':
 (rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  395D903932FBA9C5FF46C79A42102F77.
+(rerunfilecheck)             After:  003CFA8266DC5430AF324AE0FB334D2F.
 
 LaTeX Warning: There were undefined references.
 
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 80443.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 80485.
  ) 
 Here is how much of TeX's memory you used:
- 11308 strings out of 494868
- 160042 string characters out of 6175714
+ 11309 strings out of 494868
+ 160058 string characters out of 6175714
  267409 words of memory out of 5000000
- 15140 multiletter control sequences out of 15000+600000
+ 15141 multiletter control sequences out of 15000+600000
  10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6363b,1417s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,1418s stack positions out of 5000i,500n,10000p,200000b,80000s
 
 Output written on ./README.pdf (1593 pages).
