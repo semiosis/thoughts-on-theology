@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 JAN 2026 15:59
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 JAN 2026 16:23
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -548,11 +548,10 @@ Overfull \hbox (134.03874pt too wide) in paragraph at lines 1235--1236
 []
  []
 
-[29]
+[29] [30]
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-bold]:mapping=tex-text;!
- [30]
 Missing character: There is no ḗ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
@@ -561,12 +560,12 @@ Overfull \hbox (187.38287pt too wide) in paragraph at lines 1327--1340
 []
  []
 
-[31] [32] [33] [34] [35] [36] [37] [38] [39] [40] [41] [42]
+[31] [32] [33] [34] [35] [36] [37] [38] [39] [40] [41] [42] [43]
 Overfull \hbox (3.5243pt too wide) in paragraph at lines 1867--1874
 []\TU/lmr/m/n/10.95 Lord, You know that we love You;
  []
 
-[43] [44] [45] [46] [47] [48] [49] [50] [51]
+[44] [45] [46] [47] [48] [49] [50] [51] [52]
 
 ! LaTeX Error: Too deeply nested.
 
@@ -579,13 +578,12 @@ l.2220 \begin{itemize}
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
-[52]
+[53]
 Overfull \hbox (9.15128pt too wide) in paragraph at lines 2255--2256
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
  []
 
-[53]
 Missing character: There is no י in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
 Missing character: There is no א in font [lmmono10-regular]:!
@@ -604,6 +602,7 @@ Missing character: There is no י in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
 Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
+[54]
 Missing character: There is no ḡ in font [lmmono10-regular]:!
 Missing character: There is no ע in font [lmmono10-regular]:!
 Missing character: There is no ז in font [lmmono10-regular]:!
@@ -618,7 +617,7 @@ Missing character: There is no ה in font [lmmono10-regular]:!
 Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no א in font [lmmono10-regular]:!
 Missing character: There is no ׃ in font [lmmono10-regular]:!
- [54] [55] [56] [57] [58]
+ [55] [56] [57] [58]
 Overfull \hbox (9.15128pt too wide) in paragraph at lines 2473--2474
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
@@ -795,12 +794,12 @@ Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no ἰ in font [lmmono10-regular]:!
 Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ί in font [lmmono10-regular]:!
- [77] [78]
+ [77] [78] [79]
 Overfull \hbox (68.85341pt too wide) in paragraph at lines 3307--3308
 []
  []
 
-[79]
+
 Overfull \hbox (5.69847pt too wide) in paragraph at lines 3336--3337
 []\TU/lmr/m/n/10.95 I commented, ”I
  []
@@ -840,12 +839,12 @@ Overfull \hbox (78.50403pt too wide) in paragraph at lines 4558--4559
 []
  []
 
-[107] [108]
+[107] [108] [109]
 Overfull \hbox (7.14656pt too wide) in paragraph at lines 4663--4667
 []\TU/lmr/m/n/10.95 Purify my heart.
  []
 
-[109] [110]
+[110]
 Overfull \hbox (15.30063pt too wide) in paragraph at lines 4784--4804
 []
  []
@@ -1047,7 +1046,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 9865--9873
 
 [224] [225] [226]
 
-LaTeX Warning: Hyper reference `sec:org137038e' on page 227 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgd0978d1' on page 227 undefined on input 
 line 10259.
 
 [227] [228] [229] [230]
@@ -1963,7 +1962,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 16204--16207
 
 [357]
 
-LaTeX Warning: Hyper reference `sec:orgd9012cb' on page 358 undefined on input 
+LaTeX Warning: Hyper reference `sec:org76c8231' on page 358 undefined on input 
 line 16271.
 
 [358]
@@ -5239,7 +5238,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [976]
 
-LaTeX Warning: Reference `sec:org2a92026' on page 977 undefined on input line 4
+LaTeX Warning: Reference `sec:org45c25a0' on page 977 undefined on input line 4
 7477.
 
 [977] [978]
@@ -7219,7 +7218,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1512] [1513] [1514]
 
-LaTeX Warning: Reference `sec:org2a92026' on page 1515 undefined on input line 
+LaTeX Warning: Reference `sec:org45c25a0' on page 1515 undefined on input line 
 74411.
 
 [1515] [1516] [1517]
@@ -7438,7 +7437,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 77884--77887
 
 [1583] [1584] [1585] [1586] [1587]
 
-LaTeX Warning: Hyper reference `sec:org211fb29' on page 1588 undefined on input
+LaTeX Warning: Hyper reference `sec:org1fe83d5' on page 1588 undefined on input
  line 78137.
 
 
@@ -8356,7 +8355,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 88568--88569
 
 [1788] [1789] [1790] [1791] [1792]
 
-LaTeX Warning: Hyper reference `sec:org211fb29' on page 1793 undefined on input
+LaTeX Warning: Hyper reference `sec:org1fe83d5' on page 1793 undefined on input
  line 88731.
 
 [1793] [1794] [1795]
@@ -8701,7 +8700,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 90342--90349
 
 [1826] [1827]
 
-LaTeX Warning: Hyper reference `sec:org6a8fdfb' on page 1828 undefined on input
+LaTeX Warning: Hyper reference `sec:orgd7c66b2' on page 1828 undefined on input
  line 90409.
 
 
