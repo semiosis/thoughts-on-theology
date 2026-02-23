@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 FEB 2026 10:49
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  23 FEB 2026 13:37
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -407,19 +407,21 @@ LaTeX Font Info:    Try loading font information for U+msb on input line 28.
 File: umsb.fd 2013/01/14 v3.01 AMS symbols B
 ) [1
 
-] [2] [3] [4]
+] [2]
+Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
+ [3] [4]
 File: ./3nails.png Graphic file (type bmp)
 <./3nails.png>
 
 [5]
-Overfull \hbox (203.99402pt too wide) in paragraph at lines 261--297
+Overfull \hbox (203.99402pt too wide) in paragraph at lines 257--293
 []
  []
 
 [6]
 Missing character: There is no ₂ in font [lmroman10-regular]:mapping=tex-text;!
  [7] [8] [9] [10] [11]
-Overfull \hbox (48.3331pt too wide) in paragraph at lines 560--561
+Overfull \hbox (48.3331pt too wide) in paragraph at lines 556--557
 []
  []
 
@@ -432,7 +434,7 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.1480 \begin{itemize}
+l.1476 \begin{itemize}
                       
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
@@ -550,18 +552,18 @@ Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
  [36]
-Overfull \hbox (28.85004pt too wide) in paragraph at lines 1566--1567
+Overfull \hbox (28.85004pt too wide) in paragraph at lines 1562--1563
 []\TU/lmr/m/n/10.95 Being ’[]philos with (friends with, allured by, attracted t
 o)[]’, money , self, pleasure, rather than ([][[strongs:G3123][(G3123
  []
 
 
-Overfull \hbox (52.77881pt too wide) in paragraph at lines 1589--1590
+Overfull \hbox (52.77881pt too wide) in paragraph at lines 1585--1586
 []
  []
 
 [37] [38] [39] [40]
-Overfull \hbox (134.03874pt too wide) in paragraph at lines 1717--1718
+Overfull \hbox (134.03874pt too wide) in paragraph at lines 1713--1714
 []
  []
 
@@ -573,7 +575,7 @@ Missing character: There is no ḗ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (187.38287pt too wide) in paragraph at lines 1815--1828
+Overfull \hbox (187.38287pt too wide) in paragraph at lines 1811--1824
 []
  []
 
@@ -581,17 +583,17 @@ Overfull \hbox (187.38287pt too wide) in paragraph at lines 1815--1828
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
  [47] [48] [49] [50] [51] [52] [53] [54] [55] [56] [57]
 [58] [59]
-Overfull \hbox (3.5243pt too wide) in paragraph at lines 2613--2620
+Overfull \hbox (3.5243pt too wide) in paragraph at lines 2609--2616
 []\TU/lmr/m/n/10.95 Lord, You know that we love You;
  []
 
 
-Overfull \hbox (144.85367pt too wide) in paragraph at lines 2623--2628
+Overfull \hbox (144.85367pt too wide) in paragraph at lines 2619--2624
 []
  []
 
 
-Overfull \hbox (76.40157pt too wide) in paragraph at lines 2637--2638
+Overfull \hbox (76.40157pt too wide) in paragraph at lines 2633--2634
 []
  []
 
@@ -603,13 +605,13 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.2998 \begin{itemize}
+l.2994 \begin{itemize}
                       
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
 [69] [70]
-Overfull \hbox (9.15128pt too wide) in paragraph at lines 3041--3042
+Overfull \hbox (9.15128pt too wide) in paragraph at lines 3037--3038
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
  []
@@ -646,7 +648,9 @@ Missing character: There is no ה in font [lmmono10-regular]:!
 Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no א in font [lmmono10-regular]:!
 Missing character: There is no ׃ in font [lmmono10-regular]:!
-[71] [72] [73] [74] [75]
+[71]
+Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
+ [72] [73] [74] [75]
 Overfull \hbox (9.15128pt too wide) in paragraph at lines 3279--3280
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
@@ -1101,7 +1105,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 11123--11131
 
 [250] [251] [252]
 
-LaTeX Warning: Hyper reference `sec:org3309156' on page 253 undefined on input 
+LaTeX Warning: Hyper reference `sec:org3557354' on page 253 undefined on input 
 line 11517.
 
 [253] [254] [255] [256] [257]
@@ -2016,7 +2020,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 17587--17590
 
 [387]
 
-LaTeX Warning: Hyper reference `sec:orgafbae75' on page 388 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgee7e790' on page 388 undefined on input 
 line 17654.
 
 [388]
@@ -5341,7 +5345,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1017]
 
-LaTeX Warning: Reference `sec:orgb3eedb8' on page 1018 undefined on input line 
+LaTeX Warning: Reference `sec:orged5d08e' on page 1018 undefined on input line 
 49267.
 
 [1018] [1019]
@@ -7322,7 +7326,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1556] [1557] [1558]
 
-LaTeX Warning: Reference `sec:orgb3eedb8' on page 1559 undefined on input line 
+LaTeX Warning: Reference `sec:orged5d08e' on page 1559 undefined on input line 
 76278.
 
 [1559] [1560] [1561]
@@ -7541,7 +7545,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 79791--79794
 
 [1628] [1629] [1630] [1631] [1632]
 
-LaTeX Warning: Hyper reference `sec:org80bcc37' on page 1633 undefined on input
+LaTeX Warning: Hyper reference `sec:org82c6008' on page 1633 undefined on input
  line 80068.
 
 [1633]
@@ -8460,7 +8464,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 90510--90511
 
 [1833] [1834] [1835] [1836] [1837]
 
-LaTeX Warning: Hyper reference `sec:org80bcc37' on page 1838 undefined on input
+LaTeX Warning: Hyper reference `sec:org82c6008' on page 1838 undefined on input
  line 90673.
 
 [1838] [1839] [1840]
@@ -8805,7 +8809,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 92284--92291
 
 [1871] [1872]
 
-LaTeX Warning: Hyper reference `sec:org81ece61' on page 1873 undefined on input
+LaTeX Warning: Hyper reference `sec:org6b371f2' on page 1873 undefined on input
  line 92351.
 
 
@@ -8935,29 +8939,30 @@ Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
  [1950] [1951]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 95845--95845
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 95853--95853
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 95845--95845
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 95853--95853
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
 
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 95858--95858
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 95866--95866
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 95887.
-[1952] [1953]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 95887.
+[1952]
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 95895.
+ [1953]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 95895.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 95887.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 95887
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 95895.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 95895
 .
 
 
@@ -8974,12 +8979,12 @@ LaTeX Warning: There were undefined references.
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 95887.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 95895.
  ) 
 Here is how much of TeX's memory you used:
  11356 strings out of 494868
  160768 string characters out of 6175714
- 257409 words of memory out of 5000000
+ 256409 words of memory out of 5000000
  15184 multiletter control sequences out of 15000+600000
  10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
