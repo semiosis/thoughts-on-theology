@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  12 MAR 2026 11:45
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  12 MAR 2026 12:26
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -429,21 +429,7 @@ Overfull \hbox (65.72536pt too wide) in paragraph at lines 1036--1037
 []
  []
 
-[22] [23]
-Overfull \hbox (13.96112pt too wide) in paragraph at lines 1168--1172
-\TU/lmr/m/n/10.95 Father \TU/lmr/m/it/10.95 (*[[[]$[][][][][] [] [] [] [][][] [
-] [][][][][][][][][][][][] [] [][][] [] [][][][][][][]$[]\TU/lmr/m/n/10.95 ?sea
-rch=Hebrews%2012%3A1-4&version=ESV][Hebrews
- []
-
-
-Overfull \hbox (141.24342pt too wide) in paragraph at lines 1173--1180
-\TU/lmr/m/it/10.95 (love God’s word, love the Light, love Jesus. *[[[]$[][][][]
-[] [] [] [] [][][] [] [][][][][][][][][][][][] [] [][][] [] [][][][][][][]$[]\T
-U/lmr/m/n/10.95 ?search=Acts%2026%3A18&version=ESV][Acts
- []
-
-[24] [25] [26]
+[22] [23] [24] [25] [26]
 Missing character: There is no ο in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-bold]:mapping=tex-text;!
@@ -453,8 +439,8 @@ Missing character: There is no ο in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-bold]:mapping=tex-text;!
- [29] [30] [31] [32] [33] [34] [35] [36] [37] [38]
-[39] [40] [41] [42] [43] [44]
+ [29] [30] [31] [32] [33] [34] [35] [36]
+[37] [38] [39] [40] [41] [42] [43]
 Missing character: There is no δ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ί in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no κ in font [lmroman10-regular]:mapping=tex-text;!
@@ -462,7 +448,7 @@ Missing character: There is no α in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
- [45] [46] [47]
+ [44] [45] [46] [47]
 
 ! LaTeX Error: Too deeply nested.
 
@@ -1146,7 +1132,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 12151--12159
 
 [270] [271] [272]
 
-LaTeX Warning: Hyper reference `sec:orgf73f885' on page 273 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgb57aed6' on page 273 undefined on input 
 line 12545.
 
 [273] [274] [275] [276] [277] [278]
@@ -1868,20 +1854,6 @@ p") – properly, to show warm affection in intimate friendship, characterized b
  tender, heartfelt consideration and kinship.[] 
  []
 
-
-Overfull \hbox (13.96112pt too wide) in paragraph at lines 17796--17800
-\TU/lmr/m/n/10.95 Father \TU/lmr/m/it/10.95 (*[[[]$[][][][][] [] [] [] [][][] [
-] [][][][][][][][][][][][] [] [][][] [] [][][][][][][]$[]\TU/lmr/m/n/10.95 ?sea
-rch=Hebrews%2012%3A1-4&version=ESV][Hebrews
- []
-
-
-Overfull \hbox (141.24342pt too wide) in paragraph at lines 17801--17808
-\TU/lmr/m/it/10.95 (love God’s word, love the Light, love Jesus. *[[[]$[][][][]
-[] [] [] [] [][][] [] [][][][][][][][][][][][] [] [][][] [] [][][][][][][]$[]\T
-U/lmr/m/n/10.95 ?search=Acts%2026%3A18&version=ESV][Acts
- []
-
 [390] [391]
 Overfull \hbox (190.36919pt too wide) in paragraph at lines 17879--17889
 []
@@ -2076,7 +2048,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 18732--18735
 
 [409]
 
-LaTeX Warning: Hyper reference `sec:orgc852b55' on page 410 undefined on input 
+LaTeX Warning: Hyper reference `sec:org4442636' on page 410 undefined on input 
 line 18799.
 
 
@@ -5400,7 +5372,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1040]
 
-LaTeX Warning: Reference `sec:orge41b7d2' on page 1041 undefined on input line 
+LaTeX Warning: Reference `sec:orgab24234' on page 1041 undefined on input line 
 50470.
 
 [1041] [1042]
@@ -7379,7 +7351,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1579] [1580] [1581]
 
-LaTeX Warning: Reference `sec:orge41b7d2' on page 1582 undefined on input line 
+LaTeX Warning: Reference `sec:orgab24234' on page 1582 undefined on input line 
 77491.
 
 [1582] [1583] [1584]
@@ -7598,7 +7570,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 81004--81007
 
 [1651] [1652] [1653] [1654] [1655]
 
-LaTeX Warning: Hyper reference `sec:org57ac867' on page 1656 undefined on input
+LaTeX Warning: Hyper reference `sec:org04b7647' on page 1656 undefined on input
  line 81281.
 
 [1656]
@@ -8517,7 +8489,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 91735--91736
 
 [1856] [1857] [1858] [1859] [1860]
 
-LaTeX Warning: Hyper reference `sec:org57ac867' on page 1861 undefined on input
+LaTeX Warning: Hyper reference `sec:org04b7647' on page 1861 undefined on input
  line 91898.
 
 [1861] [1862] [1863]
@@ -8862,7 +8834,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 93521--93528
 
 [1895]
 
-LaTeX Warning: Hyper reference `sec:orga6db636' on page 1896 undefined on input
+LaTeX Warning: Hyper reference `sec:org2b512c0' on page 1896 undefined on input
  line 93588.
 
 
@@ -9036,11 +9008,11 @@ LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 97187.
  ) 
 Here is how much of TeX's memory you used:
- 11360 strings out of 494868
- 160838 string characters out of 6175714
- 259409 words of memory out of 5000000
- 15186 multiletter control sequences out of 15000+600000
- 10435 words of font info for 57 fonts, out of 8000000 for 9000
+ 11357 strings out of 494868
+ 160784 string characters out of 6175714
+ 260409 words of memory out of 5000000
+ 15185 multiletter control sequences out of 15000+600000
+ 10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
  28i,9n,45p,6363b,1459s stack positions out of 5000i,500n,10000p,200000b,80000s
 
