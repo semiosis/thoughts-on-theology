@@ -1,0 +1,32 @@
+#+LATEX_HEADER: \usepackage[margin=0.5in]{geometry}
+#+OPTIONS: toc:nil
+#+DATE: Year:month:day
+
+# | Phone         | Email                 | City        |
+# |---------------+-----------------------+-------------|
+# | 021 0871 2387 | =mullikine@gmail.com= | Dunedin, NZ |
+
+** Cover Letter
+
+# It's nice to have just a single newline (i.e. one lot of \\) because
+# otherwise it looks like there is too much going on on the screen
+
+Dear employer,
+\\
+After a long career of writing software, I'm seeking a change.
+I have transferable skills. I have writing and communication skills.
+I have a website here, where I have been writing theology for the past year (https://semiosis.github.io/).
+In the past I have organised meetings in a small software team.
+I like to write my own software.
+I'm not against programming, but I am against being forced into using generative AI tools such as chatbots,
+and sadly the industry seems to be saturated with that now and I'm moving on from that,
+and I am keen on doing something completely different, even if it's packing shelves or working as a security guard.
+I'm able-bodied. I'm not super fit or anything, but I am physically able to do things like pack shelves.
+I studied the sciences at Otago University; chemistry, biology and anatomy.
+I can play music.
+I'm looking for a job to do in Dunedin currently, but not in my former area of expertise which was in artificial intelligence.
+Please get in touch with me if you think you have any available suitable work.
+\\
+Thank you,
+\\
+Shane Mulligan
