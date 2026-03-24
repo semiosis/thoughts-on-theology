@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 MAR 2026 09:57
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 MAR 2026 11:17
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1148,7 +1148,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 12753--12761
 
 [283] [284] [285]
 
-LaTeX Warning: Hyper reference `sec:org209a4dc' on page 286 undefined on input 
+LaTeX Warning: Hyper reference `sec:org43f5a19' on page 286 undefined on input 
 line 13147.
 
 [286] [287] [288] [289] [290]
@@ -2062,7 +2062,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 19419--19422
 
 [422]
 
-LaTeX Warning: Hyper reference `sec:orgeafa063' on page 423 undefined on input 
+LaTeX Warning: Hyper reference `sec:org9bd3c70' on page 423 undefined on input 
 line 19486.
 
 [423]
@@ -5396,7 +5396,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1057]
 
-LaTeX Warning: Reference `sec:org4f0aac7' on page 1058 undefined on input line 
+LaTeX Warning: Reference `sec:orgedf2223' on page 1058 undefined on input line 
 51388.
 
 [1058] [1059]
@@ -7382,7 +7382,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1604] [1605] [1606]
 
-LaTeX Warning: Reference `sec:org4f0aac7' on page 1607 undefined on input line 
+LaTeX Warning: Reference `sec:orgedf2223' on page 1607 undefined on input line 
 78710.
 
 [1607] [1608] [1609]
@@ -7601,7 +7601,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 82227--82230
 
 [1676] [1677] [1678] [1679] [1680]
 
-LaTeX Warning: Hyper reference `sec:orgca3d81f' on page 1681 undefined on input
+LaTeX Warning: Hyper reference `sec:org75a587f' on page 1681 undefined on input
  line 82504.
 
 [1681]
@@ -8520,7 +8520,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 93006--93007
 
 [1882] [1883] [1884] [1885] [1886]
 
-LaTeX Warning: Hyper reference `sec:orgca3d81f' on page 1887 undefined on input
+LaTeX Warning: Hyper reference `sec:org75a587f' on page 1887 undefined on input
  line 93169.
 
 [1887] [1888] [1889]
@@ -8848,96 +8848,96 @@ Overfull \hbox (83.82571pt too wide) in paragraph at lines 94266--94309
 []
  []
 
-[1910] [1911] [1912] [1913] [1914] [1915] [1916]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 94603--94604
+[1910] [1911] [1912] [1913] [1914] [1915] [1916] [1917]
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 94619--94620
 []
  []
 
-[1917]
-Overfull \hbox (123.74574pt too wide) in paragraph at lines 94653--94662
+[1918]
+Overfull \hbox (123.74574pt too wide) in paragraph at lines 94669--94678
 []
  []
 
-[1918] [1919] [1920]
-Overfull \hbox (10.50821pt too wide) in paragraph at lines 94798--94805
+[1919] [1920]
+Overfull \hbox (10.50821pt too wide) in paragraph at lines 94814--94821
 []\TU/lmr/m/n/10.95 Speaking
  []
 
-[1921]
+[1921] [1922]
 
-LaTeX Warning: Hyper reference `sec:org624fd04' on page 1922 undefined on input
- line 94885.
-
-[1922]
-Overfull \hbox (557.49702pt too wide) in paragraph at lines 94918--94919
-[]
- []
+LaTeX Warning: Hyper reference `sec:orge1c0979' on page 1923 undefined on input
+ line 94901.
 
 
-Overfull \hbox (66.9846pt too wide) in paragraph at lines 94944--94946
+Overfull \hbox (557.49702pt too wide) in paragraph at lines 94934--94935
 []
  []
 
 [1923]
-Overfull \hbox (129.65149pt too wide) in paragraph at lines 94961--94967
+Overfull \hbox (66.9846pt too wide) in paragraph at lines 94960--94962
+[]
+ []
+
+
+Overfull \hbox (129.65149pt too wide) in paragraph at lines 94977--94983
 []
  []
 
 [1924] [1925]
-Overfull \hbox (310.52348pt too wide) in paragraph at lines 95051--95056
+Overfull \hbox (310.52348pt too wide) in paragraph at lines 95067--95072
 []
  []
 
 
-Overfull \hbox (310.52348pt too wide) in paragraph at lines 95062--95069
+Overfull \hbox (310.52348pt too wide) in paragraph at lines 95078--95085
 []
  []
 
-[1926]
-Overfull \hbox (320.28731pt too wide) in paragraph at lines 95186--95186
+[1926] [1927]
+Overfull \hbox (320.28731pt too wide) in paragraph at lines 95202--95202
 []\TU/lmtt/m/n/10.95 3  please, LORD God, help those who when I unregenerate ha
 d been my friends according to the flesh, help them to see things through the e
 yes of faith,[] 
  []
 
 
-Overfull \hbox (27.10112pt too wide) in paragraph at lines 95186--95186
+Overfull \hbox (27.10112pt too wide) in paragraph at lines 95202--95202
 []\TU/lmtt/m/n/10.95 4  and to have faith in You, in Your word, in Your promise
 s, and to not be led astray by the world.[] 
  []
 
-[1927] [1928] [1929] [1930]
-Overfull \hbox (16.94315pt too wide) in paragraph at lines 95327--95328
+[1928] [1929] [1930]
+Overfull \hbox (16.94315pt too wide) in paragraph at lines 95343--95344
 []\TU/lmr/m/n/10.95 Amazing,
  []
 
 [1931] [1932] [1933]
-Overfull \hbox (262.79982pt too wide) in paragraph at lines 95488--95488
+Overfull \hbox (262.79982pt too wide) in paragraph at lines 95504--95504
 [] \TU/lmtt/m/n/10.95 5  Spreading disgusting perverted speech in a video game 
 especially when there may be young people reading, I hate with a righteous hatr
 ed.[] 
  []
 
 
-Overfull \hbox (147.82484pt too wide) in paragraph at lines 95488--95488
+Overfull \hbox (147.82484pt too wide) in paragraph at lines 95504--95504
 [] \TU/lmtt/m/n/10.95 8  I know that I must agape love my family in Christ, but
  if people love sin more that You, God, then I just hate that,[] 
  []
 
 
-Overfull \hbox (119.0811pt too wide) in paragraph at lines 95488--95488
+Overfull \hbox (119.0811pt too wide) in paragraph at lines 95504--95504
 [] \TU/lmtt/m/n/10.95 9  and I hate the fact that their actions influence other
  people and because I don't want people to perish, I want[] 
  []
 
 
-Overfull \hbox (216.80983pt too wide) in paragraph at lines 95488--95488
+Overfull \hbox (216.80983pt too wide) in paragraph at lines 95504--95504
 []\TU/lmtt/m/n/10.95 10  these people who love sin more than You to be stopped 
 particularly because it hurts other people, and spreads corrupt behaviour.[] 
  []
 
 
-Overfull \hbox (274.29732pt too wide) in paragraph at lines 95488--95488
+Overfull \hbox (274.29732pt too wide) in paragraph at lines 95504--95504
 []\TU/lmtt/m/n/10.95 12  But I hate what they're doing. Do I love them? In that
  I don't want them to perish, yes, but come to a love of and knowledge of the t
 ruth.[] 
@@ -8958,11 +8958,12 @@ Missing character: There is no ֑ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no י in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ם in font [lmroman10-regular]:mapping=tex-text;!
  [1938] [1939] [1940] [1941] [1942] [1943] [1944]
-Overfull \hbox (107.65656pt too wide) in paragraph at lines 96017--96027
+[1945]
+Overfull \hbox (107.65656pt too wide) in paragraph at lines 96033--96043
 []
  []
 
-[1945] [1946] [1947] [1948] [1949] [1950] [1951] [1952] [1953] [1954]
+[1946] [1947] [1948] [1949] [1950] [1951] [1952] [1953] [1954]
 Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-regular]:mapping=tex-text;!
@@ -8971,21 +8972,21 @@ Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-regular]:mapping=tex-text;!
- [1955]
-[1956] [1957] [1958] [1959] [1960] [1961] [1962] [1963] [1964] [1965] [1966]
-[1967] [1968] [1969] [1970] [1971] [1972] [1973] [1974] [1975] [1976] [1977]
-[1978] [1979] [1980] [1981] [1982] [1983] [1984] [1985] [1986] [1987] [1988]
-[1989] [1990]
-Overfull \hbox (151.04413pt too wide) in paragraph at lines 97925--97926
+ [1955] [1956]
+[1957] [1958] [1959] [1960] [1961] [1962] [1963] [1964] [1965] [1966] [1967]
+[1968] [1969] [1970] [1971] [1972] [1973] [1974] [1975] [1976] [1977] [1978]
+[1979] [1980] [1981] [1982] [1983] [1984] [1985] [1986] [1987] [1988] [1989]
+[1990]
+Overfull \hbox (151.04413pt too wide) in paragraph at lines 97941--97942
 [][]\TU/lmr/m/n/10.95 youtube.com UgwhjGieoW0cFd1EOc94AaABAg.ARPjDDohS3fARQ-
  []
 
-[1991] [1992] [1993] [1994] [1995] [1996]
-Overfull \hbox (190.68675pt too wide) in paragraph at lines 98175--98176
+[1991] [1992] [1993] [1994] [1995] [1996] [1997]
+Overfull \hbox (190.68675pt too wide) in paragraph at lines 98191--98192
 []
  []
 
-[1997] [1998] [1999]
+[1998] [1999]
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
  [2000] [2001] [2002] [2003] [2004] [2005] [2006] [2007]
 Missing character: There is no 细 in font [lmroman10-regular]:mapping=tex-text;!
@@ -8994,31 +8995,32 @@ Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
-
-[2008]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 98737--98737
+ [2008]
+[2009]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 98753--98753
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
-[2009]
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 98737--98737
+
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 98753--98753
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
 
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 98750--98750
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 98766--98766
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 98779.
 [2010]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 98779.
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 98795.
+ [2011]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 98795.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 98779.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 98779
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 98795.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 98795
 .
 
 
@@ -9035,7 +9037,7 @@ LaTeX Warning: There were undefined references.
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 98779.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 98795.
  ) 
 Here is how much of TeX's memory you used:
  11358 strings out of 494868
@@ -9046,4 +9048,4 @@ Here is how much of TeX's memory you used:
  14 hyphenation exceptions out of 8191
  28i,9n,45p,6363b,1460s stack positions out of 5000i,500n,10000p,200000b,80000s
 
-Output written on ./README.pdf (2010 pages).
+Output written on ./README.pdf (2011 pages).
