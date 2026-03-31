@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  31 MAR 2026 22:07
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  1 APR 2026 09:16
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1149,7 +1149,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 12810--12818
 
 [285] [286] [287]
 
-LaTeX Warning: Hyper reference `sec:orgdc1b512' on page 288 undefined on input 
+LaTeX Warning: Hyper reference `sec:org4ba316b' on page 288 undefined on input 
 line 13204.
 
 [288] [289] [290] [291] [292]
@@ -2064,7 +2064,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 19477--19480
 
 [425]
 
-LaTeX Warning: Hyper reference `sec:org8d065b4' on page 426 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgd5e0b10' on page 426 undefined on input 
 line 19544.
 
 
@@ -5401,7 +5401,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1060]
 
-LaTeX Warning: Reference `sec:orgfec27f7' on page 1061 undefined on input line 
+LaTeX Warning: Reference `sec:org5bf43b1' on page 1061 undefined on input line 
 51467.
 
 [1061] [1062]
@@ -7387,7 +7387,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1607] [1608] [1609]
 
-LaTeX Warning: Reference `sec:orgfec27f7' on page 1610 undefined on input line 
+LaTeX Warning: Reference `sec:org5bf43b1' on page 1610 undefined on input line 
 78855.
 
 [1610] [1611] [1612]
@@ -7606,7 +7606,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 82372--82375
 
 [1679] [1680] [1681] [1682] [1683]
 
-LaTeX Warning: Hyper reference `sec:org9cfc267' on page 1684 undefined on input
+LaTeX Warning: Hyper reference `sec:orga256a50' on page 1684 undefined on input
  line 82649.
 
 [1684]
@@ -8525,7 +8525,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 93151--93152
 
 [1885] [1886] [1887] [1888] [1889]
 
-LaTeX Warning: Hyper reference `sec:org9cfc267' on page 1890 undefined on input
+LaTeX Warning: Hyper reference `sec:orga256a50' on page 1890 undefined on input
  line 93314.
 
 [1890] [1891] [1892]
@@ -8870,7 +8870,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 94961--94968
 
 [1924] [1925]
 
-LaTeX Warning: Hyper reference `sec:orgc27ca85' on page 1926 undefined on input
+LaTeX Warning: Hyper reference `sec:orgc0c0096' on page 1926 undefined on input
  line 95048.
 
 
@@ -9005,31 +9005,31 @@ Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
-[2015]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 99076--99076
+[2015] [2016]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 99112--99112
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 99076--99076
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 99112--99112
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
 
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 99089--99089
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 99125--99125
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-[2016]
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 99118.
- [2017]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 99118.
+[2017]
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 99154.
+ [2018]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 99154.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 99118.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 99118
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 99154.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 99154
 .
 
 
@@ -9039,22 +9039,22 @@ Package rerunfilecheck Warning: File `README.out' has changed.
 
 Package rerunfilecheck Info: Checksums for `README.out':
 (rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  7114F38E366EC364E7C7E83DDFFA5D59.
+(rerunfilecheck)             After:  FE0A261B74109CF4A75B0222958515A7.
 
 LaTeX Warning: There were undefined references.
 
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 99118.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 99154.
  ) 
 Here is how much of TeX's memory you used:
- 11362 strings out of 494868
- 160864 string characters out of 6175714
+ 11363 strings out of 494868
+ 160880 string characters out of 6175714
  262409 words of memory out of 5000000
- 15190 multiletter control sequences out of 15000+600000
+ 15191 multiletter control sequences out of 15000+600000
  10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6363b,1464s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,1465s stack positions out of 5000i,500n,10000p,200000b,80000s
 
-Output written on ./README.pdf (2017 pages).
+Output written on ./README.pdf (2018 pages).
