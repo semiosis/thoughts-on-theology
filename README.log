@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  1 APR 2026 12:33
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  1 APR 2026 22:03
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1148,7 +1148,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 12844--12852
 
 [285] [286] [287]
 
-LaTeX Warning: Hyper reference `sec:orged3017b' on page 288 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgd3b111c' on page 288 undefined on input 
 line 13238.
 
 [288] [289] [290] [291] [292]
@@ -2063,7 +2063,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 19511--19514
 
 [425]
 
-LaTeX Warning: Hyper reference `sec:orgd080454' on page 426 undefined on input 
+LaTeX Warning: Hyper reference `sec:org02bd3a6' on page 426 undefined on input 
 line 19578.
 
 
@@ -5401,7 +5401,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1060]
 
-LaTeX Warning: Reference `sec:orgff59c50' on page 1061 undefined on input line 
+LaTeX Warning: Reference `sec:org8ef6d2e' on page 1061 undefined on input line 
 51503.
 
 [1061] [1062]
@@ -7387,7 +7387,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1607] [1608] [1609]
 
-LaTeX Warning: Reference `sec:orgff59c50' on page 1610 undefined on input line 
+LaTeX Warning: Reference `sec:org8ef6d2e' on page 1610 undefined on input line 
 78891.
 
 [1610] [1611] [1612]
@@ -7606,7 +7606,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 82408--82411
 
 [1679] [1680] [1681] [1682] [1683]
 
-LaTeX Warning: Hyper reference `sec:org78daf57' on page 1684 undefined on input
+LaTeX Warning: Hyper reference `sec:org11d4a03' on page 1684 undefined on input
  line 82685.
 
 [1684]
@@ -8525,7 +8525,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 93187--93188
 
 [1885] [1886] [1887] [1888] [1889]
 
-LaTeX Warning: Hyper reference `sec:org78daf57' on page 1890 undefined on input
+LaTeX Warning: Hyper reference `sec:org11d4a03' on page 1890 undefined on input
  line 93350.
 
 [1890] [1891] [1892]
@@ -8870,7 +8870,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 95001--95008
 
 [1924] [1925]
 
-LaTeX Warning: Hyper reference `sec:org2703082' on page 1926 undefined on input
+LaTeX Warning: Hyper reference `sec:org2a0c1e3' on page 1926 undefined on input
  line 95088.
 
 [1926]
@@ -9000,38 +9000,37 @@ Overfull \hbox (765.97401pt too wide) in paragraph at lines 99015--99016
 []
  []
 
-[2015]
+[2015] [2016]
 Missing character: There is no 细 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 罗 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 音 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
- [2016] [2017]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 99173--99173
+ [2017]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 99204--99204
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 99173--99173
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 99204--99204
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
-
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 99186--99186
+[2018]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 99217--99217
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-[2018]
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 99215.
- [2019]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 99215.
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 99246.
+[2019]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 99246.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 99215.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 99215
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 99246.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 99246
 .
 
 
@@ -9041,22 +9040,22 @@ Package rerunfilecheck Warning: File `README.out' has changed.
 
 Package rerunfilecheck Info: Checksums for `README.out':
 (rerunfilecheck)             Before: 
-(rerunfilecheck)             After:  FE0A261B74109CF4A75B0222958515A7.
+(rerunfilecheck)             After:  CEF4B5B87621346C5971C9EF56ACD895.
 
 LaTeX Warning: There were undefined references.
 
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 99215.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 99246.
  ) 
 Here is how much of TeX's memory you used:
- 11363 strings out of 494868
- 160880 string characters out of 6175714
+ 11364 strings out of 494868
+ 160896 string characters out of 6175714
  262409 words of memory out of 5000000
- 15191 multiletter control sequences out of 15000+600000
+ 15192 multiletter control sequences out of 15000+600000
  10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191
- 28i,9n,45p,6363b,1465s stack positions out of 5000i,500n,10000p,200000b,80000s
+ 28i,9n,45p,6363b,1466s stack positions out of 5000i,500n,10000p,200000b,80000s
 
 Output written on ./README.pdf (2019 pages).
