@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 APR 2026 17:16
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 APR 2026 17:52
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1219,7 +1219,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 14421--14429
 
 [319] [320] [321]
 
-LaTeX Warning: Hyper reference `sec:org22f4f4c' on page 322 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgd0e00d5' on page 322 undefined on input 
 line 14815.
 
 [322] [323] [324] [325] [326] [327]
@@ -2144,7 +2144,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 21199--21202
 
 [462]
 
-LaTeX Warning: Hyper reference `sec:org34a650b' on page 463 undefined on input 
+LaTeX Warning: Hyper reference `sec:org8efcde1' on page 463 undefined on input 
 line 21266.
 
 
@@ -5524,7 +5524,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1111]
 
-LaTeX Warning: Reference `sec:orgd0758c8' on page 1112 undefined on input line 
+LaTeX Warning: Reference `sec:org5f007f8' on page 1112 undefined on input line 
 53829.
 
 [1112] [1113]
@@ -7428,14 +7428,14 @@ Overfull \hbox (21.60612pt too wide) in paragraph at lines 78066--78067
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][]$[] 
  []
 
-[1605] [1606] [1607] [1608]
+[1605] [1606] [1607] [1608] [1609]
 Overfull \hbox (0.85379pt too wide) in paragraph at lines 78305--78306
 [][]\TU/lmr/bx/n/10.95 Matthew 23:10[] \TU/lmr/m/n/10.95 - Neither be called in
 structors, for \TU/lmr/bx/n/10.95 you have one instructor (G2519. kathégétés),
  []
 
-[1609] [1610] [1611] [1612] [1613] [1614] [1615] [1616] [1617] [1618] [1619]
-[1620] [1621]
+[1610] [1611] [1612] [1613] [1614] [1615] [1616] [1617] [1618] [1619] [1620]
+[1621]
 Overfull \hbox (8.48975pt too wide) in paragraph at lines 78867--78880
 []\TU/lmr/m/n/10.95 The Bible does
  []
@@ -7531,7 +7531,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1679] [1680] [1681] [1682]
 
-LaTeX Warning: Reference `sec:orgd0758c8' on page 1683 undefined on input line 
+LaTeX Warning: Reference `sec:org5f007f8' on page 1683 undefined on input line 
 81995.
 
 [1683] [1684] [1685]
@@ -7749,7 +7749,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 85512--85515
 
 [1751] [1752] [1753] [1754] [1755]
 
-LaTeX Warning: Hyper reference `sec:orgdbf2628' on page 1756 undefined on input
+LaTeX Warning: Hyper reference `sec:org8db08a7' on page 1756 undefined on input
  line 85789.
 
 [1756]
@@ -8673,7 +8673,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 96508--96509
 
 [1962] [1963] [1964] [1965] [1966] [1967]
 
-LaTeX Warning: Hyper reference `sec:orgdbf2628' on page 1968 undefined on input
+LaTeX Warning: Hyper reference `sec:org8db08a7' on page 1968 undefined on input
  line 96717.
 
 [1968] [1969] [1970] [1971]
@@ -9018,7 +9018,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 98368--98375
 
 [2003] [2004]
 
-LaTeX Warning: Hyper reference `sec:org79647dd' on page 2005 undefined on input
+LaTeX Warning: Hyper reference `sec:org985cda3' on page 2005 undefined on input
  line 98455.
 
 
