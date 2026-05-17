@@ -1347,6 +1347,12 @@ kbd
   margin: .2em;
 }
 
+p + p
+{
+  padding-top: 0.3em;
+  padding-bottom: 0.3em;
+}
+
 p.verse
 {
   margin-left: 3%;
