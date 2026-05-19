@@ -1353,6 +1353,11 @@ p + p
   padding-bottom: 0.3em;
 }
 
+ul
+{
+    margin-bottom:0.5em;
+}
+
 p.verse
 {
   margin-left: 3%;
