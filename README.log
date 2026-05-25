@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 MAY 2026 11:00
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 MAY 2026 15:27
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -411,12 +411,13 @@ File: umsb.fd 2013/01/14 v3.01 AMS symbols B
 [5] [6] [7] [8] [9] [10] [11] [12] [13] [14] [15] [16] [17] [18]
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
  [19]
-Overfull \hbox (4.11774pt too wide) in paragraph at lines 891--892
+Overfull \hbox (4.11774pt too wide) in paragraph at lines 904--905
 []\TU/lmr/m/n/10.95 And clearly we must continue in the faith ([]\TU/lmr/bx/n/1
 0.95 I Corinthians 15:1-2[]\TU/lmr/m/n/10.95 ,*[]Colossians 1:21-23[]*,*[]Hebre
 ws 3:5-6[],*[]Hebrews
  []
 
+[20]
 Missing character: There is no δ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ί in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no κ in font [lmroman10-regular]:mapping=tex-text;!
@@ -424,63 +425,63 @@ Missing character: There is no α in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
-[20] [21] [22] [23] [24] [25] [26]
+ [21] [22] [23] [24] [25] [26]
 File: ./kick-against-goads.jpeg Graphic file (type bmp)
 <./kick-against-goads.jpeg>
- [27] [28]
-Overfull \hbox (14.20927pt too wide) in paragraph at lines 1302--1324
+ [27] [28] [29]
+Overfull \hbox (14.20927pt too wide) in paragraph at lines 1315--1337
 []
  []
 
-[29] [30] [31]
-Overfull \hbox (390.119pt too wide) in paragraph at lines 1389--1401
+[30] [31]
+Overfull \hbox (390.119pt too wide) in paragraph at lines 1402--1414
 []
  []
 
 
-Overfull \hbox (390.119pt too wide) in paragraph at lines 1438--1465
+Overfull \hbox (390.119pt too wide) in paragraph at lines 1451--1478
 []
  []
 
-[32] [33] [34] [35] [36] [37] [38] [39]
+[32] [33] [34] [35] [36] [37] [38] [39] [40]
 File: ./3nails.png Graphic file (type bmp)
 <./3nails.png>
- [40] [41] [42] [43] [44]
-Overfull \hbox (203.99402pt too wide) in paragraph at lines 1969--2005
+ [41] [42] [43] [44]
+Overfull \hbox (203.99402pt too wide) in paragraph at lines 1982--2018
 []
  []
 
 
-Overfull \hbox (111.08385pt too wide) in paragraph at lines 2006--2008
+Overfull \hbox (111.08385pt too wide) in paragraph at lines 2019--2021
 []
  []
 
 [45]
 Missing character: There is no ₂ in font [lmroman10-regular]:mapping=tex-text;!
  [46] [47] [48] [49] [50] [51] [52]
-Overfull \hbox (86.83698pt too wide) in paragraph at lines 2426--2437
+Overfull \hbox (86.83698pt too wide) in paragraph at lines 2439--2450
 []
  []
 
 [53] [54] [55]
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
  [56]
-Overfull \hbox (48.3331pt too wide) in paragraph at lines 2580--2581
+Overfull \hbox (48.3331pt too wide) in paragraph at lines 2593--2594
 []
  []
 
 [57] [58] [59] [60] [61] [62] [63]
-Overfull \hbox (65.72536pt too wide) in paragraph at lines 2914--2915
+Overfull \hbox (65.72536pt too wide) in paragraph at lines 2927--2928
 []
  []
 
 [64] [65]
-Overfull \hbox (13.75667pt too wide) in paragraph at lines 3016--3022
+Overfull \hbox (13.75667pt too wide) in paragraph at lines 3029--3035
 []
  []
 
 [66] [67] [68]
-Overfull \hbox (331.19707pt too wide) in paragraph at lines 3215--3216
+Overfull \hbox (331.19707pt too wide) in paragraph at lines 3228--3229
 []
  []
 
@@ -498,7 +499,7 @@ Missing character: There is no ὐ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-bold]:mapping=tex-text;!
  [85] [86] [87] [88]
-Overfull \hbox (256.81374pt too wide) in paragraph at lines 4048--4064
+Overfull \hbox (256.81374pt too wide) in paragraph at lines 4061--4077
 []
  []
 
@@ -620,7 +621,7 @@ Missing character: There is no ר in font [lmmono10-regular]:!
 Missing character: There is no ‟ in font [lmroman10-regular]:mapping=tex-text;!
  [100] [101] [102]
 [103] [104] [105] [106]
-Overfull \hbox (390.119pt too wide) in paragraph at lines 4897--4910
+Overfull \hbox (390.119pt too wide) in paragraph at lines 4910--4923
 []
  []
 
@@ -640,7 +641,7 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.5203 \begin{itemize}
+l.5216 \begin{itemize}
                       
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
@@ -758,18 +759,18 @@ Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
  [117]
-Overfull \hbox (28.85004pt too wide) in paragraph at lines 5341--5342
+Overfull \hbox (28.85004pt too wide) in paragraph at lines 5354--5355
 []\TU/lmr/m/n/10.95 Being ’[]philos with (friends with, allured by, attracted t
 o)[]’, money , self, pleasure, rather than ([][[strongs:G3123][(G3123
  []
 
 [118]
-Overfull \hbox (52.77881pt too wide) in paragraph at lines 5364--5365
+Overfull \hbox (52.77881pt too wide) in paragraph at lines 5377--5378
 []
  []
 
 [119] [120] [121]
-Overfull \hbox (134.03874pt too wide) in paragraph at lines 5498--5499
+Overfull \hbox (134.03874pt too wide) in paragraph at lines 5511--5512
 []
  []
 
@@ -781,17 +782,17 @@ Missing character: There is no ḗ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
  [125] [126]
-Overfull \hbox (187.38287pt too wide) in paragraph at lines 5716--5729
+Overfull \hbox (187.38287pt too wide) in paragraph at lines 5729--5742
 []
  []
 
 [127]
-Overfull \hbox (163.66214pt too wide) in paragraph at lines 5758--5771
+Overfull \hbox (163.66214pt too wide) in paragraph at lines 5771--5784
 []
  []
 
 [128] [129] [130]
-Overfull \hbox (203.29681pt too wide) in paragraph at lines 5894--5900
+Overfull \hbox (203.29681pt too wide) in paragraph at lines 5907--5913
 []
  []
 
@@ -849,17 +850,17 @@ Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
  [137] [138] [139] [140] [141] [142]
 [143] [144] [145] [146] [147] [148] [149] [150] [151] [152] [153]
-Overfull \hbox (3.5243pt too wide) in paragraph at lines 7011--7018
+Overfull \hbox (3.5243pt too wide) in paragraph at lines 7024--7031
 []\TU/lmr/m/n/10.95 Lord, You know that we love You;
  []
 
 
-Overfull \hbox (144.85367pt too wide) in paragraph at lines 7021--7026
+Overfull \hbox (144.85367pt too wide) in paragraph at lines 7034--7039
 []
  []
 
 
-Overfull \hbox (76.40157pt too wide) in paragraph at lines 7035--7036
+Overfull \hbox (76.40157pt too wide) in paragraph at lines 7048--7049
 []
  []
 
@@ -879,13 +880,13 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.7465 \begin{itemize}
+l.7478 \begin{itemize}
                       
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
 [165]
-Overfull \hbox (9.15128pt too wide) in paragraph at lines 7508--7509
+Overfull \hbox (9.15128pt too wide) in paragraph at lines 7521--7522
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
  []
@@ -926,7 +927,7 @@ Missing character: There is no ׃ in font [lmmono10-regular]:!
  [167]
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
  [168] [169] [170] [171]
-Overfull \hbox (9.15128pt too wide) in paragraph at lines 7758--7759
+Overfull \hbox (9.15128pt too wide) in paragraph at lines 7771--7772
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
  []
@@ -934,17 +935,17 @@ ings took place as examples for us, |   []   |   []   |   []
 [172] [173] [174] [175] [176] [177] [178] [179] [180] [181] [182] [183]
 [184] [185] [186] [187] [188] [189] [190] [191] [192] [193] [194] [195]
 [196]
-Overfull \hbox (4.07689pt too wide) in paragraph at lines 8769--8770
+Overfull \hbox (4.07689pt too wide) in paragraph at lines 8782--8783
 []
  []
 
 [197]
-Overfull \hbox (4.07689pt too wide) in paragraph at lines 8771--8773
+Overfull \hbox (4.07689pt too wide) in paragraph at lines 8784--8786
 []
  []
 
 [198] [199]
-Overfull \hbox (52.77881pt too wide) in paragraph at lines 8861--8862
+Overfull \hbox (52.77881pt too wide) in paragraph at lines 8874--8875
 []
  []
 
@@ -1111,17 +1112,17 @@ Missing character: There is no ἰ in font [lmmono10-regular]:!
 Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ί in font [lmmono10-regular]:!
 
-Overfull \hbox (197.24576pt too wide) in paragraph at lines 8987--8992
+Overfull \hbox (197.24576pt too wide) in paragraph at lines 9000--9005
 []
  []
 
 [202] [203]
-Overfull \hbox (0.9379pt too wide) in paragraph at lines 9045--9069
+Overfull \hbox (0.9379pt too wide) in paragraph at lines 9058--9082
 []\TU/lmr/m/n/10.95 What is the
  []
 
 
-Overfull \hbox (109.1311pt too wide) in paragraph at lines 9088--9107
+Overfull \hbox (109.1311pt too wide) in paragraph at lines 9101--9120
 []
  []
 
@@ -1130,17 +1131,17 @@ Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;
  [206]
 Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (255.95018pt too wide) in paragraph at lines 9214--9217
+Overfull \hbox (255.95018pt too wide) in paragraph at lines 9227--9230
 []
  []
 
 [207] [208] [209]
-Overfull \hbox (68.85341pt too wide) in paragraph at lines 9312--9313
+Overfull \hbox (68.85341pt too wide) in paragraph at lines 9325--9326
 []
  []
 
 
-Overfull \hbox (5.69847pt too wide) in paragraph at lines 9341--9342
+Overfull \hbox (5.69847pt too wide) in paragraph at lines 9354--9355
 []\TU/lmr/m/n/10.95 I commented, ”I
  []
 
@@ -1161,70 +1162,70 @@ Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
 
 [222] [223] [224]
-Overfull \hbox (203.63693pt too wide) in paragraph at lines 9959--9978
+Overfull \hbox (203.63693pt too wide) in paragraph at lines 9972--9991
 []
  []
 
 [225]
-Overfull \hbox (7.26698pt too wide) in paragraph at lines 10003--10026
+Overfull \hbox (7.26698pt too wide) in paragraph at lines 10016--10039
 []\TU/lmr/m/n/10.95 This
  []
 
 [226] [227] [228] [229] [230] [231] [232] [233] [234] [235] [236]
-Overfull \hbox (370.81783pt too wide) in paragraph at lines 10538--10539
+Overfull \hbox (370.81783pt too wide) in paragraph at lines 10551--10552
 |   []
  []
 
 [237]
-Overfull \hbox (393.7617pt too wide) in paragraph at lines 10571--10572
+Overfull \hbox (393.7617pt too wide) in paragraph at lines 10584--10585
 []
  []
 
 [238] [239] [240] [241] [242] [243] [244] [245]
-Overfull \hbox (78.50403pt too wide) in paragraph at lines 10939--10940
+Overfull \hbox (78.50403pt too wide) in paragraph at lines 10952--10953
 []
  []
 
 [246] [247]
-Overfull \hbox (7.14656pt too wide) in paragraph at lines 11052--11056
+Overfull \hbox (7.14656pt too wide) in paragraph at lines 11065--11069
 []\TU/lmr/m/n/10.95 Purify my heart.
  []
 
 [248] [249]
-Overfull \hbox (15.30063pt too wide) in paragraph at lines 11173--11193
+Overfull \hbox (15.30063pt too wide) in paragraph at lines 11186--11206
 []
  []
 
 [250]
-Overfull \hbox (105.35342pt too wide) in paragraph at lines 11252--11256
+Overfull \hbox (105.35342pt too wide) in paragraph at lines 11265--11269
 []
  []
 
 [251] [252]
-Overfull \hbox (126.8628pt too wide) in paragraph at lines 11385--11404
+Overfull \hbox (126.8628pt too wide) in paragraph at lines 11398--11417
 []
  []
 
 [253] [254]
-Overfull \hbox (331.19707pt too wide) in paragraph at lines 11454--11455
+Overfull \hbox (331.19707pt too wide) in paragraph at lines 11467--11468
 []
  []
 
 [255] [256] [257] [258] [259] [260]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 11698--11698
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 11711--11711
 [] \TU/lmtt/m/n/10.95 3  I (G1473 egō) lives (G2198 zē) however (G1161 de) in (
 G1722 en) me G1473 emoi Christ (G5547 Christos)[] 
  []
 
 
-Overfull \hbox (27.10112pt too wide) in paragraph at lines 11698--11698
+Overfull \hbox (27.10112pt too wide) in paragraph at lines 11711--11711
 [] \TU/lmtt/m/n/10.95 9        that (G3588 tē) from the (G3588 tou) Son (G5207 
 Huiou) - (G3588 tou) of God (G2316 Theou)[] 
  []
 
 [261] [262] [263] [264] [265] [266] [267] [268] [269] [270] [271] [272]
 [273] [274] [275]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 12285--12286
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 12298--12299
 []
  []
 
@@ -1236,50 +1237,50 @@ Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (86.83698pt too wide) in paragraph at lines 12576--12587
+Overfull \hbox (86.83698pt too wide) in paragraph at lines 12589--12600
 []
  []
 
 [283] [284] [285] [286] [287] [288] [289] [290] [291] [292] [293] [294]
 [295] [296] [297] [298]
-Overfull \hbox (50.58153pt too wide) in paragraph at lines 13238--13241
+Overfull \hbox (50.58153pt too wide) in paragraph at lines 13251--13254
 []
  []
 
 [299] [300] [301]
-Overfull \hbox (7.26698pt too wide) in paragraph at lines 13371--13394
+Overfull \hbox (7.26698pt too wide) in paragraph at lines 13384--13407
 []\TU/lmr/m/n/10.95 This
  []
 
 
-Overfull \hbox (50.58153pt too wide) in paragraph at lines 13417--13420
+Overfull \hbox (50.58153pt too wide) in paragraph at lines 13430--13433
 []
  []
 
 [302] [303] [304] [305] [306]
-Overfull \hbox (65.63412pt too wide) in paragraph at lines 13631--13651
+Overfull \hbox (65.63412pt too wide) in paragraph at lines 13644--13664
 []
  []
 
 [307] [308]
-Overfull \hbox (76.89072pt too wide) in paragraph at lines 13759--13763
+Overfull \hbox (76.89072pt too wide) in paragraph at lines 13772--13776
 []
  []
 
 [309] [310] [311] [312] [313] [314] [315] [316] [317] [318] [319] [320]
 [321]
-Overfull \hbox (387.46916pt too wide) in paragraph at lines 14338--14354
+Overfull \hbox (387.46916pt too wide) in paragraph at lines 14351--14367
 []
  []
 
 [322]
-Overfull \hbox (387.46916pt too wide) in paragraph at lines 14443--14465
+Overfull \hbox (387.46916pt too wide) in paragraph at lines 14456--14478
 []
  []
 
 [323] [324] [325] [326] [327] [328] [329] [330] [331] [332] [333] [334]
 [335] [336] [337]
-Overfull \hbox (4.67505pt too wide) in paragraph at lines 15120--15121
+Overfull \hbox (4.67505pt too wide) in paragraph at lines 15133--15134
 []\TU/lmr/m/n/10.95 Commented, ’Satan also ”over-encumbers you” too, I think
  []
 
@@ -1300,101 +1301,101 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [343] [344] [345] [346] [347] [348] [349]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 15612--15613
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 15625--15626
 []
  []
 
 [350]
-Overfull \hbox (73.86867pt too wide) in paragraph at lines 15661--15662
+Overfull \hbox (73.86867pt too wide) in paragraph at lines 15674--15675
 \TU/lmr/m/n/10.95 ings/commandments and we have to not pervert the oracles of G
 od but continue abiding in the teachings/doctrines/commandments
  []
 
 [351] [352] [353]
-Overfull \hbox (441.01103pt too wide) in paragraph at lines 15827--15827
+Overfull \hbox (441.01103pt too wide) in paragraph at lines 15840--15840
 [] \TU/lmtt/m/n/10.95 6  Grace has no prerequisites. It doesn’t wait for perfec
 tion—it meets us in our brokenness and calls us righteous through Christ’s sacr
 ifice. When we stop trying to earn[] 
  []
 
 
-Overfull \hbox (464.00603pt too wide) in paragraph at lines 15827--15827
+Overfull \hbox (464.00603pt too wide) in paragraph at lines 15840--15840
 [] \TU/lmtt/m/n/10.95 9  The cross is not a ladder we climb; it’s the bridge al
 ready built. Today, let grace quiet your inner critic and remind you that you a
 re fully accepted, fully forgiven, and[] 
  []
 
 
-Overfull \hbox (429.51353pt too wide) in paragraph at lines 15827--15827
+Overfull \hbox (429.51353pt too wide) in paragraph at lines 15840--15840
 []\TU/lmtt/m/n/10.95 14  Heavenly Father, thank You for the gift of grace that 
 I could never earn. Help me to rest in the redemption found in Christ Jesus and
  to live each day with gratitude[] 
  []
 
 
-Overfull \hbox (458.25728pt too wide) in paragraph at lines 15827--15827
+Overfull \hbox (458.25728pt too wide) in paragraph at lines 15840--15840
 []\TU/lmtt/m/n/10.95 17  Teach me to extend the same grace to others that You’v
 e so freely given to me. May my heart reflect Your mercy, and my life point oth
 ers to Your redeeming love. In Jesus’[] 
  []
 
 [354] [355]
-Overfull \hbox (720.36732pt too wide) in paragraph at lines 15895--15896
+Overfull \hbox (720.36732pt too wide) in paragraph at lines 15908--15909
 |   []
  []
 
 [356]
-Overfull \hbox (61.31995pt too wide) in paragraph at lines 15917--15918
+Overfull \hbox (61.31995pt too wide) in paragraph at lines 15930--15931
 |   []
  []
 
 [357]
-Overfull \hbox (2.31276pt too wide) in paragraph at lines 16009--16010
+Overfull \hbox (2.31276pt too wide) in paragraph at lines 16022--16023
 []\TU/lmr/m/n/10.95 I don’t believe you
  []
 
 [358] [359]
-Overfull \hbox (90.1621pt too wide) in paragraph at lines 16064--16078
+Overfull \hbox (90.1621pt too wide) in paragraph at lines 16077--16091
 []
  []
 
 
-Overfull \hbox (15.69484pt too wide) in paragraph at lines 16079--16097
+Overfull \hbox (15.69484pt too wide) in paragraph at lines 16092--16110
 []
  []
 
 
-Overfull \hbox (214.65263pt too wide) in paragraph at lines 16106--16127
+Overfull \hbox (214.65263pt too wide) in paragraph at lines 16119--16140
 []
  []
 
 
-Overfull \hbox (133.50214pt too wide) in paragraph at lines 16128--16129
+Overfull \hbox (133.50214pt too wide) in paragraph at lines 16141--16142
 []
  []
 
 [360]
-Overfull \hbox (16.1511pt too wide) in paragraph at lines 16144--16151
+Overfull \hbox (16.1511pt too wide) in paragraph at lines 16157--16164
 []\TU/lmr/m/n/10.95 Re-pent. Re-
  []
 
 [361]
-Overfull \hbox (2.68991pt too wide) in paragraph at lines 16229--16241
+Overfull \hbox (2.68991pt too wide) in paragraph at lines 16242--16254
 []\TU/lmr/m/n/10.95 Love for God is the be-
  []
 
 
-Overfull \hbox (83.49358pt too wide) in paragraph at lines 16256--16257
+Overfull \hbox (83.49358pt too wide) in paragraph at lines 16269--16270
 []
  []
 
 [362] [363] [364] [365]
-Overfull \hbox (10.36948pt too wide) in paragraph at lines 16382--16384
+Overfull \hbox (10.36948pt too wide) in paragraph at lines 16395--16397
 []
  []
 
 [366] [367]
-Overfull \hbox (148.64604pt too wide) in paragraph at lines 16487--16502
+Overfull \hbox (148.64604pt too wide) in paragraph at lines 16500--16515
 []
  []
 
@@ -1408,42 +1409,42 @@ Missing character: There is no ί in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [379]
-Overfull \hbox (80.29248pt too wide) in paragraph at lines 17037--17053
+Overfull \hbox (80.29248pt too wide) in paragraph at lines 17050--17066
 []
  []
 
 
-Overfull \hbox (123.59975pt too wide) in paragraph at lines 17065--17070
+Overfull \hbox (123.59975pt too wide) in paragraph at lines 17078--17083
 []
  []
 
 
-Overfull \hbox (12.76611pt too wide) in paragraph at lines 17075--17083
+Overfull \hbox (12.76611pt too wide) in paragraph at lines 17088--17096
 []\TU/lmr/m/n/10.95 Hey guys, I’m ”Re-
  []
 
 [380] [381] [382]
 
-LaTeX Warning: Hyper reference `sec:org9f695f6' on page 383 undefined on input 
-line 17469.
+LaTeX Warning: Hyper reference `sec:org29be9a5' on page 383 undefined on input 
+line 17482.
 
 [383] [384] [385] [386] [387] [388]
-Underfull \hbox (badness 2521) in paragraph at lines 17702--17702
+Underfull \hbox (badness 2521) in paragraph at lines 17715--17715
 \TU/lmr/m/n/10.95 Him obeying Jesus’ command-
  []
 
 
-Underfull \hbox (badness 2245) in paragraph at lines 17708--17708
+Underfull \hbox (badness 2245) in paragraph at lines 17721--17721
 \TU/lmr/m/n/10.95 ([]G4100 pisteuōn[] - \TU/lmr/m/it/10.95 is believing
  []
 
 
-Underfull \hbox (badness 1394) in paragraph at lines 17710--17710
+Underfull \hbox (badness 1394) in paragraph at lines 17723--17723
 [][]\TU/lmr/bx/n/10.95 Luke 18:22-24[] \TU/lmr/m/n/10.95 - When Jesus
  []
 
 
-Underfull \hbox (badness 1394) in paragraph at lines 17711--17711
+Underfull \hbox (badness 1394) in paragraph at lines 17724--17724
 [][]\TU/lmr/bx/n/10.95 Luke 18:22-24[] \TU/lmr/m/n/10.95 - When Jesus
  []
 
@@ -1452,33 +1453,33 @@ Overfull \vbox (1067.40063pt too high) has occurred while \output is active []
 
 
 [390]
-Underfull \hbox (badness 5533) in paragraph at lines 17720--17720
+Underfull \hbox (badness 5533) in paragraph at lines 17733--17733
 []\TU/lmr/m/n/10.95 Obediently obey Jesus’s com-
  []
 
 
-Underfull \hbox (badness 1168) in paragraph at lines 17720--17720
+Underfull \hbox (badness 1168) in paragraph at lines 17733--17733
 [][]\TU/lmr/bx/n/10.95 I Peter 1:22[] \TU/lmr/m/n/10.95 - Having \TU/lmr/bx/n/1
 0.95 puri-
  []
 
 
-Underfull \hbox (badness 2065) in paragraph at lines 17721--17721
+Underfull \hbox (badness 2065) in paragraph at lines 17734--17734
 \TU/lmr/m/n/10.95 the appearing of the glory of
  []
 
 
-Underfull \hbox (badness 1642) in paragraph at lines 17726--17726
+Underfull \hbox (badness 1642) in paragraph at lines 17739--17739
 [][]\TU/lmr/bx/n/10.95 Galatians 3:22-27[] \TU/lmr/m/n/10.95 - But the
  []
 
 
-Underfull \hbox (badness 1400) in paragraph at lines 17726--17726
+Underfull \hbox (badness 1400) in paragraph at lines 17739--17739
 \TU/lmr/m/n/10.95 Scripture imprisoned everything
  []
 
 
-Underfull \hbox (badness 1424) in paragraph at lines 17727--17727
+Underfull \hbox (badness 1424) in paragraph at lines 17740--17740
 \TU/lmr/bx/n/10.95 8:13-23[] \TU/lmr/m/n/10.95 - |   []   |   []   |   []
  []
 
@@ -1487,22 +1488,22 @@ Overfull \vbox (1393.80078pt too high) has occurred while \output is active []
 
 
 [391]
-Underfull \hbox (badness 1184) in paragraph at lines 17736--17736
+Underfull \hbox (badness 1184) in paragraph at lines 17749--17749
 \TU/lmr/m/n/10.95 believe He exists, be corrected
  []
 
 
-Underfull \hbox (badness 1931) in paragraph at lines 17736--17736
+Underfull \hbox (badness 1931) in paragraph at lines 17749--17749
 \TU/lmr/m/n/10.95 no one. But each person is
  []
 
 
-Underfull \hbox (badness 1043) in paragraph at lines 17738--17738
+Underfull \hbox (badness 1043) in paragraph at lines 17751--17751
 \TU/lmr/m/n/10.95 from Father God. Have faith
  []
 
 
-Underfull \hbox (badness 1163) in paragraph at lines 17742--17742
+Underfull \hbox (badness 1163) in paragraph at lines 17755--17755
 \TU/lmr/m/n/10.95 from him: whoever loves God
  []
 
@@ -1511,7 +1512,7 @@ Overfull \vbox (1244.20073pt too high) has occurred while \output is active []
 
 
 [392]
-Underfull \hbox (badness 3291) in paragraph at lines 17752--17752
+Underfull \hbox (badness 3291) in paragraph at lines 17765--17765
 \TU/lmr/m/n/10.95 did God love ([]G25 agapaó[] -
  []
 
@@ -1520,52 +1521,52 @@ Overfull \vbox (183.40038pt too high) has occurred while \output is active []
 
 
 [393]
-Underfull \hbox (badness 1215) in paragraph at lines 17761--17761
+Underfull \hbox (badness 1215) in paragraph at lines 17774--17774
 \TU/lmr/m/n/10.95 to the Jews |   []   |   []   |   []
  []
 
 
-Underfull \hbox (badness 3547) in paragraph at lines 17764--17764
+Underfull \hbox (badness 3547) in paragraph at lines 17777--17777
 |   []   |   []   |   []   |   []
  []
 
 
-Underfull \hbox (badness 10000) in paragraph at lines 17765--17765
+Underfull \hbox (badness 10000) in paragraph at lines 17778--17778
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 -
  []
 
 
-Underfull \hbox (badness 5331) in paragraph at lines 17765--17765
+Underfull \hbox (badness 5331) in paragraph at lines 17778--17778
 \TU/lmr/m/n/10.95 Now these things took place
  []
 
 
-Underfull \hbox (badness 3701) in paragraph at lines 17765--17765
+Underfull \hbox (badness 3701) in paragraph at lines 17778--17778
 \TU/lmr/m/n/10.95 as examples for us, |   []   |   []
  []
 
 
-Underfull \hbox (badness 2277) in paragraph at lines 17765--17765
+Underfull \hbox (badness 2277) in paragraph at lines 17778--17778
 |   []   |   []   |   []
  []
 
 
-Underfull \hbox (badness 1117) in paragraph at lines 17765--17765
+Underfull \hbox (badness 1117) in paragraph at lines 17778--17778
 \TU/lmr/m/n/10.95 three thousand fell in a single
  []
 
 
-Underfull \hbox (badness 4060) in paragraph at lines 17765--17765
+Underfull \hbox (badness 4060) in paragraph at lines 17778--17778
 \TU/lmr/m/n/10.95 ends[]) of the ages has come.
  []
 
 
-Underfull \hbox (badness 1325) in paragraph at lines 17765--17765
+Underfull \hbox (badness 1325) in paragraph at lines 17778--17778
 \TU/lmr/m/n/10.95 Was it not all those who left
  []
 
 
-Underfull \hbox (badness 1796) in paragraph at lines 17766--17766
+Underfull \hbox (badness 1796) in paragraph at lines 17779--17779
 \TU/lmr/m/n/10.95 swered them, Do not grumble
  []
 
@@ -1604,14 +1605,14 @@ Missing character: There is no ρ in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [396]
-Overfull \hbox (73.86867pt too wide) in paragraph at lines 17909--17910
+Overfull \hbox (73.86867pt too wide) in paragraph at lines 17922--17923
 \TU/lmr/m/n/10.95 ings/commandments and we have to not pervert the oracles of G
 od but continue abiding in the teachings/doctrines/commandments
  []
 
 [397] [398] [399] [400] [401] [402] [403] [404] [405] [406] [407] [408]
 [409]
-Overfull \hbox (3.22144pt too wide) in paragraph at lines 18458--18459
+Overfull \hbox (3.22144pt too wide) in paragraph at lines 18471--18472
 \TU/lmr/m/n/10.95 ([]\TU/lmr/bx/n/10.95 Colossians 1:15-20[]\TU/lmr/m/n/10.95 ,
  []\TU/lmr/bx/n/10.95 John 8:56-58[]\TU/lmr/m/n/10.95 ) and is our leader (\TU/
 lmr/bx/n/10.95 Luke 22:26-27\TU/lmr/m/n/10.95 ). The older [](G3173 meizōn; gre
@@ -1619,7 +1620,7 @@ ater/older)[]
  []
 
 [410] [411]
-Overfull \hbox (41.96748pt too wide) in paragraph at lines 18534--18573
+Overfull \hbox (41.96748pt too wide) in paragraph at lines 18547--18586
 []
  []
 
@@ -1634,63 +1635,63 @@ Missing character: There is no μ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-regular]:mapping=tex-text;!
  [418] [419] [420] [421] [422] [423]
 [424] [425] [426] [427] [428] [429] [430] [431]
-Overfull \hbox (252.18555pt too wide) in paragraph at lines 19475--19476
+Overfull \hbox (252.18555pt too wide) in paragraph at lines 19488--19489
 []
  []
 
 [432] [433] [434]
-Overfull \hbox (252.18555pt too wide) in paragraph at lines 19603--19604
+Overfull \hbox (252.18555pt too wide) in paragraph at lines 19616--19617
 []
  []
 
 [435] [436] [437] [438] [439] [440] [441] [442] [443] [444]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 20000--20001
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 20013--20014
 []
  []
 
 
-Overfull \hbox (253.58435pt too wide) in paragraph at lines 20000--20001
+Overfull \hbox (253.58435pt too wide) in paragraph at lines 20013--20014
 \TU/lmr/m/n/10.95 The word of truth is free, and |   []   |   []   |   []   |  
  []   |   []
  []
 
 [445] [446] [447] [448] [449]
-Overfull \hbox (7.06996pt too wide) in paragraph at lines 20304--20305
+Overfull \hbox (7.06996pt too wide) in paragraph at lines 20317--20318
 []\TU/lmr/m/n/10.95 All the ordained ministers of the Latin Church,
  []
 
 [450] [451]
-Overfull \hbox (106.20749pt too wide) in paragraph at lines 20429--20430
+Overfull \hbox (106.20749pt too wide) in paragraph at lines 20442--20443
 []
  []
 
 [452] [453]
-Overfull \hbox (72.98886pt too wide) in paragraph at lines 20511--20515
+Overfull \hbox (72.98886pt too wide) in paragraph at lines 20524--20528
 []
  []
 
 [454]
-Overfull \hbox (324.26573pt too wide) in paragraph at lines 20571--20572
+Overfull \hbox (324.26573pt too wide) in paragraph at lines 20584--20585
 []
  []
 
 [455]
-Overfull \hbox (118.53354pt too wide) in paragraph at lines 20613--20626
+Overfull \hbox (118.53354pt too wide) in paragraph at lines 20626--20639
 []
  []
 
 [456] [457] [458] [459]
-Overfull \hbox (11.9463pt too wide) in paragraph at lines 20824--20825
+Overfull \hbox (11.9463pt too wide) in paragraph at lines 20837--20838
 []\TU/lmr/m/n/10.95 2 Corinthi-
  []
 
 [460]
-Overfull \hbox (3.0914pt too wide) in paragraph at lines 20862--20867
+Overfull \hbox (3.0914pt too wide) in paragraph at lines 20875--20880
 []\TU/lmr/m/n/10.95 Father,
  []
 
 
-Overfull \hbox (18.61484pt too wide) in paragraph at lines 20868--20873
+Overfull \hbox (18.61484pt too wide) in paragraph at lines 20881--20886
 []\TU/lmr/m/n/10.95 Salvation?
  []
 
@@ -1849,7 +1850,7 @@ Missing character: There is no ῶ in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 
-Overfull \hbox (720.36732pt too wide) in paragraph at lines 20935--20936
+Overfull \hbox (720.36732pt too wide) in paragraph at lines 20948--20949
 |   []
  []
 
@@ -1941,7 +1942,7 @@ Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [464]
-Overfull \hbox (3.58777pt too wide) in paragraph at lines 21070--21071
+Overfull \hbox (3.58777pt too wide) in paragraph at lines 21083--21084
 []\TU/lmr/m/n/10.95 You’ve
  []
 
@@ -2084,59 +2085,59 @@ Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [474] [475] [476]
 [477] [478] [479]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 21769--21769
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 21782--21782
 [] \TU/lmtt/m/n/10.95 3  I (G1473 egō) lives (G2198 zē) however (G1161 de) in (
 G1722 en) me G1473 emoi Christ (G5547 Christos)[] 
  []
 
 [480]
-Overfull \hbox (15.60362pt too wide) in paragraph at lines 21769--21769
+Overfull \hbox (15.60362pt too wide) in paragraph at lines 21782--21782
 []\TU/lmtt/m/n/10.95 11      that (G3588 tē) from the (G3588 tou) Son (G5207 Hu
 iou) - (G3588 tou) of God (G2316 Theou)[] 
  []
 
 [481] [482] [483] [484] [485] [486] [487] [488] [489]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 22151--22164
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 22164--22177
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
 [490]
-Overfull \hbox (5.51138pt too wide) in paragraph at lines 22231--22237
+Overfull \hbox (5.51138pt too wide) in paragraph at lines 22244--22250
 []\TU/lmr/m/n/10.95 I’ve been looking over your recent stats. You’re
  []
 
 [491] [492] [493] [494] [495] [496] [497] [498] [499]
-Overfull \hbox (4.80325pt too wide) in paragraph at lines 22620--22627
+Overfull \hbox (4.80325pt too wide) in paragraph at lines 22633--22640
 []\TU/lmr/m/n/10.95 When salva-
  []
 
 
-Overfull \hbox (58.3925pt too wide) in paragraph at lines 22661--22664
+Overfull \hbox (58.3925pt too wide) in paragraph at lines 22674--22677
 []
  []
 
 [500] [501] [502]
-Overfull \hbox (7.93497pt too wide) in paragraph at lines 22818--22831
+Overfull \hbox (7.93497pt too wide) in paragraph at lines 22831--22844
 []\TU/lmr/m/n/10.95 Unless we are totally and completely
  []
 
 [503]
-Overfull \hbox (71.44861pt too wide) in paragraph at lines 22862--22865
+Overfull \hbox (71.44861pt too wide) in paragraph at lines 22875--22878
 []
  []
 
 [504] [505]
-Overfull \hbox (174.03543pt too wide) in paragraph at lines 22942--22956
+Overfull \hbox (174.03543pt too wide) in paragraph at lines 22955--22969
 []
  []
 
 [506]
-Overfull \hbox (116.65382pt too wide) in paragraph at lines 23006--23007
+Overfull \hbox (116.65382pt too wide) in paragraph at lines 23019--23020
 []
  []
 
 [507] [508]
-Overfull \hbox (1217.09212pt too wide) in paragraph at lines 23131--23131
+Overfull \hbox (1217.09212pt too wide) in paragraph at lines 23144--23144
 []\TU/lmtt/m/n/10.95 1  Cognate: 25 agapáō – properly, to prefer, to love; for 
 the believer, preferring to "live through Christ" (1 Jn 4:9,10), i.e. embracing
  God's will (choosing His choices) and obeying them through His power. 25 (agap
@@ -2145,38 +2146,38 @@ the believer, preferring to "live through Christ" (1 Jn 4:9,10), i.e. embracing
  []
 
 
-Overfull \hbox (498.49852pt too wide) in paragraph at lines 23131--23131
+Overfull \hbox (498.49852pt too wide) in paragraph at lines 23144--23144
 []\TU/lmtt/m/n/10.95 3  With the believer, 25 /agapáō ("to love") means activel
 y doing what the Lord prefers, with Him (by His power and direction). True 25 /
 agapáō ("loving") is always defined by God –
  []
 
 
-Overfull \hbox (578.981pt too wide) in paragraph at lines 23131--23131
+Overfull \hbox (578.981pt too wide) in paragraph at lines 23144--23144
 \TU/lmtt/m/n/10.95 a "discriminating affection which involves choice and select
 ion" (WS, 477). 1 Jn 4:8,16,17 for example convey how loving ("preferring," 25 
 /agapáō) is Christ living His life through the believer.[] 
  []
 
 
-Overfull \hbox (504.24727pt too wide) in paragraph at lines 23135--23135
+Overfull \hbox (504.24727pt too wide) in paragraph at lines 23148--23148
 []\TU/lmtt/m/n/10.95 1  5368 philéō (from 5384 /phílos, "affectionate friendshi
 p") – properly, to show warm affection in intimate friendship, characterized by
  tender, heartfelt consideration and kinship.[] 
  []
 
 [509] [510]
-Overfull \hbox (190.36919pt too wide) in paragraph at lines 23235--23245
+Overfull \hbox (190.36919pt too wide) in paragraph at lines 23248--23258
 []
  []
 
 
-Overfull \hbox (306.8735pt too wide) in paragraph at lines 23264--23267
+Overfull \hbox (306.8735pt too wide) in paragraph at lines 23277--23280
 []
  []
 
 
-Overfull \hbox (306.8735pt too wide) in paragraph at lines 23270--23312
+Overfull \hbox (306.8735pt too wide) in paragraph at lines 23283--23325
 []
  []
 
@@ -2316,85 +2317,85 @@ Missing character: There is no ω in font [lmmono10-regular]:!
 Missing character: There is no ή in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [514] [515] [516] [517] [518] [519] [520]
-Overfull \hbox (377.7748pt too wide) in paragraph at lines 23723--23723
+Overfull \hbox (377.7748pt too wide) in paragraph at lines 23736--23736
 []\TU/lmtt/m/n/10.95 6  A bunch of other stuff happened that year, and the year
  that followed. I made a marriage proposal on the after feast day of the transf
 iguration, for example.[] 
  []
 
 [521]
-Overfull \hbox (366.2773pt too wide) in paragraph at lines 23765--23765
+Overfull \hbox (366.2773pt too wide) in paragraph at lines 23778--23778
 []\TU/lmtt/m/n/10.95 1  1 Nisan The day the floodwaters receded from the earth,
  after the dove was sent out by Noah and returned with an olive branch, accordi
 ng to Genesis 8:10-13[] 
  []
 
 
-Overfull \hbox (245.55357pt too wide) in paragraph at lines 23765--23765
+Overfull \hbox (245.55357pt too wide) in paragraph at lines 23778--23778
 []\TU/lmtt/m/n/10.95 7  1 Nisan (c. 3761 BCE) – Creation of the Universe accord
 ing to Joshua ben Hananiah's opinion in the Talmud, tractate Rosh Hashanah 10b–
 
  []
 
 
-Overfull \hbox (27.17044pt too wide) in paragraph at lines 23786--23797
+Overfull \hbox (27.17044pt too wide) in paragraph at lines 23799--23810
 []\TU/lmr/m/n/10.95 In []Colos-
  []
 
 [522] [523] [524] [525] [526]
-Overfull \hbox (145.81363pt too wide) in paragraph at lines 24004--24019
+Overfull \hbox (145.81363pt too wide) in paragraph at lines 24017--24032
 []
  []
 
 [527] [528]
-Overfull \hbox (36.03262pt too wide) in paragraph at lines 24096--24097
+Overfull \hbox (36.03262pt too wide) in paragraph at lines 24109--24110
 []
  []
 
 
-Overfull \hbox (92.7463pt too wide) in paragraph at lines 24106--24109
+Overfull \hbox (92.7463pt too wide) in paragraph at lines 24119--24122
 []
  []
 
 [529]
 
-LaTeX Warning: Hyper reference `sec:org3e5d278' on page 530 undefined on input 
-line 24173.
+LaTeX Warning: Hyper reference `sec:org2548dcc' on page 530 undefined on input 
+line 24186.
 
 
-Overfull \hbox (27.68715pt too wide) in paragraph at lines 24201--24203
+Overfull \hbox (27.68715pt too wide) in paragraph at lines 24214--24216
 []\TU/lmr/m/n/10.95 Imaginary Programming was essentially using LLMs in place o
 f programming tools such as interpreter/compiler/linter
  []
 
 [530] [531] [532]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 24319--24320
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 24332--24333
 []
  []
 
 
-Overfull \hbox (162.45398pt too wide) in paragraph at lines 24321--24323
+Overfull \hbox (162.45398pt too wide) in paragraph at lines 24334--24336
 []
  []
 
 [533]
-Overfull \hbox (123.59975pt too wide) in paragraph at lines 24368--24373
+Overfull \hbox (123.59975pt too wide) in paragraph at lines 24381--24386
 []
  []
 
 
-Overfull \hbox (182.27715pt too wide) in paragraph at lines 24378--24383
+Overfull \hbox (182.27715pt too wide) in paragraph at lines 24391--24396
 []
  []
 
 [534]
-Overfull \hbox (18.04544pt too wide) in paragraph at lines 24443--24444
+Overfull \hbox (18.04544pt too wide) in paragraph at lines 24456--24457
 []\TU/lmr/m/n/10.95 I’ve been
  []
 
 [535]
 LaTeX Font Info:    Font shape `TU/lmtt/bx/n' in size <10.95> not available
-(Font)              Font shape `TU/lmtt/b/n' tried instead on input line 24467.
+(Font)              Font shape `TU/lmtt/b/n' tried instead on input line 24480.
 
 Missing character: There is no ὥ in font [lmmono10-regular]:!
 Missing character: There is no σ in font [lmmono10-regular]:!
@@ -2426,7 +2427,7 @@ Missing character: There is no ς in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ὰ in font [lmmono10-regular]:!
 
-Overfull \hbox (860.66963pt too wide) in paragraph at lines 24509--24509
+Overfull \hbox (860.66963pt too wide) in paragraph at lines 24522--24522
 [] \TU/lmtt/m/n/10.95 4  Therefore if   anyone   [is] in Christ    [he is] a ne
 w creation  [[https://www.blueletterbible.org/lexicon/g2537/kjv/tr/0-1/][(G2537
  kainē; new)]] [[https://www.blueletterbible.org/lexicon/g2937/kjv/tr/0-1/][(G2
@@ -2516,93 +2517,93 @@ Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
  [537] [538]
-Overfull \hbox (26.94046pt too wide) in paragraph at lines 24605--24781
+Overfull \hbox (26.94046pt too wide) in paragraph at lines 24618--24794
 []
  []
 
 [539] [540] [541]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 24827--24828
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 24840--24841
 []
  []
 
 [542] [543]
-Overfull \hbox (7.53346pt too wide) in paragraph at lines 24947--24972
+Overfull \hbox (7.53346pt too wide) in paragraph at lines 24960--24985
 []
  []
 
 [544]
-Overfull \hbox (196.82239pt too wide) in paragraph at lines 25021--25036
+Overfull \hbox (196.82239pt too wide) in paragraph at lines 25034--25049
 []
  []
 
 [545] [546]
-Overfull \hbox (5.60623pt too wide) in paragraph at lines 25103--25111
+Overfull \hbox (5.60623pt too wide) in paragraph at lines 25116--25124
 []
  []
 
 [547]
-Overfull \hbox (18.54185pt too wide) in paragraph at lines 25194--25196
+Overfull \hbox (18.54185pt too wide) in paragraph at lines 25207--25209
 []\TU/lmr/m/n/10.95 Someone who
  []
 
 
-Overfull \hbox (5.6744pt too wide) in paragraph at lines 25197--25200
+Overfull \hbox (5.6744pt too wide) in paragraph at lines 25210--25213
 []\TU/lmr/m/n/10.95 Like I said,
  []
 
 [548] [549] [550]
-Overfull \hbox (10.10667pt too wide) in paragraph at lines 25318--25323
+Overfull \hbox (10.10667pt too wide) in paragraph at lines 25331--25336
 []
  []
 
 [551]
-Overfull \hbox (142.26584pt too wide) in paragraph at lines 25417--25440
+Overfull \hbox (142.26584pt too wide) in paragraph at lines 25430--25453
 []
  []
 
 
-Overfull \hbox (170.26137pt too wide) in paragraph at lines 25441--25442
+Overfull \hbox (170.26137pt too wide) in paragraph at lines 25454--25455
 []
  []
 
 
-Overfull \hbox (194.24547pt too wide) in paragraph at lines 25443--25444
+Overfull \hbox (194.24547pt too wide) in paragraph at lines 25456--25457
 []
  []
 
 
-Overfull \hbox (90.13289pt too wide) in paragraph at lines 25449--25464
+Overfull \hbox (90.13289pt too wide) in paragraph at lines 25462--25477
 []
  []
 
 [552]
-Overfull \hbox (226.72682pt too wide) in paragraph at lines 25484--25509
+Overfull \hbox (226.72682pt too wide) in paragraph at lines 25497--25522
 []
  []
 
 
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 25514--25515
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 25527--25528
 []
  []
 
 
-Overfull \hbox (253.58435pt too wide) in paragraph at lines 25514--25515
+Overfull \hbox (253.58435pt too wide) in paragraph at lines 25527--25528
 \TU/lmr/m/n/10.95 The word of truth is free, and |   []   |   []   |   []   |  
  []   |   []
  []
 
 [553]
-Overfull \hbox (77.52946pt too wide) in paragraph at lines 25536--25552
+Overfull \hbox (77.52946pt too wide) in paragraph at lines 25549--25565
 []
  []
 
 [554]
-Overfull \hbox (77.52946pt too wide) in paragraph at lines 25658--25683
+Overfull \hbox (77.52946pt too wide) in paragraph at lines 25671--25696
 []
  []
 
 [555] [556] [557] [558] [559] [560] [561] [562] [563] [564] [565]
-Overfull \hbox (140.33136pt too wide) in paragraph at lines 26166--26183
+Overfull \hbox (140.33136pt too wide) in paragraph at lines 26179--26196
 []
  []
 
@@ -2714,34 +2715,34 @@ Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
  [572] [573] [574]
-Overfull \hbox (93.4252pt too wide) in paragraph at lines 26566--26571
+Overfull \hbox (93.4252pt too wide) in paragraph at lines 26579--26584
 []
  []
 
 [575] [576]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 26685.
+(hyperref)                removing `math shift' on input line 26698.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 26685.
+(hyperref)                removing `\@@underline' on input line 26698.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 26685.
+(hyperref)                removing `\hbox' on input line 26698.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 26685.
+(hyperref)                removing `\mathsurround' on input line 26698.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 26685.
+(hyperref)                removing `\z@' on input line 26698.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 26685.
+(hyperref)                removing `math shift' on input line 26698.
 
 [577]
 Missing character: There is no λ in font [lmmono10-regular]:!
@@ -2757,27 +2758,27 @@ Missing character: There is no ς in font [lmmono10-regular]:!
  [578] [579] [580] [581] [582] [583] [584]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 27055.
+(hyperref)                removing `math shift' on input line 27068.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 27055.
+(hyperref)                removing `\@@underline' on input line 27068.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 27055.
+(hyperref)                removing `\hbox' on input line 27068.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 27055.
+(hyperref)                removing `\mathsurround' on input line 27068.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 27055.
+(hyperref)                removing `\z@' on input line 27068.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 27055.
+(hyperref)                removing `math shift' on input line 27068.
 
 [585] [586]
 Missing character: There is no מ in font [lmmono10-regular]:!
@@ -2797,7 +2798,7 @@ Missing character: There is no ֵ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
  [587] [588] [589] [590] [591] [592] [593] [594] [595] [596]
 [597] [598] [599] [600] [601] [602] [603] [604] [605] [606] [607] [608]
-Overfull \hbox (50.58153pt too wide) in paragraph at lines 28181--28184
+Overfull \hbox (50.58153pt too wide) in paragraph at lines 28194--28197
 []
  []
 
@@ -2818,32 +2819,32 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [610] [611] [612] [613] [614]
-Overfull \hbox (47.64323pt too wide) in paragraph at lines 28494--28506
+Overfull \hbox (47.64323pt too wide) in paragraph at lines 28507--28519
 []
  []
 
 [615] [616] [617] [618] [619] [620] [621] [622]
-Overfull \hbox (7.1283pt too wide) in paragraph at lines 28929--28931
+Overfull \hbox (7.1283pt too wide) in paragraph at lines 28942--28944
 []\TU/lmr/m/n/10.95 There is
  []
 
 [623] [624]
-Overfull \hbox (61.31995pt too wide) in paragraph at lines 29057--29058
+Overfull \hbox (61.31995pt too wide) in paragraph at lines 29070--29071
 |   []
  []
 
 [625]
-Overfull \hbox (3.5243pt too wide) in paragraph at lines 29086--29091
+Overfull \hbox (3.5243pt too wide) in paragraph at lines 29099--29104
 []\TU/lmr/m/n/10.95 Lord, You know that we love You!
  []
 
 [626]
-Overfull \hbox (61.31995pt too wide) in paragraph at lines 29154--29155
+Overfull \hbox (61.31995pt too wide) in paragraph at lines 29167--29168
 |   []
  []
 
 
-Overfull \hbox (17.80817pt too wide) in paragraph at lines 29162--29171
+Overfull \hbox (17.80817pt too wide) in paragraph at lines 29175--29184
 []
  []
 
@@ -2864,17 +2865,17 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [632] [633] [634]
-Overfull \hbox (15.18022pt too wide) in paragraph at lines 29567--29621
+Overfull \hbox (15.18022pt too wide) in paragraph at lines 29580--29634
 []|   []   |   []   |   []   |   []   |   []
  []
 
 [635]
-Overfull \hbox (8.44478pt too wide) in paragraph at lines 29686--29693
+Overfull \hbox (8.44478pt too wide) in paragraph at lines 29699--29706
 []\TU/lmr/m/n/10.95 So I just want to leave
  []
 
 [636]
-Overfull \hbox (80.29248pt too wide) in paragraph at lines 29783--29799
+Overfull \hbox (80.29248pt too wide) in paragraph at lines 29796--29812
 []
  []
 
@@ -3236,7 +3237,7 @@ Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ῦ in font [lmmono10-regular]:!
 
-Overfull \hbox (170.47305pt too wide) in paragraph at lines 30143--30144
+Overfull \hbox (170.47305pt too wide) in paragraph at lines 30156--30157
 []
  []
 
@@ -3251,57 +3252,57 @@ Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no κ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 😲 in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (39.83955pt too wide) in paragraph at lines 30212--30213
+Overfull \hbox (39.83955pt too wide) in paragraph at lines 30225--30226
 []
  []
 
 [648] [649]
-Overfull \hbox (325.0286pt too wide) in paragraph at lines 30286--30287
+Overfull \hbox (325.0286pt too wide) in paragraph at lines 30299--30300
 []
  []
 
 
-Overfull \hbox (87.54504pt too wide) in paragraph at lines 30304--30315
+Overfull \hbox (87.54504pt too wide) in paragraph at lines 30317--30328
 []
  []
 
 [650]
-Overfull \hbox (5.02957pt too wide) in paragraph at lines 30318--30325
+Overfull \hbox (5.02957pt too wide) in paragraph at lines 30331--30338
 []\TU/lmr/m/n/10.95 We can’t build
  []
 
 [651] [652]
-Overfull \hbox (145.81363pt too wide) in paragraph at lines 30373--30385
+Overfull \hbox (145.81363pt too wide) in paragraph at lines 30386--30398
 []
  []
 
 
-Overfull \hbox (56.54927pt too wide) in paragraph at lines 30394--30402
+Overfull \hbox (56.54927pt too wide) in paragraph at lines 30407--30415
 []
  []
 
 
-Overfull \hbox (402.16763pt too wide) in paragraph at lines 30412--30416
+Overfull \hbox (402.16763pt too wide) in paragraph at lines 30425--30429
 []
  []
 
 
-Overfull \hbox (648.35649pt too wide) in paragraph at lines 30427--30428
+Overfull \hbox (648.35649pt too wide) in paragraph at lines 30440--30441
 []
  []
 
 [653] [654]
-Overfull \hbox (18.79733pt too wide) in paragraph at lines 30503--30515
+Overfull \hbox (18.79733pt too wide) in paragraph at lines 30516--30528
 []
  []
 
 
-Overfull \hbox (93.4252pt too wide) in paragraph at lines 30545--30550
+Overfull \hbox (93.4252pt too wide) in paragraph at lines 30558--30563
 []
  []
 
 [655]
-Overfull \hbox (15.93938pt too wide) in paragraph at lines 30570--30580
+Overfull \hbox (15.93938pt too wide) in paragraph at lines 30583--30593
 []\TU/lmr/m/n/10.95 You know,
  []
 
@@ -3390,22 +3391,22 @@ Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ω in font [lmmono10-regular]:!
 
-Overfull \hbox (387.46916pt too wide) in paragraph at lines 30699--30721
+Overfull \hbox (387.46916pt too wide) in paragraph at lines 30712--30734
 []
  []
 
 [658]
-Overfull \hbox (31.0394pt too wide) in paragraph at lines 30738--30745
+Overfull \hbox (31.0394pt too wide) in paragraph at lines 30751--30758
 []
  []
 
 [659]
-Overfull \hbox (180.91205pt too wide) in paragraph at lines 30849--30858
+Overfull \hbox (180.91205pt too wide) in paragraph at lines 30862--30871
 []
  []
 
 
-Overfull \hbox (303.71262pt too wide) in paragraph at lines 30869--30909
+Overfull \hbox (303.71262pt too wide) in paragraph at lines 30882--30922
 []
  []
 
@@ -3563,12 +3564,12 @@ Missing character: There is no ν in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
 Missing character: There is no ῃ in font [lmmono10-regular]:!
  [667]
-Overfull \hbox (169.7029pt too wide) in paragraph at lines 31297--31311
+Overfull \hbox (169.7029pt too wide) in paragraph at lines 31310--31324
 []
  []
 
 [668]
-Overfull \hbox (6.19028pt too wide) in paragraph at lines 31358--31359
+Overfull \hbox (6.19028pt too wide) in paragraph at lines 31371--31372
 []\TU/lmr/m/n/10.95 This is part of Jesus’ para-
  []
 
@@ -3657,17 +3658,17 @@ Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ῦ in font [lmmono10-regular]:!
  [670] [671] [672]
-Overfull \hbox (43.74873pt too wide) in paragraph at lines 31534--31540
+Overfull \hbox (43.74873pt too wide) in paragraph at lines 31547--31553
 []
  []
 
 [673] [674] [675]
-Overfull \hbox (18.16959pt too wide) in paragraph at lines 31684--31685
+Overfull \hbox (18.16959pt too wide) in paragraph at lines 31697--31698
 []\TU/lmr/m/n/10.95 If an ox wears
  []
 
 [676] [677]
-Overfull \hbox (40.72736pt too wide) in paragraph at lines 31785--31786
+Overfull \hbox (40.72736pt too wide) in paragraph at lines 31798--31799
 \TU/lmr/m/n/10.95 as in obeying the voice of the LORD? Behold, |   []   |   [],
  and |   [].
  []
@@ -3682,18 +3683,18 @@ Missing character: There is no ὐ in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no μ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-regular]:mapping=tex-text;!
  [681] [682] [683]
-Overfull \hbox (51.99234pt too wide) in paragraph at lines 32089--32101
+Overfull \hbox (51.99234pt too wide) in paragraph at lines 32102--32114
 []
  []
 
 [684] [685] [686] [687] [688] [689]
-Overfull \hbox (113.33235pt too wide) in paragraph at lines 32349--32349
+Overfull \hbox (113.33235pt too wide) in paragraph at lines 32362--32362
 []\TU/lmtt/m/n/10.95 1  5620      27       1473     2531     3842     5219     
        3361     5613     1722     3588     3952     1473[] 
  []
 
 
-Overfull \hbox (107.5836pt too wide) in paragraph at lines 32349--32349
+Overfull \hbox (107.5836pt too wide) in paragraph at lines 32362--32362
 []\TU/lmtt/m/n/10.95 2  Hōste     agapētoi mou      kathōs   pantote  hypēkousa
 te     mē       hōs      en       tē       parousia mou[] 
  []
@@ -3755,25 +3756,25 @@ Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
 
-Overfull \hbox (119.0811pt too wide) in paragraph at lines 32349--32349
+Overfull \hbox (119.0811pt too wide) in paragraph at lines 32362--32362
 []\TU/lmtt/m/n/10.95 4  Therefore beloved  of me    just as  always   you have 
 obeyed not      as       in       the      presence of me[] 
  []
 
 
-Overfull \hbox (136.32735pt too wide) in paragraph at lines 32349--32349
+Overfull \hbox (136.32735pt too wide) in paragraph at lines 32362--32362
 []\TU/lmtt/m/n/10.95 5  Conj      Adj-VMP  PPro-G1S Adv      Adv      V-AIA-2P 
        Adv      Adv      Prep     Art-DFS  N-DFS    PPro-G1S[] 
  []
 
 
-Overfull \hbox (55.84486pt too wide) in paragraph at lines 32357--32357
+Overfull \hbox (55.84486pt too wide) in paragraph at lines 32370--32370
 []\TU/lmtt/m/n/10.95 1  3440     235     3568     4183     3123     1722     35
 88     666     1473     3326     5401     2532[] 
  []
 
 
-Overfull \hbox (50.09612pt too wide) in paragraph at lines 32357--32357
+Overfull \hbox (50.09612pt too wide) in paragraph at lines 32370--32370
 []\TU/lmtt/m/n/10.95 2  monon    alla    nyn      pollō    mallon   en       tē
        apousia mou      meta     phobou   kai[] 
  []
@@ -3828,13 +3829,13 @@ Missing character: There is no κ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ὶ in font [lmmono10-regular]:!
 
-Overfull \hbox (50.09612pt too wide) in paragraph at lines 32357--32357
+Overfull \hbox (50.09612pt too wide) in paragraph at lines 32370--32370
 []\TU/lmtt/m/n/10.95 4  only     but     now      much     more     in       th
 e      absence of me    with     fear     and[] 
  []
 
 
-Overfull \hbox (55.84486pt too wide) in paragraph at lines 32357--32357
+Overfull \hbox (55.84486pt too wide) in paragraph at lines 32370--32370
 []\TU/lmtt/m/n/10.95 5  Adv      Conj    Adv      Adj-DNS  Adv      Prep     Ar
 t-DFS  N-DFS   PPro-G1S Prep     N-GMS    Conj[] 
  []
@@ -3875,12 +3876,12 @@ Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no θ in font [lmmono10-regular]:!
 Missing character: There is no ε in font [lmmono10-regular]:!
 [690] [691] [692] [693] [694] [695] [696] [697] [698]
-Overfull \hbox (13.53041pt too wide) in paragraph at lines 32861--32914
+Overfull \hbox (13.53041pt too wide) in paragraph at lines 32874--32927
 []\TU/lmr/m/n/10.95 So by
  []
 
 [699] [700]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 32982--32995
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 32995--33008
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
@@ -3892,44 +3893,44 @@ Missing character: There is no ָ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ׂ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no א in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (263.7086pt too wide) in paragraph at lines 33032--33080
+Overfull \hbox (263.7086pt too wide) in paragraph at lines 33045--33093
 []
  []
 
 [702] [703] [704] [705] [706]
-Overfull \hbox (50.58153pt too wide) in paragraph at lines 33296--33299
+Overfull \hbox (50.58153pt too wide) in paragraph at lines 33309--33312
 []
  []
 
 [707] [708] [709] [710] [711] [712] [713] [714] [715] [716] [717] [718]
-Overfull \hbox (720.36732pt too wide) in paragraph at lines 33900--33901
+Overfull \hbox (720.36732pt too wide) in paragraph at lines 33913--33914
 |   []
  []
 
 [719] [720]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 34015.
+(hyperref)                removing `math shift' on input line 34028.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 34015.
+(hyperref)                removing `\@@underline' on input line 34028.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 34015.
+(hyperref)                removing `\hbox' on input line 34028.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 34015.
+(hyperref)                removing `\mathsurround' on input line 34028.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 34015.
+(hyperref)                removing `\z@' on input line 34028.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 34015.
+(hyperref)                removing `math shift' on input line 34028.
 
 [721]
 
@@ -3939,48 +3940,48 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.34041 \begin{itemize}
+l.34054 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
 [722]
-Overfull \hbox (11.9463pt too wide) in paragraph at lines 34115--34116
+Overfull \hbox (11.9463pt too wide) in paragraph at lines 34128--34129
 []\TU/lmr/m/n/10.95 2 Corinthi-
  []
 
 
-Overfull \hbox (89.43211pt too wide) in paragraph at lines 34135--34140
+Overfull \hbox (89.43211pt too wide) in paragraph at lines 34148--34153
 []
  []
 
 [723] [724] [725] [726] [727] [728] [729] [730] [731] [732] [733]
-Overfull \hbox (200.45409pt too wide) in paragraph at lines 34632--34633
+Overfull \hbox (200.45409pt too wide) in paragraph at lines 34645--34646
 []
  []
 
 
-Overfull \hbox (11.3962pt too wide) in paragraph at lines 34634--34635
+Overfull \hbox (11.3962pt too wide) in paragraph at lines 34647--34648
 []\TU/lmr/m/n/10.95 After reading and listening to Dario, I have stopped
  []
 
 
-Overfull \hbox (885.11736pt too wide) in paragraph at lines 34636--34645
+Overfull \hbox (885.11736pt too wide) in paragraph at lines 34649--34658
 []
  []
 
 
-Overfull \hbox (3.54033pt too wide) in paragraph at lines 34660--34663
+Overfull \hbox (3.54033pt too wide) in paragraph at lines 34673--34676
 []\TU/lmr/m/n/10.95 Calculus
  []
 
 [734] [735]
-Overfull \hbox (320.86029pt too wide) in paragraph at lines 34715--34721
+Overfull \hbox (320.86029pt too wide) in paragraph at lines 34728--34734
 []
  []
 
 
-Overfull \hbox (71.22224pt too wide) in paragraph at lines 34740--34741
+Overfull \hbox (71.22224pt too wide) in paragraph at lines 34753--34754
 []
  []
 
@@ -3993,12 +3994,12 @@ Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֹ in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
 
-Overfull \hbox (12.44635pt too wide) in paragraph at lines 35304--35311
+Overfull \hbox (12.44635pt too wide) in paragraph at lines 35317--35324
 []\TU/lmr/m/n/10.95 You came as a man;
  []
 
 [747] [748]
-Overfull \hbox (1625.87373pt too wide) in paragraph at lines 35397--35398
+Overfull \hbox (1625.87373pt too wide) in paragraph at lines 35410--35411
 []
  []
 
@@ -4234,24 +4235,24 @@ Missing character: There is no α in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ᾶ in font [lmroman10-regular]:mapping=tex-text;!
  [754] [755] [756] [757]
-Overfull \hbox (83.5848pt too wide) in paragraph at lines 35797--35813
+Overfull \hbox (83.5848pt too wide) in paragraph at lines 35810--35826
 []
  []
 
 
-Overfull \hbox (271.22697pt too wide) in paragraph at lines 35846--35850
+Overfull \hbox (271.22697pt too wide) in paragraph at lines 35859--35863
 []
  []
 
 [758] [759] [760] [761] [762]
-Overfull \hbox (98.66147pt too wide) in paragraph at lines 36094--36095
+Overfull \hbox (98.66147pt too wide) in paragraph at lines 36107--36108
 []\TU/lmr/m/n/10.95 I believe strongly that I am \TU/lmr/bx/n/10.95 currently \
 TU/lmr/m/n/10.95 going through this and I have been going through this discipli
 ne/testing/repentance/forgiving-
  []
 
 [763] [764] [765] [766] [767]
-Overfull \hbox (61.31995pt too wide) in paragraph at lines 36352--36353
+Overfull \hbox (61.31995pt too wide) in paragraph at lines 36365--36366
 |   []
  []
 
@@ -4285,72 +4286,72 @@ Missing character: There is no ρ in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [772]
-Overfull \hbox (34.66754pt too wide) in paragraph at lines 36592--36607
+Overfull \hbox (34.66754pt too wide) in paragraph at lines 36605--36620
 []
  []
 
 [773] [774] [775]
-Overfull \hbox (324.26573pt too wide) in paragraph at lines 36724--36725
+Overfull \hbox (324.26573pt too wide) in paragraph at lines 36737--36738
 []
  []
 
 [776] [777] [778] [779] [780]
-Overfull \hbox (8.22699pt too wide) in paragraph at lines 37064--37065
+Overfull \hbox (8.22699pt too wide) in paragraph at lines 37077--37078
 []\TU/lmr/m/n/10.95 I’m on the same page as Joanna
  []
 
 [781]
-Overfull \hbox (630.84387pt too wide) in paragraph at lines 37066--37067
+Overfull \hbox (630.84387pt too wide) in paragraph at lines 37079--37080
 []
  []
 
 [782]
-Overfull \hbox (11.52475pt too wide) in paragraph at lines 37156--37157
+Overfull \hbox (11.52475pt too wide) in paragraph at lines 37169--37170
 [][]\TU/lmr/m/n/10.95 youtube.com: John Piper
  []
 
 
-Overfull \hbox (16.37372pt too wide) in paragraph at lines 37162--37171
+Overfull \hbox (16.37372pt too wide) in paragraph at lines 37175--37184
 []\TU/lmr/m/n/10.95 And there’s
  []
 
 [783] [784] [785] [786] [787] [788] [789]
-Overfull \hbox (69.01036pt too wide) in paragraph at lines 37447--37455
+Overfull \hbox (69.01036pt too wide) in paragraph at lines 37460--37468
 []
  []
 
 
-Overfull \hbox (118.27805pt too wide) in paragraph at lines 37479--37480
+Overfull \hbox (118.27805pt too wide) in paragraph at lines 37492--37493
 []
  []
 
 
-Overfull \hbox (118.27805pt too wide) in paragraph at lines 37481--37482
+Overfull \hbox (118.27805pt too wide) in paragraph at lines 37494--37495
 []
  []
 
 [790]
-Overfull \hbox (118.27805pt too wide) in paragraph at lines 37487--37488
+Overfull \hbox (118.27805pt too wide) in paragraph at lines 37500--37501
 []
  []
 
 [791]
-Overfull \hbox (387.46916pt too wide) in paragraph at lines 37542--37558
+Overfull \hbox (387.46916pt too wide) in paragraph at lines 37555--37571
 []
  []
 
 [792]
-Overfull \hbox (124.5743pt too wide) in paragraph at lines 37587--37588
+Overfull \hbox (124.5743pt too wide) in paragraph at lines 37600--37601
 []
  []
 
 
-Overfull \hbox (124.5743pt too wide) in paragraph at lines 37589--37590
+Overfull \hbox (124.5743pt too wide) in paragraph at lines 37602--37603
 []
  []
 
 
-Overfull \hbox (252.18555pt too wide) in paragraph at lines 37609--37610
+Overfull \hbox (252.18555pt too wide) in paragraph at lines 37622--37623
 []
  []
 
@@ -4373,38 +4374,38 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [808] [809] [810] [811] [812] [813] [814] [815] [816]
 [817] [818] [819] [820] [821]
-Overfull \hbox (2.17526pt too wide) in paragraph at lines 39088--39091
+Overfull \hbox (2.17526pt too wide) in paragraph at lines 39101--39104
 []\TU/lmr/m/n/10.95 We cannot deceive
  []
 
 [822] [823]
-Overfull \hbox (140.25833pt too wide) in paragraph at lines 39239--39250
+Overfull \hbox (140.25833pt too wide) in paragraph at lines 39252--39263
 []
  []
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 39252.
+(hyperref)                removing `math shift' on input line 39265.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 39252.
+(hyperref)                removing `\@@underline' on input line 39265.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 39252.
+(hyperref)                removing `\hbox' on input line 39265.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 39252.
+(hyperref)                removing `\mathsurround' on input line 39265.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 39252.
+(hyperref)                removing `\z@' on input line 39265.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 39252.
+(hyperref)                removing `math shift' on input line 39265.
 
 [824]
 Missing character: There is no φ in font [lmroman10-regular]:mapping=tex-text;!
@@ -4415,12 +4416,12 @@ Missing character: There is no ρ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ό in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ς in font [lmroman10-regular]:mapping=tex-text;!
  [825] [826] [827]
-Overfull \hbox (60.11165pt too wide) in paragraph at lines 39437--39438
+Overfull \hbox (60.11165pt too wide) in paragraph at lines 39450--39451
 []
  []
 
 
-Overfull \hbox (66.4079pt too wide) in paragraph at lines 39439--39440
+Overfull \hbox (66.4079pt too wide) in paragraph at lines 39452--39453
 []
  []
 
@@ -4449,58 +4450,58 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (5.36536pt too wide) in paragraph at lines 40027--40038
+Overfull \hbox (5.36536pt too wide) in paragraph at lines 40040--40051
 []\TU/lmr/m/n/10.95 Paul claims ex-
  []
 
 [840] [841] [842] [843]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 40223.
+(hyperref)                removing `math shift' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 40223.
+(hyperref)                removing `\@@underline' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 40223.
+(hyperref)                removing `\hbox' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 40223.
+(hyperref)                removing `\mathsurround' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 40223.
+(hyperref)                removing `\z@' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 40223.
+(hyperref)                removing `math shift' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 40223.
+(hyperref)                removing `math shift' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 40223.
+(hyperref)                removing `\@@underline' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 40223.
+(hyperref)                removing `\hbox' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 40223.
+(hyperref)                removing `\mathsurround' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 40223.
+(hyperref)                removing `\z@' on input line 40236.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 40223.
+(hyperref)                removing `math shift' on input line 40236.
 
 [844]
 Missing character: There is no ו in font [lmmono10-regular]:!
@@ -4550,7 +4551,7 @@ Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֣ in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
  [845] [846] [847]
-Overfull \hbox (9.15128pt too wide) in paragraph at lines 40418--40419
+Overfull \hbox (9.15128pt too wide) in paragraph at lines 40431--40432
 [][]\TU/lmr/bx/n/10.95 I Corinthians 10:6-12[] \TU/lmr/m/n/10.95 - Now these th
 ings took place as examples for us, |   []   |   []   |   []
  []
@@ -4634,12 +4635,12 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
  [856] [857] [858] [859]
 [860]
-Underfull \hbox (badness 6775) in paragraph at lines 41098--41098
+Underfull \hbox (badness 6775) in paragraph at lines 41111--41111
 []\TU/lmr/m/n/10.95 because Abraham obeyed my
  []
 
 
-Overfull \hbox (359.34225pt too wide) in paragraph at lines 41115--41116
+Overfull \hbox (359.34225pt too wide) in paragraph at lines 41128--41129
 []
  []
 
@@ -4671,12 +4672,12 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [870]
-Overfull \hbox (4.39815pt too wide) in paragraph at lines 41615--41616
+Overfull \hbox (4.39815pt too wide) in paragraph at lines 41628--41629
 []\TU/lmr/m/n/10.95 “Whoever” means that any person can
  []
 
 
-Overfull \hbox (67.23853pt too wide) in paragraph at lines 41618--41619
+Overfull \hbox (67.23853pt too wide) in paragraph at lines 41631--41632
 [][]\TU/lmr/m/n/10.95 biblehub.com 10-9.htm: Romans 10:9 Interlinear: that if t
 hou mayest confess [[https://biblehub.com/greek/3670.htm][(G3670
  []
@@ -4713,27 +4714,27 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [894]
 [895] [896] [897] [898] [899] [900]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 42973--42986
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 42986--42999
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
 [901]
-Overfull \hbox (152.30699pt too wide) in paragraph at lines 43029--43046
+Overfull \hbox (152.30699pt too wide) in paragraph at lines 43042--43059
 []
  []
 
 [902] [903]
-Overfull \hbox (158.60324pt too wide) in paragraph at lines 43225--43255
+Overfull \hbox (158.60324pt too wide) in paragraph at lines 43238--43268
 []
  []
 
 [904] [905] [906] [907] [908] [909]
-Overfull \hbox (2.08406pt too wide) in paragraph at lines 43558--43559
+Overfull \hbox (2.08406pt too wide) in paragraph at lines 43571--43572
 []\TU/lmr/m/n/10.95 If you don’t fight you’re probably not born again.
  []
 
 [910]
-Overfull \hbox (7.19118pt too wide) in paragraph at lines 43594--43595
+Overfull \hbox (7.19118pt too wide) in paragraph at lines 43607--43608
 [][]\TU/lmr/bx/n/10.95 Philippians 2:1-13[] \TU/lmr/m/n/10.95 - So if there is 
 any encouragement in Christ, any comfort from love, any |   []
  []
@@ -4845,7 +4846,7 @@ Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [913] [914] [915] [916]
-Overfull \hbox (42.22986pt too wide) in paragraph at lines 43907--43908
+Overfull \hbox (42.22986pt too wide) in paragraph at lines 43920--43921
 [][]$[][][][][] [] [] [] [][][][][][][][][][][][] [] [][][][][][][][][] [] [][]
 [] [] [][][][] [] [][] [] [][] [] [][][][][][][][][][][][][][][][][][][][][][][
 ][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][]$[] 
@@ -4853,13 +4854,13 @@ Overfull \hbox (42.22986pt too wide) in paragraph at lines 43907--43908
  []
 
 [917] [918] [919]
-Overfull \hbox (17.23007pt too wide) in paragraph at lines 44013--44014
+Overfull \hbox (17.23007pt too wide) in paragraph at lines 44026--44027
 \TU/lmr/bx/n/10.95 besides you\TU/lmr/m/n/10.95 . |   []   |   []   |   []   | 
   []   |   []   |   []   |   []   |   []   |   []
  []
 
 
-Overfull \hbox (76.89072pt too wide) in paragraph at lines 44027--44034
+Overfull \hbox (76.89072pt too wide) in paragraph at lines 44040--44047
 []
  []
 
@@ -4880,22 +4881,22 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [925] [926] [927] [928]
-Overfull \hbox (84.71268pt too wide) in paragraph at lines 44411--44423
+Overfull \hbox (84.71268pt too wide) in paragraph at lines 44424--44436
 []
  []
 
 [929] [930]
-Overfull \hbox (25.48413pt too wide) in paragraph at lines 44557--44564
+Overfull \hbox (25.48413pt too wide) in paragraph at lines 44570--44577
 []
  []
 
 
-Overfull \hbox (67.44452pt too wide) in paragraph at lines 44565--44588
+Overfull \hbox (67.44452pt too wide) in paragraph at lines 44578--44601
 []
  []
 
 [931] [932] [933] [934] [935]
-Overfull \hbox (6.76335pt too wide) in paragraph at lines 44815--44819
+Overfull \hbox (6.76335pt too wide) in paragraph at lines 44828--44832
 []\TU/lmr/m/n/10.95 Apparently the author of Hebrews believes that |   []
  []
 
@@ -4910,7 +4911,7 @@ Missing character: There is no μ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 
-Overfull \hbox (78.83986pt too wide) in paragraph at lines 44829--44829
+Overfull \hbox (78.83986pt too wide) in paragraph at lines 44842--44842
 []\TU/lmtt/m/n/10.95 7  Usage: I am struggling, striving (as in an athletic con
 test or warfare); I contend, as with an adversary.[] 
  []
@@ -4926,12 +4927,12 @@ Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
 Missing character: There is no ἡ in font [lmmono10-regular]:!
 
-Overfull \hbox (109.26985pt too wide) in paragraph at lines 44862--44872
+Overfull \hbox (109.26985pt too wide) in paragraph at lines 44875--44885
 []
  []
 
 [937]
-Overfull \hbox (18.27168pt too wide) in paragraph at lines 44895--44899
+Overfull \hbox (18.27168pt too wide) in paragraph at lines 44908--44912
 []
  []
 
@@ -4952,42 +4953,42 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [947] [948] [949]
-Overfull \hbox (72.39392pt too wide) in paragraph at lines 45451--45457
+Overfull \hbox (72.39392pt too wide) in paragraph at lines 45464--45470
 []
  []
 
 [950] [951] [952] [953] [954] [955] [956] [957] [958]
-Overfull \hbox (17.86296pt too wide) in paragraph at lines 45906--45911
+Overfull \hbox (17.86296pt too wide) in paragraph at lines 45919--45924
 []\TU/lmr/m/n/10.95 Affirming the Nicene
  []
 
 [959]
-Overfull \hbox (710.85175pt too wide) in paragraph at lines 45955--45960
+Overfull \hbox (710.85175pt too wide) in paragraph at lines 45968--45973
 []
  []
 
 
-Overfull \hbox (87.09975pt too wide) in paragraph at lines 45981--45987
+Overfull \hbox (87.09975pt too wide) in paragraph at lines 45994--46000
 []
  []
 
 [960] [961] [962]
-Overfull \hbox (45.65036pt too wide) in paragraph at lines 46158--46167
+Overfull \hbox (45.65036pt too wide) in paragraph at lines 46171--46180
 []
  []
 
 [963]
-Overfull \hbox (45.65036pt too wide) in paragraph at lines 46178--46189
+Overfull \hbox (45.65036pt too wide) in paragraph at lines 46191--46202
 []
  []
 
 
-Overfull \hbox (97.21391pt too wide) in paragraph at lines 46190--46200
+Overfull \hbox (97.21391pt too wide) in paragraph at lines 46203--46213
 []
  []
 
 [964]
-Overfull \hbox (103.51016pt too wide) in paragraph at lines 46321--46325
+Overfull \hbox (103.51016pt too wide) in paragraph at lines 46334--46338
 []
  []
 
@@ -5234,27 +5235,27 @@ Missing character: There is no ῦ in font [lmmono10-regular]:!
 Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 
-Overfull \hbox (99.93315pt too wide) in paragraph at lines 47817--47828
+Overfull \hbox (99.93315pt too wide) in paragraph at lines 47830--47841
 []
  []
 
 
-Overfull \hbox (106.2294pt too wide) in paragraph at lines 47833--47854
+Overfull \hbox (106.2294pt too wide) in paragraph at lines 47846--47867
 []
  []
 
 
-Overfull \hbox (106.2294pt too wide) in paragraph at lines 47872--47895
+Overfull \hbox (106.2294pt too wide) in paragraph at lines 47885--47908
 []
  []
 
 [996]
-Overfull \hbox (106.2294pt too wide) in paragraph at lines 47917--47929
+Overfull \hbox (106.2294pt too wide) in paragraph at lines 47930--47942
 []
  []
 
 [997] [998] [999] [1000] [1001]
-Overfull \hbox (7.19118pt too wide) in paragraph at lines 48222--48223
+Overfull \hbox (7.19118pt too wide) in paragraph at lines 48235--48236
 [][]\TU/lmr/bx/n/10.95 Philippians 2:1-13[] \TU/lmr/m/n/10.95 - So if there is 
 any encouragement in Christ, any comfort from love, any |   []
  []
@@ -5284,7 +5285,7 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.49045 \begin{itemize}
+l.49058 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
@@ -5359,18 +5360,18 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.50577 \begin{itemize}
+l.50590 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
 [1054]
-Overfull \hbox (22.513pt too wide) in paragraph at lines 50615--50616
+Overfull \hbox (22.513pt too wide) in paragraph at lines 50628--50629
 []\TU/lmr/m/n/10.95 Yeah,
  []
 
 [1055] [1056] [1057]
-Overfull \hbox (2280.14696pt too wide) in paragraph at lines 50774--50775
+Overfull \hbox (2280.14696pt too wide) in paragraph at lines 50787--50788
 []
  []
 
@@ -5379,86 +5380,86 @@ Overfull \vbox (20.2003pt too high) has occurred while \output is active []
 
 
 [1066] [1067]
-Underfull \hbox (badness 1117) in paragraph at lines 51143--51143
+Underfull \hbox (badness 1117) in paragraph at lines 51156--51156
 \TU/lmr/bx/n/10.95 esians 6:1-3[] \TU/lmr/m/n/10.95 - Children, obey
  []
 
 [1068]
-Underfull \hbox (badness 1028) in paragraph at lines 51154--51154
+Underfull \hbox (badness 1028) in paragraph at lines 51167--51167
 [][]\TU/lmr/bx/n/10.95 I Timothy 1:8-11[] \TU/lmr/m/n/10.95 - Now we
  []
 
 
-Underfull \hbox (badness 1360) in paragraph at lines 51155--51155
+Underfull \hbox (badness 1360) in paragraph at lines 51168--51168
 \TU/lmr/m/n/10.95 saints. (ESV) []\TU/lmr/bx/n/10.95 Luke 12:15[] \TU/lmr/m/n/1
 0.95 -
  []
 
 [1069] [1070] [1071] [1072] [1073] [1074] [1075] [1076] [1077] [1078] [1079]
 [1080]
-Overfull \hbox (0.39404pt too wide) in paragraph at lines 51710--51715
+Overfull \hbox (0.39404pt too wide) in paragraph at lines 51723--51728
 []
  []
 
 
-Overfull \hbox (16.31535pt too wide) in paragraph at lines 51783--51784
+Overfull \hbox (16.31535pt too wide) in paragraph at lines 51796--51797
 []
  []
 
 
-Overfull \hbox (2.94179pt too wide) in paragraph at lines 51789--51824
+Overfull \hbox (2.94179pt too wide) in paragraph at lines 51802--51837
 []\TU/lmr/m/n/10.95 In fact sobriety of the
  []
 
 [1081]
 Missing character: There is no 🙏 in font [lmroman10-bold]:mapping=tex-text;!
 
-Overfull \hbox (35.05074pt too wide) in paragraph at lines 51874--51894
+Overfull \hbox (35.05074pt too wide) in paragraph at lines 51887--51907
 []
  []
 
 [1082]
-Overfull \hbox (78.41643pt too wide) in paragraph at lines 51913--51922
+Overfull \hbox (78.41643pt too wide) in paragraph at lines 51926--51935
 []
  []
 
 [1083] [1084] [1085] [1086] [1087] [1088]
-Overfull \hbox (225.75902pt too wide) in paragraph at lines 52260--52260
+Overfull \hbox (225.75902pt too wide) in paragraph at lines 52273--52273
 []\TU/lmr/bx/n/12 We are justified by faith in God who delivered up for our tre
 spasses and $[]$ 
  []
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 52260.
+(hyperref)                removing `math shift' on input line 52273.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 52260.
+(hyperref)                removing `\@@underline' on input line 52273.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 52260.
+(hyperref)                removing `\hbox' on input line 52273.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 52260.
+(hyperref)                removing `\mathsurround' on input line 52273.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 52260.
+(hyperref)                removing `\z@' on input line 52273.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 52260.
+(hyperref)                removing `math shift' on input line 52273.
 
 [1089] [1090] [1091] [1092]
-Overfull \hbox (57.42162pt too wide) in paragraph at lines 52415--52425
+Overfull \hbox (57.42162pt too wide) in paragraph at lines 52428--52438
 []
  []
 
 [1093] [1094] [1095]
-Overfull \hbox (74.64964pt too wide) in paragraph at lines 52603--52617
+Overfull \hbox (74.64964pt too wide) in paragraph at lines 52616--52630
 []
  []
 
@@ -5468,30 +5469,30 @@ Missing character: There is no 􁱾 in font [lmroman10-regular]:mapping=tex-text
  [1098] [1099] [1100]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 52861.
+(hyperref)                removing `math shift' on input line 52874.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 52861.
+(hyperref)                removing `\@@underline' on input line 52874.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 52861.
+(hyperref)                removing `\hbox' on input line 52874.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 52861.
+(hyperref)                removing `\mathsurround' on input line 52874.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 52861.
+(hyperref)                removing `\z@' on input line 52874.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 52861.
+(hyperref)                removing `math shift' on input line 52874.
 
 [1101] [1102] [1103]
-Overfull \hbox (324.26573pt too wide) in paragraph at lines 53024--53025
+Overfull \hbox (324.26573pt too wide) in paragraph at lines 53037--53038
 []
  []
 
@@ -5603,43 +5604,43 @@ Missing character: There is no α in font [lmmono10-regular]:!
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 53384.
+(hyperref)                removing `math shift' on input line 53397.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 53384.
+(hyperref)                removing `\@@underline' on input line 53397.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 53384.
+(hyperref)                removing `\hbox' on input line 53397.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 53384.
+(hyperref)                removing `\mathsurround' on input line 53397.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 53384.
+(hyperref)                removing `\z@' on input line 53397.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 53384.
+(hyperref)                removing `math shift' on input line 53397.
 
 
-Overfull \hbox (22.6116pt too wide) in paragraph at lines 53392--53396
+Overfull \hbox (22.6116pt too wide) in paragraph at lines 53405--53409
 []
  []
 
 [1111] [1112]
 Missing character: There is no ☕ in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (16.14743pt too wide) in paragraph at lines 53479--53480
+Overfull \hbox (16.14743pt too wide) in paragraph at lines 53492--53493
 []\TU/lmr/m/n/10.95 ”People
  []
 
 [1113] [1114] [1115] [1116] [1117] [1118] [1119] [1120] [1121] [1122] [1123]
 [1124] [1125]
-Overfull \hbox (22.6116pt too wide) in paragraph at lines 54088--54101
+Overfull \hbox (22.6116pt too wide) in paragraph at lines 54101--54114
 []
  []
 
@@ -5650,52 +5651,52 @@ Missing character: There is no ו in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ּ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ב in font [lmroman10-regular]:mapping=tex-text;!
  [1130] [1131] [1132] [1133] [1134] [1135]
-Overfull \hbox (8.77544pt too wide) in paragraph at lines 54597--54607
+Overfull \hbox (8.77544pt too wide) in paragraph at lines 54610--54620
 []\TU/lmr/m/n/10.95 Brethren, I don’t
  []
 
 [1136]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 54649.
+(hyperref)                removing `math shift' on input line 54662.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 54649.
+(hyperref)                removing `\@@underline' on input line 54662.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 54649.
+(hyperref)                removing `\hbox' on input line 54662.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 54649.
+(hyperref)                removing `\mathsurround' on input line 54662.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 54649.
+(hyperref)                removing `\z@' on input line 54662.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 54649.
+(hyperref)                removing `math shift' on input line 54662.
 
 [1137] [1138] [1139] [1140] [1141] [1142] [1143]
-Overfull \hbox (11.50102pt too wide) in paragraph at lines 54938--54965
+Overfull \hbox (11.50102pt too wide) in paragraph at lines 54951--54978
 []\TU/lmr/m/n/10.95 Jesus is the
  []
 
 [1144] [1145] [1146]
-Overfull \hbox (80.29248pt too wide) in paragraph at lines 55130--55146
+Overfull \hbox (80.29248pt too wide) in paragraph at lines 55143--55159
 []
  []
 
 [1147] [1148] [1149] [1150] [1151] [1152] [1153]
-Overfull \hbox (60.11165pt too wide) in paragraph at lines 55458--55459
+Overfull \hbox (60.11165pt too wide) in paragraph at lines 55471--55472
 []
  []
 
 
-Overfull \hbox (66.4079pt too wide) in paragraph at lines 55460--55461
+Overfull \hbox (66.4079pt too wide) in paragraph at lines 55473--55474
 []
  []
 
@@ -5710,37 +5711,37 @@ Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;
  [1158]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 55744.
+(hyperref)                removing `math shift' on input line 55757.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 55744.
+(hyperref)                removing `\@@underline' on input line 55757.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 55744.
+(hyperref)                removing `\hbox' on input line 55757.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 55744.
+(hyperref)                removing `\mathsurround' on input line 55757.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 55744.
+(hyperref)                removing `\z@' on input line 55757.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 55744.
+(hyperref)                removing `math shift' on input line 55757.
 
 [1159] [1160] [1161] [1162] [1163] [1164] [1165]
-Overfull \hbox (11.66888pt too wide) in paragraph at lines 56066--56072
+Overfull \hbox (11.66888pt too wide) in paragraph at lines 56079--56085
 []\TU/lmr/m/n/10.95 So,
  []
 
 [1166] [1167] [1168] [1169] [1170] [1171] [1172]
 
 Package hyperref Warning: Difference (2) between bookmark levels is greater 
-(hyperref)                than one, level fixed on input line 56394.
+(hyperref)                than one, level fixed on input line 56407.
 
 [1173] [1174]
 Missing character: There is no π in font [lmroman10-regular]:mapping=tex-text;!
@@ -5815,8 +5816,8 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1193]
 
-LaTeX Warning: Reference `sec:org55e605c' on page 1194 undefined on input line 
-57422.
+LaTeX Warning: Reference `sec:orgd42db3f' on page 1194 undefined on input line 
+57435.
 
 [1194] [1195]
 Missing character: There is no κ in font [lmmono10-regular]:!
@@ -5873,7 +5874,7 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1203] [1204]
-Overfull \hbox (56.84987pt too wide) in paragraph at lines 57922--57923
+Overfull \hbox (56.84987pt too wide) in paragraph at lines 57935--57936
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][][][] [] [][][] [] [][][][][][]
 [][][][][][][] [] [][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][
 ][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -5881,7 +5882,7 @@ Overfull \hbox (56.84987pt too wide) in paragraph at lines 57922--57923
  []
 
 [1205] [1206] [1207] [1208] [1209] [1210] [1211] [1212] [1213]
-Overfull \hbox (3.58777pt too wide) in paragraph at lines 58356--58357
+Overfull \hbox (3.58777pt too wide) in paragraph at lines 58369--58370
 []\TU/lmr/m/n/10.95 You’ve
  []
 
@@ -5894,7 +5895,7 @@ Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֛ in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
  [1217] [1218] [1219]
-Overfull \hbox (837.6747pt too wide) in paragraph at lines 58644--58644
+Overfull \hbox (837.6747pt too wide) in paragraph at lines 58657--58657
 []\TU/lmtt/m/n/10.95 1  5219 /hypakoúō ("obey") is acting under the authority o
 f the one speaking, i.e. really listening to the one giving the charge (order).
  5219 /hypakoúō ("to hearken, obey") suggests attentively listening, i.e. fully
@@ -5902,7 +5903,7 @@ f the one speaking, i.e. really listening to the one giving the charge (order).
  []
 
 
-Overfull \hbox (15.60362pt too wide) in paragraph at lines 58644--58644
+Overfull \hbox (15.60362pt too wide) in paragraph at lines 58657--58657
 []\TU/lmtt/m/n/10.95 3  [5219 (hypakoúō) is an "intensification" of the simple 
 verb "to listen" (191 /akoúō, "hear").][] 
  []
@@ -6090,47 +6091,47 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
 
-Overfull \hbox (194.647pt too wide) in paragraph at lines 59058--59065
+Overfull \hbox (194.647pt too wide) in paragraph at lines 59071--59078
 []
  []
 
 
-Overfull \hbox (194.647pt too wide) in paragraph at lines 59066--59085
+Overfull \hbox (194.647pt too wide) in paragraph at lines 59079--59098
 []
  []
 
 
-Overfull \hbox (71.84644pt too wide) in paragraph at lines 59092--59105
+Overfull \hbox (71.84644pt too wide) in paragraph at lines 59105--59118
 []
  []
 
 [1228] [1229] [1230]
-Overfull \hbox (75.7008pt too wide) in paragraph at lines 59209--59213
+Overfull \hbox (75.7008pt too wide) in paragraph at lines 59222--59226
 []
  []
 
 [1231] [1232] [1233]
-Overfull \hbox (169.08238pt too wide) in paragraph at lines 59382--59383
+Overfull \hbox (169.08238pt too wide) in paragraph at lines 59395--59396
 []
  []
 
 
-Overfull \hbox (165.27908pt too wide) in paragraph at lines 59384--59390
+Overfull \hbox (165.27908pt too wide) in paragraph at lines 59397--59403
 []
  []
 
 [1234] [1235] [1236] [1237]
-Overfull \hbox (29.61227pt too wide) in paragraph at lines 59578--59583
+Overfull \hbox (29.61227pt too wide) in paragraph at lines 59591--59596
 []
  []
 
 
-Overfull \hbox (35.90852pt too wide) in paragraph at lines 59623--59637
+Overfull \hbox (35.90852pt too wide) in paragraph at lines 59636--59650
 []
  []
 
 [1238]
-Overfull \hbox (35.90852pt too wide) in paragraph at lines 59638--59640
+Overfull \hbox (35.90852pt too wide) in paragraph at lines 59651--59653
 []
  []
 
@@ -6150,17 +6151,17 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (35.90852pt too wide) in paragraph at lines 59692--59722
+Overfull \hbox (35.90852pt too wide) in paragraph at lines 59705--59735
 []
  []
 
 [1239]
-Overfull \hbox (35.90852pt too wide) in paragraph at lines 59785--59798
+Overfull \hbox (35.90852pt too wide) in paragraph at lines 59798--59811
 []
  []
 
 [1240]
-Overfull \hbox (35.90852pt too wide) in paragraph at lines 59799--59817
+Overfull \hbox (35.90852pt too wide) in paragraph at lines 59812--59830
 []
  []
 
@@ -6181,74 +6182,74 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1244] [1245] [1246] [1247] [1248] [1249] [1250]
-Overfull \hbox (216.8098pt too wide) in paragraph at lines 60331--60331
+Overfull \hbox (216.8098pt too wide) in paragraph at lines 60344--60344
 [] \TU/lmtt/m/n/10.95 6   morally to be true or certain; once ([[https://www.bi
 blegateway.com/passage/?search=Isaiah%2030%3A21&version=ESV][Isa. 30:21]];[] 
  []
 
 [1251] [1252] [1253] [1254]
-Overfull \hbox (143.15952pt too wide) in paragraph at lines 60561--60562
+Overfull \hbox (143.15952pt too wide) in paragraph at lines 60574--60575
 []\TU/lmr/bx/n/10.95 With God\TU/lmr/m/n/10.95 , the impossible is possible. I 
 think this is saying that |   []: 
  []
 
 [1255] [1256] [1257] [1258]
-Overfull \hbox (12.02661pt too wide) in paragraph at lines 60755--60773
+Overfull \hbox (12.02661pt too wide) in paragraph at lines 60768--60786
 []\TU/lmr/m/n/10.95 Why do we have
  []
 
 
-Overfull \hbox (78.50403pt too wide) in paragraph at lines 60785--60786
+Overfull \hbox (78.50403pt too wide) in paragraph at lines 60798--60799
 []
  []
 
 [1259] [1260]
-Overfull \hbox (78.50403pt too wide) in paragraph at lines 60885--60887
+Overfull \hbox (78.50403pt too wide) in paragraph at lines 60898--60900
 []
  []
 
 [1261] [1262] [1263]
-Overfull \hbox (23.99493pt too wide) in paragraph at lines 60988--60990
+Overfull \hbox (23.99493pt too wide) in paragraph at lines 61001--61003
 []\TU/lmr/m/n/10.95 Demons
  []
 
 [1264] [1265] [1266] [1267]
-Overfull \hbox (62.06442pt too wide) in paragraph at lines 61163--61164
+Overfull \hbox (62.06442pt too wide) in paragraph at lines 61176--61177
 []
  []
 
 [1268] [1269] [1270] [1271] [1272] [1273]
-Overfull \hbox (192.1029pt too wide) in paragraph at lines 61472--61477
+Overfull \hbox (192.1029pt too wide) in paragraph at lines 61485--61490
 []
  []
 
 [1274]
-Overfull \hbox (67.34233pt too wide) in paragraph at lines 61607--61607
+Overfull \hbox (67.34233pt too wide) in paragraph at lines 61620--61620
 []\TU/lmtt/m/n/10.95 20  "I confess [[https://biblehub.com/greek/3670.htm][(G36
 70 homologeó)]] all my sins before You, and hold[] 
  []
 
 [1275] [1276]
-Overfull \hbox (176.56859pt too wide) in paragraph at lines 61694--61694
+Overfull \hbox (176.56859pt too wide) in paragraph at lines 61707--61707
 [] \TU/lmtt/m/n/10.95 5  Work/Love/Walking-By-Faith = Obedience * Faithfulness 
 * Fear-of-God * Response-of-love-to-Jesus * Patient-Endurance(time)[] 
  []
 
 
-Overfull \hbox (44.34737pt too wide) in paragraph at lines 61694--61694
+Overfull \hbox (44.34737pt too wide) in paragraph at lines 61707--61707
 [] \TU/lmtt/m/n/10.95 7  Obedience = Submitting to the Righteousness of God * T
 urning from sin, loving, showing mercy, etc.[] 
  []
 
 
-Overfull \hbox (395.02104pt too wide) in paragraph at lines 61694--61694
+Overfull \hbox (395.02104pt too wide) in paragraph at lines 61707--61707
 [] \TU/lmtt/m/n/10.95 9  Fear-of-God = e.g. The poor in spirit recognise their 
 need of God's mercy and tremble at His Word: "beat his breast, saying, God, be 
 merciful to me, a sinner!"[] 
  []
 
 
-Overfull \hbox (435.26228pt too wide) in paragraph at lines 61694--61694
+Overfull \hbox (435.26228pt too wide) in paragraph at lines 61707--61707
 []\TU/lmtt/m/n/10.95 10                Fear of God is not only about having the
  heart to repent from sin and "beat hand on chest and ask God for mercy", but i
 t is also having a changed heart,[] 
@@ -6340,7 +6341,7 @@ Missing character: There is no τ in font [lmmono10-regular]:!
 Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ῦ in font [lmmono10-regular]:!
  [1285]
-Overfull \hbox (119.5861pt too wide) in paragraph at lines 62180--62181
+Overfull \hbox (119.5861pt too wide) in paragraph at lines 62193--62194
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][][] [] [][][] [] [][][][][][][]
 [][][] [] [][][][][][][][][][][][][][][][] [] [][][][][][] [] [][][][][][][][][
 ][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -6348,102 +6349,102 @@ Overfull \hbox (119.5861pt too wide) in paragraph at lines 62180--62181
  []
 
 [1286]
-Overfull \hbox (25.39111pt too wide) in paragraph at lines 62199--62200
+Overfull \hbox (25.39111pt too wide) in paragraph at lines 62212--62213
 [][]\TU/lmr/m/n/10.95 youtube.com: John
  []
 
 [1287] [1288] [1289] [1290] [1291] [1292] [1293] [1294] [1295] [1296] [1297]
 [1298] [1299] [1300] [1301] [1302] [1303] [1304] [1305] [1306]
-Overfull \hbox (12.69897pt too wide) in paragraph at lines 63227--63227
+Overfull \hbox (12.69897pt too wide) in paragraph at lines 63240--63240
 []\TU/lmr/bx/n/12 The measure of $[]$ and $[]$
  []
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 63227.
+(hyperref)                removing `math shift' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 63227.
+(hyperref)                removing `\@@underline' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 63227.
+(hyperref)                removing `\hbox' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 63227.
+(hyperref)                removing `\mathsurround' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 63227.
+(hyperref)                removing `\z@' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 63227.
+(hyperref)                removing `math shift' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 63227.
+(hyperref)                removing `math shift' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 63227.
+(hyperref)                removing `\@@underline' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 63227.
+(hyperref)                removing `\hbox' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 63227.
+(hyperref)                removing `\mathsurround' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 63227.
+(hyperref)                removing `\z@' on input line 63240.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 63227.
+(hyperref)                removing `math shift' on input line 63240.
 
 [1307]
-Overfull \hbox (25.2907pt too wide) in paragraph at lines 63291--63295
+Overfull \hbox (25.2907pt too wide) in paragraph at lines 63304--63308
 []\TU/lmr/m/n/10.95 If you’re
  []
 
 [1308] [1309] [1310] [1311] [1312]
-Overfull \hbox (21.07857pt too wide) in paragraph at lines 63507--63508
+Overfull \hbox (21.07857pt too wide) in paragraph at lines 63520--63521
 []\TU/lmr/m/n/10.95 …it’s
  []
 
 
-Overfull \hbox (5.37627pt too wide) in paragraph at lines 63509--63518
+Overfull \hbox (5.37627pt too wide) in paragraph at lines 63522--63531
 []
  []
 
 [1313] [1314]
-Overfull \hbox (0.39043pt too wide) in paragraph at lines 63656--63668
+Overfull \hbox (0.39043pt too wide) in paragraph at lines 63669--63681
 []\TU/lmr/m/n/10.95 There is a great deception coming over
  []
 
 [1315] [1316] [1317] [1318] [1319] [1320] [1321] [1322] [1323] [1324] [1325]
 [1326] [1327] [1328] [1329] [1330] [1331] [1332] [1333] [1334] [1335] [1336]
 [1337] [1338] [1339] [1340] [1341]
-Overfull \hbox (383.52354pt too wide) in paragraph at lines 64717--64717
+Overfull \hbox (383.52354pt too wide) in paragraph at lines 64730--64730
 []\TU/lmtt/m/n/10.95 4  I'm inundated, as this antichrist spirit continues to a
 ttack me, steal from me, take my joy, make things harder, and tries to take my 
 eyes away from You, God.[] 
  []
 
 
-Overfull \hbox (251.30232pt too wide) in paragraph at lines 64717--64717
+Overfull \hbox (251.30232pt too wide) in paragraph at lines 64730--64730
 []\TU/lmtt/m/n/10.95 5  Please help me and those around me to fulfill Christ's 
 law, which is to bear one another's burdens and not to lay up burdens on others
 .[] 
  []
 
 
-Overfull \hbox (854.92094pt too wide) in paragraph at lines 64717--64717
+Overfull \hbox (854.92094pt too wide) in paragraph at lines 64730--64730
 []\TU/lmtt/m/n/10.95 6  Please help people to learn from Jesus as He carried ou
 r burdens to the end, so that we can be strong and ought to carry one others' b
 urdens, and instead of giving each other sour wine when we thirst, to give one 
@@ -6451,7 +6452,7 @@ another water out of mercy.[]
  []
 
 [1342] [1343]
-Overfull \hbox (83.35109pt too wide) in paragraph at lines 64803--64804
+Overfull \hbox (83.35109pt too wide) in paragraph at lines 64816--64817
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][]$[
@@ -6459,7 +6460,7 @@ Overfull \hbox (83.35109pt too wide) in paragraph at lines 64803--64804
  []
 
 
-Overfull \hbox (89.09984pt too wide) in paragraph at lines 64815--64816
+Overfull \hbox (89.09984pt too wide) in paragraph at lines 64828--64829
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -6467,14 +6468,14 @@ $[]
  []
 
 
-Overfull \hbox (86.73108pt too wide) in paragraph at lines 64819--64820
+Overfull \hbox (86.73108pt too wide) in paragraph at lines 64832--64833
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][]$[] 
  []
 
 
-Overfull \hbox (116.47482pt too wide) in paragraph at lines 64825--64826
+Overfull \hbox (116.47482pt too wide) in paragraph at lines 64838--64839
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -6482,7 +6483,7 @@ $[]
  []
 
 [1344] [1345]
-Overfull \hbox (15.76056pt too wide) in paragraph at lines 64933--64934
+Overfull \hbox (15.76056pt too wide) in paragraph at lines 64946--64947
 []\TU/lmr/m/n/10.95 These signs
  []
 
@@ -6494,7 +6495,7 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.65348 \begin{itemize}
+l.65361 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
@@ -6506,7 +6507,7 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.65354 \begin{itemize}
+l.65367 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
@@ -6519,7 +6520,7 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.65382 \begin{itemize}
+l.65395 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
@@ -6531,29 +6532,29 @@ See the LaTeX manual or LaTeX Companion for explanation.
 Type  H <return>  for immediate help.
  ...                                              
                                                   
-l.65390 \begin{itemize}
+l.65403 \begin{itemize}
                        
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
 [1358] [1359] [1360] [1361] [1362] [1363] [1364] [1365] [1366] [1367] [1368]
 [1369] [1370] [1371] [1372] [1373] [1374] [1375]
-Overfull \hbox (282.68858pt too wide) in paragraph at lines 66239--66240
+Overfull \hbox (282.68858pt too wide) in paragraph at lines 66252--66253
 []
  []
 
 [1376] [1377] [1378] [1379] [1380] [1381]
-Overfull \hbox (0.2079pt too wide) in paragraph at lines 66584--66585
+Overfull \hbox (0.2079pt too wide) in paragraph at lines 66597--66598
 []\TU/lmr/m/n/10.95 This is
  []
 
 [1382] [1383]
 
 Package hyperref Warning: Difference (2) between bookmark levels is greater 
-(hyperref)                than one, level fixed on input line 66631.
+(hyperref)                than one, level fixed on input line 66644.
 
 [1384] [1385] [1386] [1387] [1388] [1389] [1390]
-Overfull \hbox (853.7967pt too wide) in paragraph at lines 66999--67000
+Overfull \hbox (853.7967pt too wide) in paragraph at lines 67012--67013
 []
  []
 
@@ -6723,7 +6724,7 @@ Missing character: There is no ο in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no α in font [lmroman10-bold]:mapping=tex-text;!
 [1391] [1392] [1393] [1394] [1395] [1396] [1397] [1398] [1399] [1400]
-Overfull \hbox (73.719pt too wide) in paragraph at lines 67541--67542
+Overfull \hbox (73.719pt too wide) in paragraph at lines 67554--67555
 [][]\TU/lmr/bx/n/10.95 Romans 11:32[] \TU/lmr/m/n/10.95 - For |   []   |   []  
  |   []   |   []   |   []   |   []   |   []   |   []   |   []
  []
@@ -6740,26 +6741,26 @@ Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
 Missing character: There is no ἡ in font [lmmono10-regular]:!
  [1404] [1405] [1406] [1407] [1408]
-Overfull \hbox (176.56859pt too wide) in paragraph at lines 67980--67980
+Overfull \hbox (176.56859pt too wide) in paragraph at lines 67993--67993
 [] \TU/lmtt/m/n/10.95 5  Work/Love/Walking-By-Faith = Obedience * Faithfulness 
 * Fear-of-God * Response-of-love-to-Jesus * Patient-Endurance(time)[] 
  []
 
 
-Overfull \hbox (44.34737pt too wide) in paragraph at lines 67980--67980
+Overfull \hbox (44.34737pt too wide) in paragraph at lines 67993--67993
 [] \TU/lmtt/m/n/10.95 7  Obedience = Submitting to the Righteousness of God * T
 urning from sin, loving, showing mercy, etc.[] 
  []
 
 
-Overfull \hbox (395.02104pt too wide) in paragraph at lines 67980--67980
+Overfull \hbox (395.02104pt too wide) in paragraph at lines 67993--67993
 [] \TU/lmtt/m/n/10.95 9  Fear-of-God = e.g. The poor in spirit recognise their 
 need of God's mercy and tremble at His Word: "beat his breast, saying, God, be 
 merciful to me, a sinner!"[] 
  []
 
 
-Overfull \hbox (435.26228pt too wide) in paragraph at lines 67980--67980
+Overfull \hbox (435.26228pt too wide) in paragraph at lines 67993--67993
 []\TU/lmtt/m/n/10.95 10                Fear of God is not only about having the
  heart to repent from sin and "beat hand on chest and ask God for mercy", but i
 t is also having a changed heart,[] 
@@ -6768,18 +6769,18 @@ t is also having a changed heart,[]
 Missing character: There is no ∝ in font [lmmono10-regular]:!
 Missing character: There is no ∝ in font [lmmono10-regular]:!
 [1409] [1410] [1411] [1412] [1413] [1414] [1415] [1416] [1417]
-Overfull \hbox (324.26573pt too wide) in paragraph at lines 68438--68439
+Overfull \hbox (324.26573pt too wide) in paragraph at lines 68451--68452
 []
  []
 
 [1418] [1419] [1420] [1421] [1422] [1423] [1424] [1425] [1426] [1427] [1428]
 [1429] [1430]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 69104--69105
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 69117--69118
 []
  []
 
 
-Overfull \hbox (253.58435pt too wide) in paragraph at lines 69104--69105
+Overfull \hbox (253.58435pt too wide) in paragraph at lines 69117--69118
 \TU/lmr/m/n/10.95 The word of truth is free, and |   []   |   []   |   []   |  
  []   |   []
  []
@@ -6787,69 +6788,69 @@ Overfull \hbox (253.58435pt too wide) in paragraph at lines 69104--69105
 [1431]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 69134.
+(hyperref)                removing `math shift' on input line 69147.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 69134.
+(hyperref)                removing `\@@underline' on input line 69147.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 69134.
+(hyperref)                removing `\hbox' on input line 69147.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 69134.
+(hyperref)                removing `\mathsurround' on input line 69147.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 69134.
+(hyperref)                removing `\z@' on input line 69147.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 69134.
+(hyperref)                removing `math shift' on input line 69147.
 
 [1432]
-Overfull \hbox (324.26573pt too wide) in paragraph at lines 69152--69153
+Overfull \hbox (324.26573pt too wide) in paragraph at lines 69165--69166
 []
  []
 
 [1433] [1434] [1435] [1436] [1437] [1438] [1439] [1440]
-Overfull \hbox (0.2079pt too wide) in paragraph at lines 69529--69530
+Overfull \hbox (0.2079pt too wide) in paragraph at lines 69542--69543
 []\TU/lmr/m/n/10.95 This is
  []
 
 [1441] [1442] [1443] [1444]
-Overfull \hbox (64.96521pt too wide) in paragraph at lines 69699--69700
+Overfull \hbox (64.96521pt too wide) in paragraph at lines 69712--69713
 []\TU/lmr/m/n/10.95 I like to think about faith in God as an equation like: \TU
 /lmtt/m/n/10.95 Believing-God * Obedience/Action/Work/Love/PatientEndurance\TU/
 lmr/m/n/10.95 . 
  []
 
 [1445] [1446] [1447] [1448] [1449] [1450] [1451]
-Overfull \hbox (546.19894pt too wide) in paragraph at lines 70098--70099
+Overfull \hbox (546.19894pt too wide) in paragraph at lines 70111--70112
 |   []   |   []   |   []   |   []   |   []   |   []   |   []
  []
 
 [1452] [1453] [1454] [1455] [1456]
-Overfull \hbox (41.05135pt too wide) in paragraph at lines 70337--70338
+Overfull \hbox (41.05135pt too wide) in paragraph at lines 70350--70351
 |   []   |   []   |   []
  []
 
 [1457]
 Missing character: There is no 􄌹 in font [lmroman10-regular]:mapping=tex-text;!
  [1458] [1459] [1460] [1461] [1462] [1463]
-Overfull \hbox (130.67924pt too wide) in paragraph at lines 70665--70670
+Overfull \hbox (130.67924pt too wide) in paragraph at lines 70678--70683
 []
  []
 
 [1464] [1465]
-Overfull \hbox (66.9846pt too wide) in paragraph at lines 70786--70798
+Overfull \hbox (66.9846pt too wide) in paragraph at lines 70799--70811
 []
  []
 
 [1466] [1467]
-Overfull \hbox (55.44696pt too wide) in paragraph at lines 70925--70927
+Overfull \hbox (55.44696pt too wide) in paragraph at lines 70938--70940
 []
  []
 
@@ -6961,117 +6962,117 @@ Missing character: There is no σ in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
 Missing character: There is no ν in font [lmmono10-regular]:!
  [1478]
-Overfull \hbox (20.23183pt too wide) in paragraph at lines 71997--72004
+Overfull \hbox (20.23183pt too wide) in paragraph at lines 72010--72017
 []\TU/lmr/m/n/10.95 but it has been turned
  []
 
 [1479]
-Underfull \hbox (badness 3601) in paragraph at lines 72104--72104
+Underfull \hbox (badness 3601) in paragraph at lines 72117--72117
 []\TU/lmr/m/n/10.95 Messiah would be born of a
  []
 
 [1480]
-Underfull \hbox (badness 1824) in paragraph at lines 72113--72113
+Underfull \hbox (badness 1824) in paragraph at lines 72126--72126
 \TU/lmr/m/n/10.95 place to fulfill what the Lord
  []
 
 [1481] [1482]
-Underfull \hbox (badness 2005) in paragraph at lines 72145--72145
+Underfull \hbox (badness 2005) in paragraph at lines 72158--72158
 []\TU/lmr/m/n/10.95 Messiah would come from the
  []
 
 
-Underfull \hbox (badness 2529) in paragraph at lines 72161--72161
+Underfull \hbox (badness 2529) in paragraph at lines 72174--72174
 \TU/lmr/m/n/10.95 scepter of your kingdom is a
  []
 
 
-Underfull \hbox (badness 4479) in paragraph at lines 72161--72161
+Underfull \hbox (badness 4479) in paragraph at lines 72174--72174
 \TU/lmr/m/n/10.95 loved righteousness and hated
  []
 
 [1483]
-Underfull \hbox (badness 4647) in paragraph at lines 72169--72169
+Underfull \hbox (badness 4647) in paragraph at lines 72182--72182
 []\TU/lmr/m/n/10.95 Messiah would be called Im-
  []
 
 
-Underfull \hbox (badness 1163) in paragraph at lines 72177--72177
+Underfull \hbox (badness 1163) in paragraph at lines 72190--72190
 \TU/lmr/m/n/10.95 of Herod. This was to fulfill
  []
 
 [1484]
-Underfull \hbox (badness 10000) in paragraph at lines 72209--72209
+Underfull \hbox (badness 10000) in paragraph at lines 72222--72222
 [][]\TU/lmr/bx/n/10.95 Deuteronomy 18:15[] \TU/lmr/m/n/10.95 - The
  []
 
 [1485]
-Underfull \hbox (badness 10000) in paragraph at lines 72233--72233
+Underfull \hbox (badness 10000) in paragraph at lines 72246--72246
 []\TU/lmr/m/n/10.95 Messiah would be called a
  []
 
 
-Underfull \hbox (badness 1776) in paragraph at lines 72233--72233
+Underfull \hbox (badness 1776) in paragraph at lines 72246--72246
 \TU/lmr/m/n/10.95 that what was spoken by the
  []
 
 
-Underfull \hbox (badness 4144) in paragraph at lines 72241--72241
+Underfull \hbox (badness 4144) in paragraph at lines 72254--72254
 []\TU/lmr/m/n/10.95 Messiah would bring light to
  []
 
 [1486]
-Underfull \hbox (badness 1701) in paragraph at lines 72249--72249
+Underfull \hbox (badness 1701) in paragraph at lines 72262--72262
 \TU/lmr/m/n/10.95 the secrets of the kingdom of
  []
 
 [1487]
-Underfull \hbox (badness 1072) in paragraph at lines 72265--72265
+Underfull \hbox (badness 1072) in paragraph at lines 72278--72278
 \TU/lmr/m/n/10.95 sworn and will not change his
  []
 
 [1488]
-Underfull \hbox (badness 1360) in paragraph at lines 72273--72273
+Underfull \hbox (badness 1360) in paragraph at lines 72286--72286
 \TU/lmr/m/n/10.95 Rejoice greatly, O daughter of
  []
 
 
-Underfull \hbox (badness 1867) in paragraph at lines 72273--72273
+Underfull \hbox (badness 1867) in paragraph at lines 72286--72286
 \TU/lmr/m/n/10.95 colt to Jesus and threw their
  []
 
 [1489] [1490]
-Underfull \hbox (badness 1097) in paragraph at lines 72337--72337
+Underfull \hbox (badness 1097) in paragraph at lines 72350--72350
 \TU/lmr/m/n/10.95 he bore the sin of many, and
  []
 
 
-Underfull \hbox (badness 2922) in paragraph at lines 72345--72345
+Underfull \hbox (badness 2922) in paragraph at lines 72358--72358
 \TU/lmr/m/n/10.95 would not drink it. (ESV),
  []
 
 
-Underfull \hbox (badness 4582) in paragraph at lines 72353--72353
+Underfull \hbox (badness 4582) in paragraph at lines 72366--72366
 \TU/lmr/m/n/10.95 my hands and feet— (ESV),
  []
 
 [1491]
-Underfull \hbox (badness 1221) in paragraph at lines 72361--72361
+Underfull \hbox (badness 1221) in paragraph at lines 72374--72374
 []\TU/lmr/m/n/10.95 Messiah would be mocked and
  []
 
 
-Underfull \hbox (badness 1888) in paragraph at lines 72385--72385
+Underfull \hbox (badness 1888) in paragraph at lines 72398--72398
 []\TU/lmr/m/n/10.95 Messiah would be forsaken by
  []
 
 [1492]
-Underfull \hbox (badness 1237) in paragraph at lines 72401--72401
+Underfull \hbox (badness 1237) in paragraph at lines 72414--72414
 []\TU/lmr/m/n/10.95 Soldiers would pierce Messiah’s
  []
 
 
-Underfull \hbox (badness 6016) in paragraph at lines 72409--72409
+Underfull \hbox (badness 6016) in paragraph at lines 72422--72422
 \TU/lmr/m/n/10.95 man from Arimathea, named
  []
 
@@ -7080,17 +7081,17 @@ Overfull \vbox (88.20033pt too high) has occurred while \output is active []
 
 
 [1494]
-Underfull \hbox (badness 1371) in paragraph at lines 72425--72425
+Underfull \hbox (badness 1371) in paragraph at lines 72438--72438
 \TU/lmr/m/n/10.95 Jesus, after he had spoken to
  []
 
 
-Underfull \hbox (badness 1371) in paragraph at lines 72433--72433
+Underfull \hbox (badness 1371) in paragraph at lines 72446--72446
 \TU/lmr/m/n/10.95 Jesus, after he had spoken to
  []
 
 
-Underfull \hbox (badness 1303) in paragraph at lines 72441--72441
+Underfull \hbox (badness 1303) in paragraph at lines 72454--72454
 [][]\TU/lmr/bx/n/10.95 Isaiah 53:5-12[] \TU/lmr/m/n/10.95 - But he was
  []
 
@@ -7104,14 +7105,14 @@ Missing character: There is no τ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no α in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
  [1511]
-Overfull \hbox (76.89072pt too wide) in paragraph at lines 73382--73389
+Overfull \hbox (76.89072pt too wide) in paragraph at lines 73395--73402
 []
  []
 
 [1512] [1513]
 Missing character: There is no ṓ in font [lmroman10-bold]:mapping=tex-text;!
  [1514] [1515]
-Overfull \hbox (61.31995pt too wide) in paragraph at lines 73583--73584
+Overfull \hbox (61.31995pt too wide) in paragraph at lines 73596--73597
 |   []
  []
 
@@ -7253,12 +7254,12 @@ Missing character: There is no ν in font [lmmono10-regular]:!
 Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
 
 [1527]
-Overfull \hbox (5.61089pt too wide) in paragraph at lines 74136--74138
+Overfull \hbox (5.61089pt too wide) in paragraph at lines 74149--74151
 []\TU/lmr/m/n/10.95 I commented, There are limitations on what
  []
 
 [1528] [1529] [1530] [1531] [1532] [1533] [1534]
-Overfull \hbox (24.81111pt too wide) in paragraph at lines 74428--74428
+Overfull \hbox (24.81111pt too wide) in paragraph at lines 74441--74441
 []\TU/lmr/bx/n/10.95 After entering the Kingdom, we must still abstain from sin
  and keep Christ’s law/commandments 
  []
@@ -7280,12 +7281,12 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1537] [1538]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 74636--74649
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 74649--74662
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
 [1539] [1540] [1541] [1542] [1543] [1544]
-Overfull \hbox (65.31293pt too wide) in paragraph at lines 74984--74985
+Overfull \hbox (65.31293pt too wide) in paragraph at lines 74997--74998
 []
  []
 
@@ -7310,50 +7311,50 @@ Missing character: There is no ί in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1576] [1577]
-Overfull \hbox (183.0327pt too wide) in paragraph at lines 76231--76232
+Overfull \hbox (183.0327pt too wide) in paragraph at lines 76244--76245
 []
  []
 
 [1578]
-Overfull \hbox (14.60718pt too wide) in paragraph at lines 76249--76250
+Overfull \hbox (14.60718pt too wide) in paragraph at lines 76262--76263
 []\TU/lmr/m/n/10.95 Several extrabiblical sources
  []
 
 
-Overfull \hbox (105.82426pt too wide) in paragraph at lines 76251--76252
+Overfull \hbox (105.82426pt too wide) in paragraph at lines 76264--76265
 []
  []
 
 [1579]
-Overfull \hbox (15.08353pt too wide) in paragraph at lines 76270--76271
+Overfull \hbox (15.08353pt too wide) in paragraph at lines 76283--76284
 [][]\TU/lmr/m/n/10.95 bibleref.com 1-Corinthians-11-29.html: What does 1 Corint
 hians 11:29 mean? | BibleRef.com[] 
  []
 
 [1580] [1581] [1582] [1583] [1584] [1585]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 76673--76686
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 76686--76699
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
 [1586] [1587] [1588] [1589] [1590]
-Overfull \hbox (0.85379pt too wide) in paragraph at lines 76939--76940
+Overfull \hbox (0.85379pt too wide) in paragraph at lines 76952--76953
 [][]\TU/lmr/bx/n/10.95 Matthew 23:10[] \TU/lmr/m/n/10.95 - Neither be called in
 structors, for \TU/lmr/bx/n/10.95 you have one instructor (G2519. kathégétés),
  []
 
 [1591] [1592] [1593] [1594] [1595] [1596] [1597] [1598] [1599] [1600] [1601]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 77525--77526
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 77538--77539
 []
  []
 
 
-Overfull \hbox (253.58435pt too wide) in paragraph at lines 77525--77526
+Overfull \hbox (253.58435pt too wide) in paragraph at lines 77538--77539
 \TU/lmr/m/n/10.95 The word of truth is free, and |   []   |   []   |   []   |  
  []   |   []
  []
 
 [1602]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 77537--77538
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 77550--77551
 []
  []
 
@@ -7374,42 +7375,42 @@ Missing character: There is no ε in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1604] [1605]
-Overfull \hbox (215.46703pt too wide) in paragraph at lines 77697--77697
+Overfull \hbox (215.46703pt too wide) in paragraph at lines 77710--77710
 []\TU/lmr/bx/n/12 Not all religions are equal. There is only one true God, the 
 $[]$ 
  []
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 77697.
+(hyperref)                removing `math shift' on input line 77710.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 77697.
+(hyperref)                removing `\@@underline' on input line 77710.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 77697.
+(hyperref)                removing `\hbox' on input line 77710.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 77697.
+(hyperref)                removing `\mathsurround' on input line 77710.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 77697.
+(hyperref)                removing `\z@' on input line 77710.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 77697.
+(hyperref)                removing `math shift' on input line 77710.
 
 [1606] [1607]
-Overfull \hbox (87.12895pt too wide) in paragraph at lines 77753--77789
+Overfull \hbox (87.12895pt too wide) in paragraph at lines 77766--77802
 []
  []
 
 [1608]
-Overfull \hbox (93.4252pt too wide) in paragraph at lines 77840--77845
+Overfull \hbox (93.4252pt too wide) in paragraph at lines 77853--77858
 []
  []
 
@@ -7511,12 +7512,12 @@ Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֥ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
 
-Overfull \hbox (193.78555pt too wide) in paragraph at lines 77966--77998
+Overfull \hbox (193.78555pt too wide) in paragraph at lines 77979--78011
 []
  []
 
 [1610] [1611]
-Overfull \hbox (0.1371pt too wide) in paragraph at lines 78107--78111
+Overfull \hbox (0.1371pt too wide) in paragraph at lines 78120--78124
 []\TU/lmr/m/n/10.95 Now, in a natural human
  []
 
@@ -7544,12 +7545,12 @@ Missing character: There is no ז in font [lmmono10-regular]:!
 Missing character: There is no ֵ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
  [1624] [1625] [1626] [1627]
-Overfull \hbox (7.06996pt too wide) in paragraph at lines 78939--78940
+Overfull \hbox (7.06996pt too wide) in paragraph at lines 78952--78953
 []\TU/lmr/m/n/10.95 All the ordained ministers of the Latin Church,
  []
 
 [1628] [1629]
-Overfull \hbox (3.21872pt too wide) in paragraph at lines 79032--79033
+Overfull \hbox (3.21872pt too wide) in paragraph at lines 79045--79046
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][][] [] [][][] [] [][][][][] [] 
 [][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][][
 ][][][][][][][][][][][][][][][][][][][][]$[] \TU/lmr/m/n/10.95 <-
@@ -7560,55 +7561,55 @@ Overfull \hbox (3.21872pt too wide) in paragraph at lines 79032--79033
 [1652] [1653] [1654] [1655] [1656] [1657] [1658] [1659] [1660] [1661]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 80603.
+(hyperref)                removing `math shift' on input line 80616.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 80603.
+(hyperref)                removing `\@@underline' on input line 80616.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 80603.
+(hyperref)                removing `\hbox' on input line 80616.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 80603.
+(hyperref)                removing `\mathsurround' on input line 80616.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 80603.
+(hyperref)                removing `\z@' on input line 80616.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 80603.
+(hyperref)                removing `math shift' on input line 80616.
 
 [1662] [1663]
-Overfull \hbox (34.1419pt too wide) in paragraph at lines 80698--80699
+Overfull \hbox (34.1419pt too wide) in paragraph at lines 80711--80712
 []
  []
 
 [1664]
-Overfull \hbox (0.52913pt too wide) in paragraph at lines 80731--80741
+Overfull \hbox (0.52913pt too wide) in paragraph at lines 80744--80754
 []\TU/lmr/m/n/10.95 The video presenter said this towards
  []
 
 [1665] [1666] [1667]
-Overfull \hbox (41.68285pt too wide) in paragraph at lines 80814--80815
+Overfull \hbox (41.68285pt too wide) in paragraph at lines 80827--80828
 []
  []
 
 [1668] [1669]
-Overfull \hbox (57.33768pt too wide) in paragraph at lines 80902--80903
+Overfull \hbox (57.33768pt too wide) in paragraph at lines 80915--80916
 []
  []
 
 [1670] [1671] [1672] [1673] [1674] [1675] [1676] [1677]
-Overfull \hbox (94.38881pt too wide) in paragraph at lines 81150--81174
+Overfull \hbox (94.38881pt too wide) in paragraph at lines 81163--81187
 []
  []
 
 [1678] [1679] [1680] [1681] [1682] [1683]
-Overfull \hbox (281.67024pt too wide) in paragraph at lines 81471--81477
+Overfull \hbox (281.67024pt too wide) in paragraph at lines 81484--81490
 []
  []
 
@@ -7710,72 +7711,72 @@ Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֥ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
  [1686]
-Overfull \hbox (45.00432pt too wide) in paragraph at lines 81600--81615
+Overfull \hbox (45.00432pt too wide) in paragraph at lines 81613--81628
 []
  []
 
 [1687] [1688] [1689] [1690] [1691]
-Overfull \hbox (21.60612pt too wide) in paragraph at lines 81883--81884
+Overfull \hbox (21.60612pt too wide) in paragraph at lines 81896--81897
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][]$[] 
  []
 
 [1692] [1693] [1694] [1695]
-Overfull \hbox (0.85379pt too wide) in paragraph at lines 82122--82123
+Overfull \hbox (0.85379pt too wide) in paragraph at lines 82135--82136
 [][]\TU/lmr/bx/n/10.95 Matthew 23:10[] \TU/lmr/m/n/10.95 - Neither be called in
 structors, for \TU/lmr/bx/n/10.95 you have one instructor (G2519. kathégétés),
  []
 
 [1696] [1697] [1698] [1699] [1700] [1701] [1702] [1703] [1704] [1705] [1706]
 [1707] [1708]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 82684--82697
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 82697--82710
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
 [1709] [1710] [1711] [1712] [1713] [1714] [1715] [1716] [1717]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 83192.
+(hyperref)                removing `math shift' on input line 83205.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 83192.
+(hyperref)                removing `\@@underline' on input line 83205.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 83192.
+(hyperref)                removing `\hbox' on input line 83205.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 83192.
+(hyperref)                removing `\mathsurround' on input line 83205.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 83192.
+(hyperref)                removing `\z@' on input line 83205.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 83192.
+(hyperref)                removing `math shift' on input line 83205.
 
 [1718] [1719] [1720]
-Overfull \hbox (6.92758pt too wide) in paragraph at lines 83321--83339
+Overfull \hbox (6.92758pt too wide) in paragraph at lines 83334--83352
 []\TU/lmr/m/n/10.95 But let me first
  []
 
 [1721] [1722] [1723] [1724] [1725] [1726] [1727] [1728] [1729] [1730] [1731]
-Overfull \hbox (17.23007pt too wide) in paragraph at lines 83933--83934
+Overfull \hbox (17.23007pt too wide) in paragraph at lines 83946--83947
 \TU/lmr/bx/n/10.95 besides you\TU/lmr/m/n/10.95 . |   []   |   []   |   []   | 
   []   |   []   |   []   |   []   |   []   |   []
  []
 
 [1732] [1733] [1734]
-Overfull \hbox (0.52545pt too wide) in paragraph at lines 84098--84099
+Overfull \hbox (0.52545pt too wide) in paragraph at lines 84111--84112
 []\TU/lmr/m/it/10.95 You will
  []
 
 [1735] [1736] [1737]
-Overfull \hbox (720.36732pt too wide) in paragraph at lines 84218--84219
+Overfull \hbox (720.36732pt too wide) in paragraph at lines 84231--84232
 |   []
  []
 
@@ -7784,27 +7785,27 @@ Overfull \hbox (720.36732pt too wide) in paragraph at lines 84218--84219
 [1760] [1761] [1762] [1763]
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 85520.
+(hyperref)                removing `math shift' on input line 85533.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 85520.
+(hyperref)                removing `\@@underline' on input line 85533.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 85520.
+(hyperref)                removing `\hbox' on input line 85533.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 85520.
+(hyperref)                removing `\mathsurround' on input line 85533.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 85520.
+(hyperref)                removing `\z@' on input line 85533.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 85520.
+(hyperref)                removing `math shift' on input line 85533.
 
 [1764] [1765]
 Missing character: There is no π in font [lmroman10-regular]:mapping=tex-text;!
@@ -7824,8 +7825,8 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1766] [1767] [1768] [1769]
 
-LaTeX Warning: Reference `sec:org55e605c' on page 1770 undefined on input line 
-85812.
+LaTeX Warning: Reference `sec:orgd42db3f' on page 1770 undefined on input line 
+85825.
 
 [1770] [1771] [1772]
 Missing character: There is no ὥ in font [lmmono10-regular]:!
@@ -7902,14 +7903,14 @@ Missing character: There is no ἡ in font [lmmono10-regular]:!
 Missing character: There is no 􀧁 in font [lmroman10-regular]:mapping=tex-text;!
 
 [1781]
-Overfull \hbox (21.60612pt too wide) in paragraph at lines 86340--86341
+Overfull \hbox (21.60612pt too wide) in paragraph at lines 86353--86354
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][]$[] 
  []
 
 [1782]
-Overfull \hbox (51.34987pt too wide) in paragraph at lines 86376--86377
+Overfull \hbox (51.34987pt too wide) in paragraph at lines 86389--86390
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -7917,7 +7918,7 @@ $[]
  []
 
 
-Overfull \hbox (45.60112pt too wide) in paragraph at lines 86430--86431
+Overfull \hbox (45.60112pt too wide) in paragraph at lines 86443--86444
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][]$[
@@ -7925,7 +7926,7 @@ Overfull \hbox (45.60112pt too wide) in paragraph at lines 86430--86431
  []
 
 [1783]
-Overfull \hbox (34.34987pt too wide) in paragraph at lines 86449--86450
+Overfull \hbox (34.34987pt too wide) in paragraph at lines 86462--86463
 []$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][][]
 [][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][] 
 [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][][]$[
@@ -7933,7 +7934,7 @@ Overfull \hbox (34.34987pt too wide) in paragraph at lines 86449--86450
  []
 
 [1784]
-Overfull \hbox (110.33736pt too wide) in paragraph at lines 86523--86524
+Overfull \hbox (110.33736pt too wide) in paragraph at lines 86536--86537
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -7941,37 +7942,37 @@ Overfull \hbox (110.33736pt too wide) in paragraph at lines 86523--86524
  []
 
 [1785] [1786] [1787]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 86639--86640
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 86652--86653
 []
  []
 
 [1788] [1789]
-Overfull \hbox (2.32132pt too wide) in paragraph at lines 86750--86751
+Overfull \hbox (2.32132pt too wide) in paragraph at lines 86763--86764
 []\TU/lmr/m/n/10.95 While deprecated software is no longer sup-
  []
 
 [1790] [1791] [1792] [1793] [1794] [1795] [1796] [1797] [1798] [1799] [1800]
 [1801] [1802] [1803] [1804] [1805]
-Overfull \hbox (176.56859pt too wide) in paragraph at lines 87579--87579
+Overfull \hbox (176.56859pt too wide) in paragraph at lines 87592--87592
 [] \TU/lmtt/m/n/10.95 5  Work/Love/Walking-By-Faith = Obedience * Faithfulness 
 * Fear-of-God * Response-of-love-to-Jesus * Patient-Endurance(time)[] 
  []
 
 
-Overfull \hbox (44.34737pt too wide) in paragraph at lines 87579--87579
+Overfull \hbox (44.34737pt too wide) in paragraph at lines 87592--87592
 [] \TU/lmtt/m/n/10.95 7  Obedience = Submitting to the Righteousness of God * T
 urning from sin, loving, showing mercy, etc.[] 
  []
 
 [1806]
-Overfull \hbox (395.02104pt too wide) in paragraph at lines 87579--87579
+Overfull \hbox (395.02104pt too wide) in paragraph at lines 87592--87592
 [] \TU/lmtt/m/n/10.95 9  Fear-of-God = e.g. The poor in spirit recognise their 
 need of God's mercy and tremble at His Word: "beat his breast, saying, God, be 
 merciful to me, a sinner!"[] 
  []
 
 
-Overfull \hbox (435.26228pt too wide) in paragraph at lines 87579--87579
+Overfull \hbox (435.26228pt too wide) in paragraph at lines 87592--87592
 []\TU/lmtt/m/n/10.95 10                Fear of God is not only about having the
  heart to repent from sin and "beat hand on chest and ask God for mercy", but i
 t is also having a changed heart,[] 
@@ -7980,78 +7981,78 @@ t is also having a changed heart,[]
 Missing character: There is no ∝ in font [lmmono10-regular]:!
 Missing character: There is no ∝ in font [lmmono10-regular]:!
 [1807] [1808]
-Overfull \hbox (228.54446pt too wide) in paragraph at lines 87720--87726
+Overfull \hbox (228.54446pt too wide) in paragraph at lines 87733--87739
 []
  []
 
 [1809] [1810]
-Overfull \hbox (8.86021pt too wide) in paragraph at lines 87832--87833
+Overfull \hbox (8.86021pt too wide) in paragraph at lines 87845--87846
 []|   [] \TU/lmr/m/n/10.95 The Son
  []
 
 [1811]
-Overfull \hbox (0.99814pt too wide) in paragraph at lines 87880--87881
+Overfull \hbox (0.99814pt too wide) in paragraph at lines 87893--87894
 []|   [] \TU/lmr/m/n/10.95 The end
  []
 
 
-Overfull \hbox (103.30942pt too wide) in paragraph at lines 87900--87901
+Overfull \hbox (103.30942pt too wide) in paragraph at lines 87913--87914
 []
  []
 
 [1812]
-Overfull \hbox (26.29262pt too wide) in paragraph at lines 87956--87957
+Overfull \hbox (26.29262pt too wide) in paragraph at lines 87969--87970
 []|   [] \TU/lmr/m/n/10.95 When Christ
  []
 
 
-Overfull \hbox (192.63947pt too wide) in paragraph at lines 87976--87977
+Overfull \hbox (192.63947pt too wide) in paragraph at lines 87989--87990
 []
  []
 
 [1813]
-Overfull \hbox (443.05136pt too wide) in paragraph at lines 88016--88017
+Overfull \hbox (443.05136pt too wide) in paragraph at lines 88029--88030
 []
  []
 
 
-Overfull \hbox (65.31293pt too wide) in paragraph at lines 88056--88057
+Overfull \hbox (65.31293pt too wide) in paragraph at lines 88069--88070
 []
  []
 
 [1814]
-Overfull \hbox (5.95848pt too wide) in paragraph at lines 88106--88107
+Overfull \hbox (5.95848pt too wide) in paragraph at lines 88119--88120
 []|   [] \TU/lmr/m/n/10.95 Jesus will give
  []
 
 
-Overfull \hbox (17.31909pt too wide) in paragraph at lines 88126--88127
+Overfull \hbox (17.31909pt too wide) in paragraph at lines 88139--88140
 []|   []
  []
 
 [1815] [1816] [1817] [1818] [1819] [1820] [1821] [1822] [1823] [1824] [1825]
 [1826] [1827] [1828] [1829] [1830] [1831] [1832] [1833] [1834] [1835] [1836]
-Overfull \hbox (170.53722pt too wide) in paragraph at lines 89240--89272
+Overfull \hbox (170.53722pt too wide) in paragraph at lines 89253--89285
 []
  []
 
 [1837]
-Overfull \hbox (111.21167pt too wide) in paragraph at lines 89329--89332
+Overfull \hbox (111.21167pt too wide) in paragraph at lines 89342--89345
 []
  []
 
 [1838] [1839] [1840] [1841] [1842]
 
-LaTeX Warning: Hyper reference `sec:org6cf2c4a' on page 1843 undefined on input
- line 89619.
+LaTeX Warning: Hyper reference `sec:org293b509' on page 1843 undefined on input
+ line 89632.
 
 [1843]
-Overfull \hbox (3.92244pt too wide) in paragraph at lines 89628--89630
+Overfull \hbox (3.92244pt too wide) in paragraph at lines 89641--89643
 []\TU/lmr/m/n/10.95 I think the resurrection of Jesus does
  []
 
 [1844] [1845] [1846] [1847]
-Overfull \hbox (104.9373pt too wide) in paragraph at lines 89797--89807
+Overfull \hbox (104.9373pt too wide) in paragraph at lines 89810--89820
 []
  []
 
@@ -8131,7 +8132,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
  [1854] [1855] [1856] [1857] [1858]
 [1859] [1860] [1861] [1862] [1863] [1864] [1865] [1866] [1867] [1868] [1869]
-Overfull \hbox (15.55983pt too wide) in paragraph at lines 90961--90962
+Overfull \hbox (15.55983pt too wide) in paragraph at lines 90974--90975
 [][]$[][][][][] [] [] [] [][][][][][][][][][][][][][][][] [] [][] [] [][][][] [
 ] [][][][][][][][] [] [][][][][][][] [] [][] [] [][][] [] [][][][][][][][][][][
 ] [] [][][]$[]\TU/lmr/m/n/10.95 [Polycarp to the Philip-
@@ -8403,7 +8404,7 @@ Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ς in font [lmroman10-regular]:mapping=tex-text;!
 [1870] [1871] [1872] [1873] [1874] [1875] [1876]
-Overfull \hbox (0.85379pt too wide) in paragraph at lines 91402--91403
+Overfull \hbox (0.85379pt too wide) in paragraph at lines 91415--91416
 [][]\TU/lmr/bx/n/10.95 Matthew 23:10[] \TU/lmr/m/n/10.95 - Neither be called in
 structors, for \TU/lmr/bx/n/10.95 you have one instructor (G2519. kathégétés),
  []
@@ -8585,12 +8586,12 @@ Missing character: There is no ν in font [lmmono10-regular]:!
  [1878] [1879] [1880] [1881] [1882] [1883] [1884] [1885] [1886] [1887]
 [1888] [1889] [1890] [1891] [1892] [1893] [1894] [1895] [1896] [1897] [1898]
 [1899] [1900] [1901] [1902] [1903] [1904]
-Overfull \hbox (90.13289pt too wide) in paragraph at lines 92902--92917
+Overfull \hbox (90.13289pt too wide) in paragraph at lines 92915--92930
 []
  []
 
 [1905] [1906]
-Overfull \hbox (35.90852pt too wide) in paragraph at lines 92988--93008
+Overfull \hbox (35.90852pt too wide) in paragraph at lines 93001--93021
 []
  []
 
@@ -8756,7 +8757,7 @@ Missing character: There is no ׃ in font [lmmono10-regular]:!
 Missing character: There is no ס in font [lmmono10-regular]:!
  [1923] [1924] [1925] [1926] [1927] [1928]
 [1929] [1930]
-Overfull \hbox (110.33736pt too wide) in paragraph at lines 94176--94177
+Overfull \hbox (110.33736pt too wide) in paragraph at lines 94189--94190
 [][]$[][][][][] [] [] [] [][][] [] [][][][][][][] [] [][][] [] [][][] [] [][][]
 [][][][][][][][][][][] [] [][][][][] [] [] [] [][][][][][][][][] [] [][][][][][
 ] [] [][] [] [][][][][] [] [][][][][][][][][][][][][][][][][][][][][][][][][][]
@@ -8786,71 +8787,71 @@ Missing character: There is no ק in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ב in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ה in font [lmroman10-regular]:mapping=tex-text;!
  [1935] [1936] [1937] [1938] [1939] [1940] [1941]
-Overfull \hbox (8.48975pt too wide) in paragraph at lines 94686--94699
+Overfull \hbox (8.48975pt too wide) in paragraph at lines 94699--94712
 []\TU/lmr/m/n/10.95 The Bible does
  []
 
 [1942] [1943] [1944] [1945] [1946] [1947] [1948] [1949] [1950] [1951] [1952]
 [1953] [1954] [1955] [1956]
-Overfull \hbox (17.53084pt too wide) in paragraph at lines 95445--95446
+Overfull \hbox (17.53084pt too wide) in paragraph at lines 95458--95459
 []\TU/lmr/m/n/10.95 When the devil
  []
 
 [1957]
-Overfull \hbox (22.6116pt too wide) in paragraph at lines 95487--95488
+Overfull \hbox (22.6116pt too wide) in paragraph at lines 95500--95501
 []
  []
 
 [1958] [1959] [1960] [1961] [1962]
-Overfull \hbox (22.6116pt too wide) in paragraph at lines 95791--95792
+Overfull \hbox (22.6116pt too wide) in paragraph at lines 95804--95805
 []
  []
 
 [1963] [1964] [1965] [1966] [1967] [1968]
-Overfull \hbox (12.60695pt too wide) in paragraph at lines 96171--96172
+Overfull \hbox (12.60695pt too wide) in paragraph at lines 96184--96185
 []\TU/lmr/m/n/10.95 As you feel
  []
 
 [1969] [1970]
-Overfull \hbox (3.64989pt too wide) in paragraph at lines 96255--96276
+Overfull \hbox (3.64989pt too wide) in paragraph at lines 96268--96289
 []\TU/lmr/m/n/10.95 What if you just decided,
  []
 
 [1971] [1972] [1973] [1974] [1975] [1976] [1977] [1978] [1979] [1980] [1981]
 [1982] [1983]
-Overfull \hbox (14.33705pt too wide) in paragraph at lines 96980--96981
+Overfull \hbox (14.33705pt too wide) in paragraph at lines 96993--96994
 []\TU/lmr/m/n/10.95 Jesus faced
  []
 
 [1984] [1985] [1986] [1987]
-Overfull \hbox (21.7976pt too wide) in paragraph at lines 97145--97146
+Overfull \hbox (21.7976pt too wide) in paragraph at lines 97158--97159
 []\TU/lmr/m/n/10.95 Christian hope,
  []
 
 [1988] [1989] [1990] [1991]
-Overfull \hbox (13.52673pt too wide) in paragraph at lines 97330--97337
+Overfull \hbox (13.52673pt too wide) in paragraph at lines 97343--97350
 []\TU/lmr/m/n/10.95 And so God
  []
 
 
-Overfull \hbox (9.11606pt too wide) in paragraph at lines 97338--97354
+Overfull \hbox (9.11606pt too wide) in paragraph at lines 97351--97367
 []\TU/lmr/m/n/10.95 Hosea, you
  []
 
 [1992] [1993] [1994]
-Overfull \hbox (2.00734pt too wide) in paragraph at lines 97495--97508
+Overfull \hbox (2.00734pt too wide) in paragraph at lines 97508--97521
 []
  []
 
 
-Overfull \hbox (1.8857pt too wide) in paragraph at lines 97521--97525
+Overfull \hbox (1.8857pt too wide) in paragraph at lines 97534--97538
 []\TU/lmr/m/n/10.95 I was lecturing on the
  []
 
 [1995]
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
  [1996] [1997] [1998] [1999] [2000] [2001] [2002]
-Overfull \hbox (16.04202pt too wide) in paragraph at lines 97955--97956
+Overfull \hbox (16.04202pt too wide) in paragraph at lines 97968--97969
 []\TU/lmr/m/n/10.95 If Je-
  []
 
@@ -8911,17 +8912,17 @@ Missing character: There is no χ in font [lmmono10-regular]:!
 Missing character: There is no ε in font [lmmono10-regular]:!
 Missing character: There is no ι in font [lmmono10-regular]:!
  [2005] [2006]
-Overfull \hbox (0.68967pt too wide) in paragraph at lines 98117--98118
+Overfull \hbox (0.68967pt too wide) in paragraph at lines 98130--98131
 []\TU/lmr/bx/n/10.95 Galatians 1:4
  []
 
 [2007] [2008]
-Overfull \hbox (14.0049pt too wide) in paragraph at lines 98250--98251
+Overfull \hbox (14.0049pt too wide) in paragraph at lines 98263--98264
 []\TU/lmr/m/n/10.95 In Jesus Christ’s
  []
 
 [2009] [2010] [2011] [2012] [2013] [2014]
-Overfull \hbox (324.26573pt too wide) in paragraph at lines 98601--98602
+Overfull \hbox (324.26573pt too wide) in paragraph at lines 98614--98615
 []
  []
 
@@ -8942,27 +8943,27 @@ Missing character: There is no ז in font [lmmono10-regular]:!
 Missing character: There is no ֵ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
  [2022]
-Overfull \hbox (3.8908pt too wide) in paragraph at lines 98948--98960
+Overfull \hbox (3.8908pt too wide) in paragraph at lines 98961--98973
 []\TU/lmr/m/n/10.95 The global context of my suf-
  []
 
 [2023] [2024]
-Overfull \hbox (50.58153pt too wide) in paragraph at lines 99032--99035
+Overfull \hbox (50.58153pt too wide) in paragraph at lines 99045--99048
 []
  []
 
 [2025] [2026] [2027]
-Overfull \hbox (44.26335pt too wide) in paragraph at lines 99201--99202
+Overfull \hbox (44.26335pt too wide) in paragraph at lines 99214--99215
 []
  []
 
 [2028]
-Overfull \hbox (46.2818pt too wide) in paragraph at lines 99203--99207
+Overfull \hbox (46.2818pt too wide) in paragraph at lines 99216--99220
 []
  []
 
 [2029] [2030] [2031]
-Overfull \hbox (8.01892pt too wide) in paragraph at lines 99520--99535
+Overfull \hbox (8.01892pt too wide) in paragraph at lines 99533--99548
 []\TU/lmr/m/n/10.95 First things first,
  []
 
@@ -8976,27 +8977,27 @@ Missing character: There is no ί in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ς in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (136.12651pt too wide) in paragraph at lines 99581--99582
+Overfull \hbox (136.12651pt too wide) in paragraph at lines 99594--99595
 []
  []
 
 [2033] [2034] [2035] [2036] [2037] [2038] [2039] [2040] [2041] [2042]
-Overfull \hbox (2.99283pt too wide) in paragraph at lines 100022--100039
+Overfull \hbox (2.99283pt too wide) in paragraph at lines 100035--100052
 []
  []
 
 [2043] [2044] [2045] [2046] [2047] [2048] [2049] [2050] [2051] [2052] [2053]
-Overfull \hbox (20.4654pt too wide) in paragraph at lines 100552--100553
+Overfull \hbox (20.4654pt too wide) in paragraph at lines 100565--100566
 []
  []
 
 [2054] [2055] [2056] [2057] [2058] [2059] [2060]
 
-LaTeX Warning: Hyper reference `sec:org6cf2c4a' on page 2061 undefined on input
- line 100769.
+LaTeX Warning: Hyper reference `sec:org293b509' on page 2061 undefined on input
+ line 100782.
 
 [2061] [2062] [2063]
-Overfull \hbox (11.86232pt too wide) in paragraph at lines 100889--100901
+Overfull \hbox (11.86232pt too wide) in paragraph at lines 100902--100914
 []\TU/lmr/m/n/10.95 God is love.
  []
 
@@ -9016,27 +9017,27 @@ Missing character: There is no ς in font [lmmono10-regular]:!
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 101087.
+(hyperref)                removing `math shift' on input line 101100.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\@@underline' on input line 101087.
+(hyperref)                removing `\@@underline' on input line 101100.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\hbox' on input line 101087.
+(hyperref)                removing `\hbox' on input line 101100.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\mathsurround' on input line 101087.
+(hyperref)                removing `\mathsurround' on input line 101100.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `\z@' on input line 101087.
+(hyperref)                removing `\z@' on input line 101100.
 
 
 Package hyperref Warning: Token not allowed in a PDF string (Unicode):
-(hyperref)                removing `math shift' on input line 101087.
+(hyperref)                removing `math shift' on input line 101100.
 
 [2068] [2069] [2070]
 Missing character: There is no κ in font [lmmono10-regular]:!
@@ -9316,100 +9317,100 @@ Missing character: There is no ῶ in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
  [2072] [2073] [2074] [2075] [2076] [2077] [2078]
 [2079] [2080] [2081] [2082] [2083]
-Overfull \hbox (83.82571pt too wide) in paragraph at lines 101880--101923
+Overfull \hbox (83.82571pt too wide) in paragraph at lines 101893--101936
 []
  []
 
 [2084] [2085] [2086] [2087] [2088] [2089] [2090] [2091]
-Overfull \hbox (27.52448pt too wide) in paragraph at lines 102235--102236
+Overfull \hbox (27.52448pt too wide) in paragraph at lines 102248--102249
 []
  []
 
 [2092]
-Overfull \hbox (123.74574pt too wide) in paragraph at lines 102289--102298
+Overfull \hbox (123.74574pt too wide) in paragraph at lines 102302--102311
 []
  []
 
 [2093] [2094] [2095]
-Overfull \hbox (10.50821pt too wide) in paragraph at lines 102434--102441
+Overfull \hbox (10.50821pt too wide) in paragraph at lines 102447--102454
 []\TU/lmr/m/n/10.95 Speaking
  []
 
 [2096]
 
-LaTeX Warning: Hyper reference `sec:orga80e613' on page 2097 undefined on input
- line 102521.
+LaTeX Warning: Hyper reference `sec:org709efe2' on page 2097 undefined on input
+ line 102534.
 
 [2097]
-Overfull \hbox (557.49702pt too wide) in paragraph at lines 102554--102555
+Overfull \hbox (557.49702pt too wide) in paragraph at lines 102567--102568
 []
  []
 
 
-Overfull \hbox (66.9846pt too wide) in paragraph at lines 102580--102582
+Overfull \hbox (66.9846pt too wide) in paragraph at lines 102593--102595
 []
  []
 
 [2098]
-Overfull \hbox (129.65149pt too wide) in paragraph at lines 102597--102603
+Overfull \hbox (129.65149pt too wide) in paragraph at lines 102610--102616
 []
  []
 
 [2099] [2100]
-Overfull \hbox (310.52348pt too wide) in paragraph at lines 102687--102692
+Overfull \hbox (310.52348pt too wide) in paragraph at lines 102700--102705
 []
  []
 
 
-Overfull \hbox (310.52348pt too wide) in paragraph at lines 102698--102705
+Overfull \hbox (310.52348pt too wide) in paragraph at lines 102711--102718
 []
  []
 
 [2101]
-Overfull \hbox (320.28731pt too wide) in paragraph at lines 102822--102822
+Overfull \hbox (320.28731pt too wide) in paragraph at lines 102835--102835
 []\TU/lmtt/m/n/10.95 3  please, LORD God, help those who when I unregenerate ha
 d been my friends according to the flesh, help them to see things through the e
 yes of faith,[] 
  []
 
 
-Overfull \hbox (27.10112pt too wide) in paragraph at lines 102822--102822
+Overfull \hbox (27.10112pt too wide) in paragraph at lines 102835--102835
 []\TU/lmtt/m/n/10.95 4  and to have faith in You, in Your word, in Your promise
 s, and to not be led astray by the world.[] 
  []
 
 [2102] [2103] [2104] [2105]
-Overfull \hbox (16.94315pt too wide) in paragraph at lines 102963--102964
+Overfull \hbox (16.94315pt too wide) in paragraph at lines 102976--102977
 []\TU/lmr/m/n/10.95 Amazing,
  []
 
 [2106] [2107] [2108]
-Overfull \hbox (262.79982pt too wide) in paragraph at lines 103124--103124
+Overfull \hbox (262.79982pt too wide) in paragraph at lines 103137--103137
 [] \TU/lmtt/m/n/10.95 5  Spreading disgusting perverted speech in a video game 
 especially when there may be young people reading, I hate with a righteous hatr
 ed.[] 
  []
 
 
-Overfull \hbox (147.82484pt too wide) in paragraph at lines 103124--103124
+Overfull \hbox (147.82484pt too wide) in paragraph at lines 103137--103137
 [] \TU/lmtt/m/n/10.95 8  I know that I must agape love my family in Christ, but
  if people love sin more that You, God, then I just hate that,[] 
  []
 
 
-Overfull \hbox (119.0811pt too wide) in paragraph at lines 103124--103124
+Overfull \hbox (119.0811pt too wide) in paragraph at lines 103137--103137
 [] \TU/lmtt/m/n/10.95 9  and I hate the fact that their actions influence other
  people and because I don't want people to perish, I want[] 
  []
 
 
-Overfull \hbox (216.80983pt too wide) in paragraph at lines 103124--103124
+Overfull \hbox (216.80983pt too wide) in paragraph at lines 103137--103137
 []\TU/lmtt/m/n/10.95 10  these people who love sin more than You to be stopped 
 particularly because it hurts other people, and spreads corrupt behaviour.[] 
  []
 
 
-Overfull \hbox (274.29732pt too wide) in paragraph at lines 103124--103124
+Overfull \hbox (274.29732pt too wide) in paragraph at lines 103137--103137
 []\TU/lmtt/m/n/10.95 12  But I hate what they're doing. Do I love them? In that
  I don't want them to perish, yes, but come to a love of and knowledge of the t
 ruth.[] 
@@ -9431,11 +9432,11 @@ Missing character: There is no י in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ם in font [lmroman10-regular]:mapping=tex-text;!
  [2113] [2114] [2115] [2116] [2117] [2118] [2119]
 [2120] [2121]
-Overfull \hbox (107.65656pt too wide) in paragraph at lines 103717--103727
+Overfull \hbox (107.65656pt too wide) in paragraph at lines 103742--103752
 []
  []
 
-[2122] [2123] [2124] [2125] [2126] [2127] [2128] [2129] [2130] [2131]
+[2122] [2123] [2124] [2125] [2126] [2127] [2128] [2129] [2130] [2131] [2132]
 Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-regular]:mapping=tex-text;!
@@ -9444,17 +9445,17 @@ Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-regular]:mapping=tex-text;!
- [2132]
+
 [2133] [2134] [2135] [2136] [2137] [2138] [2139] [2140] [2141] [2142] [2143]
 [2144] [2145] [2146] [2147] [2148] [2149] [2150] [2151] [2152] [2153] [2154]
 [2155] [2156] [2157] [2158] [2159] [2160] [2161] [2162] [2163] [2164] [2165]
-[2166] [2167]
-Overfull \hbox (151.04413pt too wide) in paragraph at lines 105677--105678
+[2166] [2167] [2168]
+Overfull \hbox (151.04413pt too wide) in paragraph at lines 105702--105703
 [][]\TU/lmr/m/n/10.95 youtube.com UgwhjGieoW0cFd1EOc94AaABAg.ARPjDDohS3fARQ-
  []
 
-[2168] [2169] [2170] [2171] [2172] [2173] [2174]
-Overfull \hbox (190.68675pt too wide) in paragraph at lines 105927--105928
+[2169] [2170] [2171] [2172] [2173] [2174]
+Overfull \hbox (190.68675pt too wide) in paragraph at lines 105952--105953
 []
  []
 
@@ -9462,32 +9463,32 @@ Overfull \hbox (190.68675pt too wide) in paragraph at lines 105927--105928
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
  [2178] [2179] [2180] [2181] [2182] [2183] [2184] [2185]
 [2186] [2187] [2188] [2189]
-Overfull \hbox (765.97401pt too wide) in paragraph at lines 106606--106607
+Overfull \hbox (765.97401pt too wide) in paragraph at lines 106631--106632
 []
  []
 
-[2190]
-Overfull \hbox (17.77896pt too wide) in paragraph at lines 106700--106704
+[2190] [2191]
+Overfull \hbox (17.77896pt too wide) in paragraph at lines 106725--106729
 []\TU/lmr/m/it/10.95 1 \TU/lmr/m/n/10.95 My
  []
 
-[2191] [2192] [2193] [2194]
-Overfull \hbox (5.73035pt too wide) in paragraph at lines 106838--106839
+[2192] [2193] [2194]
+Overfull \hbox (5.73035pt too wide) in paragraph at lines 106863--106864
 []\TU/lmr/m/n/10.95 He calls us by name.
  []
 
-[2195]
-Overfull \hbox (5.67924pt too wide) in paragraph at lines 106913--106914
+[2195] [2196]
+Overfull \hbox (5.67924pt too wide) in paragraph at lines 106938--106939
 []\TU/lmr/m/n/10.95 ”and Christians are confined
  []
 
-[2196]
-Overfull \hbox (16.2971pt too wide) in paragraph at lines 106934--106935
+
+Overfull \hbox (16.2971pt too wide) in paragraph at lines 106959--106960
 []\TU/lmr/m/n/10.95 Customer ser-
  []
 
 
-Overfull \hbox (15.60722pt too wide) in paragraph at lines 106936--106937
+Overfull \hbox (15.60722pt too wide) in paragraph at lines 106961--106962
 []\TU/lmr/m/n/10.95 There
  []
 
@@ -9499,35 +9500,36 @@ Missing character: There is no 乐 in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no 小 in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no 组 in font [lmroman10-regular]:mapping=tex-text;!
 
-Overfull \hbox (86.83698pt too wide) in paragraph at lines 107315--107326
+Overfull \hbox (86.83698pt too wide) in paragraph at lines 107340--107351
 []
  []
 
-[2205]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 107413--107413
+[2205] [2206]
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 107438--107438
 [] \TU/lmtt/m/n/10.95 6  Thank You Father God for making a way for us to be rec
 onciled with You through Your Son Jesus Christ![] 
  []
 
 
-Overfull \hbox (222.55858pt too wide) in paragraph at lines 107413--107413
+Overfull \hbox (222.55858pt too wide) in paragraph at lines 107438--107438
 []\TU/lmtt/m/n/10.95 11  And I'm going to do my best to prepare myself to be ho
 ly and blameless for the day of Christ Jesus and to honor You with my life.[] 
  []
 
-[2206]
-Overfull \hbox (61.59361pt too wide) in paragraph at lines 107426--107426
+
+Overfull \hbox (61.59361pt too wide) in paragraph at lines 107451--107451
 [] \TU/lmtt/m/n/10.95 8  Nevertheless, I live to serve You, God, and to be conf
 ormed into the image of Your Son, Jesus Christ.[] 
  []
 
-Package atveryend Info: Empty hook `BeforeClearDocument' on input line 107455.
 [2207]
-Package atveryend Info: Empty hook `AfterLastShipout' on input line 107455.
+Package atveryend Info: Empty hook `BeforeClearDocument' on input line 107480.
+ [2208]
+Package atveryend Info: Empty hook `AfterLastShipout' on input line 107480.
  (./README.aux)
-Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 107455.
-Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 10745
-5.
+Package atveryend Info: Empty hook `AtVeryEndDocument' on input line 107480.
+Package atveryend Info: Executing hook `AtEndAfterFileList' on input line 10748
+0.
 
 
 Package rerunfilecheck Warning: File `README.out' has changed.
@@ -9543,7 +9545,7 @@ LaTeX Warning: There were undefined references.
 
 LaTeX Warning: Label(s) may have changed. Rerun to get cross-references right.
 
-Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 107455.
+Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 107480.
  ) 
 Here is how much of TeX's memory you used:
  11386 strings out of 494868
@@ -9554,4 +9556,4 @@ Here is how much of TeX's memory you used:
  14 hyphenation exceptions out of 8191
  28i,9n,45p,6363b,1483s stack positions out of 5000i,500n,10000p,200000b,80000s
 
-Output written on ./README.pdf (2207 pages).
+Output written on ./README.pdf (2208 pages).
