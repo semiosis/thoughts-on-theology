@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  10 JUN 2026 09:56
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  10 JUN 2026 11:22
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -512,12 +512,12 @@ Overfull \hbox (51.50864pt too wide) in paragraph at lines 4595--4600
 []
  []
 
-[103] [104] [105] [106] [107] [108] [109]
+[103] [104] [105] [106] [107] [108] [109] [110]
 Missing character: There is no ο in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-bold]:mapping=tex-text;!
- [110] [111] [112] [113] [114]
+ [111] [112] [113] [114]
 Missing character: There is no ο in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ὐ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no μ in font [lmroman10-bold]:mapping=tex-text;!
@@ -533,19 +533,18 @@ Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;
 Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḵ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
-Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
-Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
-Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
-Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
  [121]
+Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
+Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḵ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḡ in font [lmroman10-regular]:mapping=tex-text;!
- [122] [123] [124] [125] [126]
+ [122] [123] [124] [125] [126] [127]
 Missing character: There is no ≟ in font [lmmono10-regular]:!
 Missing character: There is no ≟ in font [lmmono10-regular]:!
 Missing character: There is no ≟ in font [lmmono10-regular]:!
 Missing character: There is no ∵ in font [lmmono10-regular]:!
- [127]
 Missing character: There is no ס in font [lmmono10-regular]:!
 Missing character: There is no ה in font [lmmono10-regular]:!
 Missing character: There is no ִ in font [lmmono10-regular]:!
@@ -587,6 +586,7 @@ Missing character: There is no ת in font [lmmono10-regular]:!
 Missing character: There is no ־ in font [lmmono10-regular]:!
 Missing character: There is no ḇ in font [lmmono10-regular]:!
 Missing character: There is no ḵ in font [lmmono10-regular]:!
+ [128]
 Missing character: There is no ו in font [lmmono10-regular]:!
 Missing character: There is no ַ in font [lmmono10-regular]:!
 Missing character: There is no י in font [lmmono10-regular]:!
@@ -642,7 +642,7 @@ Missing character: There is no כ in font [lmmono10-regular]:!
 Missing character: There is no ָ in font [lmmono10-regular]:!
 Missing character: There is no ֥ in font [lmmono10-regular]:!
 Missing character: There is no ר in font [lmmono10-regular]:!
- [128] [129] [130]
+ [129] [130]
 Missing character: There is no ‟ in font [lmroman10-regular]:mapping=tex-text;!
  [131]
 [132] [133] [134] [135] [136] [137] [138]
@@ -650,7 +650,7 @@ Overfull \hbox (390.119pt too wide) in paragraph at lines 6205--6218
 []
  []
 
-[139] [140] [141]
+[139] [140] [141] [142]
 Missing character: There is no δ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ί in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no κ in font [lmroman10-regular]:mapping=tex-text;!
@@ -658,7 +658,7 @@ Missing character: There is no α in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ι in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ν in font [lmroman10-regular]:mapping=tex-text;!
- [142] [143] [144] [145]
+ [143] [144] [145] [146]
 
 ! LaTeX Error: Too deeply nested.
 
@@ -671,7 +671,7 @@ l.6511 \begin{itemize}
 You're in trouble here.  Try typing  <return>  to proceed.
 If that doesn't work, type  X <return>  to quit.
 
-[146] [147]
+[147]
 Overfull \hbox (65.05739pt too wide) in paragraph at lines 6566--6570
 []
  []
@@ -808,10 +808,11 @@ Overfull \hbox (134.03874pt too wide) in paragraph at lines 6817--6818
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-bold]:mapping=tex-text;!
+ [156]
 Missing character: There is no ḗ in font [lmroman10-bold]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ḗ in font [lmroman10-regular]:mapping=tex-text;!
- [156] [157] [158]
+ [157] [158]
 Overfull \hbox (187.38287pt too wide) in paragraph at lines 7035--7048
 []
  []
@@ -821,14 +822,14 @@ Overfull \hbox (163.66214pt too wide) in paragraph at lines 7077--7090
 []
  []
 
-[160] [161]
+[160] [161] [162]
 Overfull \hbox (203.29681pt too wide) in paragraph at lines 7213--7219
 []
  []
 
-[162]
+[163]
 Missing character: There is no ḇ in font [lmroman10-regular]:mapping=tex-text;!
- [163] [164] [165] [166] [167] [168]
+ [164] [165] [166] [167] [168]
 Missing character: There is no ό in font [lmmono10-regular]:!
 Missing character: There is no ξ in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
@@ -878,9 +879,9 @@ Missing character: There is no κ in font [lmmono10-regular]:!
 Missing character: There is no ί in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
- [169] [170] [171] [172] [173]
-[174] [175] [176] [177] [178] [179] [180] [181] [182] [183] [184] [185]
-[186] [187]
+ [169] [170] [171] [172] [173] [174]
+[175] [176] [177] [178] [179] [180] [181] [182] [183] [184] [185] [186]
+[187]
 Overfull \hbox (3.5243pt too wide) in paragraph at lines 8388--8395
 []\TU/lmr/m/n/10.95 Lord, You know that we love You;
  []
@@ -1455,7 +1456,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 18493--18501
 
 [414] [415] [416]
 
-LaTeX Warning: Hyper reference `sec:org4253b25' on page 417 undefined on input 
+LaTeX Warning: Hyper reference `sec:org5b8bce6' on page 417 undefined on input 
 line 18887.
 
 [417] [418] [419] [420] [421] [422]
@@ -2404,7 +2405,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 25629--25632
 
 [566]
 
-LaTeX Warning: Hyper reference `sec:org646a743' on page 567 undefined on input 
+LaTeX Warning: Hyper reference `sec:org406f702' on page 567 undefined on input 
 line 25696.
 
 
@@ -5865,7 +5866,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1235] [1236]
 
-LaTeX Warning: Reference `sec:org7fac144' on page 1237 undefined on input line 
+LaTeX Warning: Reference `sec:orga7c9cb0' on page 1237 undefined on input line 
 59122.
 
 [1237] [1238]
@@ -7876,7 +7877,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [1809] [1810] [1811] [1812]
 
-LaTeX Warning: Reference `sec:org7fac144' on page 1813 undefined on input line 
+LaTeX Warning: Reference `sec:orga7c9cb0' on page 1813 undefined on input line 
 87532.
 
 [1813] [1814] [1815]
@@ -8104,7 +8105,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 91060--91063
 
 [1882] [1883] [1884] [1885] [1886]
 
-LaTeX Warning: Hyper reference `sec:org7d7f432' on page 1887 undefined on input
+LaTeX Warning: Hyper reference `sec:org83c77e7' on page 1887 undefined on input
  line 91350.
 
 
@@ -9055,7 +9056,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 102305--102306
 
 [2098] [2099] [2100] [2101] [2102] [2103] [2104]
 
-LaTeX Warning: Hyper reference `sec:org7d7f432' on page 2105 undefined on input
+LaTeX Warning: Hyper reference `sec:org83c77e7' on page 2105 undefined on input
  line 102522.
 
 [2105] [2106] [2107]
@@ -9400,7 +9401,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 104187--104194
 
 [2140]
 
-LaTeX Warning: Hyper reference `sec:org9703716' on page 2141 undefined on input
+LaTeX Warning: Hyper reference `sec:orgffeaea4' on page 2141 undefined on input
  line 104274.
 
 [2141]
