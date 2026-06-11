@@ -30,12 +30,12 @@ The Illustrated Transformer
 Practical macros in Racket
 Imaginary Programming
 CodeLingo vs Linters
-astral Ethereum Imaginary אα alethiology epistemology 𔒯 ⇌ 𝑖λ 𝑖web ࿋ Semiosis 𝑖i Pen.el GPT (Generative Pre-trained
-Transformer) biosemiotics xenolinguistics emacs elisp racket haskell NLP docker IR dalle games data info theory
-probability problog shell tooling IaC babel journal parsers review deep learning DSL music surreal dwarf fortress
-spacy latex Nix diagrams faith valentinianism gnostic python vim journal neural-engineering golang perl telco
-automation ELK optimisation release .NET csharp math term poetry code-gen rosie Terraform Semmle tcl/expect solr
-transformer Microsoft Neuralink OpenAI Uber Amazon GitHub Facebook Kaggle EleutherAI
+astral Ethereum Imaginary אα alethiology epistemology 𔒯 ⇌ 𝑖λ 𝑖web ࿋ Semiosis 𝑖i Pen.el GPT (Generative
+Pre-trained Transformer) biosemiotics xenolinguistics emacs elisp racket haskell NLP docker IR dalle games data
+info theory probability problog shell tooling IaC babel journal parsers review deep learning DSL music surreal
+dwarf fortress spacy latex Nix diagrams faith valentinianism gnostic python vim journal neural-engineering
+golang perl telco automation ELK optimisation release .NET csharp math term poetry code-gen rosie Terraform
+Semmle tcl/expect solr transformer Microsoft Neuralink OpenAI Uber Amazon GitHub Facebook Kaggle EleutherAI
 
 Latest articles   ⚔   Pen.el ⚔   Site Map
 
@@ -50,15 +50,15 @@ The Calling
 I believe it is my calling to help people to find their identity in Jesus due to AI technology making it more
 difficult.
 
-The issue is illusion. There’s a reason, I think, that God’s grace came to me through Valentinianism. It’s because
-the Valentinians understood that sin is falsehood and illusion, and Jesus heals/restores our spirits.
+The issue is illusion. There’s a reason, I think, that God’s grace came to me through Valentinianism. It’s
+because the Valentinians understood that sin is falsehood and illusion, and Jesus heals/restores our spirits.
 
 • Valentinus, Illusion and Integrity // Bodacious Blog
 
 The vision
 
-This year I’ve had 3 astral projections (bridal chamber) and 4 visions, which I have documented along with dreams,
-some of them Holy Spirit dreams.
+This year I’ve had 3 astral projections (bridal chamber) and 4 visions, which I have documented along with
+dreams, some of them Holy Spirit dreams.
 
 • Dream Resume // Bodacious Blog
 
@@ -68,8 +68,8 @@ This is one of those visions.
 
 Description
 
-A most red swallowtail flag, red on top, blue as the bottom half stripe I think, rolled around a pole, with white
-on the flag too I think.
+A most red swallowtail flag, red on top, blue as the bottom half stripe I think, rolled around a pole, with
+white on the flag too I think.
 
 The words "St John 2 June/July 2000 - A very strong force indeed" were written on the flag.
 
@@ -100,11 +100,11 @@ These soldiers are led by the most powerful leadership that ever existed, Jesus 
 
 2 Corinthians 10:3
 3 For though we live in the world, we do not wage war as the world does. 4 The weapons we fight with are not the
-weapons of the world. On the contrary, they have divine power to demolish strongholds. 5 We demolish arguments and
-every pretension that sets itself up against the knowledge of God, and we take captive every thought to make it
-obedient to Christ.
+weapons of the world. On the contrary, they have divine power to demolish strongholds. 5 We demolish arguments
+and every pretension that sets itself up against the knowledge of God, and we take captive every thought to make
+it obedient to Christ.
 
-══════════════════════════════════════════════════════════════════════════════════════════════════════════════════
+════════════════════════════════════════════════════════════════════════════════════════════════════════════════
 
 • It’s time for God’s army to do battle Daily Press
 • The Plagues - YouTube
@@ -129,8 +129,8 @@ white  nobility and frankness                             purity and innocence
 blue   faithfulness, honesty, impeccability, and chastity vigilance, perseverance and justice.
 red    for courage, generosity, and love.                 hardiness and valor
 
-The white triangle stands for equality and fraternity; the blue field for peace, truth and justice; and red field
-for patriotism and valor.
+The white triangle stands for equality and fraternity; the blue field for peace, truth and justice; and red
+field for patriotism and valor.
 
 A lot of countries have these colours.
 
@@ -179,11 +179,11 @@ Solemnity of the Holy Apostles Peter and Paul
 The Eucharistic Mystery
 
 • Angelus, 25 June 2000 | John Paul II
-• In the Eucharistic mystery the Risen One, in fact, has wished to continue dwelling in our midst, so that every
-human being can know his true name, his true face, and experience his boundless mercy.
+• In the Eucharistic mystery the Risen One, in fact, has wished to continue dwelling in our midst, so that
+every human being can know his true name, his true face, and experience his boundless mercy.
 • Christ is the only Saviour of the world.
-• He is the Mediator of the new and eternal Covenant (cf. Heb 9: 15), which fulfilled the Covenant God made
-on Sinai with the chosen people.
+• He is the Mediator of the new and eternal Covenant (cf. Heb 9: 15), which fulfilled the Covenant God
+made on Sinai with the chosen people.
 • It is a Covenant open to all peoples, in view of the great eschatological banquet foretold by the
 prophets of Israel.
 • In the light of this truth, the Church does not scorn what human beings do in their various
@@ -270,6 +270,6 @@ Prayer points
 Thanks for reading!
 If this article appears incomplete, it may be intentional. Try prompting for a continuation.
 
-Latest articles   ⚔   About this weblog   ⚔   Recordings   ⚔   How I met God   ⚔   Statement of Faith   ⚔   Dream
-Resumé   ⚔   Blogs and Vlogs   ⚔   CV   ⚔   Pen.el   ⚔   Im λ   ⚔   Site Map   ⚔   Gospel of Jesus
+Latest articles   ⚔   About this weblog   ⚔   Recordings   ⚔   How I met God   ⚔   Statement of Faith   ⚔  
+Dream Resumé   ⚔   Blogs and Vlogs   ⚔   CV   ⚔   Pen.el   ⚔   Im λ   ⚔   Site Map   ⚔   Gospel of Jesus
 
